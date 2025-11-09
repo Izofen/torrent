@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220883.jpgsave_picture_220883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220883.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220900.jpgsave_picture_220900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220900.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D59003797683D6724312F2FA38FF73868E597965
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221119.jpgsave_picture_221119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221119.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221224.jpgsave_picture_221224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221224.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Smart AudioBook Player Pro v11.5.9 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221264.jpgsave_picture_221264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221264.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:09A68FAB114C055D1C66F296E346CA1587A92AA0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228763.jpgsave_picture_228763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228763.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9A20354067921F943C3618D7543ACCE0DD0F9680
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228795.jpgsave_picture_228795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228795.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ AmiHear - Hearing Aid App 2.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230010.jpgsave_picture_230010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230010.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ EasyWay - общественный транспорт 6.0.2.44 Lite-Mod by andy_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230376.jpgsave_picture_230376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230376.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Always on Edge 8.0.1 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230524.jpgsave_picture_230524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230524.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DiskDigger Pro 1.0-pro-2023-04-11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230544.jpgsave_picture_230544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230544.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Moviebase Premium 4.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230673.jpgsave_picture_230673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230673.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230675.jpgsave_picture_230675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230675.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230824.jpgsave_picture_230824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230824.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Dynamic Island 1.3.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230826.jpgsave_picture_230826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230826.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ TrackView - HomeSafe v3.8.12  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230862.jpgsave_picture_230862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230862.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ X Icon Changer - Change Icons 4.2.9 Mod by Citrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230864.jpgsave_picture_230864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230864.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ MediBang Paint Pro 25.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230879.jpgsave_picture_230879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230879.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ SMD info v1.39 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230924.jpgsave_picture_230924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230924.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Mivo - Видеоредактор 3.34.619 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230948.jpgsave_picture_230948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230948.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230966.jpgsave_picture_230966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230966.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Made - Редактор и коллаж 1.2.14 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231146.jpgsave_picture_231146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231146.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ InShot v1.950.1411 Mod by Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231417.jpgsave_picture_231417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231417.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ RAR for Android v6.22 build 115 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233550.jpgsave_picture_233550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233550.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ BimmerLink for BMW and MINI 2.29.0-5264 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233569.jpgsave_picture_233569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233569.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ GeoZilla v6.36.12 [Ru/Multi] – найти мой телефон. Семейн�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233635.jpgsave_picture_233635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233635.jpg" />
 </div>
 
 

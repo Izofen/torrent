@@ -6,7 +6,7 @@ SIFU (2022) [Ru/Multi] (1.26.6.660/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117748.jpgsave_picture_117748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117748.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117749.jpgsave_picture_117749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117749.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5C89D62DF07B91D423C4DDF9FD108482F567D2D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117750.jpgsave_picture_117750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117750.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9F3AB89C58227B769ED7DDE68DACBED589A392E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117751.jpgsave_picture_117751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117751.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7729E1F30E04260FECB6DE2FE8A0240F057A727F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117752.jpgsave_picture_117752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117752.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B367D5675CA1182C08D8D6D5CA00D7FBFAEB3878
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117753.jpgsave_picture_117753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117753.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:84D5BAC0391F82A97C7E54C7B126F24256BC0664
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117755.jpgsave_picture_117755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117755.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3155]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117756.jpgsave_picture_117756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117756.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Microsoft Office 2021 for Mac LTSC v.16.82 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117757.jpgsave_picture_117757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117757.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4046]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117758.jpgsave_picture_117758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117758.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ SolidWorks 2024 SP1 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117759.jpgsave_picture_117759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117759.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ CCleaner 6.21.10918 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117760.jpgsave_picture_117760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117760.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:2BF3F37624CDE2DE56AC469AF40B19961BAFA618
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117761.jpgsave_picture_117761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117761.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:130130A21B469D3D6E1A60E506E29DA7BC5FA9E6
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117763.jpgsave_picture_117763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117763.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C11476D844FD45A7664F77E316FB505CE4D0703D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117764.jpgsave_picture_117764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117764.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ CCleaner 6.21.10918 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117765.jpgsave_picture_117765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117765.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:D98510117C0F045CF7700C46B60E29090E17A6FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117766.jpgsave_picture_117766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117766.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Funeral Procession - In Still Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117767.jpgsave_picture_117767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117767.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Topor - Wieczna kazn (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117768.jpgsave_picture_117768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117768.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:F0B5FA760BBC5E4E5919B7FFE5A46D9A93FDC583
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117769.jpgsave_picture_117769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117769.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Vintlechkeit - Alt har en ende... (2021) Demo [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117770.jpgsave_picture_117770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117770.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Feeder 4 v.4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117771.jpgsave_picture_117771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117771.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Billboard Top Pop Hits, 1960 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117772.jpgsave_picture_117772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117772.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adam Astrup - Songs From Before (2024) [FLAC|Lossless|WEB-DL|tracks] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117773.jpgsave_picture_117773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117773.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Jay Aston - I Spy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117774.jpgsave_picture_117774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117774.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Path Finder 2167 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117775.jpgsave_picture_117775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117775.jpg" />
 </div>
 
 

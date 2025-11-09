@@ -6,7 +6,7 @@ Balabolka 2.15.0.848 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239108.jpgsave_picture_239108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239108.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera GX 90.0.4480.117 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239109.jpgsave_picture_239109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239109.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:A07061A6DDF0B392E5047A3D27CAB46D9896AA2A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239111.jpgsave_picture_239111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239111.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:8216E065E93CB63D9E1471D9845C562A68235338
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239112.jpgsave_picture_239112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239112.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Screens 4 v4.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239113.jpgsave_picture_239113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239113.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:17B102C19AE5967257E5CF0989F7B478A1E2D078
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239116.jpgsave_picture_239116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239116.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ DVDFab 12.0.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239117.jpgsave_picture_239117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239117.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Formalin - Love and Nihilism (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro Indus
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239118.jpgsave_picture_239118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239118.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ DiskCatalogMaker 8.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239119.jpgsave_picture_239119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239119.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ NG. Смертельно опасные монстры Австралии / Aust
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239120.jpgsave_picture_239120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239120.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:9987836F2EE8A7AAEE77A0B516EFA5CF242037A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239122.jpgsave_picture_239122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239122.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ YT Downloader 7.27.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239123.jpgsave_picture_239123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239123.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Microsoft Edge 91.0.864.48 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239125.jpgsave_picture_239125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239125.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Textastic 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239126.jpgsave_picture_239126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239126.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ System Ninja Pro 3.2.10 (26.08.2022) RePack (& Portable) by elchupacabra [Multi/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239127.jpgsave_picture_239127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239127.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ ImgDrive 1.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239129.jpgsave_picture_239129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239129.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Avery Watts - Death Ground (2023) [MP3|320 Kbps] <Alternative Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239130.jpgsave_picture_239130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239130.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:204E22402060047508271A843FA1BC56F2DA7890
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239131.jpgsave_picture_239131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239131.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ DirEqual 3.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239133.jpgsave_picture_239133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239133.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ AIMP 5.03 Build 2398 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239134.jpgsave_picture_239134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239134.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Yoink 3.6.83 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239135.jpgsave_picture_239135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239135.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:70E37F320BE61DDC2B8C2504F1FC54939CF92119
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239136.jpgsave_picture_239136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239136.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Glary Disk Cleaner 5.0.1.291 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239138.jpgsave_picture_239138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239138.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:978E402BD515BC795CF9CA7E808F073574B23D6B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239139.jpgsave_picture_239139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239139.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:357F0FA8C27DFC4208E3F17008D6AAFC90ED35E6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239141.jpgsave_picture_239141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239141.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Galactic Beats Future: House Mixtape (2021) [MP3|320 Kbps] <House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239142.jpgsave_picture_239142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239142.jpg" />
 </div>
 
 

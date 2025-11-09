@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39199.jpgsave_picture_39199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39199.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39200.jpgsave_picture_39200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39200.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A4F8E6C571FC703BA352B114ED95672A74FB8670
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39201.jpgsave_picture_39201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39201.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Cat Scanner / Сканер породы кошек v17.2.6-G Mod by PieMods [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39202.jpgsave_picture_39202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39202.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:EE07F2F4AFABC3DB055FEE97E1F3F30903FEFBF2
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39203.jpgsave_picture_39203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39203.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Super Dark Deception (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39204.jpgsave_picture_39204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39204.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.01) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39205.jpgsave_picture_39205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39205.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:83155819E69A08ED897019285CA76A3E7C36F226
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39206.jpgsave_picture_39206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39206.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:E1A324B5F2E599C6AC8C6A187C80D736CDD91E80
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39207.jpgsave_picture_39207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39207.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) License GOG [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39208.jpgsave_picture_39208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39208.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:32CBCB1264A4393C9BCB320A95C37D9B262AAED8
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39209.jpgsave_picture_39209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39209.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:2D353303F589318710154637048385EC94003E30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39210.jpgsave_picture_39210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39210.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:73AE1B965C4BFC270B6A01451BCA7D01FB06BAC6
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39211.jpgsave_picture_39211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39211.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:1DDFFACDCE9AB778A34048961F9BD53350A173DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39212.jpgsave_picture_39212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39212.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1DF9B8AB186256D187F0389220B012797B0A0E74
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39213.jpgsave_picture_39213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39213.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:A406063DA87BD8A6C19028E05EF15734528C0D1E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39214.jpgsave_picture_39214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39214.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:36E284B9259D520963A369CC2F45FF51DD855F1E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39215.jpgsave_picture_39215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39215.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ ChrisPC Win Experience Index 7.24.1023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39216.jpgsave_picture_39216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39216.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39217.jpgsave_picture_39217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39217.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:E9DD4CA9AE4B9E1867EB2814AA759AC295238E02
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39218.jpgsave_picture_39218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39218.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ The Great Rebellion (2024) [Multi] (1.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39219.jpgsave_picture_39219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39219.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:79AEBD50279F7BE75330CBBF927731652C061E8E
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39220.jpgsave_picture_39220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39220.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:CCB963C7439D7EBE4ED5F4CA6573DF0FDE9315F3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39221.jpgsave_picture_39221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39221.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Real Guitar / Уроки игры на гитаре v8.32.1 Mod by MustHave [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39222.jpgsave_picture_39222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39222.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ XtraTools Professional 24.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39223.jpgsave_picture_39223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39223.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:CE6993DF8E925D142F7979B6374B6C39CDE879BD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39224.jpgsave_picture_39224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39224.jpg" />
 </div>
 
 

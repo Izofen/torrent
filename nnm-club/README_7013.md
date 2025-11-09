@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240500.jpgsave_picture_240500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240500.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Best Radio Tracks, Vol. 25 (2023) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240501.jpgsave_picture_240501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240501.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9B04AB719C222764BA631A978DE4880589133869
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240502.jpgsave_picture_240502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240502.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Chris Biesterfeldt - Phineas (2014) Self-Released [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240503.jpgsave_picture_240503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240503.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Jeff Scott Soto - Complicated (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic H
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240504.jpgsave_picture_240504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240504.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Windows 11 Manager 1.1.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240505.jpgsave_picture_240505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240505.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:E3C26FF57F515875F1CB8A37B4054525969A2017
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240506.jpgsave_picture_240506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240506.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Performance Index 64 Pro 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240507.jpgsave_picture_240507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240507.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:EDC559720EA655B6B792591C5F1E88733913C2F1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240508.jpgsave_picture_240508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240508.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ NVIDIA GeForce Desktop Game Ready 531.61 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240509.jpgsave_picture_240509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240509.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:10708C43B6702B7BC5CC43F319E916D0D62E7C56
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240510.jpgsave_picture_240510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240510.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Screaming Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240511.jpgsave_picture_240511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240511.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:2D345A04ADAD64E18C1916A3C256C46DBA39F36B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240512.jpgsave_picture_240512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240512.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:1F3FC6B31F05C938F55EB41E228AA5A294C4F44C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240513.jpgsave_picture_240513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240513.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:07222CAA827BC1386C365DB64A54F6C277EEC6F8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240514.jpgsave_picture_240514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240514.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Yate 6.4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240515.jpgsave_picture_240515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240515.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Oblivion Winters - The Lake of Widows' Tears (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240516.jpgsave_picture_240516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240516.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:ED67953D6E52E4D64DFD86E693647D54766E1506
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240517.jpgsave_picture_240517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240517.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240518.jpgsave_picture_240518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240518.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:0B1D71AD068D2B8EF5AFF442CBEEDC014A95B20C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240519.jpgsave_picture_240519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240519.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Wo Fat - The Singularity (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240520.jpgsave_picture_240520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240520.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:247E95A951EE5264A0141BB917695A6EF87EA381
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240521.jpgsave_picture_240521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240521.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:276B8804DBFFFD25DF115F9826F4AB7AF16EB2E7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240522.jpgsave_picture_240522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240522.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:3014C0D238EE8553948425034F89D67B333AE84E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240523.jpgsave_picture_240523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240523.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:3B2D7E76AF965BB3E92BFDAD4B0EA20B83DCE844
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240524.jpgsave_picture_240524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240524.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:2812D639E66BB09F7932CC0424DC1C5EF7A2448D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240525.jpgsave_picture_240525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240525.jpg" />
 </div>
 
 

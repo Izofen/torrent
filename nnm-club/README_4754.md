@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148780.jpgsave_picture_148780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148780.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2DD61AE1C3248A5C0043156302B6A5467407EF5B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148781.jpgsave_picture_148781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148781.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:92912408124DD09268E24205F2E650F070BCBF40
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148782.jpgsave_picture_148782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148782.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7CDB0E6DD66D1A1A39079F568D9D97D977E628C0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148783.jpgsave_picture_148783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148783.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B0491C67CD2383E5754F6F2298F70DACBE671E53
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148784.jpgsave_picture_148784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148784.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9869CF3A2CD2775315A7C326A8D7D66BE288F4CF
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148786.jpgsave_picture_148786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148786.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:87847E1919BADC479C5F86A786B8A7A23793D92A
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148787.jpgsave_picture_148787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148787.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3D05EE1A31099CC0C0C8434349B0FE5F7CADA5D1
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148788.jpgsave_picture_148788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148788.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Disk Drill Entreprise 2.4.437 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148789.jpgsave_picture_148789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148789.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:DC1A4C58CC8802B516E4D4075C8CED039A3890B8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148790.jpgsave_picture_148790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148790.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:E72B47CB4AA105A4437E8C501D5F7EBC4F2D6014
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148792.jpgsave_picture_148792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148792.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:157BA329B6216E027B7F2FF90A0BB37C1A9224D1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148794.jpgsave_picture_148794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148794.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ SAM CoDeC and DeCoDeR Pack 2012 4.75 Final [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148795.jpgsave_picture_148795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148795.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Permute 3 v3.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148796.jpgsave_picture_148796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148796.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Nozomu Wakai's Destinia - Requiem For A Scream (2014) (Japanese Edition) [FLAC|L
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148798.jpgsave_picture_148798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148798.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Balance BY v6.1.255 Pro [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148799.jpgsave_picture_148799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148799.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A219A74FED058D50351BF5E5E7480CDFB2B73ECC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148800.jpgsave_picture_148800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148800.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:FC5CA3E95AD43FDF083221B0B803624A3C5DC200
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148801.jpgsave_picture_148801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148801.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:89239FDF2B5148D6FC092F7CF457A5DB101A58F7
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148802.jpgsave_picture_148802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148802.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Beats Drum Jungle (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148803.jpgsave_picture_148803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148803.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Simple Bootable Flash Drive by StartSoft Presentation 27-2020 [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148806.jpgsave_picture_148806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148806.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Jo Jo Gunne - Jo Jo Gunne (1972) Reissue, 2003, Collectors' Choice Music [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148807.jpgsave_picture_148807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148807.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:1A563FDDA7D4522B61076CA6B2C6A72569693710
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148810.jpgsave_picture_148810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148810.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Serpent Lord - Apocrypha (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148811.jpgsave_picture_148811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148811.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - New Music Releases Week 51 of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alt
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148813.jpgsave_picture_148813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148813.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:404BDB937CA8CB196DB6B94BBF262282FFC0BA03
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148814.jpgsave_picture_148814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148814.jpg" />
 </div>
 
 

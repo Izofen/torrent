@@ -6,7 +6,7 @@ Some Pills For Ayala - 5 Releases (2021-2023) [MP3|320 Kbps] <Heavy Psych, Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232750.jpgsave_picture_232750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232750.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hrothgar - Rise of Ragnarok (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232753.jpgsave_picture_232753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232753.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wasteland Haze - Welcome To Wasteland Haze (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232758.jpgsave_picture_232758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232758.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chemicide - Common Sense (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232768.jpgsave_picture_232768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232768.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lift The Curse - Suffer And Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232781.jpgsave_picture_232781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232781.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Voodoo Trees - Ego Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232783.jpgsave_picture_232783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232783.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ A Life Divided - Down The Spiral Of A Soul (2023) [FLAC|24/44.1|tracks|WEB-DL] <
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232785.jpgsave_picture_232785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232785.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Collapsed Minds - Abyss (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232805.jpgsave_picture_232805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232805.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Thunderforge - Vanquish The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232811.jpgsave_picture_232811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232811.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ King Weird - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Sludge, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232815.jpgsave_picture_232815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232815.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Spiritus Mortis - The Great Seal (2022) [FLAC|Lossless|WEB-DL|tracks] <Tradition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232821.jpgsave_picture_232821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232821.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ancestry - Transitions (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232826.jpgsave_picture_232826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232826.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Speedwhore - Visions of a Parallel World (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232827.jpgsave_picture_232827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232827.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Rusty Bonez - Brainworm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232832.jpgsave_picture_232832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232832.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Collapsed Minds - Dead End Theory (2017) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232837.jpgsave_picture_232837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232837.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Anguish Force - Atzwang (2012) [FLAC|Lossless|image + .cue] <Heavy, Power, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232840.jpgsave_picture_232840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232840.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Hellwitch - Annihilational Intercention (2023) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232843.jpgsave_picture_232843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232843.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Speedwhore - The Future Is Now (2015) [FLAC|Lossless|image + .cue] <Black, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232847.jpgsave_picture_232847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232847.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ National Nightmare - High Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232853.jpgsave_picture_232853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232853.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ The Ducks - High Flyin' (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232861.jpgsave_picture_232861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232861.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Avalanch - El Dilema De Los Dioses (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232866.jpgsave_picture_232866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232866.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Protz - In Dog We Trust (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232871.jpgsave_picture_232871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232871.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Ancestry - Revelations (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232879.jpgsave_picture_232879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232879.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ A Pretext to Human Suffering - Endless Cycle of Suffering (2023) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232891.jpgsave_picture_232891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232891.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:F02D8288FC70625E5BB5362EB267C0A8128998F4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232924.jpgsave_picture_232924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232924.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Stray Gods - Olympus (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232947.jpgsave_picture_232947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232947.jpg" />
 </div>
 
 

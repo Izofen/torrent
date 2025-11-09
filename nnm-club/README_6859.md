@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235610.jpgsave_picture_235610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235610.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Data Guardian 7 v7.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235611.jpgsave_picture_235611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235611.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Prevail in Darkness - Inferno (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235612.jpgsave_picture_235612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235612.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Nuclear Cthulhu - Desecration (2016) [FLAC|Lossless|WEB-DL|tracks] <Black Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235613.jpgsave_picture_235613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235613.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Posterino 3 v3.10.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235614.jpgsave_picture_235614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235614.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 1) (2023) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235615.jpgsave_picture_235615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235615.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:E6EC6B2DB7D48262E13072F7B3EF0A1A1E9320EF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235616.jpgsave_picture_235616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235616.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Skyliner - Outsiders (2014) [FLAC|Lossless|image + .cue] <Power Metal, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235617.jpgsave_picture_235617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235617.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:A1B8E903E716076C39B2BFC6F98076D84886E79C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235618.jpgsave_picture_235618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235618.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:FE17B69316DA29292241BDE13B420BDFE07E6F69
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235619.jpgsave_picture_235619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235619.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235620.jpgsave_picture_235620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235620.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ MAGIX Photostory Deluxe 2023 22.0.3.135 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235621.jpgsave_picture_235621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235621.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Novembers Doom - Hamartia (2017) [FLAC|Lossless|image + .cue] <Melodic Doom, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235622.jpgsave_picture_235622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235622.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:0D18E762E5D3174D02AB4556C095D2AC751A7DBE
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235623.jpgsave_picture_235623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235623.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Breaths - Lined in Silver (2021) 2CD [MP3|320 Kbps] <Blackgaze, Post-Hardcore, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235624.jpgsave_picture_235624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235624.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Permute 3 v3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235625.jpgsave_picture_235625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235625.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Orphans of Dusk - Spleen (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235626.jpgsave_picture_235626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235626.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Gumroad, Wiktor Öhman | Mastering UE4 - Intro to Cinematic Lighting (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235627.jpgsave_picture_235627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235627.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:2310574041BC9780292599BA54F9394B8ED3CD83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235628.jpgsave_picture_235628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235628.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Needle Grey - Seasons Past (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235629.jpgsave_picture_235629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235629.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235630.jpgsave_picture_235630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235630.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Seasons of the Wolf - Seasons of the Wolf (1996) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235631.jpgsave_picture_235631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235631.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3E45CFBF12A0EF8FA74CED657A96085A5778949B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235632.jpgsave_picture_235632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235632.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Death from Above 1979 - Is 4 Lovers (2021) [MP3|320 Kbps] <Alternative, Indie Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235633.jpgsave_picture_235633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235633.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:1F7E4A1CBB76A5D8CC93A6A7F6E8FFACE9690AE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235634.jpgsave_picture_235634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235634.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Epic Games, Paul Kind | Studio Lighting (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235635.jpgsave_picture_235635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235635.jpg" />
 </div>
 
 

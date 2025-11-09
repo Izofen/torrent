@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28196.jpgsave_picture_28196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28196.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BB205BFBA546DFCBAF3B0AEB63160C7294EAAB05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28197.jpgsave_picture_28197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28197.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5D38C58305057EC532ABDCCC5E08A57187D24D08
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28198.jpgsave_picture_28198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28198.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:C02D67CF02AECBA73624E7758D840D9AFF9D22BA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28199.jpgsave_picture_28199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28199.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:63957FCE02B3BF94F06876AEDD3FB02BB5E2007E
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28200.jpgsave_picture_28200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28200.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:A42B1B3A1C8A4DB4493447CDC26ABF6112482D81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28201.jpgsave_picture_28201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28201.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F856D7B5296FB4338D41DF1AE13ED2DEC0F1110C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28202.jpgsave_picture_28202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28202.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2791F6D1339B97F089EA8330E6F6ADF716477919
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28203.jpgsave_picture_28203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28203.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:4FB59A150916549AC72DAE25C7821BA88D98907C
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28204.jpgsave_picture_28204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28204.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Only Lead Can Stop Them (2024) [Ru/Multi] (1.16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28205.jpgsave_picture_28205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28205.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:CA82BC5286B803E14A245507C75567BD9E2FED64
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28206.jpgsave_picture_28206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28206.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:7D773BE3EC1E5657521D52A9D0CC382F3F914D4F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28207.jpgsave_picture_28207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28207.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28208.jpgsave_picture_28208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28208.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:A55854612E0B7DD22B63BADC4B1720AE182E8A8B
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28209.jpgsave_picture_28209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28209.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:421A2D97E4A2AAB9EB0018C866FAABB6EA17F688
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28210.jpgsave_picture_28210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28210.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:667E15417A2D81B2E7F5C653A83FA469FAEC999B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28211.jpgsave_picture_28211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28211.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C5F3F4C4C3F64FFFCB308CAA901AE3CB2322779F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28212.jpgsave_picture_28212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28212.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:F99CFDD67CD0C988334EFA0206D3D1D77CEAD003
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28213.jpgsave_picture_28213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28213.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:94E91C28F41027AEA7C75BE1190338E71A4AE63C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28214.jpgsave_picture_28214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28214.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Adobe Photoshop 2025 26.3.0.156 (03.02.2025) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28215.jpgsave_picture_28215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28215.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:7195E51A9E807E8A8F2388046ED396AD839608E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28216.jpgsave_picture_28216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28216.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ DOOM + DOOM II (2024) [Ru/Multi] (2676) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28217.jpgsave_picture_28217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28217.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:34DBCCCDD40BE346B39B3B4CF8A999E495DF8508
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28218.jpgsave_picture_28218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28218.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Launcher for zapret 1.8 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28219.jpgsave_picture_28219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28219.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Diablo + Hellfire (1996) [Ru/Multi] (1.5.4) Mod [DevilutionX]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28220.jpgsave_picture_28220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28220.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ House Of Lords - 16 альбомов (1988 - 2024) 17 CD [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28221.jpgsave_picture_28221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28221.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62611.jpgsave_picture_62611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62611.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4896F0D6C9A60E2CCE28BB625F91E3C3224344BF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62612.jpgsave_picture_62612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62612.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ The Hardkiss - 5 Albums + 21 Singles (2014-2024) [FLAC|Lossless|tracks] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62613.jpgsave_picture_62613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62613.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LazyMedia Deluxe v3.308 Mod by Alex.Strannik [Ru/En]
 >>18
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62614.jpgsave_picture_62614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62614.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Solasta - Crown of the Magister (2021) [Ru/Multi] (1.5.97/dlc) License GOG [Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62615.jpgsave_picture_62615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62615.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62616.jpgsave_picture_62616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62616.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Adobe Photoshop for Mac 2024 v.25.5.1 fix [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62617.jpgsave_picture_62617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62617.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7C583DB39215626A2028555B1B2C0D2D792558DE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62618.jpgsave_picture_62618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62618.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B3DA1890F0ADBF8D31CA97695499D3F3E471B7B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62619.jpgsave_picture_62619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62619.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A827A8BCD9332328055CE0712597CAEA3A0F8F85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62620.jpgsave_picture_62620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62620.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Enigma - Collection (2024) [MP3|320 Kbps] <New Age>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62621.jpgsave_picture_62621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62621.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:17FA17197E4CAFCB837A67FAE3B6D88B32950318
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62622.jpgsave_picture_62622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62622.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p-
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62623.jpgsave_picture_62623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62623.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:27DCD10CB81155993491292327E1D8BD6732FD9F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62624.jpgsave_picture_62624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62624.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:11C809D58481E54D803EC1DA7E2F86872821B1E0
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62625.jpgsave_picture_62625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62625.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Slade - 43 albums, 2 Box-Sets, 84CD (1969-2024) [FLAC|Lossless|image + .cue | tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62626.jpgsave_picture_62626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62626.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:A40D74866DB1E1721730C8303484C3661A4B33B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62627.jpgsave_picture_62627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62627.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:8B8E5B4B36E7B186262BC2B168B2C18F2E496435
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62628.jpgsave_picture_62628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62628.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:8B8E5B4B36E7B186262BC2B168B2C18F2E496435
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62629.jpgsave_picture_62629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62629.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:672ADEFC143A83745BE3506A25E95DC4145DD203
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62630.jpgsave_picture_62630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62630.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:672ADEFC143A83745BE3506A25E95DC4145DD203
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62631.jpgsave_picture_62631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62631.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.492.0/dlc) Repack Decepticon [Defi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62632.jpgsave_picture_62632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62632.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:AF5D2257DB68B57B318A94B94CD63BF61941CF99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62633.jpgsave_picture_62633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62633.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Reggae Sun music (2024) [MP3|320 Kbps] <Reggae, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62634.jpgsave_picture_62634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62634.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:FB075DE97DA3F5616C85247D8B7F160833E6B8B8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62635.jpgsave_picture_62635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62635.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:6B857D60D2D1353216A75DA28C6D43AF8A7CB7A1
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62636.jpgsave_picture_62636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62636.jpg" />
 </div>
 
 

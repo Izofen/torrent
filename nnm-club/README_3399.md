@@ -6,7 +6,7 @@ Armed Cloud - Nimbus (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108735.jpgsave_picture_108735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108735.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Horace Parlan - Musically Yours (1979) 1994, SteepleChase [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108736.jpgsave_picture_108736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108736.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gerry Wiggins - Live at Maybeck Recital Hall, Vol. 8 (1990) 1991, Concord Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108737.jpgsave_picture_108737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108737.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:B23655EDEFA61C793EBDF53BD9BE769ACAA65AA7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108738.jpgsave_picture_108738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108738.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Telegram Desktop 5.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108739.jpgsave_picture_108739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108739.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:00F61A6C36A9942EF65711A3DED26A0C963F7E58
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108740.jpgsave_picture_108740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108740.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:23A3A2ED5C58205382C1520A6F2E4E87628AD109
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108741.jpgsave_picture_108741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108741.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:EDD2C69D78AC0422C8DC46F7CE8C92631A695B0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108742.jpgsave_picture_108742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108742.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ GeoGebra 6.0.843.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108743.jpgsave_picture_108743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108743.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Skype 8.120.0.207 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108744.jpgsave_picture_108744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108744.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:4A1EF5C2BE8006C5AD99B24D0FB3087A9116AE1F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108745.jpgsave_picture_108745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108745.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Uplifting Only Top 15: May 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108746.jpgsave_picture_108746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108746.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:F60F41AFBBCC5A7C841613CA5B5A35DCD5C54E1F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108747.jpgsave_picture_108747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108747.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Photo Lab PRO v3.13.10 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108748.jpgsave_picture_108748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108748.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:AFFB3DE8BDC730E64CD8204EFA3FE631F7DC413D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108749.jpgsave_picture_108749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108749.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Vasco Rossi - Greatest Hits (2002) [WavPack|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108750.jpgsave_picture_108750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108750.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Night's Music Zone - Soothing Night of Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108751.jpgsave_picture_108751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108751.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Theater of Malum - Edge of The Unknown (2024) [FLAC|Lossless|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108752.jpgsave_picture_108752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108752.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:B14BDBBDB9A4BC55A6A0133C5A933E5DE697154C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108753.jpgsave_picture_108753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108753.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108754.jpgsave_picture_108754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108754.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:65DABCD965CE38B96A0D5832E146B763619C5EF8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108755.jpgsave_picture_108755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108755.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Silver Horses - Electric Omega (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108756.jpgsave_picture_108756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108756.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:BEC42802F68C1944B8A9703D46C4480D8E6C9563
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108757.jpgsave_picture_108757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108757.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Skype 8.120.0.207 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108758.jpgsave_picture_108758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108758.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:286A3E58356677B4B5877749C08B4B245AC7A5F6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108759.jpgsave_picture_108759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108759.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:319D0638C13EFAB1F48D9B54E0CE395871DC65F6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108760.jpgsave_picture_108760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108760.jpg" />
 </div>
 
 

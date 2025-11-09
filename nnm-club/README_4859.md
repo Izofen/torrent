@@ -6,7 +6,7 @@ Within Nostalgia - Void & Decay (2020) [MP3|320 Kbps] <Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152025.jpgsave_picture_152025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152025.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152026.jpgsave_picture_152026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152026.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:25CCB436FC07D16F0525E9C0B37FCEE1E4EB708B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152027.jpgsave_picture_152027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152027.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:EBB3F7FBB8F4EB32FE865C0E699CAF63A644C6CB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152028.jpgsave_picture_152028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152028.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:4C5619F0464DF6B203C096F525BFE699105D31D9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152029.jpgsave_picture_152029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152029.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Basic Element & Dr. Alban & Waldo’s People & Elize Ryd - Life Is Now (2022) Si
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152030.jpgsave_picture_152030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152030.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:7A4F7EAE9E54F3A9B765282750D2A4CB4EAA5F74
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152031.jpgsave_picture_152031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152031.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:E7429055512E8F95369CA005D15605EA77505537
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152033.jpgsave_picture_152033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152033.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:877F8C42A449EABBE1ED2505A74369127D77D2BB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152034.jpgsave_picture_152034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152034.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:FEF498CB61F15DD8D8F75B1DF2E35B734DF4A2CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152035.jpgsave_picture_152035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152035.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Ori Uplift - Uplifting Only Episode 662 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152036.jpgsave_picture_152036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152036.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:11A15F7AF1A40AC47AFE8A84A6494A711D0250BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152037.jpgsave_picture_152037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152037.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Hidden Machine - Djeneration II (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152038.jpgsave_picture_152038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152038.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:5DE33D720183EE457125F915AA97AA229C9E2F47
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152039.jpgsave_picture_152039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152039.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:1E6C6BAFC61DC83AE770B2D5062461763C95D059
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152040.jpgsave_picture_152040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152040.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152041.jpgsave_picture_152041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152041.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:27D612129CF2A9415D58CD1EF9D1E8B46A4FFFEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152042.jpgsave_picture_152042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152042.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:30633E724CCB18E57DAB58A81D9B997779830734
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152043.jpgsave_picture_152043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152043.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:B98A4D372794E21052B8028812C7994313FD4F8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152044.jpgsave_picture_152044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152044.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Danse Macabre 5: Lethal Letters / Танец смерти 5. Роковые пи
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152045.jpgsave_picture_152045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152045.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Expressif Systems | ESP32-C3: Беспроводное приключение: �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152047.jpgsave_picture_152047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152047.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Top Of The Pops 70s (vol.3) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152049.jpgsave_picture_152049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152049.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ AnyTrans for iOS 8.9.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152050.jpgsave_picture_152050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152050.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:6D6969C26E5C496C1DE0E94BC19AFBF8A5CB6F60
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152051.jpgsave_picture_152051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152051.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ URL Manager Pro 5.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152052.jpgsave_picture_152052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152052.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Future Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152054.jpgsave_picture_152054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152054.jpg" />
 </div>
 
 

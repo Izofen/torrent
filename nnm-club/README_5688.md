@@ -6,7 +6,7 @@
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175221.jpgsave_picture_175221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175221.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8793F3B503A1BACADE10846516ED83D6EC9FDE3F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175222.jpgsave_picture_175222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175222.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Auslogics Disk Defrag Pro 11.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175224.jpgsave_picture_175224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175224.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Morph Age 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175225.jpgsave_picture_175225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175225.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Pentiment (2022) [Multi] (1.0.1212) License Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175226.jpgsave_picture_175226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175226.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Fission 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175228.jpgsave_picture_175228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175228.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ BurnAware Professional 17.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175229.jpgsave_picture_175229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175229.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Outline Client VPN 1.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175230.jpgsave_picture_175230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175230.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Bootstrap Studio 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175232.jpgsave_picture_175232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175232.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.1 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175233.jpgsave_picture_175233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175233.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:DA65CFD3D201591AED1B51B3B6095AA4ABACFE05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175234.jpgsave_picture_175234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175234.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Find Same Images OK 5.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175236.jpgsave_picture_175236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175236.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:AAA71D8CB01A6EF05CED09EBA66D503CA483BFAB
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175237.jpgsave_picture_175237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175237.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Auslogics Duplicate File Finder 10.0.0.4 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175241.jpgsave_picture_175241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175241.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kerish Doctor 2022 4.90 (Update 05.12.2022) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175242.jpgsave_picture_175242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175242.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:504B1177404EF31054811EC5E3A1B3FA368E664F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175244.jpgsave_picture_175244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175244.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:3D3B9BD70E979071F38B6A75B6AB85DC3746FAFF
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175245.jpgsave_picture_175245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175245.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Internet Download Manager 6.41 Build 6 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175246.jpgsave_picture_175246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175246.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:1696D65DF3CA8E75A1DF235F437478B4F3E47409
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175248.jpgsave_picture_175248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175248.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Topaz Video AI 3.5.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175249.jpgsave_picture_175249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175249.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D07BA12327F6203B578A7253BDDD57ADB49C7D12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175250.jpgsave_picture_175250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175250.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Exposure Software Blow Up 3 v3.1.4.360 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175252.jpgsave_picture_175252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175252.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:D1222EA3573091233A187F588108C4788511565A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175253.jpgsave_picture_175253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175253.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:2502940399F2D8A3B0F8D2F6A65F8955AA2EB45A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175254.jpgsave_picture_175254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175254.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:31A4CCBE39ACEBB4CA65D932EAA42392ED05AB21
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175256.jpgsave_picture_175256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175256.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Auslogics Registry Cleaner Pro 10.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175257.jpgsave_picture_175257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175257.jpg" />
 </div>
 
 

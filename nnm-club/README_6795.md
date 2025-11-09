@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233806.jpgsave_picture_233806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233806.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DF20C17094022FBFB429DE8130440D4D9F15BD30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233807.jpgsave_picture_233807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233807.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8AC4E3F8958D362365E4FA4A3398BA59245115BF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233808.jpgsave_picture_233808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233808.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Glacier - The Passing of Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233809.jpgsave_picture_233809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233809.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:CF2682CCC04A508A5EEDD9262BFC8439554E1E6A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233810.jpgsave_picture_233810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233810.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Macrorit Data Wiper 6.9.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233812.jpgsave_picture_233812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233812.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Mellel 5 v.5.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233813.jpgsave_picture_233813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233813.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Sacred Outcry - Damned for All Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233814.jpgsave_picture_233814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233814.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:3185D85A5D2F6AEA4E0E825B19C3B2A6DF2165AC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233815.jpgsave_picture_233815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233815.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Theine 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233816.jpgsave_picture_233816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233816.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Anthem - Crimson & Jet Black (2023) Japanese Edition, 3xCD [WavPack|Lossless|ima
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233817.jpgsave_picture_233817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233817.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ The Guess Who - Plein D'Amour (2023) [FLAC 2.0|24/44.1|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233818.jpgsave_picture_233818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233818.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:89608DF30134DBBD8097E78ABD9AC892B2038287
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233820.jpgsave_picture_233820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233820.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ CEN-ProjekT (Chris Engels) - Pride (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233821.jpgsave_picture_233821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233821.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ FastStone Capture 10.2 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233822.jpgsave_picture_233822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233822.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:CF5ACB37602EFC27D0B47E6A76D2BDF4750C5720
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233823.jpgsave_picture_233823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233823.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - The Good Life 2023 (Best Deep House, Relax House, Chill House, Tropical Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233824.jpgsave_picture_233824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233824.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Altaria - The Fallen Empire (2006) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233825.jpgsave_picture_233825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233825.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tripulante - Lickan Antay (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233826.jpgsave_picture_233826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233826.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Frank Zappa - Funky Nothingness (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Proges
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233827.jpgsave_picture_233827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233827.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:1C288B41A9B54B2E8222B83B7F848E541CE01563
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233828.jpgsave_picture_233828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233828.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - EDM Deejay Compilation 2023 (Summer Edition) (2023) [MP3|320 Kbps] <Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233829.jpgsave_picture_233829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233829.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:35D0CFCD8713CE1D1DEC1DF5157448D466B8F422
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233830.jpgsave_picture_233830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233830.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:3CD39D5D3CC10EDCFCF6D3FD873006755871428C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233832.jpgsave_picture_233832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233832.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Dash 6.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233833.jpgsave_picture_233833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233833.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Simple Plan - Harder Than It Looks (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233834.jpgsave_picture_233834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233834.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189109.jpgsave_picture_189109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189109.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AFFE7ACCF03DAC89C08F18AA15E117F8B32E224C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189110.jpgsave_picture_189110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189110.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9D759B58EF5B168557B5454BB2AF5FCBB869301A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189111.jpgsave_picture_189111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189111.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7CCA6452F225932A4ABA15DBA95761E4308F94E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189112.jpgsave_picture_189112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189112.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ No Son of Mine (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189113.jpgsave_picture_189113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189113.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2BF427EFB4CDBAA54F6465BB1945DF29B65C1668
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189114.jpgsave_picture_189114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189114.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:09577201A92F133A96245181A81568971BA2CA13
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189115.jpgsave_picture_189115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189115.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Babok-school, Анна Вичугова | Основы архитектуры и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189116.jpgsave_picture_189116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189116.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:A919221B3358595FC070991B83D534082D4D791F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189117.jpgsave_picture_189117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189117.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:8677D33E21DC7FD04BC326908E7A30CD7A28F7D9
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189118.jpgsave_picture_189118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189118.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189119.jpgsave_picture_189119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189119.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:B1E5B85ABEFDE921918C49E98AB67861DCF0C98E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189120.jpgsave_picture_189120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189120.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:BFCF682E7710822A639C58DF5277CF0106F9476D
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189121.jpgsave_picture_189121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189121.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:D726DC5C28735871DB996305F68B23F090FAE622
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189122.jpgsave_picture_189122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189122.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D726DC5C28735871DB996305F68B23F090FAE622
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189123.jpgsave_picture_189123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189123.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ C.C. Catch - Strangers By Night (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189124.jpgsave_picture_189124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189124.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Dark Mirror ov Tragedy - The Lord ov Shadows (2018) [FLAC|Lossless|image + .cue]
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189125.jpgsave_picture_189125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189125.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:FD07281B101E3AE7F44DB83C3205AE400A5D2106
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189126.jpgsave_picture_189126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189126.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:68FF10E16E0EC969432438ED4EAA17088C36E75C
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189127.jpgsave_picture_189127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189127.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:714DD91517A00FACB8AA4ABB850A6C2E7BE2030F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189128.jpgsave_picture_189128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189128.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:9FD520E06B9FEF8C0101697648A06784F5A457A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189129.jpgsave_picture_189129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189129.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ PrivaZer 4.0.58 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189130.jpgsave_picture_189130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189130.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:9DFB45F122AA04294F8A74ED86FEE3AC486767E0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189131.jpgsave_picture_189131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189131.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ CCleaner 6.16.10662 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189132.jpgsave_picture_189132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189132.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Oduchu - Road to Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189133.jpgsave_picture_189133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189133.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:D1A0680C44101DC515E109F8FF0E39B0165D4937
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189134.jpgsave_picture_189134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189134.jpg" />
 </div>
 
 

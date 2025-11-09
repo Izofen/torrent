@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229717.jpgsave_picture_229717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229717.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Windows 10 Manager 3.1.8.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229718.jpgsave_picture_229718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229718.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D1679053CE40E104FE98AA75FE9BA9B85D47E7DC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229719.jpgsave_picture_229719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229719.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6693DDB87F8F85CE8347B49ACDFFC40C5985E485
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229720.jpgsave_picture_229720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229720.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 3 (2017) [AAC|~333 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229722.jpgsave_picture_229722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229722.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Дискотека забытых хитов (зарубежная) - 20 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229724.jpgsave_picture_229724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229724.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:4F22AAAB295F376BD6D71236AE2E1A569AE7EA42
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229725.jpgsave_picture_229725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229725.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E971B7A46CA78A72F14722D16CB7582035CE4808
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229726.jpgsave_picture_229726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229726.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3440630BD428D08CA553F61A13C56E2186546099
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229728.jpgsave_picture_229728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229728.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ polski.online, Иванна Мных | Польский за 2 месяца (202
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229730.jpgsave_picture_229730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229730.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Magnesis - La Bete du Gevaudan (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229731.jpgsave_picture_229731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229731.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Victoria 5.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229732.jpgsave_picture_229732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229732.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Gloomy Tales: Horrific Show (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229734.jpgsave_picture_229734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229734.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:4E20B7200CD92702BF85DEAA95B70F887E02D013
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229735.jpgsave_picture_229735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229735.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:99FB87DBD9E96634676D2D95AAD0D078329122C0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229736.jpgsave_picture_229736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229736.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Adguard 7.2.2990.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229737.jpgsave_picture_229737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229737.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CodeRunner 4 v4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229738.jpgsave_picture_229738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229738.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Queen - Face It Alone (2022) [FLAC|lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229741.jpgsave_picture_229741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229741.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:962A6DD9296BCEACC406B6F6C7F99CFA9921DAAE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229742.jpgsave_picture_229742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229742.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ RealManual, Егоров Василий | Proxmox VE 7: храним и бека
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229743.jpgsave_picture_229743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229743.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:E777E58DC7A035A41B07E02225B6F83B7344ACE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229746.jpgsave_picture_229746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229746.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Peter Beets - Our Love Is Here to Stay: Gershwin Reimagined (2019) Magic Ball Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229747.jpgsave_picture_229747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229747.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:AB0E94DE546B4C29EF7A2263B88E1CE6F37A1D4F
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229749.jpgsave_picture_229749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229749.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ The Universal Mind Records - 3 альбома (2009) [FLAC|Lossless] <Touhou, In
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229751.jpgsave_picture_229751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229751.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ XnViewMP 1.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229752.jpgsave_picture_229752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229752.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ KCNcrew Pack 11-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229753.jpgsave_picture_229753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229753.jpg" />
 </div>
 
 

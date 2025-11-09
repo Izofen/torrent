@@ -6,7 +6,7 @@ Turkish Delight - Volume One (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192968.jpgsave_picture_192968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192968.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fans Of The Dark - Suburbia (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192971.jpgsave_picture_192971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192971.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Avatarium - Death, Where Is Your Sting (2022) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192981.jpgsave_picture_192981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192981.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Various Artists - Rock Guitar Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192984.jpgsave_picture_192984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192984.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dead Man's Dirt - Dead Man's Dirt (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192985.jpgsave_picture_192985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192985.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:17D9931937985D785DA1BCB1AD6C9EB840A1907B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192986.jpgsave_picture_192986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192986.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vulture - Ghastly Waves & Battered Graves (2019) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192987.jpgsave_picture_192987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192987.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ John Bongiovi - John Bongiovi (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192989.jpgsave_picture_192989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192989.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jamie Hosmer - Comfortable Shoes (2021) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192991.jpgsave_picture_192991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192991.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vescera - Beyond The Fight (2017) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192993.jpgsave_picture_192993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192993.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Thammuz - Sons of the Occult (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192995.jpgsave_picture_192995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192995.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Silver Phantom - Crimson Cabaret (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192999.jpgsave_picture_192999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192999.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Vulture - Dealin' Death (2021) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193001.jpgsave_picture_193001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193001.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Hostage - MEMENTO MORI (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193003.jpgsave_picture_193003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193003.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ October Ends - PHASES (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193005.jpgsave_picture_193005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193005.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Fallujah - Undying Light (2019) [FLAC|Lossless|tracks + .cue] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193007.jpgsave_picture_193007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193007.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lost Souls - Closeyoureyesanditwonthurt (1996) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193010.jpgsave_picture_193010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193010.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Blood Of Christ - Iesvs·nazarenvs·rex·ivdaeorvm (2012) Compilation, Dismal Re
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193011.jpgsave_picture_193011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193011.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Benediction - The Grotesque - Ashen Epitaph (1994) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193018.jpgsave_picture_193018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193018.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dr. Acula - Dr. Acula (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193019.jpgsave_picture_193019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193019.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Vulture - The Guillotine (2017) Japanese Edition [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193021.jpgsave_picture_193021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193021.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Blood Of Christ - ...A Dream To Remember (1997) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193023.jpgsave_picture_193023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193023.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Decomposed - Hope Finally Died... (1993) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193025.jpgsave_picture_193025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193025.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ H.E.A.T - Extra Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193082.jpgsave_picture_193082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193082.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Andromeda - Definitive Collection (2000) Reissue, 2023, Angel Air [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193093.jpgsave_picture_193093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193093.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Midnight Priest - Aggressive Hauntings (2019) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193096.jpgsave_picture_193096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193096.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bobaflex - Anything That Moves (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106565.jpgsave_picture_106565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106565.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Thunderlord - Destroyer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106570.jpgsave_picture_106570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106570.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sylvan - Back To Live (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106581.jpgsave_picture_106581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106581.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stay Away - СССР 2078 (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106586.jpgsave_picture_106586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106586.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Axxis - Coming Home (2024) [MP3|320 Kbps] <Melodic Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106589.jpgsave_picture_106589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106589.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:455C8E40CF73F179C9ECD1FBF8A97B14C6B72813
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106590.jpgsave_picture_106590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106590.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106593.jpgsave_picture_106593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106593.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:34EA7144C404E9C4BCFF78A225715935088E2B06
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106598.jpgsave_picture_106598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106598.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Chronicles of Father Robin - The Songs & Tales Of Airoea - Book III: Magical
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106603.jpgsave_picture_106603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106603.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jimmy Page - Ohio (2021) Remaster, 2024, gOLDfISh reCORds [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106604.jpgsave_picture_106604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106604.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:17052CB705C4AA8930DC48F399ECB0BD8280DC40
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106609.jpgsave_picture_106609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106609.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:8C71533DB96887BBD2076A727EE39FEEB5533745
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106616.jpgsave_picture_106616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106616.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jade Warrior - Borne On The Solar Wind: The Vertigo Albums (2022) Remastered, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106643.jpgsave_picture_106643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106643.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ren X - Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106644.jpgsave_picture_106644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106644.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Vexxum - Lost In Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106645.jpgsave_picture_106645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106645.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Angels - Ninety Nine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106690.jpgsave_picture_106690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106690.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Spektra - Hypnotized (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106696.jpgsave_picture_106696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106696.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Legions Of The Night - Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106697.jpgsave_picture_106697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106697.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Voice - Holy Or Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106699.jpgsave_picture_106699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106699.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Axxis - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106706.jpgsave_picture_106706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106706.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Para ouvir no dia do Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106712.jpgsave_picture_106712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106712.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Regicide - Resist Control (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106717.jpgsave_picture_106717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106717.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ice - Man In The Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Neo Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106721.jpgsave_picture_106721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106721.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lodestar - Polaris (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106725.jpgsave_picture_106725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106725.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ice - Man In The Moon (2024) [MP3|320 Kbps] <Neo Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106728.jpgsave_picture_106728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106728.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ James - 1999 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106729.jpgsave_picture_106729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106729.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Aura of Birth - Immersive (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241127.jpgsave_picture_241127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241127.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kamelot - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241140.jpgsave_picture_241140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241140.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B978C2A6B03E2F11C33332B212E9C413BC8E05CB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241148.jpgsave_picture_241148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241148.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Daddy Cruel - Let's They Rot (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 'n' Rol
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241160.jpgsave_picture_241160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241160.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Jelly Jam - Profit (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241179.jpgsave_picture_241179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241179.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ BSFOE - The Siege on Phobos and Deimos (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241183.jpgsave_picture_241183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241183.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Burning Leather - New World Order (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241186.jpgsave_picture_241186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241186.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Elysion - Bring Out Your Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241198.jpgsave_picture_241198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241198.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dreams In Stereo - Chapter 2- Foreign Man (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241201.jpgsave_picture_241201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241201.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Corpses Conductor - Corpse's Conductor (1997) 2022 Reissue, Huangquan Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241202.jpgsave_picture_241202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241202.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Contrarian - Sage of Shekhinah (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241209.jpgsave_picture_241209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241209.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cigarette Vagina - Cosmic Empathy (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241216.jpgsave_picture_241216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241216.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cursebinder - Drifting (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241218.jpgsave_picture_241218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241218.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:09E210AE9D44E47794F31DE5990CDE1C0ADE732E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241219.jpgsave_picture_241219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241219.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Barons Court - A Descent Into Madness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241228.jpgsave_picture_241228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241228.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Beau Brummels - Triangle (1967) Reissue, 1993, Warner Bros. [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241233.jpgsave_picture_241233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241233.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ringo Starr - La De Da (1998) Single [FLAC|Lossless|image + .cue] <Classic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241237.jpgsave_picture_241237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241237.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Helslave - An Endless Path (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241241.jpgsave_picture_241241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241241.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Crisix - Full HD (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241242.jpgsave_picture_241242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241242.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Redemption - I Am the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241243.jpgsave_picture_241243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241243.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:4113860046A8F4F39F8E00912F46C2101A7A82CF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241252.jpgsave_picture_241252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241252.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Marianas Rest - Horror Vacui (2016) [FLAC|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241253.jpgsave_picture_241253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241253.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Miseration - Black Miracles And Dark Wonders (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241260.jpgsave_picture_241260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241260.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Aurica - Pride Of Immortals (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241263.jpgsave_picture_241263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241263.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Jotunspor - Gleipnirs Smeder (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241266.jpgsave_picture_241266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241266.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Dominus Meus - DM2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241269.jpgsave_picture_241269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241269.jpg" />
 </div>
 
 

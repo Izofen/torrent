@@ -6,7 +6,7 @@ Overlord | Владыка (2012) [16 томов + Экстра] [Ранобэ] [
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16851.jpgsave_picture_16851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16851.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:58BA217577E289201B840F7811E7E0EC911333D9
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16852.jpgsave_picture_16852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16852.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:7882043935DDE240BDF10D308CF873D387B39DB4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16853.jpgsave_picture_16853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16853.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:23E6EC2EFCDFB5BA9FC25E41E515CA3377349401
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16854.jpgsave_picture_16854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16854.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B41B02901AAAE2566B880202EA30DF4D55FC5B17
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16855.jpgsave_picture_16855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16855.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:F7E4FF68068156D6D777139044078CB3624C2ECA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16856.jpgsave_picture_16856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16856.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - Compilation Part 163 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16857.jpgsave_picture_16857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16857.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:9ADA59B12330356FE8EF6C26175DFD45CCD4CE12
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16858.jpgsave_picture_16858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16858.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:03AC205795A96E8ED29BA986E06C6FFB1098652B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16859.jpgsave_picture_16859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16859.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:69DEDE0F9BAC0241CD1E20D74988F60E8B1E8EBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16860.jpgsave_picture_16860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16860.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Assorted Compilation Part 9 (2025) [MP3|320 Kbps] <Electronic, Easy listeni
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16861.jpgsave_picture_16861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16861.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:70B50C4DAF064B28526F4D56CFEA7F9109F41DC5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16862.jpgsave_picture_16862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16862.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Compilation Part 164 Easy Listening (2025) [MP3|320 Kbps] <Easy listening, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16863.jpgsave_picture_16863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16863.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:A77BE4ED68F4FD3ADBC9FC36C1092F7D2DEE1919
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16864.jpgsave_picture_16864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16864.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:B591AD52780791B932BFF98B71DE8275A8574505
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16865.jpgsave_picture_16865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16865.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:C6A073F338AFF32434976BDCE9A90F01F830679F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16866.jpgsave_picture_16866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16866.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:9BC6E2143D2C1D04266423F1CD8CD59DD57A9C2F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16867.jpgsave_picture_16867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16867.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:45E11D9A9E1D696A6156D7117E2D85C292FF354E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16868.jpgsave_picture_16868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16868.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:62C82BE3EA26F84AC91DCD90CAB55C7355EF3E81
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16869.jpgsave_picture_16869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16869.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Joe Pass - For Django (1964) 1998, BGO Records [FLAC|Lossless|tracks + .cue] <Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16870.jpgsave_picture_16870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16870.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:DF0E2B2514D586ECE68CE90617D68EA86A8C7749
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16871.jpgsave_picture_16871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16871.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - In Search Of Sunrise 21 (Mixed by Markus Schulz) (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16872.jpgsave_picture_16872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16872.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Stepik, Сергей Бубович | Менталист: искусство у�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16873.jpgsave_picture_16873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16873.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:5E328A9F67BF183093D728653E155534984507EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16874.jpgsave_picture_16874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16874.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:FFD36DF8D235C4723B2EB35250EA9CA55F372B33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16875.jpgsave_picture_16875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16875.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Stepik, Сергей Бубович | Искусство чтения челов
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16876.jpgsave_picture_16876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16876.jpg" />
 </div>
 
 

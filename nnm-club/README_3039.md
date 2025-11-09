@@ -6,7 +6,7 @@ VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95955.jpgsave_picture_95955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95955.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:681803F08310128FB01E507FAD0C355E4936311D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95963.jpgsave_picture_95963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95963.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ magnet:?xt=urn:btih:C104FE33B69B09221DEB39219FF7B95392A4DFD1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95965.jpgsave_picture_95965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95965.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ VA - Devil In The Detail (2007) [MP3|320 Kbps]<Downtempo, Ambient, Psy Chill, Ps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95966.jpgsave_picture_95966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95966.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Gabriel & Dresden - Live at Pacha, NYC (02-03-2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95968.jpgsave_picture_95968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95968.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:F9685F9C55DC9B1E452D38CAB315C55B0DF16BDE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95970.jpgsave_picture_95970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95970.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:BCA2D6C1BCF9D2350E3DB1F900FF2E1F3A45BE5E
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95973.jpgsave_picture_95973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95973.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:35CCD973636F24ED1CA9AF20A632E24409B9BE72
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95977.jpgsave_picture_95977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95977.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ DJ Tiesto - Club Life 257 (Swedish Special) (04.03.2012) [MP3|~224 кб/с ]<Pro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95981.jpgsave_picture_95981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95981.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:B0DEE6A43050D6F3E0B7FB97BE50714F20026441
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95983.jpgsave_picture_95983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95983.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:1EE39235E6747F926105D0EA23DF3F6B6F34EBD2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95986.jpgsave_picture_95986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95986.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:220240A7695E039EF2E5C35C3DA3E9CD30ED7C08
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95988.jpgsave_picture_95988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95988.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Dynazty - Дискография (2009-2012) три альбома [MP3|320 kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95991.jpgsave_picture_95991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95991.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:3D415755DCA21F3B98C17D9776F889B0B51EA39E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95992.jpgsave_picture_95992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95992.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Duotekk - Dunamis (2011) [MP3|320 кб/с]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96008.jpgsave_picture_96008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96008.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:B6174FBDC9D4F61E875CA8817DF79A474B8B1EFB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96014.jpgsave_picture_96014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96014.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:E80948BF2C4D26138C51BE5466A2E2F21EC44F3C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96020.jpgsave_picture_96020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96020.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:CB8D476575EFA23E2C1824F90BDAC9AA08B681CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96023.jpgsave_picture_96023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96023.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Jungle Rot - Kill On Command (2011) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96024.jpgsave_picture_96024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96024.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6D6F3250A978175C949D44821914669F66C92E41
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96025.jpgsave_picture_96025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96025.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:ED4A011C6FD5DC9E5D517ACE7C7D8E895EC34FC6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96026.jpgsave_picture_96026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96026.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:736FCB50EF206A441F5887CD7B4B2B893FB879AD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96027.jpgsave_picture_96027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96027.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Myon and shane 54 - International departures 119 (2012) [MP3|320 кб/с]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96032.jpgsave_picture_96032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96032.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA - Greenosophy (2012) [MP3|~237 кб/с (V0)]<Ambient , Downtempo , Electronic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96033.jpgsave_picture_96033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96033.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96034.jpgsave_picture_96034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96034.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ magnet:?xt=urn:btih:538F42E4878A650DC7D6987711F9CD6B33634943
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96036.jpgsave_picture_96036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96036.jpg" />
 </div>
 
 

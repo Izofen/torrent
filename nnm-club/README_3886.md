@@ -6,7 +6,7 @@
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121481.jpgsave_picture_121481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121481.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D8ACC5ED081F9CAFE3A533729DDB151A91C070C8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121482.jpgsave_picture_121482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121482.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:624DEAAB7F7E2D087124F5E2FF5A83BB34B1FC60
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121484.jpgsave_picture_121484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121484.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FF27E30183E3970F442F8245DF46E4EB8678856D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121485.jpgsave_picture_121485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121485.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Anna Zueva - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121486.jpgsave_picture_121486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121486.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Background Music Masters, Instrumental Jazz Music Guys - Evening Revelry Harmoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121487.jpgsave_picture_121487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121487.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4C58D6735C16FC4882B3B987D7BF2FD4B97B1E82
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121488.jpgsave_picture_121488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121488.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7FFCDC44581C257F706D7A6EA573278CC82C8506
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121489.jpgsave_picture_121489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121489.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:496E6243F7CF62B5493221FDBD7EC8823A3BEF96
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121490.jpgsave_picture_121490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121490.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Pirate Hymn - Explorer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121491.jpgsave_picture_121491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121491.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:E87C37156E9A6489947D8F11E770053FF74C8FFB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121492.jpgsave_picture_121492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121492.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:39B3AE4ABF98F8082950BB9ACABEBF4FDAE87CF6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121493.jpgsave_picture_121493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121493.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:7136321AB7122287E983C248A252BD9252ADBA0A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121494.jpgsave_picture_121494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121494.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Evan Nicole Bell - Runaway Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121495.jpgsave_picture_121495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121495.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:CD7313216450A018E8BF6CE3DF0EB1D7B2E17046
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121496.jpgsave_picture_121496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121496.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Jeremy Renner - Love and Titanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121497.jpgsave_picture_121497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121497.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:FF970C02C6CB6FB724DB7F8E79A252B51B89C6C2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121498.jpgsave_picture_121498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121498.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:F28D73DE809F86C3F04085121B6C1C68D1EF3B05
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121499.jpgsave_picture_121499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121499.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:4CFBA3FC9E151076189B4541E47ADC7C471F053E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121500.jpgsave_picture_121500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121500.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:BE90563D81C062854254DE5389BE729B1F216AC7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121501.jpgsave_picture_121501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121501.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - This Is Bass 2023 (2023) [MP3|320 Kbps] <Breaks, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121502.jpgsave_picture_121502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121502.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ RogueKiller Anti-Malware 15.14.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121503.jpgsave_picture_121503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121503.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Compilation Electronic part 44 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121504.jpgsave_picture_121504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121504.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:5298203CDEBC312EC2D6ADF6F1C8D73466D7B0FF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121505.jpgsave_picture_121505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121505.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Femme Fatale - Femme Fatale (1988) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121506.jpgsave_picture_121506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121506.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:0787563183C0056A9BD2768155B702D77F3C8C78
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121507.jpgsave_picture_121507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121507.jpg" />
 </div>
 
 

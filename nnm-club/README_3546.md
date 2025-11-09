@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112571.jpgsave_picture_112571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112571.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Deep Purple - Montreux '71 (Live At The Casino, Montreux / 1971) (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112572.jpgsave_picture_112572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112572.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Clipboard Manager 2.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112573.jpgsave_picture_112573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112573.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Keep It 2.4.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112574.jpgsave_picture_112574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112574.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:D880E3008D81FE77B574F0619070B8D3297FB117
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112575.jpgsave_picture_112575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112575.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ EazyDraw 11.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112576.jpgsave_picture_112576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112576.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Emurasoft EmEditor Professional 24.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112577.jpgsave_picture_112577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112577.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:9ED03E78F378CA726DE2A19E7CD60F7DF017433D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112578.jpgsave_picture_112578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112578.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Text Edit Plus 14.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112579.jpgsave_picture_112579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112579.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ URL Manager Pro 6.4.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112580.jpgsave_picture_112580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112580.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:50239307B16CB4B9D08CABA0C6E765A7D8812E96
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112581.jpgsave_picture_112581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112581.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:0E27B9167030A4C2EE86E5AED9A848689B140BBA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112582.jpgsave_picture_112582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112582.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:ACD071C149FCE076C28CBFC10C2405CD90B3097B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112583.jpgsave_picture_112583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112583.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.1 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112584.jpgsave_picture_112584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112584.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:D7920E0AD0F6715F62B2A5AFB71CA038217EE8CF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112585.jpgsave_picture_112585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112585.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:6D56166A2CCC04174B70EE7E79469A4D2B2CC415
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112586.jpgsave_picture_112586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112586.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:BEC494B5E15912E576270744CB0DBB3E4CB21A31
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112587.jpgsave_picture_112587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112587.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Skype 8.115.0.217 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112588.jpgsave_picture_112588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112588.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:30E2C9DA605AC383FEB14D0E3CD66B28F7F4540D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112589.jpgsave_picture_112589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112589.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112590.jpgsave_picture_112590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112590.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:D7398DF616D2D57A104C1A16243A640B5AFAC5C7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112591.jpgsave_picture_112591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112591.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Photo Studio Premium v2.7.3.2445 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112592.jpgsave_picture_112592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112592.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:D66E4070C36E4EA74F18B6B611C20E4159B769AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112593.jpgsave_picture_112593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112593.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Beyonce - Cowboy Carter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112594.jpgsave_picture_112594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112594.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:691CBDF086022A5CBC72178D29C7094EBF9F8A3D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112595.jpgsave_picture_112595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112595.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Mp3tag 1.8.20 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112596.jpgsave_picture_112596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112596.jpg" />
 </div>
 
 

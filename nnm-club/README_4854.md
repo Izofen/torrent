@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151867.jpgsave_picture_151867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151867.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DB33E1A32356B18AC4AB3B2D1A137BAB2665700E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151868.jpgsave_picture_151868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151868.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jerry Bergonzi - Spotlight On Standards (2016) Savant [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151869.jpgsave_picture_151869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151869.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151870.jpgsave_picture_151870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151870.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C83E58914BF978DF6DC40098737097B2DFD9F1AB
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151871.jpgsave_picture_151871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151871.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F873C76D670FDF1E06FBB1EF93E04FF0A5F6A472
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151872.jpgsave_picture_151872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151872.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack R.
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151873.jpgsave_picture_151873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151873.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack Other s [Colle
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151874.jpgsave_picture_151874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151874.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:1B96AD1250BC126F98AA96CCD003A618ED448682
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151875.jpgsave_picture_151875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151875.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:C6C8A0FFDD48C5AFCCD65F6A32DCEF777413EDBA
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151876.jpgsave_picture_151876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151876.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - The Owls Are Not What They Seem: David Lynch Tribute Remixes (2017) kultFRO
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151877.jpgsave_picture_151877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151877.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:952A6FB2EAFAAF996AFC0D0E271BEEB2740FD459
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151878.jpgsave_picture_151878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151878.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Noizio — focus, relax, sleep 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151879.jpgsave_picture_151879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151879.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:BC0275CA61820434BC0FFBF11DFB5295B79A66B3
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151880.jpgsave_picture_151880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151880.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:3196E6568501FE4A104ECBC30031E01C8BA34A82
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151881.jpgsave_picture_151881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151881.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:F075AD29BFF98277036C7B8AD73384F7DDD46E83
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151882.jpgsave_picture_151882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151882.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151884.jpgsave_picture_151884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151884.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:FC3205E54A5816C10158C185E5430644215861F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151885.jpgsave_picture_151885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151885.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:455AA6D6496747DC89B4CCC09585C3AE4B0D9E17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151886.jpgsave_picture_151886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151886.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Next Space Rebels (2021) [Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151887.jpgsave_picture_151887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151887.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wise Disk Cleaner 9.6.2.685 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151888.jpgsave_picture_151888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151888.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Help+Manual Server Edition 7.5.3 Build 4740 [En/De]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151889.jpgsave_picture_151889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151889.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:517768C925BCEA0B87785103EB452B2225DD01FF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151890.jpgsave_picture_151890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151890.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Medenera - Argento (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151891.jpgsave_picture_151891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151891.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:9DCA8AB011471D78A623DC47039EEDF474C35F82
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151892.jpgsave_picture_151892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151892.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves (2023) [Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151893.jpgsave_picture_151893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151893.jpg" />
 </div>
 
 

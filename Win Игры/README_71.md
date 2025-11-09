@@ -6,7 +6,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20729.jpgsave_picture_20729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20729.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Block Fortress 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20746.jpgsave_picture_20746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20746.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10/dlc) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20750.jpgsave_picture_20750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20750.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Derail Valley Simulator (2019) [Ru/Multi] (Build 99.4) Repack Other s [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20758.jpgsave_picture_20758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20758.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Space for Sale (2024) [Ru/Multi] (2024.11.25.10.55) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20828.jpgsave_picture_20828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20828.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (1.0.0 patch 1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20834.jpgsave_picture_20834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20834.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dive The Depths (2025) [Ru/Multi] (0.1.0a) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20839.jpgsave_picture_20839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20839.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Bionic Bay (2025) [Multi] (1.3.0.4/dlc) Repack Other s [Complete Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20846.jpgsave_picture_20846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20846.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20850.jpgsave_picture_20850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20850.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Deceptico
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20851.jpgsave_picture_20851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20851.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20858.jpgsave_picture_20858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20858.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Biped (2020) [Ru/Multi] (2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20861.jpgsave_picture_20861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20861.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20864.jpgsave_picture_20864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20864.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20871.jpgsave_picture_20871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20871.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20874.jpgsave_picture_20874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20874.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20876.jpgsave_picture_20876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20876.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20908.jpgsave_picture_20908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20908.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Age of Empires IV: 4K HDR Video Pack (2021) [Ru/Multi] (11.0.782) Repack FitGirl
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20919.jpgsave_picture_20919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20919.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17983102) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20933.jpgsave_picture_20933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20933.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:A8644AE8DDBC5F7110DEE39A9936F0A9C66FD7E5
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20946.jpgsave_picture_20946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20946.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.0 #39095/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20949.jpgsave_picture_20949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20949.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Vampire Hunters (2023) [Ru/Multi] (1.3.0.CL11455) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20951.jpgsave_picture_20951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20951.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack FitGirl [Ultimate 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20955.jpgsave_picture_20955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20955.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ UBOAT (2019) [Ru/Multi] (2025.1.1 Patch 1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20963.jpgsave_picture_20963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20963.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,270) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20966.jpgsave_picture_20966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20966.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20967.jpgsave_picture_20967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20967.jpg" />
 </div>
 
 

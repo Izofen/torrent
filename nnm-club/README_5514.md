@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170332.jpgsave_picture_170332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170332.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5E8BF74755FB96DF5A64E86F2C35CAF949850E69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170333.jpgsave_picture_170333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170333.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:F474B9A1FBD148A9E77123F30444CB1D31112509
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170334.jpgsave_picture_170334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170334.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:7A9B39DD713BC1F16088D41D159554F50BC235FB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170335.jpgsave_picture_170335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170335.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Avast Free Antivirus 20.10.2442 (build 20.10.5824.618) Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170336.jpgsave_picture_170336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170336.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:65534B082948C30A294D9DC3CA35D28B5C5C61B5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170337.jpgsave_picture_170337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170337.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:556FA5E8A1DBD06E85E26BFCB3FC56E6B07FBDA4
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170338.jpgsave_picture_170338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170338.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:DEE9430F2DF57125D6FBF5B824CFBD3428D78C17
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170339.jpgsave_picture_170339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170339.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ CPU-Z 1.91.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170340.jpgsave_picture_170340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170340.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Journey - Frontiers (1983) Remastered, 2023, Columbia [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170341.jpgsave_picture_170341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170341.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:7BAD7894368219E83D9AECB235B4521AD065029F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170342.jpgsave_picture_170342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170342.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ SanDisk SSD Dashboard 3.2.2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170343.jpgsave_picture_170343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170343.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Topaz Photo AI for Mac 2.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170344.jpgsave_picture_170344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170344.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:8911626F324480B4314049C5C7916C44C1D52E69
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170345.jpgsave_picture_170345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170345.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - НГ 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170346.jpgsave_picture_170346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170346.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:D775DE2D4A3054B34E19E31BD10A75223F976932
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170347.jpgsave_picture_170347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170347.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:A9FDCF6ADA60EB811D760C6D05B17A57468A5910
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170348.jpgsave_picture_170348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170348.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Adobe Flash Player 32.0.0.303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170349.jpgsave_picture_170349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170349.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:A4DA5DD8B077D95140E7223A6C92F3B6C20AA5C3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170350.jpgsave_picture_170350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170350.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Indie Disco Hits (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, In
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170351.jpgsave_picture_170351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170351.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:C779079EECC850881511516D555BD6852F5FB987
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170352.jpgsave_picture_170352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170352.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Christmas Stories 8: Enchanted Express / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170353.jpgsave_picture_170353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170353.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ The Pink Fairies - Screwed Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych/Hard/S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170354.jpgsave_picture_170354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170354.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фоль�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170355.jpgsave_picture_170355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170355.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Live Home 3D Pro Edition 4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170356.jpgsave_picture_170356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170356.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Downie 4 v.4.6.32 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170357.jpgsave_picture_170357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170357.jpg" />
 </div>
 
 

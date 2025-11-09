@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83739.jpgsave_picture_83739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83739.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BFF2AD2C9973A8AC60BF053A23F17B1EADED326F
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83741.jpgsave_picture_83741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83741.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:8C5FFDC6C87F455E0B9D3DCB726392F70240322B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83743.jpgsave_picture_83743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83743.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8C5FFDC6C87F455E0B9D3DCB726392F70240322B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83744.jpgsave_picture_83744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83744.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8C5FFDC6C87F455E0B9D3DCB726392F70240322B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83745.jpgsave_picture_83745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83745.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Monsters of Metal Vol.8 (2012) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83746.jpgsave_picture_83746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83746.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ MIKUNOPOLIS in LOS ANGELES (02.07.2011) BDrip TrueHD 5.1 1080p Hi10p
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83747.jpgsave_picture_83747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83747.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ House of 1000 Doors: The Palm of Zoroaster Collector’s Edition / Дом 1000 �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83748.jpgsave_picture_83748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83748.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:4B2DE9F5A366FB48138914AAD195DA0949C099E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83751.jpgsave_picture_83751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83751.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:78981482A11B8C2E6A0103E5D297871E48FFD3B0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83752.jpgsave_picture_83752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83752.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Q: Загадка женщины / Q (2011) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83755.jpgsave_picture_83755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83755.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Windows 7x86 Ultimate UralSOFT v.3.6.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83756.jpgsave_picture_83756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83756.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Windows 7x86 Ultimate UralSOFT v.3.6.12 (2012) (Rus)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83760.jpgsave_picture_83760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83760.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Windows 7x86 Ultimate UralSOFT v.3.6.12 (2012) (Rus)
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83761.jpgsave_picture_83761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83761.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Q: Загадка женщины / Q (2011) [H.264] DVDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83762.jpgsave_picture_83762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83762.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:6519B90658DF440D12E39035BFFDB9BB35330E68
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83765.jpgsave_picture_83765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83765.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:6519B90658DF440D12E39035BFFDB9BB35330E68
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83767.jpgsave_picture_83767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83767.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:6519B90658DF440D12E39035BFFDB9BB35330E68
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83768.jpgsave_picture_83768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83768.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:6519B90658DF440D12E39035BFFDB9BB35330E68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83769.jpgsave_picture_83769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83769.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:CE806D44E5203EA05E009652BC7EEE44A9C2EF35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83770.jpgsave_picture_83770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83770.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:E2FEE06A0FF31C780F4F31261449A6E3187F93BF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83772.jpgsave_picture_83772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83772.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:FEA1EBDCEFC5F6858C4B4D457A24980D5575CD9D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83773.jpgsave_picture_83773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83773.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:00D09207963C79C5BEE7A05B67D01EAEDFC32D83
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83774.jpgsave_picture_83774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83774.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Back to the Future: The Game Episode 1: It’s About Time / Назад в буд
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83776.jpgsave_picture_83776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83776.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:9EE7DA9E7448DA6777854B8AF59ED929602DE054
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83777.jpgsave_picture_83777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83777.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:FCD6E16DC718E0788BE51D87EB1640B14C22ADF3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83778.jpgsave_picture_83778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83778.jpg" />
 </div>
 
 

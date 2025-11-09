@@ -6,7 +6,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs / Мост в другой м
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211054.jpgsave_picture_211054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211054.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A99A350E849F1D4ADEAD7D1DB47484B66B11882B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211055.jpgsave_picture_211055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211055.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9E87C7AAF2E030AACDBCF60ACDA2AD8661EE403A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211057.jpgsave_picture_211057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211057.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TweakPower 2.040 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211059.jpgsave_picture_211059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211059.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:84B40F4C22379FAB3D0CFA0C88113E4FDFC70B6B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211060.jpgsave_picture_211060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211060.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:71E7C5BBDD95F18F791CA9A6E618F41AA25FE2F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211061.jpgsave_picture_211061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211061.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ PointerStick 6.26 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211065.jpgsave_picture_211065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211065.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E655CFF4AA18AE4D115403B3E50B3C2638065C04
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211067.jpgsave_picture_211067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211067.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:0F4BD07BE683D18E675F04268EC5860E49A7863B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211070.jpgsave_picture_211070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211070.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Music News vol.270 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211071.jpgsave_picture_211071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211071.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7D93CB317A425287595C210BB5EC2FA7039B9AF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211074.jpgsave_picture_211074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211074.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:42FF906E83FECA264562B2234822F8B3134FDF17
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211076.jpgsave_picture_211076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211076.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ MeinPlatz 8.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211079.jpgsave_picture_211079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211079.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Topaz Video AI 3.3.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211080.jpgsave_picture_211080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211080.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:71D639EE970B3CE469AA25A42EE3E6F9581B8D76
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211082.jpgsave_picture_211082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211082.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ How to Say Goodbye (2022) [Multi] (1.0.7) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211085.jpgsave_picture_211085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211085.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Icecream Video Converter 1.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211086.jpgsave_picture_211086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211086.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ CPUID HWMonitor 1.51.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211088.jpgsave_picture_211088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211088.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:B9388DA1767EF19B0A19215C2EDA1B5E432529AD
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211093.jpgsave_picture_211093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211093.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dio - Holy Diver (1983) 4 x CD, Reissue, Remastered, 2022, Rhino Records [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211094.jpgsave_picture_211094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211094.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Windows Update Viewer 0.5.11.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211097.jpgsave_picture_211097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211097.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F3731817D70EFF3728DE038F758AA042D1CC43FC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211099.jpgsave_picture_211099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211099.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ MemTest86 10.5 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211102.jpgsave_picture_211102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211102.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ ColorCorrect for 3ds Max 1 - 2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211106.jpgsave_picture_211106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211106.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Alice Cooper - Легенды Зарубежного Рока (2000) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpgsave_picture_211108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211109.jpgsave_picture_211109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211109.jpg" />
 </div>
 
 

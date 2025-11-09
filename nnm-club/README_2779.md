@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77942.jpgsave_picture_77942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77942.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FAB3CCDC895962CC5B56C6CA68731D1B8AF095F2
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77943.jpgsave_picture_77943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77943.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Pocket PC-версия игры-лабиринта. Цель игры — исп
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77952.jpgsave_picture_77952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77952.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Ronan Hardiman - Michael Flatley's Lord Of The Dance (1996) [MP3|320 кб/с]<Ce
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77954.jpgsave_picture_77954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77954.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ magnet:?xt=urn:btih:DCBDCBB5B6CD339B2712147DAE47825DA23A7FEA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77956.jpgsave_picture_77956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77956.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ SPB Diary — это многофункциональный экранный м�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77958.jpgsave_picture_77958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77958.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SPB Diary — это многофункциональный экранный м�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77961.jpgsave_picture_77961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77961.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Rinne no Lagrange OP&ED Single - TRY UNITE! Hello! [Nakajima Megumi] (2012, FLAC
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77962.jpgsave_picture_77962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77962.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Total Commander 8.0 Beta 20 Portable - Sanches Edition [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77973.jpgsave_picture_77973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77973.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Total Commander - самый мощный и стабильный файловы
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77976.jpgsave_picture_77976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77976.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Total Commander - самый мощный и стабильный файловы
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77977.jpgsave_picture_77977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77977.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:E569E12E1D616DC1CF96730C09675406ABEE550B
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77989.jpgsave_picture_77989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77989.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:3F1D1A808D04AB94F0A73075BBADA39090638F84
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77990.jpgsave_picture_77990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77990.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:3F1D1A808D04AB94F0A73075BBADA39090638F84
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78005.jpgsave_picture_78005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78005.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Kou Shibasaki - Love & Ballad Selection (2010) [MP3|320 kbps]<JPop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78006.jpgsave_picture_78006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78006.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:AF4879B6CDD638467EE32EF1DBC530D2E5B51FD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78011.jpgsave_picture_78011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78011.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:8D8426059408B25888FF3EDDBFC8E4575299A318
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78013.jpgsave_picture_78013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78013.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:8D8426059408B25888FF3EDDBFC8E4575299A318
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78014.jpgsave_picture_78014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78014.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:89746F57B4DC1093FEA9AEE31EAC2DDB6C35C170
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78018.jpgsave_picture_78018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78018.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:7D3BFCD68FD3976E0F2F2B4A559BA3B1348BB911
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78019.jpgsave_picture_78019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78019.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B0F1E3A8006671091EC3E57454E441F1DE91BD69
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78021.jpgsave_picture_78021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78021.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:F806BB39458AF1DAB5595E9A7E45377347DBBA7F
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78024.jpgsave_picture_78024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78024.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:0B1DC1D6C7A247D4631B1B046F9AAC389ABBB88A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78028.jpgsave_picture_78028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78028.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0B1DC1D6C7A247D4631B1B046F9AAC389ABBB88A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78041.jpgsave_picture_78041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78041.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Xilisoft Video Converter Ultimate 7.1.0 build 20120222 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78049.jpgsave_picture_78049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78049.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Saw: The Video Game [Cider] [Rus + Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78052.jpgsave_picture_78052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78052.jpg" />
 </div>
 
 

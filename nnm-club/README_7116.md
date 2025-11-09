@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243952.jpgsave_picture_243952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243952.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Hangover Lounge Grooves, Vol. 6 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243953.jpgsave_picture_243953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243953.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Movavi Video Suite for Mac 2022 v22.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243954.jpgsave_picture_243954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243954.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dear Reality - Exoverb 1.1.0 VST 3, AAX (x64) RePack by MOCHA [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243955.jpgsave_picture_243955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243955.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Mirror for Roku TV 2.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243956.jpgsave_picture_243956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243956.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:F7897F86BFDF9C0EE43B72C1FCB379B3856682E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243957.jpgsave_picture_243957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243957.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Осенняя дискотека по-русски - 4 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243958.jpgsave_picture_243958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243958.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:59ED2328D6782DDAFA4CAE26EA0DB76B44DECE63
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243959.jpgsave_picture_243959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243959.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Strange Omen - Marasma (2023) [MP3|320 Kbps] <Hard 'n' Heavy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243960.jpgsave_picture_243960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243960.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:7E4DC80E13A326FD2FB83571BD8DAF33332FC39B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243961.jpgsave_picture_243961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243961.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ PDF Search 11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243962.jpgsave_picture_243962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243962.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.1 Build 6845 Stable RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243963.jpgsave_picture_243963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243963.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Morning Chill & Relax 3 (2023) [MP3|320 Kbps] <Pop, Chillout, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243964.jpgsave_picture_243964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243964.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:9415C35B397B2DEE0259F820EBFC61390A449FD7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243965.jpgsave_picture_243965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243965.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ MEmu 8.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243966.jpgsave_picture_243966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243966.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Perfectly Clear WorkBench 4.4.0.2485 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243967.jpgsave_picture_243967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243967.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Multitouch 1.27.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243968.jpgsave_picture_243968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243968.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:96CC80EEC757129BF039C47248861755EAEFE8A6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243969.jpgsave_picture_243969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243969.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Network & Battery 12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243970.jpgsave_picture_243970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243970.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Opera 97.0.4719.43 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243971.jpgsave_picture_243971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243971.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ TuneIn Radio 31.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243972.jpgsave_picture_243972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243972.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ ImageMeter Pro - Фотоизмерение 3.5.36 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243973.jpgsave_picture_243973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243973.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Windows 10 Manager 3.6.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243974.jpgsave_picture_243974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243974.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:2FA0ED340AEF6DDACEDC7A4A4D741EE7AAF39586
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243975.jpgsave_picture_243975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243975.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Keep It 1.11.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243976.jpgsave_picture_243976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243976.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Горячий хитовый драйв 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243977.jpgsave_picture_243977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243977.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows Server 2022 LTSC [10.0.20348.2762], Version 21H2 (Updated October 2024) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40344.jpgsave_picture_40344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40344.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40345.jpgsave_picture_40345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40345.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:82CA320879F963DA2E3F4C55170C35C2598F40BA
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40346.jpgsave_picture_40346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40346.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CloudFlare уничтожила опытного патентного тролл
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40347.jpgsave_picture_40347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40347.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ CloudFlare уничтожила опытного патентного тролл
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40348.jpgsave_picture_40348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40348.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:227ADEC193FC16393C66BAAB8143264DCDF27CBC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40349.jpgsave_picture_40349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40349.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40350.jpgsave_picture_40350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40350.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:94923EF1D0786755AEDD73DAFC43E08182AF71F8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40351.jpgsave_picture_40351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40351.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Joe Pass - A Sign Of The Times (1966) 2010, EMI Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40352.jpgsave_picture_40352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40352.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:D9DE3C85EE7F020A47C065C145510882FA99F023
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40353.jpgsave_picture_40353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40353.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Hamish Anderson - ELECTRIC (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40354.jpgsave_picture_40354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40354.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:D2C8E46CBE9C3107B59A377878384BA795C063B3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40355.jpgsave_picture_40355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40355.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Jasmin Bayer - Poetic License (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40356.jpgsave_picture_40356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40356.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Cruachan - Studio Albums (9 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40357.jpgsave_picture_40357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40357.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Jeanette Berger - Do Your Thing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40358.jpgsave_picture_40358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40358.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Kozoria - The Source (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40359.jpgsave_picture_40359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40359.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:6EB07C3F0257D2CC5D8EC59D2B51333BDC54F94D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40360.jpgsave_picture_40360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40360.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40361.jpgsave_picture_40361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40361.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40362.jpgsave_picture_40362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40362.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40363.jpgsave_picture_40363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40363.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40364.jpgsave_picture_40364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40364.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40365.jpgsave_picture_40365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40365.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40366.jpgsave_picture_40366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40366.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40367.jpgsave_picture_40367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40367.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40368.jpgsave_picture_40368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40368.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40369.jpgsave_picture_40369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40369.jpg" />
 </div>
 
 

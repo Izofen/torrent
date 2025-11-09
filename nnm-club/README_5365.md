@@ -6,7 +6,7 @@ Chet Baker Trio - Live in Paris: The Radio France Recordings (1983 - 1984) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166352.jpgsave_picture_166352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166352.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3B20605E8163214BDD03CB4C55C20D05419B2F56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166353.jpgsave_picture_166353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166353.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:11DAE93149B696B7EFEBA60DDE3793F77882F5DE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166354.jpgsave_picture_166354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166354.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Which Bottle?: AUTUMN CLUB BOX 2023 [MP3|320 Kbps] <House, Funky House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166355.jpgsave_picture_166355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166355.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E9B8D13DF63A89BA70910160FCFC41411679FAF7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166356.jpgsave_picture_166356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166356.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:B8EF76E7AE98BFBD947B3EC02C64954F1AE74FEA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166358.jpgsave_picture_166358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166358.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:EE1FE6F7C823583991E31EC550935CA2723C87D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166359.jpgsave_picture_166359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166359.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:CFC6AD78DE3F60176E13C2BE7351118D4BC31289
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166360.jpgsave_picture_166360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166360.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ PDF Shaper Professional 9.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166361.jpgsave_picture_166361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166361.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:E8CF94B98D0BC3CDF7660AA57A3376A6B10FED32
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166362.jpgsave_picture_166362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166362.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:C09EF8683CD7555370BE1F8AE880D4633C263BDC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166363.jpgsave_picture_166363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166363.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ BELOFF 2021.12 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166364.jpgsave_picture_166364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166364.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Fused by Defiance - Manifest (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166365.jpgsave_picture_166365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166365.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sticky Password Premium 8.2.3.43 (промо Comss) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166366.jpgsave_picture_166366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166366.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:876F9F5B3D8B91780B355E82268BEAE0F7CF14F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166367.jpgsave_picture_166367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166367.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:7A4643FEE95624C371CC62296A2C7E856E096026
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166368.jpgsave_picture_166368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166368.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ NG. Суперсооружения Третьего рейха - 7 / Nazi Megast
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166369.jpgsave_picture_166369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166369.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Cisdem Video Converter 7.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166370.jpgsave_picture_166370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166370.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Infix PDF Editor Pro 7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166371.jpgsave_picture_166371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166371.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:9192A1AE6569935D8203A21A96B5DD7A35A83A87
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166372.jpgsave_picture_166372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166372.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:6A0FAB1EA7B4DA92D41DC97C836843C1178C34DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166373.jpgsave_picture_166373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166373.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Mactracker 7.12.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166374.jpgsave_picture_166374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166374.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:A1CEFBFB8E570D8853FF18F61D466A56FC09F5B6
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166375.jpgsave_picture_166375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166375.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2E810D95E5FD5B28309A5DE0C279E0734301C45F
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166376.jpgsave_picture_166376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166376.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:7484D9CD15B238DC9AE95E7BDE6539C7290817FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166377.jpgsave_picture_166377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166377.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Marumari - Discography 5 Releases (1999-2019) Carpark Records [FLAC|Lossless|tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166378.jpgsave_picture_166378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166378.jpg" />
 </div>
 
 

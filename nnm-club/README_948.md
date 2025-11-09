@@ -6,7 +6,7 @@ Black Label Society - Unblackened (2013) Reissue, 2021, Ear Music Classics [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24991.jpgsave_picture_24991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24991.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B581DF1C4DA74B8A8668E87EC16FB2727A18AEDA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24992.jpgsave_picture_24992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24992.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Meshuggah - Chaosphere (1998) SHM-CD, Japanese Edition, Reissue, Remastered, 202
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24993.jpgsave_picture_24993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24993.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Lacrimosa - Dark is this Night (2025) Maxi-Single [FLAC 16,24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24994.jpgsave_picture_24994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24994.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Machinedrum - 3RMX82 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bass, Drum & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24995.jpgsave_picture_24995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24995.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:BE5039D5A257D3B7CB4183CDB8EE52BEF72D8EBF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24996.jpgsave_picture_24996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24996.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:ABEF976452979E7AAE1616C7805014EF1F05F39B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24997.jpgsave_picture_24997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24997.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Lights Of Skadi - A Cinematic Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24998.jpgsave_picture_24998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24998.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:7BEAE1F836A3B98C4E5FC7DE7AAFAC97B7B369C2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24999.jpgsave_picture_24999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24999.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Travelin' Light - Makin' Whoopee (1993) Telarc Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25000.jpgsave_picture_25000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25000.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9E613C0255C9318DD4F175B21A7A1CB1623205EC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25001.jpgsave_picture_25001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25001.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Opera One 117.0.5408.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25002.jpgsave_picture_25002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25002.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:35D63CC780C4DE7FF02C99062269E506CBC25716
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25003.jpgsave_picture_25003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25003.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:DAEF4C70EB0DE72A36EDA12BE487A0A2A4CD7EE7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25004.jpgsave_picture_25004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25004.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ TikTok Private Plus v39.1.2 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25005.jpgsave_picture_25005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25005.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Alfa eBooks Manager 9.1.25 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25006.jpgsave_picture_25006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25006.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:F1AE9CE599B752A949411916C334A6F534869CBF
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25007.jpgsave_picture_25007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25007.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:BE40E7B3490F4FC9D880778177D5AFCE3F984D6C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25008.jpgsave_picture_25008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25008.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ House of Caravan (2015) [Ru/Multi] (1.0.1) Scene PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25009.jpgsave_picture_25009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25009.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Kdenlive 24.12.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25010.jpgsave_picture_25010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25010.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:133210EABB05C2983486B3AC0A7E5099CEA391C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25011.jpgsave_picture_25011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25011.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Nostalgia Mix - 90s Synthwave (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25012.jpgsave_picture_25012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25012.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4E5F1AA0DC9DE21BA4D956105025CF87435256D9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25013.jpgsave_picture_25013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25013.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:1EF325B05BA366AA42D4D195D72CDD78FA209E30
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25014.jpgsave_picture_25014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25014.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Compilation Part 147 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25015.jpgsave_picture_25015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25015.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:90E14B7605F72850DD962E83830C5361608CC4B7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25016.jpgsave_picture_25016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25016.jpg" />
 </div>
 
 

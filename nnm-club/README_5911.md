@@ -6,7 +6,7 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186223.jpgsave_picture_186223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186223.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ YouCut - Видеоредактор v1.592.1175 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186224.jpgsave_picture_186224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186224.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:61E675B93556EE99C9D1C175D5CB8E3303623229
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186225.jpgsave_picture_186225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186225.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7BC50C4C418BE5AAF6DE9FB106A5BA9247A28F51
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186226.jpgsave_picture_186226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186226.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:58CBD173EF8CA66A582AAE80A326806FE65AE5D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186227.jpgsave_picture_186227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186227.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:822BE19E799EC4BB0C801B276B346601416D033B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186228.jpgsave_picture_186228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186228.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7182F94085CECB9DDEDB280D806EE6835F4BAD4A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186229.jpgsave_picture_186229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186229.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B4C72A83AF57A073AE46BBBBC75893B195C1AD5F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186230.jpgsave_picture_186230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186230.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Chromium 117.0.5938.92 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186231.jpgsave_picture_186231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186231.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9DA95F0C08D2FCF64B06A763BD74BB8D26C12A42
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186232.jpgsave_picture_186232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186232.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Photo Sherlock v1.107 Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186233.jpgsave_picture_186233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186233.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:A27752F7CE0051946A8E1B845C7A768508930F4B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186234.jpgsave_picture_186234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186234.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:5384981D13EED6BDBFA973F131E2CFCF602A514B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186235.jpgsave_picture_186235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186235.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ J.R. Monterose & Tommy Flanagan - A Little Pleasure (1981) 1988, Reservoir Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186236.jpgsave_picture_186236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186236.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:1C19B11F9E7F3189BBE1762A730D20FBB78F0AE9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186237.jpgsave_picture_186237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186237.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Taylor Acorn - Certified Depressant (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186238.jpgsave_picture_186238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186238.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Blank & Jones feat. Mick Roach - Christian (2023) EP [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186239.jpgsave_picture_186239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186239.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:FC9D593D1274CC89DDA7099671BC70CAA64CB7D8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186240.jpgsave_picture_186240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186240.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:00DE893DCFC9DBE130F53252C3C0DB1EE47DD1C6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186241.jpgsave_picture_186241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186241.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:5745FD73C02B2500C80F07776B9C1AA12BC315E2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186242.jpgsave_picture_186242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186242.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:D3FB67B22E9EDC42C2F439F9C66ED3DB7890C3AF
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186243.jpgsave_picture_186243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186243.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Uplifting Only Top 15: September 2023 (Extended Mixes) (2023) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186244.jpgsave_picture_186244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186244.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:4D3892800944DF67E760FB4C7833B5CF69DAC4C0
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186245.jpgsave_picture_186245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186245.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Billy's Band - В шляпе (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alco-ja
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186247.jpgsave_picture_186247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186247.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:F13DA94A03552E76CCE399ACED0957886CB769A6
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186248.jpgsave_picture_186248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186248.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:CC69C616B5FE8F3214F598909EE63AA7672CA95E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186249.jpgsave_picture_186249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186249.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Led Zeppelin - Led Zeppelins Swan Songs (4CD) /Сборник/ (2011) [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151489.jpgsave_picture_151489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151489.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Emurasoft EmEditor Professional 20.4.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151490.jpgsave_picture_151490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151490.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:A4DCCD453ECCB7FCBDE6E3711C6D4EFDB9426AD8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151492.jpgsave_picture_151492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151492.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:EE7C3C39FEA30A7B9B5152BC1E9C61152315351D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151493.jpgsave_picture_151493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151493.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B076520D092FC09A2553D4D4EB3C9D4204C9BEE2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151494.jpgsave_picture_151494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151494.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4EC8A5075481AC8CE685547468B7D6FAC5152E4B
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151495.jpgsave_picture_151495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151495.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:CD486D7EA97ABE1EE31E22E9860FE14F7ADC4159
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151496.jpgsave_picture_151496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151496.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:93B289E31D15829258A53DE69633A9CA6C5F3FE0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151497.jpgsave_picture_151497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151497.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:568EAF8E5A3385834F63D1E3E89E064AC526E692
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151498.jpgsave_picture_151498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151498.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:FE98B4005B9476BC0DF8434B0311CE1B880283C5
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151500.jpgsave_picture_151500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151500.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Lee Morgan - Dizzy Atmosphere (1957) 2008, Jazz Beat [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151501.jpgsave_picture_151501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151501.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Dash 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151502.jpgsave_picture_151502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151502.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:EBA1867DEEC31BAB879F1CF83E774C7AB0753EBA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151503.jpgsave_picture_151503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151503.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ SpaceX запустила новые спутники Starlink для улучш
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151504.jpgsave_picture_151504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151504.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SpaceX выполнила 60-й успешный запуск ракеты в 20
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151505.jpgsave_picture_151505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151505.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ NG: Службы безопасности портов: Гамбург / Port Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151507.jpgsave_picture_151507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151507.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Lara Fabian - Lockdown Sessions (2021) [AAC|~314 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151508.jpgsave_picture_151508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151508.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:6FF635C1EED764C473E7A14F9816672498427C37
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151509.jpgsave_picture_151509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151509.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:90591BABDD039144ADD1A664441824F1E154DE12
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151510.jpgsave_picture_151510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151510.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:23EB53DE821469D2B6FB2D2E2272ED2CD6428954
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151511.jpgsave_picture_151511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151511.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:299D2475571424999B513C1675EE777A0AF2CF66
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151512.jpgsave_picture_151512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151512.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:C46CCDDC24D71FA837885F1FE4A06E4AA3A8BDA1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151514.jpgsave_picture_151514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151514.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:A31427DB4AE8A0455E7DF35B23405A1340C0E622
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151515.jpgsave_picture_151515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151515.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Barbora Swinx - Colors of Love (2015) [MP3|320 кб/с] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151516.jpgsave_picture_151516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151516.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [AAC|~351 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151518.jpgsave_picture_151518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151518.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Modern Tweaker 1.6 (DC 17.12.2022) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151519.jpgsave_picture_151519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151519.jpg" />
 </div>
 
 

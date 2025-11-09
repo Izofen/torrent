@@ -6,7 +6,7 @@ Blue Oyster Cult - Fire Of Unknown Origin (1981)  [FLAC 2.0 24/96|image (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156257.jpgsave_picture_156257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156257.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The KMPlayer 4.2.2.35 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156258.jpgsave_picture_156258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156258.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:91282B56CC08391AA56003263CBB3EEC2D6A9C88
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156259.jpgsave_picture_156259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156259.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:91282B56CC08391AA56003263CBB3EEC2D6A9C88
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156261.jpgsave_picture_156261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156261.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0FE0986D60A5C8881B4349152D2542593C0E69AD
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156262.jpgsave_picture_156262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156262.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:6548C75BCC91A23B17FE33AD8CC45A68163F12A1
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156263.jpgsave_picture_156263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156263.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Screen Calipers 4.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156264.jpgsave_picture_156264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156264.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:E1D832B6796EDB938BA6D4E09374CED03FE22C7E
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156265.jpgsave_picture_156265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156265.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ R-Studio 8.9 Build 173593 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156266.jpgsave_picture_156266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156266.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ qBittorrent v4.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156268.jpgsave_picture_156268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156268.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2B805A803F819861B630A49548703A6F2586325A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156269.jpgsave_picture_156269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156269.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:A97062A706F6323560F743742891AD7669F1CBDA
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156270.jpgsave_picture_156270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156270.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Nvidia отказалась от поддержки 32-битных ОС. Под
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156273.jpgsave_picture_156273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156273.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ NVIDIA прекращает поддержку 32-битных операцио�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156274.jpgsave_picture_156274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156274.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NVIDIA прекращает поддержку 32-битных операцио�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156275.jpgsave_picture_156275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156275.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:EEDD6798902F1E3567BADF7D9380E2AB10EC8D35
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156276.jpgsave_picture_156276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156276.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:75F59C78C7B39CA4A7E628BC26D3545B0C1FDAD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156277.jpgsave_picture_156277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156277.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:51AF1355719D4878CB546320B8636DA76C299891
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156278.jpgsave_picture_156278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156278.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) HDRip [H.264] [Hand Made 
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156280.jpgsave_picture_156280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156280.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:097ABD0ADA7338ED740AB16BCE0809F0A0413FD4
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156281.jpgsave_picture_156281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156281.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:585BBEAC6E091E38B1FE63A6AFEE4222315AD74B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156282.jpgsave_picture_156282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156282.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! / Сверхо
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156283.jpgsave_picture_156283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156283.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:512676D54FD5602C0B4CBC93B4996D635BD524BD
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156284.jpgsave_picture_156284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156284.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:512676D54FD5602C0B4CBC93B4996D635BD524BD
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156285.jpgsave_picture_156285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156285.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:153BC339C52E59CBC85A93B533E91273E389BEC0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156286.jpgsave_picture_156286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156286.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:80C0BFE7C678A132F993D75B84669BF50694DF63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156288.jpgsave_picture_156288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156288.jpg" />
 </div>
 
 

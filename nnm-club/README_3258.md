@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105069.jpgsave_picture_105069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105069.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Golden Sound Of Panflute (2007) 3CD [WavPack|Lossless|image + .cue] <Romant
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105070.jpgsave_picture_105070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105070.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ XYplorer 26.30.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105071.jpgsave_picture_105071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105071.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Radiant Photo 1.4.1.504 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105072.jpgsave_picture_105072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105072.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Classical Music Inspired by Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105073.jpgsave_picture_105073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105073.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:C08777EC3CA447DEE73A883F66FB782F378DD1F6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105074.jpgsave_picture_105074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105074.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Warlord - From the Ashes to the Archives - The Hot Pursuit Continues (2024) Comp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105075.jpgsave_picture_105075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105075.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ ExamDiff Pro 15.0.1.11 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105076.jpgsave_picture_105076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105076.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Ant Download Manager Pro 2.14.0 Build 88304 (x32) / Build 88305 (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105077.jpgsave_picture_105077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105077.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Glary Utilities Pro 6.14.0.18 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105078.jpgsave_picture_105078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105078.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:84A1190539D9D31F8973733979E785E376C4A95A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105079.jpgsave_picture_105079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105079.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - DJ Hits Vol. 2 New '97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105080.jpgsave_picture_105080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105080.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:C43B01E1C2B278112BD0DE7C6B189C66C5BFAC82
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105081.jpgsave_picture_105081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105081.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Simone Simons - Vermillion (feat. Ayreon) (2024) [MP3|320 Kbps] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105082.jpgsave_picture_105082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105082.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Engelbert Humperdinck - Live at the London Palladium (2000) Unofficial Release [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105083.jpgsave_picture_105083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105083.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ PrivaZer Pro 4.0.92 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105084.jpgsave_picture_105084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105084.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Markus Schulz - Global DJ Broadcast (End of Summer Mix) (2024-08-22) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105085.jpgsave_picture_105085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105085.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Geneva Jacuzzi - Triple Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <dance-pop, da
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105086.jpgsave_picture_105086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105086.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Honeymoon Suite - Alive (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105087.jpgsave_picture_105087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105087.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:54A71A6137A7146C521815CEF2C474D57DF9FBAC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105088.jpgsave_picture_105088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105088.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105089.jpgsave_picture_105089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105089.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Perfecto Black: The Sound of the Underground (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105090.jpgsave_picture_105090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105090.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Lionheart - The Grace Of A Dragonfly (2024) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105091.jpgsave_picture_105091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105091.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Process Lasso Pro 14.3.0.58 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105092.jpgsave_picture_105092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105092.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Last Autumn's Dream - Studio Albums (15 releases) (2003-2018) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105093.jpgsave_picture_105093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105093.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Paul Carrack - How Long (Has This Been Going On?) [Greatest Hits 50th Anniversar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105094.jpgsave_picture_105094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105094.jpg" />
 </div>
 
 

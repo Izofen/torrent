@@ -6,7 +6,7 @@ Teenbird - Beauty of the Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11.jpgsave_picture_11.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Crime - Cold Air (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16.jpgsave_picture_16.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Madra - Sem Parada (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20.jpgsave_picture_20.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hellcats - Unstoppable (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36.jpgsave_picture_36.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vicious Rumors - The Devil's Asylum (2025) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_221.jpgsave_picture_221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_221.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Alternanthera - Сублимация (2025) Авторская раздача [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_239.jpgsave_picture_239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_239.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Amorphis - Borderland (2025) [FLAC|Lossless|image + .cue] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_500.jpgsave_picture_500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_500.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gypsy's Kiss - Piece By Piece (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_518.jpgsave_picture_518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_518.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Till Lindemann - Zunge 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_646.jpgsave_picture_646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_646.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Terra Atlantica - Oceans (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_752.jpgsave_picture_752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_752.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:88FC09FB0F0588EF1F0C704DB3F9BA4B46295C2E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_771.jpgsave_picture_771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_771.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Robert Plant - Saving Grace (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_797.jpgsave_picture_797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_797.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Angelo Perlepes' Mystery - Spelled By Fire (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_975.jpgsave_picture_975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_975.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:CDA5AEA672A250902178477E039131B2C27C1D25
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1146.jpgsave_picture_1146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1146.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:64F90597093540911AA818FC2BF42DBD509DBC93
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1164.jpgsave_picture_1164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1164.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Chaoseum - Life 4 Sale (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1266.jpgsave_picture_1266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1266.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Nancy - 4 Releases (2018-2021) Digital release [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1277.jpgsave_picture_1277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1277.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Siege Of Power - Warning Blast (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1411.jpgsave_picture_1411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1411.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Cruel Bomb - Cruel Bomb (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Cros
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1429.jpgsave_picture_1429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1429.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|image + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1433.jpgsave_picture_1433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1433.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Arctic Monkeys - AM (2013) [FLAC|tracks + .cue]<Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1521.jpgsave_picture_1521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1521.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:9BD61A03AE18CDF7B5E32F7690AD09EB80710D2A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1559.jpgsave_picture_1559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1559.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Jelusick - Apolitical Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1575.jpgsave_picture_1575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1575.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Take it Down - Культ (2025) [MP3|320 Kbps] <technical deathcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1582.jpgsave_picture_1582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1582.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ In Mourning - The Immortal (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1600.jpgsave_picture_1600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1600.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Haken - Liveforms: An Evening With Haken (2025) 3 x CD, Limited Edition [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1623.jpgsave_picture_1623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1623.jpg" />
 </div>
 
 

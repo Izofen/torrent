@@ -6,7 +6,7 @@ ANVIL (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194526.jpgsave_picture_194526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194526.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ One More Island (2022) [Multi] (1.8.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194539.jpgsave_picture_194539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194539.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Last Shot (2023) [Ru/Multi] (Build 10586224) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194560.jpgsave_picture_194560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194560.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (0.169) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194576.jpgsave_picture_194576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194576.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lucas Chess (2023) [Ru/Multi] (2.09b) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194595.jpgsave_picture_194595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194595.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.10/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194599.jpgsave_picture_194599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194599.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ World War Z (2019) [Ru/Multi] (27.06.2023/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194603.jpgsave_picture_194603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194603.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Scrap (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194613.jpgsave_picture_194613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194613.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194640.jpgsave_picture_194640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194640.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194644.jpgsave_picture_194644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194644.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194658.jpgsave_picture_194658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194658.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DROS (2023) [En] (5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194660.jpgsave_picture_194660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194660.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adore (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194662.jpgsave_picture_194662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194662.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Demonic Supremacy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194693.jpgsave_picture_194693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194693.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194707.jpgsave_picture_194707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194707.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ WWE 2K23 (2023) [Multi] (1.15/dlc) Scene Tenoke [Icon Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194717.jpgsave_picture_194717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194717.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (Build 11792639) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194786.jpgsave_picture_194786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194786.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mega City Police (2023) [Ru/Multi] (1.01) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194790.jpgsave_picture_194790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194790.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Welcome to Kowloon (2023) [Ru/Multi] (Build 11855091) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194801.jpgsave_picture_194801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194801.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194894.jpgsave_picture_194894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194894.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719_1750_15
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195006.jpgsave_picture_195006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195006.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Frozen Garden (2023) [En] (Build 11771483) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195036.jpgsave_picture_195036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195036.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:DC4530F3DE7AD6C72DF82C5DDE254A54F875C5CC
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195112.jpgsave_picture_195112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195112.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ape Out (2019) [Ru/Multi] (1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195133.jpgsave_picture_195133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195133.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Repair House: Restoration Sim (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195156.jpgsave_picture_195156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195156.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Madshot (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195192.jpgsave_picture_195192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195192.jpg" />
 </div>
 
 

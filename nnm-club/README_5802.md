@@ -6,7 +6,7 @@ Code Editor Pro 0.7.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181028.jpgsave_picture_181028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181028.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Polyverse Music - Supermodal 0.5.0 VST,  VST 3, AAX (x64) RePack by r4e [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181031.jpgsave_picture_181031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181031.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181033.jpgsave_picture_181033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181033.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B5B0352DA63C7C55B42FCD5B69F0D0616CC85349
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181034.jpgsave_picture_181034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181034.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ No Sun To Worship (2023) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181037.jpgsave_picture_181037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181037.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi / Story of a Small Senior in My Comp
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181040.jpgsave_picture_181040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181040.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B16D6821ED0B8737EB73B61965E7501A16B6CF94
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181041.jpgsave_picture_181041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181041.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E60BB8C562F72919A6E7FFD35B118C43EC9A03F3
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181044.jpgsave_picture_181044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181044.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8FDBDAD5C362FE51BC338B41EF49C14271CB27CA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181045.jpgsave_picture_181045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181045.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Karpov.courses, Александр Сахнов, Валерий Бабушкин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181048.jpgsave_picture_181048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181048.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:C6B7EA7152167391640827B584BBAD04A0724077
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181049.jpgsave_picture_181049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181049.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Mirillis Action! 4.30.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181050.jpgsave_picture_181050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181050.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ USB Network Gate 10.0.2450 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181056.jpgsave_picture_181056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181056.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:CB02BE3448B7E028956BF8C1EFDEA2840F756675
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181057.jpgsave_picture_181057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181057.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ QuickEdit Text Editor Pro 1.9.7 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181058.jpgsave_picture_181058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181058.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A4334B354B1A99B8E83F8D3C78B03F8D9D1187A1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181061.jpgsave_picture_181061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181061.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ The Cure - Wish (1992) 30th Anniversary Edition - Remastered, 2022, Fiction Reco
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181062.jpgsave_picture_181062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181062.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:F475A6BD4D8AE110117F05F6DC2CD2E5EB7AE14E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181065.jpgsave_picture_181065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181065.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:9B155D942541EA1161D8C9CC82E80EAC5BDBE5E5
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181066.jpgsave_picture_181066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181066.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:8FB578F9B3976E82751465EF9704A28F0DBC75A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181070.jpgsave_picture_181070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181070.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Materialise Magics 27.0 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181072.jpgsave_picture_181072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181072.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:28778513A0DC6248EA1977833C3AADAE3F897C43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181074.jpgsave_picture_181074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181074.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:1CD087346C14B85FBB76638FD53F9F8B63ADB13F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181076.jpgsave_picture_181076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181076.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ AMID EVIL (2019) [En] (2614/dlc) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181078.jpgsave_picture_181078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181078.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:4F759E776541926C5868F61449F63E668294F6E8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181080.jpgsave_picture_181080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181080.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:EC87891AB1BF5B977BD0B131A229B98D006B3F6C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181081.jpgsave_picture_181081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181081.jpg" />
 </div>
 
 

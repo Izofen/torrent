@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252137.jpgsave_picture_252137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252137.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Артем Яковлев | Blender 2023 - полный базовый к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252138.jpgsave_picture_252138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252138.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D0193AFC3EB963CCA6CB70C3A1FAD2416B139007
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252139.jpgsave_picture_252139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252139.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Inu ni Nattara Suki na Hito ni Hirowareta. / My Life as Inukai-san's Dog / Я с
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252140.jpgsave_picture_252140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252140.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:4A6658850879AB0C9E3B87CE8DC73C7A037745DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252141.jpgsave_picture_252141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252141.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:03658E9AC15BD96ACB8F1E9A60D9C15975127B3E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252142.jpgsave_picture_252142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252142.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Ulbitv, Ульби Тимур | Продвинутый Frontend. В Production �
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252143.jpgsave_picture_252143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252143.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:1BF8E1A25A477782494614DD1A183C3F04293553
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252144.jpgsave_picture_252144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252144.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Metallica - Дискография (20 releases) (1983-2023) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252145.jpgsave_picture_252145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252145.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E0864958871EF26E3FB7C6FD9ADC485A3A91DA6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252146.jpgsave_picture_252146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252146.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Windows 7 Professional VL x64 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252147.jpgsave_picture_252147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252147.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (2.217.1.0/dlc) Repack DjDI
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252148.jpgsave_picture_252148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252148.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (2.217.1.0/dlc) Repack DjDI
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252149.jpgsave_picture_252149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252149.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:A52CB3F039C01A7B919D103D1FFCC8A1A3150F02
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252150.jpgsave_picture_252150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252150.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 11025382/dlc/tr) Repack Other s [Deluxe
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252151.jpgsave_picture_252151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252151.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:BD629FB442BE97CD3FFBBBB40A5CFDF12A4A9014
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252152.jpgsave_picture_252152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252152.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:A11AF22175ED8505FCC1059C16245CBC11D78CA8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252153.jpgsave_picture_252153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252153.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:0686617E528193132BA6A0E0F584CD4A6BAF53C8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252154.jpgsave_picture_252154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252154.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ TeamViewer 15.40.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252155.jpgsave_picture_252155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252155.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:70CADE17F618DFAF534D78C84500587E0B360B09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252156.jpgsave_picture_252156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252156.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:8F2A447F9E38451477F6D0D0E7C77803F24A8C67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252157.jpgsave_picture_252157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252157.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:EFB7D779DA8AE24C849CF5DCE1FCA43DC0534AA8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252158.jpgsave_picture_252158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252158.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E8C22F156EE04363DCE366F6FB3CC6F86299E0B4
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252159.jpgsave_picture_252159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252159.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:4D710091AFB256F6A68771F7F4D8A0CF3C9BAF4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252160.jpgsave_picture_252160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252160.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:4D710091AFB256F6A68771F7F4D8A0CF3C9BAF4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252161.jpgsave_picture_252161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252161.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Resident Evil 4 (2023) [Ru/Multi] (11025382/dlc) Scene EMPRESS [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252162.jpgsave_picture_252162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252162.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149899.jpgsave_picture_149899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149899.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wise System Monitor 1.4.8.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149900.jpgsave_picture_149900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149900.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GIF'ted 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149901.jpgsave_picture_149901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149901.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C0F143A808F053962007EA4E05363442F5A180A3
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149902.jpgsave_picture_149902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149902.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dance Gavin Dance - Tree City Sessions 2 (2020) [MP3|320 Kbps] <Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149903.jpgsave_picture_149903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149903.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ TrayButton for WhatsApp 1.0.83 [Ru/En] [Авторская раздача]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149904.jpgsave_picture_149904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149904.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Connecting The Dots (Robag Wruhme) (2021) [AAC|~305 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149905.jpgsave_picture_149905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149905.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Courtney Pine - Black Notes From The Deep (2017) Freestyle Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149906.jpgsave_picture_149906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149906.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:722E2130B70C3BF2B2AFD0207F73F4DEBD5F9370
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149907.jpgsave_picture_149907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149907.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ BestReminder v2018.12.22.22 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149908.jpgsave_picture_149908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149908.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:E734CE25D6EB7AF89D5783A749B305442AE303F2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149910.jpgsave_picture_149910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149910.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:86BC3F253411C3BDFDCE6A07AE33080800A429D3
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149912.jpgsave_picture_149912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149912.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:4F2BB334CB7ED45762B73A392E75F8770853AFE2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149913.jpgsave_picture_149913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149913.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149916.jpgsave_picture_149916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149916.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E5D69167FB98CA4D722F2BA7B425B20049042547
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149917.jpgsave_picture_149917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149917.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ MAGIX Vegas Pro 21.0 Build 187 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149918.jpgsave_picture_149918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149918.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D7E87A9C8FD7E8E83425B6922296FE5A15D2C13A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149919.jpgsave_picture_149919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149919.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - FROZEN Purple (2021) [AAC|~305 Kbps] <Dub Techno, Deep House, Deep Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149920.jpgsave_picture_149920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149920.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:3F2414FF9E8E20FF82E9EEDFAC7969E3FC16D82A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149921.jpgsave_picture_149921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149921.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Desktopr - make wallpaper from any website 1.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149922.jpgsave_picture_149922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149922.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Inklet 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149924.jpgsave_picture_149924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149924.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Adguard 6.0.146.791 RC [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149925.jpgsave_picture_149925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149925.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:F790AB26DC4C82C5AAE331E57D15763148712D06
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149926.jpgsave_picture_149926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149926.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:A1C404C02BF14385A773BB5CBC14B3AEF646EC96
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149928.jpgsave_picture_149928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149928.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Damon Smith's - A Boogie Woogie and Blues Christmas Album (2020) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149929.jpgsave_picture_149929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149929.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Wise Force Deleter 1.48.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149931.jpgsave_picture_149931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149931.jpg" />
 </div>
 
 

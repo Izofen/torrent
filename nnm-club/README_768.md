@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20295.jpgsave_picture_20295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20295.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:6528A7F0ABDCC495A07C894AD85E8100391C5A14
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20296.jpgsave_picture_20296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20296.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TapScanner v3.0.68 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20297.jpgsave_picture_20297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20297.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20298.jpgsave_picture_20298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20298.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F1686744D6D2E8AE082D9461AC918989B7057C33
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20299.jpgsave_picture_20299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20299.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:8A205070DCE6773641E09B0DB43C86BCB5CAE0B5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20300.jpgsave_picture_20300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20300.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:3BDDF76CD81CCE5826B97F24E7C29DFF7F5EE9A2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20301.jpgsave_picture_20301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20301.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:52163DCCBBA12DA1D151BDE85A8F7EB03CA68B66
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20302.jpgsave_picture_20302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20302.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 22.04.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20303.jpgsave_picture_20303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20303.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The Empty Desk (2025) [Ru/Multi] (1.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20304.jpgsave_picture_20304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20304.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:819BA89678AB9BEB31F58C39A1A6940B581028B6
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20305.jpgsave_picture_20305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20305.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack seleZen [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20306.jpgsave_picture_20306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20306.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:9CB2214B1BA0300CFF07BA8CEFAA5B7789B89539
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20307.jpgsave_picture_20307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20307.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Matt St. Onge | The Embedded Linux Security Handbook (2025) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20308.jpgsave_picture_20308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20308.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:278AA5E498FB0EB3C283020FC2BEB969AE560731
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20309.jpgsave_picture_20309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20309.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:7945ED362C28C254406E214A9966E99184A9DE13
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20310.jpgsave_picture_20310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20310.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20311.jpgsave_picture_20311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20311.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20312.jpgsave_picture_20312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20312.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Udemy, 3D Tudor, Vladan Trhlik | Blender Geometry Nodes - Boats (2025) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20313.jpgsave_picture_20313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20313.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ MediaHuman YouTube Downloader 3.9.10.0 (2404) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20314.jpgsave_picture_20314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20314.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ TreeSize Professional 9.4.2.2004 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20315.jpgsave_picture_20315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20315.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:7E26E93D0A9FF741228A8D8935761EC958C896C5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20316.jpgsave_picture_20316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20316.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:A07EFE178E65C5C9741E0C6415E077CBCDEF190D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20317.jpgsave_picture_20317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20317.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ FileZilla 3.69.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20318.jpgsave_picture_20318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20318.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:612FB375D0C87925FAF55EC7F2F7C5C0F4052D9D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20319.jpgsave_picture_20319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20319.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ FreeCommander XE 2025 donor v929 x64 + portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20320.jpgsave_picture_20320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20320.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sejda PDF Desktop Pro 7.9.0 [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5047.jpgsave_picture_5047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5047.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ W10Privacy 5.2.0.5 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5051.jpgsave_picture_5051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5051.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wipe  Professional 2510 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5052.jpgsave_picture_5052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5052.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ChameleonLab 1.4.0.0 [Ru/En] (авторская раздача)
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5069.jpgsave_picture_5069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5069.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CrystalDiskInfo 9.7.2 Final + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5070.jpgsave_picture_5070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5070.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PDF-XChange PRO 10.7.1.399 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5198.jpgsave_picture_5198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5198.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ LibreOffice 25.8.1.1 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5218.jpgsave_picture_5218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5218.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DiskDigger 2.0.11.4091 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5221.jpgsave_picture_5221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5221.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Treesize professional 9.5.1.2105 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5227.jpgsave_picture_5227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5227.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DriverEasy 7.0.2.1910 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5245.jpgsave_picture_5245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5245.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ExperienceIndexOK 4.58 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5283.jpgsave_picture_5283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5283.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Total Commander 11.56 LitePack & PowerPack + Portable 2025.8.2 by SamLab [Multi/
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5288.jpgsave_picture_5288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5288.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ pdfFactory Pro 9.16 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5344.jpgsave_picture_5344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5344.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Kalmuri 4.0.9 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5382.jpgsave_picture_5382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5382.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Allavsoft Video Downloader Converter 3.28.3.9369 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5391.jpgsave_picture_5391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5391.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Advanced SystemCare Pro 18.5.0.250 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5402.jpgsave_picture_5402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5402.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ SoftMaker Office Professional 2024 Rev. S1226.0817 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5405.jpgsave_picture_5405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5405.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Cent Browser 5.2.1168.83 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5406.jpgsave_picture_5406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5406.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Zentimo xStorage Manager 3.1.2.1301 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5429.jpgsave_picture_5429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5429.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Office Installer & Office Installer+ 1.29 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5430.jpgsave_picture_5430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5430.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ USB Safely Remove 7.1.2.1327 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5437.jpgsave_picture_5437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5437.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Cent Browser 5.2.1168.83 Stable + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5440.jpgsave_picture_5440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5440.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ CoolUtils Total PDF Converter 6.5.0.354 RePack (& portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5543.jpgsave_picture_5543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5543.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ USB Safely Remove 7.1.2.1328 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5589.jpgsave_picture_5589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5589.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Wise Care 365 Pro 7.2.8.709 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5590.jpgsave_picture_5590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5590.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ YouTube Video Downloader Pro 6.16.2 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5705.jpgsave_picture_5705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5705.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Fostermother - Echo Manor (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104991.jpgsave_picture_104991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104991.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Grimskull - Gathering Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104993.jpgsave_picture_104993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104993.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Oh He Dead - Ugly (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104994.jpgsave_picture_104994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104994.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sonic Hustle - Out Of The Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105019.jpgsave_picture_105019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105019.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nino Helfrich - Shadow Empress (2024) [MP3|320 Kbps] <Prog Metal, Vocals Instrum
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105025.jpgsave_picture_105025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105025.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105031.jpgsave_picture_105031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105031.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Loss - Human Factor (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105034.jpgsave_picture_105034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105034.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ This Ending - Crowned In Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105038.jpgsave_picture_105038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105038.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mike Tramp - Songs Of White Lion, Vol. I-II (2023-2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105049.jpgsave_picture_105049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105049.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hardy - Мир криминала (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105055.jpgsave_picture_105055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105055.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Footloose - Footloose (1980) Japanese Edition, Reissue, 2001, Cool Sound [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105059.jpgsave_picture_105059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105059.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Budderside - Good For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105066.jpgsave_picture_105066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105066.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Silvera - World Behind Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105067.jpgsave_picture_105067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105067.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Simone Simons - Vermillion (feat. Ayreon) (2024) [MP3|320 Kbps] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105082.jpgsave_picture_105082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105082.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Honeymoon Suite - Alive (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105087.jpgsave_picture_105087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105087.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lionheart - The Grace Of A Dragonfly (2024) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105091.jpgsave_picture_105091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105091.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jeris Johnson - Dragonborn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105096.jpgsave_picture_105096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105096.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Equus - Equus (1985) Reissue, 2024, Pride & Joy Music [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105098.jpgsave_picture_105098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105098.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Furnace - Trojan Hearse (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105159.jpgsave_picture_105159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105159.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ All For Metal - Gods Of Metal (Year Of The Dragon) (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105204.jpgsave_picture_105204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105204.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Paralydium - Universe Calls (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105207.jpgsave_picture_105207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105207.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Blind Ivy - Satcitananda (2024) [MP3|320 Kbps] <Metalcore, Groove Metal, Female 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105210.jpgsave_picture_105210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105210.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Zeal & Ardor - GREIF (2024) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105212.jpgsave_picture_105212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105212.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dampf - No Angels Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105213.jpgsave_picture_105213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105213.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Miss May I - Apologies Are For The Weak (Re-Recorded 15th Anniversary Edition) (
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105217.jpgsave_picture_105217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105217.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Within the Ruins - Phenomena II (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105219.jpgsave_picture_105219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105219.jpg" />
 </div>
 
 

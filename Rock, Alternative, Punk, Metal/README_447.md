@@ -6,7 +6,7 @@ Bomber Goggles - Gyreland (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240341.jpgsave_picture_240341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240341.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rustorm - Razed to the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240343.jpgsave_picture_240343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240343.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Torrax - Pribehy (2021) [MP3|320 Kbps] <Power Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240347.jpgsave_picture_240347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240347.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vinnum Sabbathi - Live at Channel 666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240351.jpgsave_picture_240351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240351.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Huxley Would Approve - Grave New World: Part Two (2021) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240355.jpgsave_picture_240355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240355.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Enforcer - Nostalgia (2023) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240356.jpgsave_picture_240356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240356.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Goatsmoke - What's the scene, Bob? (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240359.jpgsave_picture_240359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240359.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gary Moore - Corridors of Power (1982) Reissue, Remastered, 2023, Universal, Jap
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240373.jpgsave_picture_240373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240373.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ RUMOURS - Neither Innocent nor Wavering (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240380.jpgsave_picture_240380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240380.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Headon - Éxodo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240384.jpgsave_picture_240384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240384.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Leiden - L'Aube Spirituelle (2021) [FLAC|Lossless|image + .cue] <Gothic, Industr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240389.jpgsave_picture_240389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240389.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Pisuika - Semilla negra (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240394.jpgsave_picture_240394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240394.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ UADA - Djinn (2020) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240397.jpgsave_picture_240397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240397.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Invicta - Triumph and Torment (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240402.jpgsave_picture_240402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240402.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Killing Tyranny - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240405.jpgsave_picture_240405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240405.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:1324A3B767786638AEC957D26CA0FCC36CF0FFDB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240406.jpgsave_picture_240406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240406.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Nasty - Realigion (2017) [FLAC|Lossless|WEB-DL|tracks] <Belgium  Beatdown Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240407.jpgsave_picture_240407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240407.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Dead Earthlings - Dead Earthlings (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240415.jpgsave_picture_240415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240415.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Gary Moore - Run for Cover (1985) Reissue, 2023, Universal, Japanese Edition [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240419.jpgsave_picture_240419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240419.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Inventtor - Em Meio a Escuridao (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240420.jpgsave_picture_240420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240420.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Bismut - Retrocausality (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic desert
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240423.jpgsave_picture_240423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240423.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Project Pain - Faster Disaster (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240425.jpgsave_picture_240425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240425.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Illvilja - Where No Sorrow Dwells (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240430.jpgsave_picture_240430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240430.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Tyler Kamen - Artichoke Pythagorum (2022) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240431.jpgsave_picture_240431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240431.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Vagrants - Be Consumed (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240439.jpgsave_picture_240439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240439.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Alex Carpani - Microcosm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240446.jpgsave_picture_240446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240446.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ OfficeSuite Pro + PDF 14.0.50070 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134524.jpgsave_picture_134524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134524.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Keka 1.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134525.jpgsave_picture_134525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134525.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DBDC043BA73F0E1BD3A6C32E356248D52D0BD7F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134527.jpgsave_picture_134527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134527.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134528.jpgsave_picture_134528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134528.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Native Instruments Kontakt 7.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134529.jpgsave_picture_134529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134529.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BBF22C3E2A67E59C3801B8716833AB0102ECBDFD
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134530.jpgsave_picture_134530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134530.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dynamic Wallpaper Engine 16.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134531.jpgsave_picture_134531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134531.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A3857DC7AFC56DC5F37EF8870CF6787A3D6DD7E5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134533.jpgsave_picture_134533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134533.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ PDF Expert 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134535.jpgsave_picture_134535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134535.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC|Lossless|image + .cue] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134537.jpgsave_picture_134537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134537.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4A7FBCE2892A510BE1B23731A428AE4F694133F9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134539.jpgsave_picture_134539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134539.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:A78345A16EE2A0C57B4C5736BF7568A689FAB94D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134541.jpgsave_picture_134541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134541.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:A1A03C9611A4761776B90350FD62A95EFABA2FB3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134542.jpgsave_picture_134542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134542.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:62B85C6CE0122896707720229AC91B94738495C3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134543.jpgsave_picture_134543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134543.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:BB53061B6DEF708FA244380683E89BD549E024F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134545.jpgsave_picture_134545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134545.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ S.N.A.K.E. - Three (2023) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134547.jpgsave_picture_134547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134547.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:47F06993BE1A385E755814EC99E6C39D55DE7C40
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134549.jpgsave_picture_134549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134549.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ The Doors - Back In Town (Live) (1968) Reissue, 2023, Vision [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134551.jpgsave_picture_134551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134551.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:D4AA8EB4AC9A2365F33088DF467E1B9FACA91676
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134552.jpgsave_picture_134552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134552.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:F5FA4456840B500F712D54DC7733B69EA1C91CDE
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134553.jpgsave_picture_134553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134553.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Speedtest от Ookla 5.2.3 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134555.jpgsave_picture_134555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134555.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:9673FB52A55310FBC4C65F3802739D9725134876
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134556.jpgsave_picture_134556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134556.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:286715300EA2C7EE2A67BA7C12427DBD679715BC
 >>Интернет-творчество
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134559.jpgsave_picture_134559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134559.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:C802BBD0526CA6A9274F278564661C6D44507687
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134562.jpgsave_picture_134562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134562.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134563.jpgsave_picture_134563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134563.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:0B2AB4DD766D9310A1EBCA69B28B7A9A063A84CE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134564.jpgsave_picture_134564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134564.jpg" />
 </div>
 
 

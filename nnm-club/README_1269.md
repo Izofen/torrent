@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33349.jpgsave_picture_33349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33349.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PilotEdit Lite & Pro 19.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33350.jpgsave_picture_33350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33350.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Balabolka 2.15.0.885 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33351.jpgsave_picture_33351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33351.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8986F458472B729B30A197CD8C8D6AC058E1C08E
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33352.jpgsave_picture_33352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33352.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A8602AA11E74DED11AA199B08FF319662FF5AD1E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33353.jpgsave_picture_33353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33353.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - 128 Bpm Afro House Workout Motivation Mix (2024) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33354.jpgsave_picture_33354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33354.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33355.jpgsave_picture_33355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33355.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33356.jpgsave_picture_33356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33356.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Love Bomb / Love Bomb (2024) WEBRip [H.264/1080p] [DVO] [AD]
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33357.jpgsave_picture_33357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33357.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Love Bomb / Love Bomb (2024) WEBRip [DVO] [AD]
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33358.jpgsave_picture_33358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33358.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Zoner Photo Studio X 19.2409.2.589 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33359.jpgsave_picture_33359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33359.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33360.jpgsave_picture_33360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33360.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33361.jpgsave_picture_33361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33361.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:E94F3B0A7CD7BDEFC4A557A38E6D6DE82BCFF63A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33362.jpgsave_picture_33362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33362.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33363.jpgsave_picture_33363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33363.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:B91F62D88FEC7E27A44FCFFE8822BFBA5ECAFE07
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33364.jpgsave_picture_33364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33364.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33365.jpgsave_picture_33365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33365.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:0C8578EEE99ABFD8487D92487AC55A2C80F710E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33366.jpgsave_picture_33366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33366.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:37541ECD99DB66465AF4A572EEEE755FE06832B3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33367.jpgsave_picture_33367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33367.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:934542A0CDF65A84ACD365FC6DE1B1618C15E8CC
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33368.jpgsave_picture_33368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33368.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33369.jpgsave_picture_33369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33369.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:2AA2ADFA667E8AA3C1325DB789B1D3B617798DEC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33370.jpgsave_picture_33370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33370.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:75BE422C703D720AC5624A36A55F7CB34AF22D59
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33371.jpgsave_picture_33371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33371.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:5A620239D338DCD4E8931DDECA230F5BF136ED2D
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33372.jpgsave_picture_33372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33372.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:FD83CA24DD057AE67F5741534E3288C6FB342902
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33373.jpgsave_picture_33373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33373.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33374.jpgsave_picture_33374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33374.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217915.jpgsave_picture_217915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217915.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Disco Chelsea (1978) [FLAC|192/24|image + .cue|Vinyl-Rip] <Soul, Funk, Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219510.jpgsave_picture_219510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219510.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Peter Matz - Quadraphonic Spectacular (1972) [FLAC|96/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219557.jpgsave_picture_219557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219557.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Syksyn Savelia (1982) [FLAC|96/24|image + .cue|Vinyl-Rip] <Electronic, Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219574.jpgsave_picture_219574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219574.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ GNOB - 2 Albums (2018-2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Psych, Fuzz, Stone
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219713.jpgsave_picture_219713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219713.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Coffin Hag - Prairie Tyrant (2023) [FLAC|24/44.1|tracks|WEB-DL] <Psych Stoner Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219758.jpgsave_picture_219758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219758.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224575.jpgsave_picture_224575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224575.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Di
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224804.jpgsave_picture_224804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224804.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224838.jpgsave_picture_224838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224838.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228434.jpgsave_picture_228434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228434.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228561.jpgsave_picture_228561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228561.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228845.jpgsave_picture_228845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228845.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Zardonic - Superstars (2023) [FLAC|24/48|tracks|WEB-DL] <Industrial Rock, Drum &
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229117.jpgsave_picture_229117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229117.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:8513D1240E91FFD4E694B25EE4F7B75FF3350CCE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229534.jpgsave_picture_229534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229534.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:0DFE44147D50044ADDE2F8DD4BFFCCB808B93E63
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230481.jpgsave_picture_230481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230481.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Creedence Clearwater Revival - Легенды Зарубежного Рока (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230921.jpgsave_picture_230921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230921.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Krokus - Легенды Зарубежного Рока (2001) Compilation, Unof
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230957.jpgsave_picture_230957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230957.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Queen - Легенды Зарубежного Рока (1999) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230996.jpgsave_picture_230996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230996.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231036.jpgsave_picture_231036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231036.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232419.jpgsave_picture_232419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232419.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:3B6B9C7140176FD5DB5B52ECD943588690BF58B1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232878.jpgsave_picture_232878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232878.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232952.jpgsave_picture_232952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232952.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232991.jpgsave_picture_232991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232991.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233007.jpgsave_picture_233007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233007.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233340.jpgsave_picture_233340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233340.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233757.jpgsave_picture_233757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233757.jpg" />
 </div>
 
 

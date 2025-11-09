@@ -6,7 +6,7 @@ The Wayne Riker Gathering - Alphabetical Blues Bash, Vol. 2 (2023) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125296.jpgsave_picture_125296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125296.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C10C7EF4A9B3D2D92D09176A6E31FCAB6EB88AB2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125297.jpgsave_picture_125297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125297.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:8C5E7F80B31CDD30D3C073652EE968E0F7083A19
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125298.jpgsave_picture_125298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125298.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Borgne - Y (2020) [FLAC|Lossless|tracks + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125299.jpgsave_picture_125299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125299.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:DAC550DD69E307DF78FBB11D1B52E64415A227C3
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125300.jpgsave_picture_125300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125300.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:06771652CB7180E02976727ECB8C9735B145885D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125301.jpgsave_picture_125301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125301.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:AE871A99E51C071CB2889C075F6A62E8F36C8E3C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125302.jpgsave_picture_125302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125302.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Jerusalem - Stygn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125303.jpgsave_picture_125303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125303.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125304.jpgsave_picture_125304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125304.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ The Tamaracks - Fool Me Once (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125305.jpgsave_picture_125305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125305.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Borgne - [∞] (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125306.jpgsave_picture_125306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125306.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Goosebumps Bros. - 21 Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125307.jpgsave_picture_125307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125307.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Taylor Newville and the Riders - Let the Good Times Begin (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125308.jpgsave_picture_125308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125308.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ EarthView 7.8.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125309.jpgsave_picture_125309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125309.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:B5DB1745CEA1437CF45ECE41E67AB0F4C182EC7B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125310.jpgsave_picture_125310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125310.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ HWiNFO 7.69 Build 5305 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125311.jpgsave_picture_125311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125311.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:03FD917389E2B010159B07A1F5114114E6F832FD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125312.jpgsave_picture_125312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125312.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:BF30F9E3D7AA656B452BC529E7EA572543EABCEF
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125313.jpgsave_picture_125313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125313.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:045DA1EEFFFF9534A8B9582828DDFED3C05A7F7E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125314.jpgsave_picture_125314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125314.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:AFE34D8391CB4CE6D1B777047BB4B706C2E29769
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125315.jpgsave_picture_125315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125315.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:E86C6CFC1D10AEDF03CCBFDB0F3246B60590AB97
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125316.jpgsave_picture_125316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125316.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:5539F6C7A7140125C41C60560D3A5BC737F25F2A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125317.jpgsave_picture_125317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125317.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:9C885E31C595E8E66D383C92264274BA993D3C49
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125318.jpgsave_picture_125318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125318.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:CBF762828EF60A9C987272B57F9BCFEC5288692B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125319.jpgsave_picture_125319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125319.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:235B1DE855965308DD6E2812FD4EE4142C2A856F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125320.jpgsave_picture_125320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125320.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:A7C04CC1CE0B1ACF5A6573E4533CE96C2C6089AD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125321.jpgsave_picture_125321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125321.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202106.jpgsave_picture_202106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202106.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9925D107228551E93F2C914214654CF861ECB96C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202107.jpgsave_picture_202107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202107.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Lounge Music (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202108.jpgsave_picture_202108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202108.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:844B98622569F7765826811EE76ABEA148F62558
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202109.jpgsave_picture_202109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202109.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:EC1A9D837B58652AAC0A204703331FCF11DCD7B7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202110.jpgsave_picture_202110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202110.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:739112189F08D963316560A45B1358B03173A300
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202111.jpgsave_picture_202111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202111.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (1.2.52488/dlc) License GOG [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202112.jpgsave_picture_202112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202112.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:730D63FD8120A46669D74B05CEDCE672A996EC7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202113.jpgsave_picture_202113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202113.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2F9856090B473F84CA068850FEE88A7C325CE026
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202114.jpgsave_picture_202114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202114.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:FF2CFB276F6C7146E7891160DF0F8130682E57EA
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202115.jpgsave_picture_202115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202115.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ The Dungeon of Naheulbeuk: The Amulet of Chaos v.1.5.448.47428 (2020) [Multi] [m
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202116.jpgsave_picture_202116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202116.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:39198A2AB1DA00EB54F1694FCFEE8C0DD1C3C169
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202117.jpgsave_picture_202117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202117.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ RIDE 5 (2023) [Multi] (1.0) Scene Rune
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202118.jpgsave_picture_202118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202118.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:9C45ABAA6912A170CDD655D55720DE5952A463DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202119.jpgsave_picture_202119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202119.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ ProShot v8.32 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202120.jpgsave_picture_202120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202120.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:9BA99E7FBA2CDB304E34D1CB71B7421E4CAB213E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202121.jpgsave_picture_202121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202121.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:F16C6925CFC3D0DF51C792A7E0137C44CE60BE4D
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202122.jpgsave_picture_202122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202122.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ GAC GS8: преимуществ и недостатки кроссовера и�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202123.jpgsave_picture_202123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202123.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Udemy, Nour Design | Эпические фотоманипуляции с пом
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202124.jpgsave_picture_202124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202124.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:0F4985DAB8F0B6C061F3A3046D776862AEE1378A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202125.jpgsave_picture_202125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202125.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:DFAE00DD84EC08A9833259133C0A210BC38D3367
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202126.jpgsave_picture_202126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202126.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A06DD853ED1D6CB837BD4C5F852B737747979481
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202127.jpgsave_picture_202127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202127.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:F251275B6420F967434B32CCF603BF2C33BFA465
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202128.jpgsave_picture_202128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202128.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:52CAE5658C0A5A5F09069D78746E2A8D0E517E4E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202129.jpgsave_picture_202129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202129.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:B06D8F74359FC544D68C7415478E9451BBBDCB24
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202130.jpgsave_picture_202130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202130.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Screenpic 0.15.2 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202131.jpgsave_picture_202131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202131.jpg" />
 </div>
 
 

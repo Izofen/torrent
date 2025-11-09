@@ -6,7 +6,7 @@ Windows XPProSP3 5.1.2600 (x86) g.e.[Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81298.jpgsave_picture_81298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81298.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Windows XP Pro SP3+ обновления по 09.03.2012, интегрирова
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81299.jpgsave_picture_81299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81299.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Windows XP Pro SP3+ обновления по 09.03.2012, интегрирова
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81301.jpgsave_picture_81301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81301.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:DFD59E435BB80A030B8242BC40FD4F38C8408D1C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81304.jpgsave_picture_81304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81304.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Chrome взломали дважды на конкурсах Pwnium и Pwn2Own
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81305.jpgsave_picture_81305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81305.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Chrome взломали дважды на конкурсах Pwnium и Pwn2Own
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81306.jpgsave_picture_81306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81306.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:AE9DAA24F7E758DBC91068B3AB5D3F3DEC23F9B4
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81307.jpgsave_picture_81307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81307.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ TrustPort Antivirus /USB Antivirus /Security /Total Protection 2012 12.0.0.486 F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81309.jpgsave_picture_81309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81309.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ TrustPort Tools является модульным программным об�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81310.jpgsave_picture_81310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81310.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ TrustPort Tools является модульным программным об�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81315.jpgsave_picture_81315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81315.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:F0B8DE1DA77ADF0CA9D9C51451024B9AC82C9E6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81319.jpgsave_picture_81319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81319.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ WPI for Windows 7 v.05.03.2012 by Rost55/andreyonohov [Русский] [2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81320.jpgsave_picture_81320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81320.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Unity3D Pro 3.5.0f5 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81321.jpgsave_picture_81321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81321.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Unity - это мультиплатформенный инструмент дл�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81323.jpgsave_picture_81323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81323.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Unity - это мультиплатформенный инструмент дл�
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81324.jpgsave_picture_81324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81324.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:6197CBA53AEDB9E6D97D856F8D4B9B295C736D4C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81326.jpgsave_picture_81326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81326.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:6197CBA53AEDB9E6D97D856F8D4B9B295C736D4C
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81328.jpgsave_picture_81328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81328.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ WINDOWS 7 Ultimate (X86) & SP1 v.01.12. GSM 6.1 7601.17514 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81332.jpgsave_picture_81332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81332.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ WINDOWS 7 Ultimate (X86) & SP1 v.01.12. GSM 6.1 7601.17514 [Русский]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81333.jpgsave_picture_81333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81333.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:36FF086196E7DBB8FD3AD3FED40D377F5F5385C0
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81334.jpgsave_picture_81334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81334.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Easy Paint Tool SAI ver 1.1.0 [EN] и [RU] c дополнительными ин
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81335.jpgsave_picture_81335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81335.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ WINDOWS 7 ULTIMATE x86 SP1 REACTOR 3.12
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81337.jpgsave_picture_81337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81337.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.isoЯзык интерфейса
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81339.jpgsave_picture_81339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81339.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Need For Speed: Underground 2 [Wineskin] [Rus]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81340.jpgsave_picture_81340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81340.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 7 Ultimate x64 v.03.2012 (Иваново) Чистая без прогр
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81341.jpgsave_picture_81341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81341.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Windows 7 Ultimate x64 v.03.2012 (Иваново) Чистая без прогр
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81343.jpgsave_picture_81343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81343.jpg" />
 </div>
 
 

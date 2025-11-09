@@ -6,7 +6,7 @@ Mr. Big - The BIG Finish Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104705.jpgsave_picture_104705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104705.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vivaldi 6.9.3447.41 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104706.jpgsave_picture_104706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104706.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sandboxie plus 1.14.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104707.jpgsave_picture_104707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104707.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Autumn Chill 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104708.jpgsave_picture_104708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104708.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:AF75D28994A3F665F9EBE6647BF452C6B5E8D9A5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104709.jpgsave_picture_104709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104709.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:914119ADDFBE06D2F7D09A8A05828B75EBAE41F3
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104710.jpgsave_picture_104710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104710.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ The Dead Daisies - Light 'Em Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104711.jpgsave_picture_104711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104711.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ God Is An Astronaut - Embers (2024) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Sp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104712.jpgsave_picture_104712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104712.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Sandboxie 5.69.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104713.jpgsave_picture_104713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104713.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ David Hasselhoff - 2 Albums (1989-1990) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104714.jpgsave_picture_104714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104714.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Armin van Buuren - A State Of Trance 1189 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104715.jpgsave_picture_104715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104715.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104716.jpgsave_picture_104716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104716.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Saga - The Works (1991) 2CD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104717.jpgsave_picture_104717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104717.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Blitzkrieg - Blitzkrieg (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBH
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104718.jpgsave_picture_104718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104718.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Infrared - Manifestation (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104719.jpgsave_picture_104719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104719.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Alcest - Les Chants de l'Aurore (2024) [FLAC|Lossless|Web-DL|tracks] <Blackgaze,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104720.jpgsave_picture_104720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104720.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:EED5255B4732DB27AFDF2652514C9B58AFB43E91
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104721.jpgsave_picture_104721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104721.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E7DCB63B9E73B560E5703CA8F41879BD18D8FB2B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104722.jpgsave_picture_104722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104722.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Subtitle Edit 4.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104723.jpgsave_picture_104723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104723.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Wise Care 365 Pro 7.0.2.682 (акция GiveAway) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104724.jpgsave_picture_104724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104724.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Relax Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104725.jpgsave_picture_104725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104725.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Atlantis Word Processor 4.4.1.0 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104726.jpgsave_picture_104726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104726.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.96 (0509) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104727.jpgsave_picture_104727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104727.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C73AE242FAB8C5E760A517C61E5D8D35E76105CD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104728.jpgsave_picture_104728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104728.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:6261E75E1F178C7D27720CD970DCC3D8107689D7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104729.jpgsave_picture_104729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104729.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Siiickbrain - My Masochistic Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Industri
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104730.jpgsave_picture_104730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104730.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52412.jpgsave_picture_52412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52412.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52415.jpgsave_picture_52415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52415.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Crab God (2024) [Ru/Multi] (1.0.24) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52427.jpgsave_picture_52427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52427.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Scene
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52429.jpgsave_picture_52429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52429.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52430.jpgsave_picture_52430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52430.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Gargoyles Remastered (2023) [Multi] (1.01.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52444.jpgsave_picture_52444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52444.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Repack dixen18 [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52455.jpgsave_picture_52455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52455.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52456.jpgsave_picture_52456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52456.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.21.67207.27/dlc) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52477.jpgsave_picture_52477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52477.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52479.jpgsave_picture_52479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52479.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52483.jpgsave_picture_52483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52483.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52495.jpgsave_picture_52495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52495.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Vanity Fair: The Pursuit / Игра славы и богатства (2024) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52496.jpgsave_picture_52496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52496.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.2) Scene FAiRLIGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52499.jpgsave_picture_52499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52499.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.0.9.1@143028/dlc) Scene FAiRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52512.jpgsave_picture_52512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52512.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52522.jpgsave_picture_52522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52522.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Nucleares (2023) [En] (0.2.16.137) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52523.jpgsave_picture_52523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52523.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Arena Renovation (2023) [Ru/Multi] (1.0.164) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52526.jpgsave_picture_52526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52526.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52555.jpgsave_picture_52555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52555.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ My Horse: Bonded Spirits (2024) [Ru/Multi] (1.0) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52584.jpgsave_picture_52584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52584.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ A Tower Full of Cats (2024) [Ru/Multi] (1.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52589.jpgsave_picture_52589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52589.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:F0A6E46FA9EF70DE73F319EBC2D1B2AAFED093C8
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52591.jpgsave_picture_52591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52591.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Alisa (2021) [Multi] (1.18) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52597.jpgsave_picture_52597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52597.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Homebody (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52608.jpgsave_picture_52608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52608.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52648.jpgsave_picture_52648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52648.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ House Builder (2021) [Ru/Multi] (20240619/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52653.jpgsave_picture_52653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52653.jpg" />
 </div>
 
 

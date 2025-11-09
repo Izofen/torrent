@@ -6,7 +6,7 @@ Blackbriar - Studio Albums (6 releases) (2017-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6475.jpgsave_picture_6475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6475.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:C6B52FAD296F3167B8834BDBCC38D98A4C2AC097
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6476.jpgsave_picture_6476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6476.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6330D127FB2801ABA539433AA6D8CE249278E3B9
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6477.jpgsave_picture_6477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6477.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BBC8B59A3119946670A04DE995E76C8C4BE33C68
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6478.jpgsave_picture_6478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6478.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:8170312A8D14450A32119AAF3412C375A9EC7D89
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6479.jpgsave_picture_6479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6479.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B67B82E4013DD8D3562E63946F8D04032BE523BD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6480.jpgsave_picture_6480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6480.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:CD6275B23325E79E91F57AE8C9FCF8481CB14E3A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6481.jpgsave_picture_6481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6481.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ PDF-XChange PRO 10.7.0.398 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6482.jpgsave_picture_6482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6482.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7309 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6483.jpgsave_picture_6483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6483.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6484.jpgsave_picture_6484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6484.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Beyond Citadel (2025) [En] (0.99b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6485.jpgsave_picture_6485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6485.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6486.jpgsave_picture_6486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6486.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:2CBCF11DE8FE4CB3E8879E83ED8E2F888D7CB861
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6487.jpgsave_picture_6487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6487.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D52B2A9E4949DC751064860FFDB56963AE788CEF
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6488.jpgsave_picture_6488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6488.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ SoundSwitch 6.14.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6489.jpgsave_picture_6489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6489.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:E9533B2DCCD2C36C35782716F205572ACA96E6F9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6490.jpgsave_picture_6490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6490.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:118725C92BE637C79CDE12C03C60927B00785A08
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6491.jpgsave_picture_6491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6491.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:3D81434D102AA032FC1C508BA2502E4BB0B4CA40
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6492.jpgsave_picture_6492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6492.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:C554E462D74D6FDCDA6EB637F300E644F8F38EF3
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6493.jpgsave_picture_6493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6493.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:5E63D9653077B06DBC669B1E6543869405635A5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6494.jpgsave_picture_6494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6494.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Calibre 8.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6495.jpgsave_picture_6495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6495.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A66A16356BE0756CE9882A6C2E7D9C573F9CA5CF
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6496.jpgsave_picture_6496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6496.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:B7ED6E4F3A65BCF166233C51527C4DC8B2C176EC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6497.jpgsave_picture_6497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6497.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6498.jpgsave_picture_6498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6498.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:74A45862329C724F1E269750EF7A5A238494E397
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6499.jpgsave_picture_6499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6499.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:767ED75A064277430CD21D201EAA88093C152965
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6500.jpgsave_picture_6500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6500.jpg" />
 </div>
 
 

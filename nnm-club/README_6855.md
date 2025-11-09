@@ -6,7 +6,7 @@ Denny Zeitlin - Early Wayne (2016) Sunnyside [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235506.jpgsave_picture_235506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235506.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FEFBD3DF6120A4F090934397B0727F6EBF74EA63
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235507.jpgsave_picture_235507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235507.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Tixati 3.18 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235508.jpgsave_picture_235508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235508.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Stats 2.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235509.jpgsave_picture_235509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235509.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ SiteSucker 4.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235510.jpgsave_picture_235510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235510.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:1E857EB12036EB946D5F746D68745AE1EEDC25A3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235511.jpgsave_picture_235511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235511.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Udemy, Миша Пискунов | Андроид приложение от ди
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235512.jpgsave_picture_235512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235512.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Wondershare UniConverter 14.1.17.189 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235513.jpgsave_picture_235513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235513.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:88957BB89DD40282E8C4DD9982B69B97C6117381
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235514.jpgsave_picture_235514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235514.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ March - In This Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235515.jpgsave_picture_235515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235515.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:65CD9AE369213E036CF70573CB3794D17C728C3E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235516.jpgsave_picture_235516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235516.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Jambalaya Blues Band - Pork & Beans (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235517.jpgsave_picture_235517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235517.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ OneCommander Pro 3.44.1.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235518.jpgsave_picture_235518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235518.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Dropshare 5.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235519.jpgsave_picture_235519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235519.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Udemy, Art Studio | Complete Blender Creator: Learn 3D Modelling for Beginners (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235520.jpgsave_picture_235520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235520.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ GrimmReaper - The Tragedy of Being (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235521.jpgsave_picture_235521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235521.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VideoDuke 2.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235522.jpgsave_picture_235522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235522.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ RTG. Ювелирное искусство Костромы (2012) SATRip
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235523.jpgsave_picture_235523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235523.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Opera 98.0.4759.39 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235524.jpgsave_picture_235524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235524.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Eguana - Night Ambient (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235525.jpgsave_picture_235525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235525.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Task Office 8.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235526.jpgsave_picture_235526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235526.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:0B205AD57D5CC879DA1BED29F0C4FDC37EA73546
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235527.jpgsave_picture_235527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235527.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NCH ClickCharts Diagram Pro 8.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235528.jpgsave_picture_235528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235528.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:14504199A5DB8989C1CBFFFC9408C708681830A1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235529.jpgsave_picture_235529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235529.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Koldovstvo - Ни Царя, Ни Бога (2021) [FLAC|Lossless|Web-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235530.jpgsave_picture_235530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235530.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:43EE139517D357ACED293B9211E25C52EF6A188E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235531.jpgsave_picture_235531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235531.jpg" />
 </div>
 
 

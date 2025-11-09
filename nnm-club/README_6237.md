@@ -6,7 +6,7 @@ The Bat! Voyager 10.4.0.2 Repack by zaremastr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195682.jpgsave_picture_195682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195682.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hudozhnik Online, Роман Круглов | Марафон по графике
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195683.jpgsave_picture_195683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195683.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195684.jpgsave_picture_195684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195684.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:33C63ACFEB295C174A698E8C84A7CE61983586A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195685.jpgsave_picture_195685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195685.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:35161C6010853CEB9C6A7778528D9A566827A81E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195686.jpgsave_picture_195686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195686.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ UltraISO Premium Edition 9.7.6.3860 Portable by JooSeng [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195687.jpgsave_picture_195687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195687.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195688.jpgsave_picture_195688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195688.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D4D43092AE6CE575DFF98F76836A9FA69B040914
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195689.jpgsave_picture_195689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195689.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:021361247963BF7E36E88718A79AB2523FEDE3BB
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195690.jpgsave_picture_195690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195690.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:5E1F2E0945FF7B79195C963613BE2976FB3185A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195691.jpgsave_picture_195691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195691.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:FC83ED5E45CEB69DC44901D65F75EAA91DA4BBD1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195693.jpgsave_picture_195693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195693.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Adobe Acrobat Pro 2023.003.20244 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195694.jpgsave_picture_195694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195694.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:2909A48CEEC373933C94344EA56E723800E602B1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195695.jpgsave_picture_195695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195695.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:56F744AAED3DDDD0C883C2C68E1F004F481019AC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195696.jpgsave_picture_195696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195696.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:5501F07E60D163528D7E703B06520F841EDCEDB8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195697.jpgsave_picture_195697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195697.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:AFDA10A2713ADEEE8404CB3152F2BB231EA2CC9E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195698.jpgsave_picture_195698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195698.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D4B7862313E1B2024A49553F441CFF5A6733BD8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195699.jpgsave_picture_195699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195699.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - ЕвроХит Топ 40 Europa Plus 14.07.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195700.jpgsave_picture_195700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195700.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ FxSound Pro 1.1.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195701.jpgsave_picture_195701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195701.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Skydrift Infinity (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195702.jpgsave_picture_195702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195702.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ European Air War (1998) [En] (1.20) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195703.jpgsave_picture_195703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195703.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C62683E4DCAEC3557F28F375BF9174C1DCA94B08
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195705.jpgsave_picture_195705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195705.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:883C5AC6C4DBF933D87BAF186748A4C9633E2D1B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195706.jpgsave_picture_195706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195706.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:C3A9F472BD9AC7A1201A5585DD9057ED3B2BD61A
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195707.jpgsave_picture_195707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195707.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E458F75DFE1046E5FB29AE14A7350BA0CEFF3F42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195708.jpgsave_picture_195708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195708.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FEC5DCFC64990D1F987B5BFA5AB048DDA3491BF7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195709.jpgsave_picture_195709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195709.jpg" />
 </div>
 
 

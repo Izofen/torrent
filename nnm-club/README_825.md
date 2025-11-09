@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21789.jpgsave_picture_21789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21789.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F020743649C263C5F8C9D7422F2090277E8FC792
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21790.jpgsave_picture_21790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21790.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BBFA7225CCB47F4C678D37CEB65F8EE88BFF9EA1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21791.jpgsave_picture_21791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21791.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21792.jpgsave_picture_21792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21792.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ AnyDesk 9.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21793.jpgsave_picture_21793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21793.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9638FBEE5B35BF2B27619B6BF18FEA62B8113621
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21794.jpgsave_picture_21794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21794.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21795.jpgsave_picture_21795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21795.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F4260AA39FFE47646EB651248E82DF578424B8CE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21796.jpgsave_picture_21796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21796.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:DDBD6D7929172E8F39DA141788A5C4D6E1B5232B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21797.jpgsave_picture_21797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21797.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ D.O.A.: Живым или мертвым / DOA: Dead or Alive (2006) BDRip [H.26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21798.jpgsave_picture_21798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21798.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0D4470247853D143DA287657C8F0EB2BEA7C8B91
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21799.jpgsave_picture_21799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21799.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E2504A321D4C2DFFB62AA7C5335E5EA4F497C9FA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21800.jpgsave_picture_21800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21800.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:77D2F490FC6ACC5C2E3434F3707F054C6D421A5F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21801.jpgsave_picture_21801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21801.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Va - Hits that stay forever (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21802.jpgsave_picture_21802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21802.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ CentOS 10 Stream [x86_64 / aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21803.jpgsave_picture_21803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21803.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:9C2959549CA9A85F51013598F5CF23FAE0F6FCC1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21804.jpgsave_picture_21804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21804.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:A860A29D818EBED9660AE0F7FE9D7AD1F734C906
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21805.jpgsave_picture_21805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21805.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B8940B963F0989C9086C46DD106F88006A8CB348
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21806.jpgsave_picture_21806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21806.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:75E4CD2ED718B7DAE9C42B3546CBCA3B3B2BD92F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21807.jpgsave_picture_21807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21807.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:D33ABEEE3F6FBD753C7F4A4296F2C164F80EFCD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21808.jpgsave_picture_21808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21808.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ MInstAll v.07.04.2025 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21809.jpgsave_picture_21809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21809.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:9FCA0430C1423632103074CF78A6C8FB2E0604B4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21810.jpgsave_picture_21810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21810.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:B9F637A7B90BAAA8BF2A65018058D37484DA7BD0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21811.jpgsave_picture_21811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21811.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:7115E974DD9B6DC0F4BF86FE4EAD26AB14C0B3A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21812.jpgsave_picture_21812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21812.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E64F9CF0E64DD19EC3B1F79837A72F8E8F1E5AE0
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21813.jpgsave_picture_21813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21813.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Manic Street Preachers - 20 альбомов (1992 - 2025) 39 CD [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21814.jpgsave_picture_21814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21814.jpg" />
 </div>
 
 

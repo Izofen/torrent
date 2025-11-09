@@ -6,7 +6,7 @@ Squeezer 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238849.jpgsave_picture_238849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238849.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Excalion - Once upon a Time (2023) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238850.jpgsave_picture_238850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238850.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Inluzt - Echoes Of Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238851.jpgsave_picture_238851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238851.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Logic Pro X 10.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238852.jpgsave_picture_238852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238852.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:90617CA5945EBDD6337BADD82A50846A39EDDFD0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238853.jpgsave_picture_238853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238853.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ mj_home.kz | Курс по гипсу "От и до" (2022) WEB-DL [AD] [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238855.jpgsave_picture_238855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238855.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Art Nation - Inception (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238857.jpgsave_picture_238857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238857.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Ghosther - Immersion (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Metal, Modern Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238859.jpgsave_picture_238859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238859.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:C3DDE3E9953DA1215202BAE41A5F9966C64F92B9
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238860.jpgsave_picture_238860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238860.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:FDAB66455A477C43A8B9A6F743A0EFE656FE01BB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238862.jpgsave_picture_238862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238862.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ AntiBAG Тахограф 2.0.108 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238863.jpgsave_picture_238863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238863.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:D841DC156CAE2B20CDAB042C59D4B585ECA18F89
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238865.jpgsave_picture_238865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238865.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ James - Be Opened By The Wonderful (2023) 2CD, 40 Years Orchestrated [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238866.jpgsave_picture_238866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238866.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:AB98656E2BE814904DDE5B6C70833C824E0D2C94
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238867.jpgsave_picture_238867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238867.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:58FF47B6A86D67F392C980677008F658C7A3F063
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238869.jpgsave_picture_238869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238869.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:A551A65EF98EBDBDC0590EFA87CA2BB39D0F0088
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238871.jpgsave_picture_238871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238871.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:986B1DD91C229B0A5065E9C4E37A112596D9F7C6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238873.jpgsave_picture_238873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238873.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ RTG. Озеро Ильмень (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238874.jpgsave_picture_238874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238874.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Planetariet - Deluxe (2020) [FLAC|Lossless|Web-DL|tracks] <Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238875.jpgsave_picture_238875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238875.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:FEA0478BEB202B1E706D3F0EB4C91A56F0462990
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238878.jpgsave_picture_238878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238878.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Vortex - The Future Remains In Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238879.jpgsave_picture_238879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238879.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:547299BE73812323F2755CC593782FA386C59ABD
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238881.jpgsave_picture_238881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238881.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ The Flower Kings - Adam & Eve (2004) InsideOutMusic, Remaster,2023 [FLAC 24/96|L
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238882.jpgsave_picture_238882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238882.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:8363256FB92BA5BCF46A0141FFCE83F78C1909F5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238883.jpgsave_picture_238883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238883.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:A72B9ACC633B9FE14B1E6F7744C52BA7A266BA0C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238886.jpgsave_picture_238886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238886.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Tokyo - Seven (2023) [FLAC 2.0|24/48|WEB-DL|tracks] <Rock, New Wave>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238888.jpgsave_picture_238888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238888.jpg" />
 </div>
 
 

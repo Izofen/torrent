@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43361.jpgsave_picture_43361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43361.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PDF Shaper Ultimate 14.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43362.jpgsave_picture_43362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43362.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:01AC724D9D53B4CA2ACCCE57C9E51DA96C564FD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43363.jpgsave_picture_43363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43363.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FBCB553CBBF67106F404F4828481E363AF461F2C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43364.jpgsave_picture_43364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43364.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9829D2E6BBCF4A33E104C65F65F3E06DFFB96BB2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43365.jpgsave_picture_43365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43365.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8503AECA5DF7553B8FB00D7074E312077EEBBCEE
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43366.jpgsave_picture_43366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43366.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9E0D2C485527D600A8B6BF084EC0F72012C12609
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43367.jpgsave_picture_43367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43367.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:44955781D77F592156D543E2038A69A9BE5E8BC1
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43368.jpgsave_picture_43368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43368.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Kdenlive 24.08.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43369.jpgsave_picture_43369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43369.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ToneBoosters Plugin Bundle 1.8.5 VST / VSTi, VST3 / VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43370.jpgsave_picture_43370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43370.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ OCCT 13.1.7 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43371.jpgsave_picture_43371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43371.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:E274ABEBDD6FA52BF3F53C5577F5128FC0976218
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43372.jpgsave_picture_43372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43372.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:18F7FB787927722EEF52EFAB49F3AA74D7CA0963
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43373.jpgsave_picture_43373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43373.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:9162E50C008C055B0AD6AA0B6F27579B7D3A111E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43374.jpgsave_picture_43374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43374.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:B8C86531EA209F5A14CA23F05E0E07927DA6F7D2
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43375.jpgsave_picture_43375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43375.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Robert Plant - Manic Nirvana (1990) [FLAC|Lossless|image + .cue] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43376.jpgsave_picture_43376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43376.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:2948709A37B5E296FC70BCA072441E65D9D3E30F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43377.jpgsave_picture_43377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43377.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:0BBA6A77C9F4657E6300FB91232EB88B03FBD954
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43378.jpgsave_picture_43378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43378.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ RedNotebook 2.34.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43379.jpgsave_picture_43379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43379.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:8B2D92371F3AC0386E39EC5617CCA12A51641E07
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43380.jpgsave_picture_43380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43380.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:448AF8784640C8E4AA5F9D494278321C419302E0
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43381.jpgsave_picture_43381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43381.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Motel Manager Simulator (2024) [Multi] (20240908) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43382.jpgsave_picture_43382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43382.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:D1EAD8EE83B9F41ECB2F1613CCF8DA8E8DCC0DD1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43383.jpgsave_picture_43383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43383.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:1D1FCDC2058DD4251F92C41D014EAC1CEA5B13D8
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43384.jpgsave_picture_43384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43384.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F4ECBFA6C93AFCFD8864634B5BF36681BF275CC9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43385.jpgsave_picture_43385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43385.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Knots | Узлы, вязание узлов [34 книги] [PDF, DJVU, EPUB] [E
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43386.jpgsave_picture_43386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43386.jpg" />
 </div>
 
 

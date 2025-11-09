@@ -6,7 +6,7 @@ Aiseesoft Blu-ray Player 6.7.66 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105953.jpgsave_picture_105953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105953.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9DEF578134697F599CA4666C03C11EC213ADE1EC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105954.jpgsave_picture_105954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105954.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Joplin 3.0.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105955.jpgsave_picture_105955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105955.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105956.jpgsave_picture_105956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105956.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Vivaldi 6.8.3381.50 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105957.jpgsave_picture_105957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105957.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Live @ Ultra Europe, Croatia (2024) [MP3|320 Kbps] <Progressive House, Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105958.jpgsave_picture_105958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105958.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:EC0B26278E30C58F13D1B7708159D2C3BEC86315
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105959.jpgsave_picture_105959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105959.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Гуляй, душа! (Душевные песни) (2024) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105960.jpgsave_picture_105960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105960.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Hans Peter Neuber - Licht-Meditation (2007) [WavPack|Lossless|image + .cue] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105961.jpgsave_picture_105961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105961.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Empire Of The Sun - Ask That God (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105962.jpgsave_picture_105962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105962.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:080B261677B6430A3AE0E5DD67053684DA9EA9DE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105963.jpgsave_picture_105963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105963.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Sandboxie plus 1.14.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105964.jpgsave_picture_105964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105964.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:8BD7CD3D2C14267A61310DCC363F6EE515985BB5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105965.jpgsave_picture_105965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105965.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Eden Architect - Form And Function (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105966.jpgsave_picture_105966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105966.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Elvin Jones - Elvin! (1961, 1962) 1995, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105967.jpgsave_picture_105967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105967.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ ColdCell - Age of Unreason (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105968.jpgsave_picture_105968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105968.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Concerto Moon - Back Beyond Time (2024) 2 x CD [FLAC|Lossless|image + .cue] <Hea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105969.jpgsave_picture_105969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105969.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:936EC4B53FEB326DB1A6355AFF24CC3E4AA8A7AF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105970.jpgsave_picture_105970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105970.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A8BC13E83BF5FE4736E849E08F50F1321960712F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105971.jpgsave_picture_105971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105971.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:DA9023B53EB9D170278742DC3BBDAD0E6BD8E7DF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105972.jpgsave_picture_105972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105972.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:DE37C8161BEEF64421B4CC006A95F995DD66A32A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105973.jpgsave_picture_105973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105973.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:AA257B344D5FD208B87FBA1F3D6385CB4C0DC449
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105974.jpgsave_picture_105974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105974.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:D347E0B591CA1C9AB15748C9F64C9B9551685712
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105975.jpgsave_picture_105975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105975.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:3CA58E19E6C0FB69F9AC1B83262635711001D337
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105976.jpgsave_picture_105976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105976.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:268568EAE238AEAE246166FCA66A1B5E0745AF93
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105977.jpgsave_picture_105977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105977.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Soul of John Black - Sweet Summer Love (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105978.jpgsave_picture_105978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105978.jpg" />
 </div>
 
 

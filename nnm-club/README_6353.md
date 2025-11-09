@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200961.jpgsave_picture_200961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200961.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:07FE8762EAB334E019EB150EF317C9AE29937CEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200962.jpgsave_picture_200962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200962.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:5313A9730AE203C0642D54738BEA170E22F059B6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200963.jpgsave_picture_200963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200963.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Internet Download Manager 6.41 Build 10 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200964.jpgsave_picture_200964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200964.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E7331853261854BC8DB1C6649ED4E916D29289B1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200965.jpgsave_picture_200965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200965.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FE2361A349825AB802B9963F9CD21B4F87BFD3F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200966.jpgsave_picture_200966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200966.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:4764AB267005738959666BE2533A8D30541EC77F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200967.jpgsave_picture_200967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200967.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:68DFEBE62AB3149E8239828ED47A57AED986345F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200968.jpgsave_picture_200968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200968.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:9F71FB27277B59405BD7994D10C35FA62C9B3A38
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200969.jpgsave_picture_200969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200969.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:99A40326763BFBEA464B6229FCD0900658701EAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200970.jpgsave_picture_200970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200970.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Microsoft Windows 10.0.19045.2728, Version 22H2 (Updated March 2023) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200971.jpgsave_picture_200971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200971.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:5F2FB687D1714D63FF107C3570686D0A9948E053
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200972.jpgsave_picture_200972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200972.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:D2D173CA564FF4DC7F153575B9C66AFFE475041D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200974.jpgsave_picture_200974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200974.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Get Up And Dance (2011) [PS3] [USA] 3.55 [License] [En] [Move]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200975.jpgsave_picture_200975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200975.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Nitro Pro 13.70.4.50 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200976.jpgsave_picture_200976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200976.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:4296A621B129575986B8A3D1AF2EF4E7F5C6F2E6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200977.jpgsave_picture_200977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200977.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:32F3AD980D5DDA477DB54255FE5B5313B73B5A84
 >>Менты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200978.jpgsave_picture_200978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200978.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:99FF46D4B8D46EB431CC0130782C4A85F1AB5E85
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200979.jpgsave_picture_200979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200979.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Slipknot - Collection (1996 - 2022) 19 CD [FLAC|Lossless|image + .cue|tracks + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200980.jpgsave_picture_200980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200980.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sam Smith - Gloria (2023) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Vocal
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200981.jpgsave_picture_200981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200981.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:0F4216BA4CF3787BDF69B0C20DFC25B6A0F4FAE5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200982.jpgsave_picture_200982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200982.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AAF DCH Optimus Audio 10.11.2349.9484 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200983.jpgsave_picture_200983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200983.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:7F6CB66B2A8A90C6F245498A58C15280282E0844
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200984.jpgsave_picture_200984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200984.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:39497F344CDD82E1E556FDCEEE403F6D0ED6EBF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200985.jpgsave_picture_200985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200985.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:B39D37F43A71BB8C4D796BE0FE7A80E4A411527F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200986.jpgsave_picture_200986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200986.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Udemy, John Thompson | Spring Framework 6: Beginner to Guru (2023) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200987.jpgsave_picture_200987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200987.jpg" />
 </div>
 
 

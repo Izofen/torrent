@@ -6,7 +6,7 @@ Colorize Images v4.0.72 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56573.jpgsave_picture_56573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56573.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.17 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56574.jpgsave_picture_56574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56574.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ PhotoTune - Улучшитель фото v4.6.0 Mod by Mixroot, 0x7d [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56594.jpgsave_picture_56594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56594.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E143C25FB2AF0A757D4B5A2ED0B28D35F8C4F389
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56596.jpgsave_picture_56596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56596.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Adobe Acrobat Reader для PDF 24.4.1.33150 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56623.jpgsave_picture_56623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56623.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ ibis Paint X 12.1.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56657.jpgsave_picture_56657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56657.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Via Браузер / Via Browser 5.5.1 Mod by person10301 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56661.jpgsave_picture_56661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56661.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Via Браузер / Via Browser 5.5.1 Mod by bot3.14 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56669.jpgsave_picture_56669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56669.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Via Браузер / Via Browser 5.5.1 Mod by AnBo39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56680.jpgsave_picture_56680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56680.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ D Notes - заметки и списки 2.6.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56687.jpgsave_picture_56687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56687.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ibis Paint X 12.1.0 Lite-Mod by NURIK [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56708.jpgsave_picture_56708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56708.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VirusTotal Mobile 2.5 Lite-Mod by cvvar00 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56793.jpgsave_picture_56793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56793.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:FA2CDE32B907B733FABD9BA69447948C44234415
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56827.jpgsave_picture_56827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56827.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D49DD0E548C28093ACDD199F112DA7E3946D6D97
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56901.jpgsave_picture_56901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56901.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:5260A18704C9F318FE473AFD1D8C26CEBD683D3B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56964.jpgsave_picture_56964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56964.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Mirror Plus: Mirror with Light / Зеркало Плюс v4.3.12 Mod by srajawwa
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57207.jpgsave_picture_57207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57207.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ GPS АнтиРадар v44.1 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57214.jpgsave_picture_57214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57214.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Spotify 8.9.38.494 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57220.jpgsave_picture_57220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57220.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Melon VPN - Secure Proxy VPN 8.0.032 Mod By Derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57381.jpgsave_picture_57381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57381.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ BSPlayer Pro 3.20.248-20231218 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57413.jpgsave_picture_57413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57413.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Prisma Art Effect Photo Editor / Арт - Фото в Рисунок v4.6.1.615 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57504.jpgsave_picture_57504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57504.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Gaia GPS (Topo Maps) v2024.4 b7881 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57599.jpgsave_picture_57599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57599.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:068BE1D96280EA734E8EE89CDB210AE605D98BE3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57633.jpgsave_picture_57633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57633.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ tvQuickActions Pro 3.4.0 (172) Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57728.jpgsave_picture_57728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57728.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Spotify 8.9.36.616 Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57756.jpgsave_picture_57756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57756.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VPN Servers for OpenVPN 46 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57792.jpgsave_picture_57792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57792.jpg" />
 </div>
 
 

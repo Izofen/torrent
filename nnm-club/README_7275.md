@@ -6,7 +6,7 @@ The Joel Dupuis Band - Very Best Fool (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249029.jpgsave_picture_249029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249029.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sean McDonald - Have Mercy! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249030.jpgsave_picture_249030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249030.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Zac Schulze Gang - Straight to It (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249031.jpgsave_picture_249031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249031.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Soul of John Black - Soul Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249032.jpgsave_picture_249032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249032.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fourplay - Elixir (1995) 2025, 30th Anniversary Edition, Remastered [FLAC 24/192
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249033.jpgsave_picture_249033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249033.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:D861EC353E3C870BD4D7EF2A4BF6F51F7467ECA6
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249034.jpgsave_picture_249034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249034.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:9EC84F4A851B354A326630267483351D398D498A
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249035.jpgsave_picture_249035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249035.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:F7F00FB1E36155E5149B1D888CEF9F571AC3BA43
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249036.jpgsave_picture_249036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249036.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:41577D74CF821411DFD1DA4F605F6FD0360042D4
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249037.jpgsave_picture_249037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249037.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Ray Lemelin - Stirring The Pot (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249038.jpgsave_picture_249038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249038.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ The Lonesome Guild (2025) [Multi] (Build 20207065) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249039.jpgsave_picture_249039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249039.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249040.jpgsave_picture_249040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249040.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:09E98B6CD85DC99E014D30FB6120449952B284D6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249041.jpgsave_picture_249041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249041.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Wondershare UniConverter 17.0.0.425 RePack (& Portable) by elchupacabra [Multi/R
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249042.jpgsave_picture_249042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249042.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack Decepticon [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249043.jpgsave_picture_249043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249043.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:52FCC8892101DCF1540940D5EC2CEB7CF720EAEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249044.jpgsave_picture_249044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249044.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Microsoft NTFS for Mac by Tuxera 2023.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249045.jpgsave_picture_249045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249045.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:DEFD1AC2D387B689B7B32F7F62DC9422D160C4CF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249046.jpgsave_picture_249046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249046.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249047.jpgsave_picture_249047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249047.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249048.jpgsave_picture_249048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249048.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249049.jpgsave_picture_249049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249049.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:6CDF509C0DEB89392F51EF0B974E9B34B3A2CD04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249050.jpgsave_picture_249050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249050.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:137D332AD4A46B4E9F95749B0248FFEC750527AB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249051.jpgsave_picture_249051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249051.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:54C208A567CC26E2388F9840A44278A8EEE23440
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249052.jpgsave_picture_249052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249052.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249053.jpgsave_picture_249053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249053.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:511C42B1172B834DBAE7FE8705FF6C472785CA73
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249054.jpgsave_picture_249054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249054.jpg" />
 </div>
 
 

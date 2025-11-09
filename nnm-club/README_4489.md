@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140388.jpgsave_picture_140388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140388.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kanojo ga Flag o Oraretara / Gaworare / Если бы я сломал её фл�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140390.jpgsave_picture_140390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140390.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ JixiPix Pastello Pro 6.0.98 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140391.jpgsave_picture_140391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140391.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F76AE9AED2CB3B62B6F1CAE32895EFF0FD263993
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140392.jpgsave_picture_140392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140392.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:4E8DC592F1E094BFC801307080CF78295CE40E9F
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140393.jpgsave_picture_140393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140393.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ DJ Kevlar - Beat Driver: The Best of 2017 [FLAC|Lossless|Web-DL|tracks] <Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140394.jpgsave_picture_140394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140394.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:450B087C5694C979496DCC4EAAD8E07824D845F6
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140395.jpgsave_picture_140395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140395.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140396.jpgsave_picture_140396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140396.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140397.jpgsave_picture_140397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140397.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:2D728A51D6A9AE30CA0FCAAC4940810B3CFDCBD7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140398.jpgsave_picture_140398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140398.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Interior Wallpapers (16.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140399.jpgsave_picture_140399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140399.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:C7E4C64F23BC9AEEFE839DE2691827414197998E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140402.jpgsave_picture_140402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140402.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wondershare Recoverit 10.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140403.jpgsave_picture_140403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140403.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:55144A6FA4D9730B304BA42EC768F5A8DDC8000A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140404.jpgsave_picture_140404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140404.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7F9D45A4C5E706264F3F2B2A50C4E45F820CDF33
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140405.jpgsave_picture_140405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140405.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:6842C7EEBAC44AC2FE8C98DE8FBB829D880B6F42
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140406.jpgsave_picture_140406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140406.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:5F171A10E097E7A077E01A85AAA5C8A8E565AB69
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140408.jpgsave_picture_140408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140408.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:5F171A10E097E7A077E01A85AAA5C8A8E565AB69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140409.jpgsave_picture_140409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140409.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:7956FE4AFE08EEF841D2E4B65D393A494F8732FA
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140411.jpgsave_picture_140411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140411.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:56793DA8D91A406466DD8046B435AB3A5DF0E3E1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140412.jpgsave_picture_140412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140412.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:09A89984E22E132ED4CAB63C39937D3E20C0D9A5
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140413.jpgsave_picture_140413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140413.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:95C20E42F2D0F7F1C2039EF9C8D45CFD7E04D8D8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140414.jpgsave_picture_140414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140414.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:94FDCB08C000CA340C9239AE8A525BF5A9A7D48B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140415.jpgsave_picture_140415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140415.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140417.jpgsave_picture_140417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140417.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Масть крестовая. Новогодний выпуск (2012) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140419.jpgsave_picture_140419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140419.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:DF3AFD196401F89D88CA3018540EB2FC14291775
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140420.jpgsave_picture_140420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140420.jpg" />
 </div>
 
 

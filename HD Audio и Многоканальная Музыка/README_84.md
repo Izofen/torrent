@@ -6,7 +6,7 @@ Chris James - Cj (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70369.jpgsave_picture_70369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70369.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ritual (Sweden) - Studio Albums (5 releases) (1995-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70370.jpgsave_picture_70370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70370.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ New Translations - Vacation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70374.jpgsave_picture_70374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70374.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brothers Harvest - The True Vine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70375.jpgsave_picture_70375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70375.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bishop Gunn - Live With Bishop Gunn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70379.jpgsave_picture_70379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70379.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Atlas Ashes - New World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70425.jpgsave_picture_70425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70425.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Innerspace - Studio Albums (3 releases) (2012-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70440.jpgsave_picture_70440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70440.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Infringement (Norway) - Studio Albums (3 releases) (2017-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70441.jpgsave_picture_70441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70441.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Robert Ascroft - Echo Still Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70442.jpgsave_picture_70442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70442.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Role Model - Kansas Anymore (2024) The Longest Goodbye, 2025, Interscope Records
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70516.jpgsave_picture_70516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70516.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Moonchild Sanelly - Full Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70517.jpgsave_picture_70517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70517.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ The Wombats - Oh! The Ocean (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70523.jpgsave_picture_70523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70523.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Chordettes - 2015 - The Greatest Hits (2025) Remaster, 2025, ZOROTY[FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70542.jpgsave_picture_70542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70542.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70561.jpgsave_picture_70561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70561.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jazzystics - It's a Mistake (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70569.jpgsave_picture_70569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70569.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blank & Jones & Marc-George - Rediscovered Works (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70594.jpgsave_picture_70594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70594.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ginger Evil - The Way It Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70633.jpgsave_picture_70633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70633.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70639.jpgsave_picture_70639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70639.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Dynazty - Game of Faces (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70666.jpgsave_picture_70666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70666.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Carmen Consoli - Terra Ca Nun Senti (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70670.jpgsave_picture_70670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70670.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Louis Philippson - Exposition (2025) (2CD) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70713.jpgsave_picture_70713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70713.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Miss Tess - Cher Reve (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70733.jpgsave_picture_70733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70733.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ LØLØ (LOLO) - falling for robots & wishing i was one (2024) Deluxe Edition, 20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70735.jpgsave_picture_70735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70735.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Frank Sinatra - Sinatra Sings...Of Love And Things (2025) Remastered [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70747.jpgsave_picture_70747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70747.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70785.jpgsave_picture_70785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70785.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Paul Anka - Paul Anka (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70793.jpgsave_picture_70793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70793.jpg" />
 </div>
 
 

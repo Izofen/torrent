@@ -6,7 +6,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229193.jpgsave_picture_229193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229193.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.28 (2711) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229194.jpgsave_picture_229194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229194.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:871CBE77CBAF77FCDC419493A9B648EB53BC04FE
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229196.jpgsave_picture_229196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229196.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Traitors Among Us - Perceptions (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229197.jpgsave_picture_229197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229197.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:04193C98FE132289D6AA3FD18C3B8D5B75F7C867
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229198.jpgsave_picture_229198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229198.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:88C67C37CA7BE6AF135F3C7FD0D6F2E3C3436BBD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229200.jpgsave_picture_229200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229200.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Sevendust - Truth Killer (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229202.jpgsave_picture_229202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229202.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Magic Uneraser Home / Office / Commercial Edition 5.3 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229203.jpgsave_picture_229203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229203.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ MIDIRenderer 3.8.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229204.jpgsave_picture_229204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229204.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Get Cold - 3 Relise (2014-2022) [MP3|320 Kbps] <Emo Punk, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229205.jpgsave_picture_229205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229205.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:B8D71755ACF70CC2CA4D87E1FA28F4E49FA94596
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229207.jpgsave_picture_229207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229207.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:CAF06EFB623A73646FF1622C8A27BD817684155A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229209.jpgsave_picture_229209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229209.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:258539A707F9FC911959F2AFFC185C31A6E4E418
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229210.jpgsave_picture_229210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229210.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ MotoGP. Этап 13. Гран-При Валенсии. Гонка. (15.11.2020) 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229212.jpgsave_picture_229212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229212.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Mcfly - Power To Play (2023) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229213.jpgsave_picture_229213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229213.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Red Usurper - Abandon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Groove
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229214.jpgsave_picture_229214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229214.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ PT Portrait 3.0 Studio Edition RePack (& Portable) by 78Sergey-Dinis124 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229217.jpgsave_picture_229217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229217.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:509C4E8BC5B8EE5B7578817638EEE2619BB3C40A
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229218.jpgsave_picture_229218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229218.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Christmas Chillout: Best for the Year 2020 [FLAC|Lossless|WEB-DL|tracks] <E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229220.jpgsave_picture_229220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229220.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - 538 Hitzone 91 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229221.jpgsave_picture_229221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229221.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:C8CDEF360F2BA1B535741CDDB478C577EFA12361
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229222.jpgsave_picture_229222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229222.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:A539ADDD05751ABB02D940D565209B3CC570F31D
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229223.jpgsave_picture_229223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229223.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:D185AFC0BF9312610E7A81F37D99A973C42827BE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229224.jpgsave_picture_229224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229224.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:DDD8E625827747401E3FC8C8F2B3CBF9A4BAF7B8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229226.jpgsave_picture_229226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229226.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:117EDDBB5FB5545434DD231A74685D49E9E748EE
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229227.jpgsave_picture_229227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229227.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:063AF486743EB56E97E257A8DA34EC63C1C620FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229229.jpgsave_picture_229229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229229.jpg" />
 </div>
 
 

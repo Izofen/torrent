@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204345.jpgsave_picture_204345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204345.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RAR for Android v6.23 build 117 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204346.jpgsave_picture_204346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204346.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Photo Lab PRO v3.12.66 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204347.jpgsave_picture_204347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204347.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:019F81155FD9CE81FF55A8BE79E88F02F04055B3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204348.jpgsave_picture_204348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204348.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Mahou Tsukai Sally | Sally the Witch | Ведьма Салли [ТВ-1] [1966, T
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204349.jpgsave_picture_204349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204349.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6599B0E05F0F696840D8CCD60985975689E07F69
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204350.jpgsave_picture_204350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204350.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убойный а
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204351.jpgsave_picture_204351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204351.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Альянс Tribute (2022) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204352.jpgsave_picture_204352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204352.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Outline Client VPN 1.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204353.jpgsave_picture_204353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204353.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ CherryTree 1.0.1.0 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204354.jpgsave_picture_204354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204354.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:0E9C6A59C445EC5E5A1E1DB0E8C6FE90F14D98DE
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204355.jpgsave_picture_204355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204355.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:3B117E60BFE25C3EF310E5FA0D6FC2306FAE4D82
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204356.jpgsave_picture_204356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204356.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:8A1D72441EBE97D6FBAD42BED22DEBEF6B1B5145
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204357.jpgsave_picture_204357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204357.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Lexilize FlashCards v4.8.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204358.jpgsave_picture_204358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204358.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:F70C4AFF10002840828748D8C1B363AB3EF2D64F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204359.jpgsave_picture_204359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204359.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F84E8084F201F13F1332A71EB0391B3CD9D13C36
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204360.jpgsave_picture_204360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204360.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ FanControl V168 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204361.jpgsave_picture_204361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204361.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ FixFox (2022) [En] (402_c39e385a) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204362.jpgsave_picture_204362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204362.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:155D23C5BAD7C907CF531F94B7F6498CFB599787
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204363.jpgsave_picture_204363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204363.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:5F09F8E8FED90E965DFAD45546D0358183152F2B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204364.jpgsave_picture_204364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204364.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D6286D8E32590A7BDCA99F719753B8FF0B2B6C55
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204365.jpgsave_picture_204365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204365.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:9A7B0D411B26EA72A40C94F80C1896465B9B6A66
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204366.jpgsave_picture_204366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204366.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Car Music Mix 3 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204367.jpgsave_picture_204367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204367.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:1CEA92D671134C1140342A501F75B5FE869B857F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204368.jpgsave_picture_204368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204368.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VSDC Video Editor Pro 7.2.2.442 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204369.jpgsave_picture_204369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204369.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:86495E73E168A538A3DF754CE27148C8C066E61F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204370.jpgsave_picture_204370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204370.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184874.jpgsave_picture_184874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184874.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Robert Connely Farr - Country Supper (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184875.jpgsave_picture_184875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184875.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1DE218B70D3AC75DC3BADB1D7BEB2F911C21B8A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184877.jpgsave_picture_184877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184877.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Udemy, Sergey Dragunov | Room Persistance Librar - Приложение Shopping
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184879.jpgsave_picture_184879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184879.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Grymheart - Hellish Hunt (2023) [MP3|320 Kbps] <Melodic Death, Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184880.jpgsave_picture_184880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184880.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:167F0A8C8333FD206C929EAB6CCF1C89E5DA0B68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184882.jpgsave_picture_184882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184882.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:BB6E81E8CA581ECD6D893CF2061D4E3FC0992351
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184884.jpgsave_picture_184884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184884.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:BC1186FBC82E944EE98931EB5B4E651FA4A97D27
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184885.jpgsave_picture_184885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184885.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:218737C3555D198D5C6043030332210D655D504B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184887.jpgsave_picture_184887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184887.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:4D1D917E4D45B840BF17F4B4BD154EB9951AE067
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184889.jpgsave_picture_184889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184889.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Reg Organizer 8.57 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184890.jpgsave_picture_184890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184890.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Candleblack - The Passage of Time and Suffering (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184893.jpgsave_picture_184893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184893.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184897.jpgsave_picture_184897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184897.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Vibravoid - Edge of tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184898.jpgsave_picture_184898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184898.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:591B13CA06B0D8A3740337D50964966326A812C5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184901.jpgsave_picture_184901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184901.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:728D5525F57E0098CF11F39E4AE1ABC208D0A10F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184902.jpgsave_picture_184902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184902.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:495E410CE04AB65E0DFBCDEDE5A19642A3021196
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184905.jpgsave_picture_184905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184905.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Cardinal Point - Man Or Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184906.jpgsave_picture_184906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184906.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Fantasy - Das Beste (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184910.jpgsave_picture_184910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184910.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:E2AEAC0C893165A6D9E5D4275AA771A44B0C381D
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184913.jpgsave_picture_184913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184913.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ James Moody - Moody And The Brass Figures (1966) 2004, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184914.jpgsave_picture_184914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184914.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BELOFF [dp] 2022.11.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184915.jpgsave_picture_184915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184915.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:9D85F1DE78E31C70D145A0E36624F04129D8CA50
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184917.jpgsave_picture_184917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184917.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ IK Multimedia - AmpliTube 5 Complete 5.5.2 STANDALONE, VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184918.jpgsave_picture_184918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184918.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:BDBCB16F0781A8D824C66729215E3C4CD0B3DA3F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184920.jpgsave_picture_184920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184920.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Kerish Doctor 2020 4.80 [DC 01.10 upd 25.11 2020] RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184921.jpgsave_picture_184921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184921.jpg" />
 </div>
 
 

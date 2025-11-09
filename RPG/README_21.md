@@ -6,7 +6,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.6/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32559.jpgsave_picture_32559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32602.jpgsave_picture_32602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32602.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dungeon Defenders (2011) [Multi] (10.0.0/dlc) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32637.jpgsave_picture_32637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32637.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32761.jpgsave_picture_32761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32761.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32880.jpgsave_picture_32880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32880.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.7b.fix/dlc) Repack Wanterlude [Impe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32890.jpgsave_picture_32890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32890.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32991.jpgsave_picture_32991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32991.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33100.jpgsave_picture_33100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33100.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.2-r83846-b3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33104.jpgsave_picture_33104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33104.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Legend of Heroes: Trails to Azure (2023) [Multi] (1.1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33111.jpgsave_picture_33111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33111.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Iron Oath (2022) [En] (1.0.021) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33214.jpgsave_picture_33214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33214.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (1.6.81914) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33314.jpgsave_picture_33314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33314.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Neptunia Game Maker R:Evolution Deluxe Edition (2024) [Multi] (UWP/dlc) Scene Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33345.jpgsave_picture_33345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33345.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33386.jpgsave_picture_33386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33386.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33613.jpgsave_picture_33613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33613.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SpiderWeb Games (Avadon, Avernum, Exile, Geneforge, Nethergate, Subterra) (1995-
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33830.jpgsave_picture_33830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33830.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Barony (2015) [Ru/En] (4.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33869.jpgsave_picture_33869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33869.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Rogue Citadel (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33956.jpgsave_picture_33956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33956.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Keylocker | Turn Based Cyberpunk Action (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34087.jpgsave_picture_34087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34087.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Sir Whoopass: Immortal Death (2022) [En] (1334) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34165.jpgsave_picture_34165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34165.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34220.jpgsave_picture_34220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34220.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Archons (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34223.jpgsave_picture_34223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34223.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.4.63.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34260.jpgsave_picture_34260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34260.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sea of Stars (2023) [Ru/Multi] (1.1.53846) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34431.jpgsave_picture_34431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34431.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bad 2 Bad: Apocalypse (2024) [Ru/Multi] (Build 16701862/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34572.jpgsave_picture_34572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34572.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34888.jpgsave_picture_34888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34888.jpg" />
 </div>
 
 

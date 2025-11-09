@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207771.jpgsave_picture_207771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207771.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3FB0643BCE35FDC31B77EF633B0A2C4A52239243
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207774.jpgsave_picture_207774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207774.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A3C226236B3ACE02CF05A353EA578D49F39042AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207778.jpgsave_picture_207778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207778.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PC HelpSoft Driver Updater 7.0.990 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207781.jpgsave_picture_207781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207781.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3C05AF4944FCFC72AF16BF9BFC7AE26F9410E54E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207783.jpgsave_picture_207783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207783.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ascold Flow | Поездатое путешествие (Книга 3). Срыв
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207787.jpgsave_picture_207787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207787.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ CCleaner Pro: ПО для очистки 23.14.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207789.jpgsave_picture_207789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207789.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4E31D3802CF4AD08E39D462CD86E7E88D38DED80
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207790.jpgsave_picture_207790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207790.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Aqua Mail Pro 1.45.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207793.jpgsave_picture_207793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207793.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Summer Light Deep 2023 [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207795.jpgsave_picture_207795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207795.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ simplewall 3.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207798.jpgsave_picture_207798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207798.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:BF0B4E50544556F5EC59BC24CE5521A299D972FA
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207801.jpgsave_picture_207801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207801.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:C51A7C392396C32D9218ECDCB5894F7A0C396B63
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207803.jpgsave_picture_207803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207803.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:FBC6CD962315AE723F21CD81DCCF5608F471CB58
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207804.jpgsave_picture_207804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207804.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:C7438560428560F2A4226366852F800020BA4281
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207806.jpgsave_picture_207806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207806.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Topaz Video AI 3.3.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207808.jpgsave_picture_207808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207808.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207811.jpgsave_picture_207811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207811.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Navicat Premium 16.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207813.jpgsave_picture_207813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207813.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ FolderSizes 9.5.425 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207815.jpgsave_picture_207815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207815.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Pineapple Pictures 0.7.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207818.jpgsave_picture_207818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207818.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:1754BAE66E9D3FF935817FB81DF685110E433AE0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207821.jpgsave_picture_207821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207821.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Firefox Browser 115.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207824.jpgsave_picture_207824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207824.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ It Happened Here 2: Beacon of Truth (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207825.jpgsave_picture_207825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207825.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Microsoft Visual Studio 2022 Enterprise 17.6.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207827.jpgsave_picture_207827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207827.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Clipboard Fusion Pro + Portable + MSI 6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207829.jpgsave_picture_207829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207829.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ IINA 1.3.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207830.jpgsave_picture_207830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207830.jpg" />
 </div>
 
 

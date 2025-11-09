@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187325.jpgsave_picture_187325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187325.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.22000.2416], Version 21H2 (Updated September 2023) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187326.jpgsave_picture_187326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187326.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EC7C4AB6EAA7C1E6906B2DD0F076F6AD6C3E2670
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187327.jpgsave_picture_187327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187327.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Boris FX Sapphire Plug-ins 2023.0 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187328.jpgsave_picture_187328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187328.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:436E8C488F3587717F64198D1863A05547FCE8AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187330.jpgsave_picture_187330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187330.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:6E550C36A8F221873546EB1CB8C6B4117A9853B9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187331.jpgsave_picture_187331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187331.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:58DC3F6991B94E1295D783A587D794B540400665
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187333.jpgsave_picture_187333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187333.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D9149C0E7A2B7C048395B10F450FD6B977F67C43
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187334.jpgsave_picture_187334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187334.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3A26BD0D0F8E0DEE6F4B21E082617D13DE7BF7B7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187336.jpgsave_picture_187336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187336.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187337.jpgsave_picture_187337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187337.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Somerville (2022) [Multi] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187338.jpgsave_picture_187338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187338.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:D38358B188554E0E9877526806D9A4D8C686A043
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187339.jpgsave_picture_187339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187339.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Display Driver Uninstaller 18.0.6.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187340.jpgsave_picture_187340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187340.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AmanVPN 2.3.6.1116 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187341.jpgsave_picture_187341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187341.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:7475824DAB786B8744EB1479333D32655517283B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187342.jpgsave_picture_187342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187342.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:AFCE727D94CFB1F0A56431FED5F2859E6B28003E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187343.jpgsave_picture_187343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187343.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:40C372565A9850F0AF37710C9BDBF7F5BE117A4D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187344.jpgsave_picture_187344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187344.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Liveclasses, Виталий Новиков | Продающее ценообра
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187345.jpgsave_picture_187345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187345.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:C2E0F9EE44D3CF7F45E4CED714423C4E11F96773
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187346.jpgsave_picture_187346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187346.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:26F40C5B9FB5331D93A162AD833FC92622E809A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187347.jpgsave_picture_187347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187347.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2311]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187348.jpgsave_picture_187348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187348.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:72AEF20A7D807FD3A12184D05A16418C01D62013
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187349.jpgsave_picture_187349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187349.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:9B6C460E3A7F4C7F278403BA8824AC9FC51C3BC2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187350.jpgsave_picture_187350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187350.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:68C405F802E208E967118CF30ABED851858794A8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187351.jpgsave_picture_187351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187351.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Skillshare, Daniel Kim | Sci-Fi Vehicle Creation with Blender and Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187352.jpgsave_picture_187352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187352.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:9E3393ABF66FF1D89FFC6F19D7B99C63742365D6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187353.jpgsave_picture_187353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187353.jpg" />
 </div>
 
 

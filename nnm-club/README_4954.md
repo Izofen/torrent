@@ -6,7 +6,7 @@ VA - All I Want For Winter Is Bass (2016) [MP3|320 Kbps] <Drum And Bass, Dubstep
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154834.jpgsave_picture_154834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154834.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1B59F4E40421349B43CA58A68CB4F3CC16B4A4DE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154835.jpgsave_picture_154835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154835.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154836.jpgsave_picture_154836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154836.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ ITO And The Moonlight Hippies - Spirit Of The Redwoods (2020) [MP3|320 Kbps] <Ps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154837.jpgsave_picture_154837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154837.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:31701C60EF246341860DFE6DCA13EBEC47D04B60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154838.jpgsave_picture_154838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154838.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:4B381CA780DF5A5E6AADFC7CD39F51EC010117A9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154839.jpgsave_picture_154839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154839.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Santiago Lara - Flamenco Tribute To Pat Metheny (2016) [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154840.jpgsave_picture_154840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154840.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Sankaku Mado no Sotogawa wa Yoru | The Night Beyond the Tricornered Window | Н�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154841.jpgsave_picture_154841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154841.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Sweet Home 3D 5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154842.jpgsave_picture_154842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154842.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:277FB51AA19B3AE98DC4D855AA5A709DD524DEDD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154843.jpgsave_picture_154843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154843.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Corelli - The Complete Works
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154844.jpgsave_picture_154844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154844.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:864EA2FD208310E5BDF55099EC85862050DC3348
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154845.jpgsave_picture_154845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154845.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:EEAA76D9513A5A2E70325C87409C707EAF9C1F36
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154846.jpgsave_picture_154846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154846.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:9C2A5CF832DAA2F08CE0DD7C15A491FCD5042023
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154847.jpgsave_picture_154847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154847.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:1DD49AC66C056485202FC905FBE3D4161EE235D7
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154848.jpgsave_picture_154848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154848.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Photo Mechanic 6 v6.0 build 4155 (e068498) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154849.jpgsave_picture_154849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154849.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:75E95E006F20D7710C6883714B72BE495800391F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154850.jpgsave_picture_154850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154850.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:A7D78A6F565327EDDC33D8A6978B666F128FE965
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154851.jpgsave_picture_154851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154851.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:8F81D9D87CC8B83949DFDF4ADD0D6C9E4C5F6A8D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154852.jpgsave_picture_154852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154852.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:E4C026C77D651BD9E12E2A84795F574C2D8E4223
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154853.jpgsave_picture_154853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154853.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154854.jpgsave_picture_154854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154854.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FreeCommander XE 2022 Build 860 32-bit public + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154855.jpgsave_picture_154855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154855.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:9057A8A23267D0E77E672264DE4C6B2ACAA67A91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154856.jpgsave_picture_154856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154856.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:14CE114F36B68E859C5E2C442AFBF84517D014EB
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154857.jpgsave_picture_154857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154857.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:EC41FDD68A581D3108A452FC8C34491F10FC8C28
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154859.jpgsave_picture_154859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154859.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:0BCC92781860F0D8E555B9FAAE004F452324A470
 >>Дневники вампира / Vampire Diaries; Настоящая кровь / True Blood; Древние / Originals; Наследие / Legacies
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154860.jpgsave_picture_154860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154860.jpg" />
 </div>
 
 

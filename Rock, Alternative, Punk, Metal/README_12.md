@@ -6,7 +6,7 @@ Metallica - Welcome To The Snakepit (1993) 2 x CD, Unofficial Release [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15578.jpgsave_picture_15578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15578.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Rasmus - Weirdo (2025) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15579.jpgsave_picture_15579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15579.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ The Rasmus - Weirdo (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15580.jpgsave_picture_15580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15580.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Paul McCartney - Tug Of War (1982) Japanese Edition, SHM-CD, Reissue, Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15630.jpgsave_picture_15630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15630.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:39889977A8326B1009635953D35956A08F3A6EB7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15640.jpgsave_picture_15640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15640.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ The Rolling Stones - Studio Albums 28, Live 37, Compilations 42, Singles 16, Box
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15709.jpgsave_picture_15709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15709.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Ninth Circle - Anthem Of The Immortal (2025) [MP3|320 Kbps] <Heavy Metal, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15737.jpgsave_picture_15737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15737.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Gruesome - Silent Echoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15742.jpgsave_picture_15742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15742.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Paul McCartney - McCartney II (1980) Japanese Edition, SHM-CD, Reissue, Remaster
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15859.jpgsave_picture_15859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15859.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Warchild - This World Ends In Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16022.jpgsave_picture_16022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16022.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Mt. Metal - The Metal Gods Demand Sacrifice (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16086.jpgsave_picture_16086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16086.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:53D60DE875DEBD684DFEF06B4CA97E2E751D2291
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16112.jpgsave_picture_16112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16112.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [MP3|320 Kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16219.jpgsave_picture_16219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16219.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Garbage (Angelfish) - 10 albums + 5 Compilations + 69 Singles & EP's + 1 B-sides
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16333.jpgsave_picture_16333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16333.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Liv Sin - Close Your Eyes (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16439.jpgsave_picture_16439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16439.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Scardust - Souls (2025) [FLAC|Lossless|image + .cue] <Progressive Metal, Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16468.jpgsave_picture_16468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16468.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Suzi Quatro - If You Knew Suzi… (1978) 2017 Remaster, Chrysalis Records [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16521.jpgsave_picture_16521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16521.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:5E2FDA79CADCCE598F6A8B9D55D3C0A1F9E9A8DB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16528.jpgsave_picture_16528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16528.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Atrophy - Socialized Hate, Violent By Nature (2022) 2 x CD, Compilation, Remaste
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16536.jpgsave_picture_16536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16536.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Alternanthera - Диссонансы (2025) [MP3|320 Kbps] <Industrial, Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16551.jpgsave_picture_16551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16551.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Firstborne - Lucky (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16562.jpgsave_picture_16562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16562.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Temtris - Queen Of Crows (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16595.jpgsave_picture_16595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16595.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:366FCCAB553706386550406AE124C60A1215358A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16605.jpgsave_picture_16605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16605.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Skip House - Outlaw Redux (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16620.jpgsave_picture_16620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16620.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - Las Mejores Baladas del Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16655.jpgsave_picture_16655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16655.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Pride Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16669.jpgsave_picture_16669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16669.jpg" />
 </div>
 
 

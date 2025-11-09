@@ -6,7 +6,7 @@ VA - Trance Top Summer 2016 (2016) [MP3|320 Kbps] <Trance, Energy, Melodic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244109.jpgsave_picture_244109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244109.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Crippled Black Phoenix - Banefyre (2022) 2xCD [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244110.jpgsave_picture_244110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244110.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F12523EA30BA759CC0DD7E2E7974D338B3D9B56E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244111.jpgsave_picture_244111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244111.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:102AF6CCA63FF0DC8492B93F7CEE0A1F6227555A
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244112.jpgsave_picture_244112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244112.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Timmy Trumpet - Live @ kineticFIELD, EDC Mexico (2022-02-27) [MP3|320 Kbps] <Big
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244113.jpgsave_picture_244113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244113.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Colorsfade - Built From The Wreckage (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244114.jpgsave_picture_244114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244114.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Hookshot 1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244115.jpgsave_picture_244115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244115.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:D0020A2C7EE37CCA2AD21831DE35DF988DBCAE79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244116.jpgsave_picture_244116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244116.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Горячий хитовый драйв. Выпуск 6 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244117.jpgsave_picture_244117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244117.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows 10 Manager 3.6.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244118.jpgsave_picture_244118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244118.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Loopback 2.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244119.jpgsave_picture_244119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244119.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ BusyCal 3 v3.12.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244120.jpgsave_picture_244120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244120.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ LibreWolf 103.0-3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244121.jpgsave_picture_244121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244121.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ EF Commander 2022.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244122.jpgsave_picture_244122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244122.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Rizon - Prime Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244123.jpgsave_picture_244123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244123.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:CEA36CE6836FA901DB6ED0B51684FD612DDBDDA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244124.jpgsave_picture_244124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244124.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:06D2DF7C299A7955B2CE84D4B2D7D84C0223BD48
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244125.jpgsave_picture_244125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244125.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F98B45ADE745C5817D6BF6ACE8F0CF9BD9D84061
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244126.jpgsave_picture_244126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244126.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Dance Project Club Hits (2016) [MP3|169~320 Kbps] <Eurodance, Nu Disco, Com
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244127.jpgsave_picture_244127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244127.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Avast Clear 22.7.7403.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244128.jpgsave_picture_244128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244128.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ John Illsley - 9 albums, 4 singles, 15CD (1984-2022) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244129.jpgsave_picture_244129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244129.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Il Caffe Italiano Rimini (Italian Lounge Espresso Music) (2022) [AAC|~316 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244130.jpgsave_picture_244130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244130.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F2F944BCE7709E8D3D4E26A35E8EF66A95C07920
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244131.jpgsave_picture_244131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244131.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Elyose - 5 Albums (2015-2023) [MP3|320 Kbps] <Modern Industrial, Gothic, Nu-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244132.jpgsave_picture_244132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244132.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Source Of Inspiration Festival Trance (2016) [MP3|320 Kbps] <Trance, Melodi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244133.jpgsave_picture_244133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244133.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:C0FEC593CA9715D0B0E29EDF859090B9F52D3DC4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244134.jpgsave_picture_244134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244134.jpg" />
 </div>
 
 

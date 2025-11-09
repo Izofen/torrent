@@ -6,7 +6,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146060.jpgsave_picture_146060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146060.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.2) Lossless Repack R.G. Origami
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146061.jpgsave_picture_146061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146061.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows 7 SP1 (x86/x64) 26in1 +/- Office 2016 by SmokieBlahBlah 22.12.18 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146062.jpgsave_picture_146062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146062.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6CC6EBF4AB189541F200E3082DED77CAD10B6CE9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146064.jpgsave_picture_146064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146064.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FACC477DA709042272DBF8B9CD5EE4597528E91B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146066.jpgsave_picture_146066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146066.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - DJ Mixes New Year 2022 (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146067.jpgsave_picture_146067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146067.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8A0777EFBB58BC30FA06F6D30F833055C2E7F86E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146068.jpgsave_picture_146068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146068.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Grand Theft Auto IV (2008-2010) [Ru/Multi] (1.0.0.4/1.0.7.0/1.1.2.0) Lossless Re
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146070.jpgsave_picture_146070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146070.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Viber 6.5.4.461 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146071.jpgsave_picture_146071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146071.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D6581AFE6DC895E3E75A3493A92B0F3D4F4280F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146072.jpgsave_picture_146072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146072.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ryan Ribot | Stylized Creature Texturing Volume 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146073.jpgsave_picture_146073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146073.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:71C027B492B1DF21DC106291CF85CE1A53C2CB70
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146075.jpgsave_picture_146075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146075.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ YO DO, Кирилл Семаев | Курс Linux v 2.0. От 0 до Linux Ад�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146076.jpgsave_picture_146076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146076.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:524AAB92776D9775814F88957CB6139629ABCC4D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146077.jpgsave_picture_146077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146077.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Crash Bandicoot N. Sane Trilogy (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146079.jpgsave_picture_146079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146079.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146080.jpgsave_picture_146080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146080.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:2F57C3F310F76C04E47EBAD76D4E003238917DC7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146081.jpgsave_picture_146081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146081.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:4FDC43AA06A6B0DD5C012F35FD5D50BB089038AF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146082.jpgsave_picture_146082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146082.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Winter landscapes Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146083.jpgsave_picture_146083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146083.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:90B4B7F633F18F0EB9785C6F00F912D18C3E1A73
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146084.jpgsave_picture_146084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146084.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:3FE39F1A4D7330B8D70A75906698EC0FFCA940E9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146085.jpgsave_picture_146085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146085.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A8C2A3BE59BB163C0BBF150249937F118525EAA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146086.jpgsave_picture_146086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146086.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:2B9F5E7ED6D06A540F5A4586E344AB0D60939A09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146087.jpgsave_picture_146087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146087.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Elmedia Player Pro 7.8 (build 1897) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146088.jpgsave_picture_146088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146088.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:F58A477E34700945D20096148921A6EADA42DD7D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146089.jpgsave_picture_146089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146089.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146090.jpgsave_picture_146090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146090.jpg" />
 </div>
 
 

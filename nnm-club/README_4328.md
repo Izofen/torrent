@@ -6,7 +6,7 @@ Royal Romances 5: Cursed Hearts / Королевские романы 5: Про�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134485.jpgsave_picture_134485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134485.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F0A583874F3BE3D715A7B678FA74CE07684E8AF3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134486.jpgsave_picture_134486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134486.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F7748CCCCC3EC7960506327F965CDA05B40C3948
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134488.jpgsave_picture_134488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134488.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ CADlogic Draft IT 5.0.15 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134489.jpgsave_picture_134489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134489.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:77741A3C02FFDD4AC2348BC15636AD20F39B2E4D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134491.jpgsave_picture_134491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134491.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:F63244191DF533DA23FE346B7470E3AF9E19C2FD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134492.jpgsave_picture_134492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134492.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Picsart: редактор фото и видео 23.6.6 Mod by Mixroot [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134493.jpgsave_picture_134493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134493.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9E3FB94DCDF52D6A0B5289178CB8CDE73F49A9FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134494.jpgsave_picture_134494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134494.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Lindsey Stirling - Best Of Christmas Classics (2023) [FLAC|Lossless|WEB-DL|track
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134495.jpgsave_picture_134495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134495.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4BDB115AEA91B1D2711D539EB104BF7A1D381663
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134496.jpgsave_picture_134496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134496.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:183D3AF5ADE919C6EC2E71358AF0746467356013
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134497.jpgsave_picture_134497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134497.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Mystery Case Files 26: A Crime in Reflection / За семью печатями 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134499.jpgsave_picture_134499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134499.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Ministry of Sound - The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134501.jpgsave_picture_134501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134501.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:FC24D75FE33BEF8120FDC125920C7790DD71CAF3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134502.jpgsave_picture_134502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134502.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:3058A413CDDD1854F0C4B96056022822195028AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134503.jpgsave_picture_134503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134503.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:752261341FD53AF133E773D91A543C0A3A4075F0
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134504.jpgsave_picture_134504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134504.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ RS Explorer / RS Проводник 2.0.7.1 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134505.jpgsave_picture_134505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134505.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Memento Database Pro 5.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134507.jpgsave_picture_134507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134507.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:0865D2727D88FCA3269183D0EBA9AD88CD8E279A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134509.jpgsave_picture_134509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134509.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ WPS Office + PDF 18.4.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134511.jpgsave_picture_134511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134511.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:F4D2470B6B706987A2414AA4E1E1B1A9E8D605AD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134512.jpgsave_picture_134512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134512.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VIP Notes 9.9.77 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134513.jpgsave_picture_134513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134513.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:0EDB0242A3B58626A999CB3B7F0295067A9771F9
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134514.jpgsave_picture_134514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134514.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:B9DAA57A56AFC3AE4BAED041F9130744631BF2EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134518.jpgsave_picture_134518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134518.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ The Dwarves - Concept Album (2023) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134522.jpgsave_picture_134522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134522.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:02EE80643028CF975B52D1FBF4DE76372BCF9A40
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134523.jpgsave_picture_134523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134523.jpg" />
 </div>
 
 

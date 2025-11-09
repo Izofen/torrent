@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49471.jpgsave_picture_49471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49471.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.22631.3880], Version 23H2 (Updated July 2024) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49472.jpgsave_picture_49472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49472.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E90E4A0E846679EF7034A4BA3E5ABA1CC91CF903
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49473.jpgsave_picture_49473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49473.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Corel VideoStudio Ultimate 2023 26.2.0.311 (x64) [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49474.jpgsave_picture_49474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49474.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2F40E82FB0E762FBA0AC4763D50B12C03B92B5FA
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49475.jpgsave_picture_49475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49475.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49476.jpgsave_picture_49476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49476.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Thaumaturge (2024) [Ru/Multi] (73424/dlc) License GOG [Digital Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49477.jpgsave_picture_49477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49477.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F69CA39B82D4AC9D8282254E225A3C4F2B4932C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49478.jpgsave_picture_49478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49478.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:9D62B99EA8EB8E35B0E69FDA4B73283DCCC1ECFD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49479.jpgsave_picture_49479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49479.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:CFCCC5593531D84E53939CFC21C987D33BF61F66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49480.jpgsave_picture_49480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49480.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:E47DF5CC97FBDCD1F2B07AAFDE6689AFD60CD31B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49481.jpgsave_picture_49481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49481.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:A241367CCAEAD70870EB879B13E6BB8D45BB7EB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49482.jpgsave_picture_49482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49482.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:5D1D5E7664021AFD702E1A870B462FEC152BEE40
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49483.jpgsave_picture_49483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49483.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:5D1D5E7664021AFD702E1A870B462FEC152BEE40
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49484.jpgsave_picture_49484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49484.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:6E1770BE3B3D22A81D30F0218FF242EBDEA9962F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49485.jpgsave_picture_49485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49485.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:C5869D4B7938FCF08BE97549A154BDFE0597AEEC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49486.jpgsave_picture_49486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49486.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:C5869D4B7938FCF08BE97549A154BDFE0597AEEC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49487.jpgsave_picture_49487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49487.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Beyond Compare Pro 5.0.0.29773 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49488.jpgsave_picture_49488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49488.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Serebro - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49489.jpgsave_picture_49489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49489.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:5EC16BA4050B8C1930684B5662FAB13D16CA6AB6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49490.jpgsave_picture_49490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49490.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:4164882C235D78D6AA8D7B5356CD65A9EFFBBF11
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49491.jpgsave_picture_49491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49491.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Calibre 7.15.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49492.jpgsave_picture_49492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49492.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Vivaldi 6.8.3381.48 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49493.jpgsave_picture_49493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49493.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B1013555BA7ADD58A8E9FD0843C300BA3B4E0F34
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49494.jpgsave_picture_49494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49494.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Balabolka 2.15.0.874 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49495.jpgsave_picture_49495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49495.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ FastFlix 5.7.4 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49496.jpgsave_picture_49496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49496.jpg" />
 </div>
 
 

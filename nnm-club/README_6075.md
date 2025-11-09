@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191297.jpgsave_picture_191297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191297.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9C786DDC1A6EF665F82CA2FE1A79D57E7E3467A6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191298.jpgsave_picture_191298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191298.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:65599CA0DBDE61B2C385CE655F589DF23DD7C438
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191299.jpgsave_picture_191299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191299.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191300.jpgsave_picture_191300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191300.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191301.jpgsave_picture_191301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191301.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Phase One Capture One 22 Enterprise 15.4.2.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191302.jpgsave_picture_191302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191302.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Firefox Browser 106.0.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191303.jpgsave_picture_191303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191303.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - I Love Ibiza 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191304.jpgsave_picture_191304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191304.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Arkane Studios | Артбук по игре Deathloop / The Art of Deathloop (20
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191305.jpgsave_picture_191305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191305.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Wizard Moon - oG The Rock Opera (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191306.jpgsave_picture_191306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191306.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Vandenberg - Sin (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191307.jpgsave_picture_191307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191307.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:1E6A7BE8621C4E7C11FC9116505AFC7102D0F393
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191308.jpgsave_picture_191308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191308.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:2496D5CF911F2D877263A972989C9F2653A9014A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191309.jpgsave_picture_191309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191309.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:D0827C77D92A3EDE097FC86B867DF041FBF1C293
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191310.jpgsave_picture_191310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191310.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:2C4C4B9356190C472F83DC9A064461969D90551A
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191311.jpgsave_picture_191311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191311.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:684A7183F1DBEEBA2486C8081D1DA3E913021DDB
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191312.jpgsave_picture_191312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191312.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Respawn Entertainment | Артбук по игре Titanfall / The Art of Titanf
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191313.jpgsave_picture_191313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191313.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:887342E1318A1A5D6280188E488E4DCB53032A6B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191314.jpgsave_picture_191314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191314.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Crucial Velocity - Crucial Velocity (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191315.jpgsave_picture_191315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191315.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:B84929421185A95DF09E9039CCEDD97857600EAE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191316.jpgsave_picture_191316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191316.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Motionless In White - Scoring The End Of The World (2022) Deluxe Edition, 2023, 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191317.jpgsave_picture_191317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191317.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Vega - Battlelines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191318.jpgsave_picture_191318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191318.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:1F3BC4B6498F8A257742894B2B624E47743A252E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191319.jpgsave_picture_191319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191319.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191320.jpgsave_picture_191320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191320.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Dragonheart - The Dragonheart's Tale (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191321.jpgsave_picture_191321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191321.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Montra - Against All Odds (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191322.jpgsave_picture_191322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191322.jpg" />
 </div>
 
 

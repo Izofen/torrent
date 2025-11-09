@@ -6,7 +6,7 @@ VA - Abora 100: Timeless Favorites (Mixed by Ori Uplift) (2023) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231867.jpgsave_picture_231867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231867.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ OpenNumismat 1.9.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231868.jpgsave_picture_231868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231868.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tailgunner - Guns For Hire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231869.jpgsave_picture_231869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231869.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Strangerland - Echoes from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231870.jpgsave_picture_231870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231870.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wise Registry Cleaner Pro 11.0.2.712 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231871.jpgsave_picture_231871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231871.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:1323838D60496912140DF7E6AD6456BC076B7A48
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231873.jpgsave_picture_231873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231873.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Paint.NET 5.0.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231874.jpgsave_picture_231874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231874.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Pussy Pistol - Икона стиля (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231875.jpgsave_picture_231875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231875.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ iA Writer 6.0.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231876.jpgsave_picture_231876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231876.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:F23523ED185001452432777AF9E406E4BB2EDE85
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231878.jpgsave_picture_231878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231878.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ The Design Abstract - Transhuman Ascendant (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231879.jpgsave_picture_231879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231879.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:AA5407F30C1494D85373488A9ED258C43DA12A9A
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231880.jpgsave_picture_231880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231880.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:E1B039D285D66D4298F39F619526A0F6EE30FEA9
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231881.jpgsave_picture_231881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231881.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VueScan Pro 9.8.10 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231882.jpgsave_picture_231882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231882.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:6AB59CBE8FA80FB32137FC2A1B6D6212FC9F2D32
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231883.jpgsave_picture_231883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231883.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Vendetta - Black As Coal (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231885.jpgsave_picture_231885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231885.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Armin van Buuren - A State Of Trance 1129 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231886.jpgsave_picture_231886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231886.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:98118319C1105CDEE829986393F331A739E30BA3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231887.jpgsave_picture_231887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231887.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ calibre 6.22.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231888.jpgsave_picture_231888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231888.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:2F8E3532B67E451AA43AB2481F2D5DFBE67C9A6B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231890.jpgsave_picture_231890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231890.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:DF4AB80D007D5CE1E8272EF3A5889B4651272E77
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231891.jpgsave_picture_231891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231891.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:9080FCFCF927F2053B47807022C544EA95D45639
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231893.jpgsave_picture_231893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231893.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:750669C9790DBE282C84F2227D27F12C1ABE0303
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231894.jpgsave_picture_231894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231894.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Kim Dracula - A Gradual Decline In Morale (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231895.jpgsave_picture_231895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231895.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Ghost - Phantomime (2023) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231898.jpgsave_picture_231898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231898.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Ontborg - Following the Steps of Damnation (2023) [MP3|320 Kbps] <Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231899.jpgsave_picture_231899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231899.jpg" />
 </div>
 
 

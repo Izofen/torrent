@@ -6,7 +6,7 @@ Decimator - Bloodstained (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219101.jpgsave_picture_219101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219101.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cryptal Darkness - Chapter II - The Fallen (2001) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219112.jpgsave_picture_219112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219112.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cryptal Darkness - They Whispered You Had Risen (1999) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219119.jpgsave_picture_219119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219119.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ December's Mourning - Desolate Shores (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219129.jpgsave_picture_219129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219129.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ DeathCollector - Death's Toll (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219137.jpgsave_picture_219137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219137.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Meg Myers - I'd Like 2 Go Home Now (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219430.jpgsave_picture_219430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219430.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ David Bowie - Never Let Me Down (1987) [FLAC|Lossless|tracks + .cue] <Art Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219483.jpgsave_picture_219483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219483.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Meg Myers - Thank U 4 Taking Me 2 The Disco (2020) EP [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219492.jpgsave_picture_219492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219492.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E2DB8CE00FBC2EED64364B3BFCD1511428CA99CF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219516.jpgsave_picture_219516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219516.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Lux Perpetua - The Curse Of The Iron King (2017) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219583.jpgsave_picture_219583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219583.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Woven Man - Revelry (In Our Arms) (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219590.jpgsave_picture_219590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219590.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Woven Man - Sardonic Waters (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219599.jpgsave_picture_219599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219599.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hanoi Rocks - Oriental Beat mix (1982) The 40th Anniversary Re(al)mix 2022, 2023
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219607.jpgsave_picture_219607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219607.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Midnight Phantom - Murder On 42nd Street (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219666.jpgsave_picture_219666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219666.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Distorted Force - Angelic Bloodshed (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219674.jpgsave_picture_219674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219674.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Cathalepsy - Blood and Steel (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219684.jpgsave_picture_219684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219684.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ M.A.G.S. (MAGS) - Destroyer (2023) [FLAC|24/44.1|tracks|WEB-DL] <Alternative & I
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219698.jpgsave_picture_219698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219698.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Jovian Queen - Jovian Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219730.jpgsave_picture_219730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219730.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Coffin Hag - Prairie Tyrant (2023) [MP3|320 Kbps] <Psych Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219751.jpgsave_picture_219751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219751.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hypnos - Oniros (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Female 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219802.jpgsave_picture_219802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219802.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Revealing Chaos - Materia (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219817.jpgsave_picture_219817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219817.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Darkened Nocturn Slaughtercult - Necrovision (2013) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219825.jpgsave_picture_219825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219825.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Saturnus - The Storm Within (2023) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220230.jpgsave_picture_220230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220230.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cathalepsy - Blood and Steel (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220261.jpgsave_picture_220261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220261.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Meg Myers - Take Me To The Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220928.jpgsave_picture_220928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220928.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Linman - Heaven Calls (1992) 2xCD, Reissue, 2023, MelodicRock Classics [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220995.jpgsave_picture_220995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220995.jpg" />
 </div>
 
 

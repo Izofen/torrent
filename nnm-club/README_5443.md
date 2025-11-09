@@ -6,7 +6,7 @@ Me and the Rest - Bulletproof (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168427.jpgsave_picture_168427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168427.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Final Cut Pro 10.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168428.jpgsave_picture_168428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168428.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:33F2F9D2CD1B7CCC1BFA5999B363D4747D608034
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168429.jpgsave_picture_168429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168429.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:AD6A9BD9CFBCF6AC04674AFD78ADA117BF231415
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168430.jpgsave_picture_168430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168430.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:92783B6FF17DF60E496450C0AF8C8318E20A8AB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168431.jpgsave_picture_168431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168431.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:6D1956ACB18F9E85788D248B9ECA02B31894E411
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168432.jpgsave_picture_168432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168432.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Stratovarius - I Walk To My Own Song (2003) Single [OGG Vorbis|480 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168433.jpgsave_picture_168433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168433.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3EC694E4F0A2014E05B53DEF669487E33CC3CB7B
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168434.jpgsave_picture_168434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168434.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Psiphon 3 build 159 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168435.jpgsave_picture_168435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168435.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:01E352E0EC6C611EC60FC023C403D7ECB8959CB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168436.jpgsave_picture_168436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168436.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Mayflower - Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168437.jpgsave_picture_168437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168437.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:4BA58F27C8C69DF08DA2B646E284145B757B1D3F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168438.jpgsave_picture_168438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168438.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Domain - Last Days of Utopia (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168439.jpgsave_picture_168439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168439.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:189CDB6D09DFB376060D6F8ECB43D587CB0DF434
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168440.jpgsave_picture_168440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168440.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Windows 10, Version 1909 with Update [18363.535] AIO 20in2 (x86-x64) by adguard 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168441.jpgsave_picture_168441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168441.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:0204DF8BC567858FF3C82CE22252D8FE288DC9AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168442.jpgsave_picture_168442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168442.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Auslogics Windows Slimmer 3.0.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168443.jpgsave_picture_168443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168443.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Killakoi - Beta (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168444.jpgsave_picture_168444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168444.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Rainwill - Zeroed By Progress (2013) [FLAC|Lossless]<Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168445.jpgsave_picture_168445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168445.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F1E1FC4D9C38B7F1C98E95CED4A1F856161B4264
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168446.jpgsave_picture_168446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168446.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:27544E0E72662D1DB55D709F124251561B1ED65A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168447.jpgsave_picture_168447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168447.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:43BD3FC219DC66076C6F89EAEE554C434726462E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168448.jpgsave_picture_168448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168448.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:EBE319D4AE571C98DE178FB6AD85214D870CB811
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168449.jpgsave_picture_168449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168449.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Amoriello - Dear Dark (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168450.jpgsave_picture_168450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168450.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:7DD745BE57629C597EB0D48A1E78BCB8A76EC118
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168451.jpgsave_picture_168451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168451.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:146704DF4EF4457ACA465018BB455E66C66EC543
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168452.jpgsave_picture_168452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168452.jpg" />
 </div>
 
 

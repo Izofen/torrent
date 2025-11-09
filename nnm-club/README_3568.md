@@ -6,7 +6,7 @@ Manntra - Live in Leipzig (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113143.jpgsave_picture_113143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113143.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Embrace Of Souls - Forever Part of Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113144.jpgsave_picture_113144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113144.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:8F3BEB5A4DB170EB8E2C1332D587F78C38E2F4D3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113145.jpgsave_picture_113145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113145.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CompressX for Mac 1.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113146.jpgsave_picture_113146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113146.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113147.jpgsave_picture_113147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113147.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ NCH DreamPlan Plus for Mac 9.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113148.jpgsave_picture_113148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113148.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MWeb Pro 4.5.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113149.jpgsave_picture_113149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113149.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Tap Forms Organizer 5 v.5.3.41 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113150.jpgsave_picture_113150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113150.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Forsaken - Isolated from the Birthland (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113151.jpgsave_picture_113151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113151.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Retrobatch Pro 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113152.jpgsave_picture_113152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113152.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:678AEBAF4112AAB52D487C76D5283FABB200C5C8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113153.jpgsave_picture_113153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113153.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:65C087D02B1AF3746389934B77312144A4DD947C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113154.jpgsave_picture_113154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113154.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ TechSmith Camtasia 2023 Studio 2023.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113155.jpgsave_picture_113155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113155.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Folder Icons 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113156.jpgsave_picture_113156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113156.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Downie 4 v.4.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113157.jpgsave_picture_113157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113157.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Dropshare 5 v.5.49 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113158.jpgsave_picture_113158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113158.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:C2AA6F7E6662A8C5FB57AD46277B3DF41488D90D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113159.jpgsave_picture_113159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113159.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ GarageSale 9.7.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113160.jpgsave_picture_113160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113160.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:00BD0F9BF2D1AA53832876BB5173AA0830CE8C4D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113161.jpgsave_picture_113161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113161.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:A6167A01E25976A6D73B3C0FE1D8C6D17FC25EAB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113162.jpgsave_picture_113162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113162.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Omar Khorshid - Belly Dance Volumes 1 & 2 (1992) 2CD [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113163.jpgsave_picture_113163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113163.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:8DB225BD55E805D68F7ACE4C510E669CBDD3DADF
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113164.jpgsave_picture_113164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113164.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B0C0B10F15DED7D692398C0D777F24D1BE4594DB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113165.jpgsave_picture_113165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113165.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Opera GX 107.0.5045.75 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113166.jpgsave_picture_113166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113166.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ K-Lite Codec Pack Update 18.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113167.jpgsave_picture_113167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113167.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ SSH Config Editor Pro 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113168.jpgsave_picture_113168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113168.jpg" />
 </div>
 
 

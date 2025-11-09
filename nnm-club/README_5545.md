@@ -6,7 +6,7 @@ WinToHDD 6.2 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171155.jpgsave_picture_171155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171155.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Chrome 118.0.5993.118 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171156.jpgsave_picture_171156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171156.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Aiseesoft FoneLab for Android 5.0.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171157.jpgsave_picture_171157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171157.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ali Madani | Debugging Machine Learning Models with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171158.jpgsave_picture_171158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171158.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Capture One 23 Pro 16.3.0.76 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171159.jpgsave_picture_171159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171159.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Queen - News Of The World (1977) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171160.jpgsave_picture_171160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171160.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:12EAD4804D92BD64761E1663197B5205F64C206F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171161.jpgsave_picture_171161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171161.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Opera One 104.0.4944.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171162.jpgsave_picture_171162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171162.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:721DC676705E11BD55474F0AF6E3B54673F4A818
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171163.jpgsave_picture_171163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171163.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The Unarchiver 4.3.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171164.jpgsave_picture_171164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171164.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sandra - Fading Shades (1995) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171165.jpgsave_picture_171165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171165.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Alt SwitchER 21.3 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171166.jpgsave_picture_171166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171166.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Greatest Rock Of All Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171167.jpgsave_picture_171167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171167.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ ApowerREC 1.6.7.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171168.jpgsave_picture_171168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171168.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ DVDFab StreamFab 6.1.4.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171169.jpgsave_picture_171169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171169.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Topaz Video AI 4.0.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171170.jpgsave_picture_171170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171170.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft .NET 6.0.24 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171171.jpgsave_picture_171171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171171.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Moataz Nabil | Mobile DevOps Playbook (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171172.jpgsave_picture_171172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171172.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - Lo-Fi Harmony vol.2 (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171173.jpgsave_picture_171173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171173.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Microsoft .NET 7.0.13 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171174.jpgsave_picture_171174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171174.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ ConceptDraw Office for Mac 10.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171175.jpgsave_picture_171175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171175.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F0A70D832B579BFAEB577F3E61AC9CC0CBC1E139
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171176.jpgsave_picture_171176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171176.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.41
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171177.jpgsave_picture_171177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171177.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:E1FDD4A8C4B35CD51B169C0506E970B500AB0427
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171178.jpgsave_picture_171178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171178.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:4840980DD6C23EBB3CCDC3D5E2EFF00F2D489BD7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171179.jpgsave_picture_171179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171179.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ O&O Defrag Professional 27.0 Build 8046 RePack (& Portable) by elchupacabra [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171180.jpgsave_picture_171180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171180.jpg" />
 </div>
 
 

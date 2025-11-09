@@ -6,7 +6,7 @@
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19304.jpgsave_picture_19304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19304.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ GoodSync Enterprise 12.8.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19307.jpgsave_picture_19307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19307.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Desktop Calendar 3.22.234.7108 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19367.jpgsave_picture_19367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19367.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ MobaXterm 25.2 build 5296 + Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19531.jpgsave_picture_19531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19531.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Text Edit Plus 15.1 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19571.jpgsave_picture_19571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19571.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ PDFCreator 6.0.1 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19650.jpgsave_picture_19650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19650.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ WinMerge 2.16.48.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19659.jpgsave_picture_19659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19659.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Vov Sticky Notes 9.6 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19709.jpgsave_picture_19709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19709.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Alfa eBooks Manager 9.2.3 Pro & Web [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19870.jpgsave_picture_19870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19870.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Enigma Virtual Box 11.30 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19885.jpgsave_picture_19885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19885.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ ApowerREC 1.7.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19963.jpgsave_picture_19963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19963.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ eM Client 10.3.1720.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19975.jpgsave_picture_19975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19975.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ MiniTool Power Data Recovery 12.5 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20073.jpgsave_picture_20073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20073.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FileZilla 3.69.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20318.jpgsave_picture_20318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20318.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FreeCommander XE 2025 donor v929 x64 + portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20320.jpgsave_picture_20320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20320.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ CoolUtils Total Doc Converter 5.1.0.364 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20392.jpgsave_picture_20392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20392.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ CoolUtils Total Excel Converter 7.1.0.91 RePack (& Portable) by elchupacabra [Mu
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20415.jpgsave_picture_20415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20415.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Reg Organizer 9.71 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20437.jpgsave_picture_20437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20437.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Multi Commander Full Edition 15.4 Build 3089 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20604.jpgsave_picture_20604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20604.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Files Inspector Pro 4.30 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20612.jpgsave_picture_20612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20612.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ OpenNumismat 1.10.0 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20895.jpgsave_picture_20895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20895.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ PDFsam Basic 5.3.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21016.jpgsave_picture_21016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21016.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ FileZilla Server 1.10.3.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21029.jpgsave_picture_21029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21029.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Macrium Reflect Server Plus 8.0.7175 x64 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21301.jpgsave_picture_21301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21301.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PeaZip 10.4.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21413.jpgsave_picture_21413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21413.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Wirecast Pro 16.4.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21547.jpgsave_picture_21547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21547.jpg" />
 </div>
 
 

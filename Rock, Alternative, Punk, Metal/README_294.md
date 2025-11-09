@@ -6,7 +6,7 @@ Deserted Fear - Doomsday (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174604.jpgsave_picture_174604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174604.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Highlord - Breath Of Eternity (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174609.jpgsave_picture_174609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174609.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Highlord - Heir Of Power (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174617.jpgsave_picture_174617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174617.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Classless Act - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174622.jpgsave_picture_174622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174622.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Inner Road - Visions (2011) [FLAC|Lossless|image + .cue] <Sympho Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174624.jpgsave_picture_174624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174624.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Shotgun Surgery - Shiteater (2022) [FLAC|Lossless|WEB-DL|tracks] <Dirty Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174628.jpgsave_picture_174628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174628.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Highlord - Medusa's Coil (2004) Japanese Edition [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174632.jpgsave_picture_174632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174632.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Aeon Zen - The Face Of The Unknown (2010) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174636.jpgsave_picture_174636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174636.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Aeon Zen - Ephemera (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174638.jpgsave_picture_174638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174638.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ KK's Priest - The Sinner Rides Again (2023) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174669.jpgsave_picture_174669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174669.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mortifer Rage - Murderous Ritual (2008) [FLAC|Lossless|image + .cue] <Brutal Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174704.jpgsave_picture_174704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174704.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Samsara Blues Experiment - Rock Hard in Concert - Live (2023) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174730.jpgsave_picture_174730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174730.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ XTC - The Big Express (1984) Remaster, 2001, Virgin Records [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174740.jpgsave_picture_174740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174740.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Grief - Crucible (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174764.jpgsave_picture_174764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174764.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dying Fetus - Make Them Beg For Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174769.jpgsave_picture_174769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174769.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:64E1CC78BDFBC92D84E7238BD2F7884981506975
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174772.jpgsave_picture_174772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174772.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dopelord - Songs for Satan (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174773.jpgsave_picture_174773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174773.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ King Ov Wyrms - The Womb Ov Borealis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174817.jpgsave_picture_174817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174817.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bulletbelt - Burn It Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174836.jpgsave_picture_174836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174836.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8F6BCB4F2F7EBF1CA4DFD24A68507482649990FC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175019.jpgsave_picture_175019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175019.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Xandria - The Wonders Still Awaiting (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175034.jpgsave_picture_175034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175034.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Slow Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175045.jpgsave_picture_175045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175045.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Disturbed - Ten Thousand Fists (2005) [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175064.jpgsave_picture_175064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175064.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Lamb Of God - Omens (2022) [FLAC|Lossless|image + .cue] <Thrash, Metalcore, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175086.jpgsave_picture_175086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175086.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Hong Kong Sleepover - 4 Albums (2009-2019) [MP3|320 Kbps] <Hard Rock,  Heavy
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175105.jpgsave_picture_175105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175105.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Cyan Kicks - Someone Like You (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175107.jpgsave_picture_175107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175107.jpg" />
 </div>
 
 

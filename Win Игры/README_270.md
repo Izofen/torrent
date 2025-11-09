@@ -6,7 +6,7 @@ Sky Haven Tycoon - Airport Simulator (2022) [Ru/Multi] (1.0.0.289) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195829.jpgsave_picture_195829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195829.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195831.jpgsave_picture_195831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195831.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Time Loader (2021) [Ru/Multi] (1.6.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195879.jpgsave_picture_195879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195879.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Adeptus Titanicus: Dominus (2021) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195890.jpgsave_picture_195890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195890.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195939.jpgsave_picture_195939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195939.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Stay Out of the House (2022) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195961.jpgsave_picture_195961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195961.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195974.jpgsave_picture_195974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195974.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ravenbound (2023) [Ru/Multi] (1.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196015.jpgsave_picture_196015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196015.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196026.jpgsave_picture_196026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196026.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196038.jpgsave_picture_196038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196038.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Afterimage (2023) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196112.jpgsave_picture_196112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196112.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cloud Meadow (2020) [En] (0.1.4.2a2) License GOG [Early Access] [18+]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196115.jpgsave_picture_196115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196115.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (2.01) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196203.jpgsave_picture_196203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196203.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196258.jpgsave_picture_196258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196258.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196276.jpgsave_picture_196276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196276.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dr. Fetus Mean Meat Machine (2023) [Ru/Multi] (1.0.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196279.jpgsave_picture_196279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196279.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Civitatem (2022) [En] (1.09) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196282.jpgsave_picture_196282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196282.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Sludge Life 2 (2023) [Ru/Multi] (230630) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196286.jpgsave_picture_196286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196286.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ A Long Journey to an Uncertain End (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196294.jpgsave_picture_196294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196294.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196310.jpgsave_picture_196310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196310.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Livestream: Escape from Hotel Izanami (2023) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196353.jpgsave_picture_196353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196353.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Spellcaster University (2021) [Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196381.jpgsave_picture_196381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196381.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196453.jpgsave_picture_196453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196453.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Farworld Pioneers (2023) [Ru/Multi] (1.0.0) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196508.jpgsave_picture_196508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196508.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Yakuza 6: The Song of Life (2021) [Multi] (1.009a/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196520.jpgsave_picture_196520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196520.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Undead Horde 2: Necropolis (2023) [Ru/Multi] (1.0.5) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196521.jpgsave_picture_196521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196521.jpg" />
 </div>
 
 

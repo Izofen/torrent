@@ -6,7 +6,7 @@ Jennifer Lopez - On the 6 (1999) CD, Album, Enhanced [FLAC|Lossless|tracks + .cu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15834.jpgsave_picture_15834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15834.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Il Divo - Siempre (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Classical Cros
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15835.jpgsave_picture_15835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15835.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Papik & Frankie Lovecchio - Memories (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15836.jpgsave_picture_15836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15836.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:466CF28C8F6D44F0BBD820EA89104A6AA3606CBD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15837.jpgsave_picture_15837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15837.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Susannah McCorkle - From Broken Hearts To Blue Skies (1999) Concord Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15838.jpgsave_picture_15838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15838.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:E82BE448D39A967365AEF094FE0E3BE16750652A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15839.jpgsave_picture_15839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15839.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Chillhop Timezones Nigeria (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15840.jpgsave_picture_15840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15840.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ The Haunted - Studio Albums (10 releases) (1998-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15841.jpgsave_picture_15841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15841.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:0E6A41A02A90592DB453FBFC9A7DC3223DD67D3E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15842.jpgsave_picture_15842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15842.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:F46A62DB6CD3BB2008733D7A6A5DE1297872C630
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15843.jpgsave_picture_15843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15843.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ennio Morricone - Morricone Conducts Morricone (2025) [FLAC|Lossless|WEB-DL|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15844.jpgsave_picture_15844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15844.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:B37C11D6560017E91CEE4A53BF6380CAA148381C
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15845.jpgsave_picture_15845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15845.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ aCalendar+ Calendar & Tasks v2.9.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15846.jpgsave_picture_15846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15846.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A547ECEF46FF6BCF75B648A20F51962DA9011DCD
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15847.jpgsave_picture_15847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15847.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:5683FC958B7503A79E2FBFDE6626C2B513262891
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15848.jpgsave_picture_15848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15848.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Music News For Forum vol.097 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15849.jpgsave_picture_15849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15849.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:278AD291E6409F9ED0C7FCE44AE39DB9F00B4997
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15850.jpgsave_picture_15850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15850.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:03AA24000C5621703A24FB1E3F98815459E78B5A
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15851.jpgsave_picture_15851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15851.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Compilation Part 166 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15852.jpgsave_picture_15852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15852.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:095F3D7C5452F30AADDB8ED49BBBB34A98893F37
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15853.jpgsave_picture_15853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15853.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:A020D4CE1A972AD9E921D10733EF8B1D191C86A5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15854.jpgsave_picture_15854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15854.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Intimacy 2 (2025) [MP3|320 Kbps] <Easy Listening, Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15855.jpgsave_picture_15855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15855.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:89737F3F80E8B1C474C96AC195A5638DBE0B927C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15856.jpgsave_picture_15856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15856.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:F276ACF5319B0B88F236F10FCC8582BD4F11CC8D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15857.jpgsave_picture_15857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15857.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:612B8620D1D6B9BD10B6F7EF349D6997E0BCEC7A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15858.jpgsave_picture_15858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15858.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Paul McCartney - McCartney II (1980) Japanese Edition, SHM-CD, Reissue, Remaster
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15859.jpgsave_picture_15859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15859.jpg" />
 </div>
 
 

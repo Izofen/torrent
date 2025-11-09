@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145965.jpgsave_picture_145965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145965.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145967.jpgsave_picture_145967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145967.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FEE93D9CFEEFB036918EF0E899A28F4ECB884D37
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145969.jpgsave_picture_145969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145969.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Smooth Jazz Band - Raggae Rhythm of The Night 2023 (2023) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145970.jpgsave_picture_145970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145970.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4CF790FB6AFFFFD2358DFCE663611A27AABC903C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145972.jpgsave_picture_145972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145972.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Humor Wallpapers (14.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145973.jpgsave_picture_145973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145973.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145974.jpgsave_picture_145974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145974.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:BA76EFB410814B86D33D612943E3EF9BCC3CB2E9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145975.jpgsave_picture_145975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145975.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145976.jpgsave_picture_145976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145976.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Balatonica Chillout: Autumn Edition 2023 (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145977.jpgsave_picture_145977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145977.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Hit News Vol. 3 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145978.jpgsave_picture_145978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145978.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:0F74A901FDC8834F84A0B27B0AE99310C5203B83
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145979.jpgsave_picture_145979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145979.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Kampfar - Profan (2015) [FLAC|Lossless|image + .cue] <Pagan Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145980.jpgsave_picture_145980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145980.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:6ADBCB88303FADBC278235C330ED1605BB14728B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145981.jpgsave_picture_145981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145981.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:E7CE6BF1F4AD4A1391D4213D1A78EBD58FBD0D3F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145984.jpgsave_picture_145984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145984.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:AE35DB914967F07BFC38F63C08AEBDBC9D0407E2
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145985.jpgsave_picture_145985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145985.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Planet Rain - The Fundamental Principles (2014) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145986.jpgsave_picture_145986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145986.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Kirk Hunter Studios - Spotlight Strings 4D - RePack Андрей650071 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145987.jpgsave_picture_145987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145987.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:7869FDC045122F2E51E131899EFDC7965BAC5F25
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145988.jpgsave_picture_145988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145988.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ ESET NOD32 Antivirus 15.0.21.0 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145989.jpgsave_picture_145989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145989.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:BB664B7EC1BBDA75C4A10039EDC462007A89CB93
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145990.jpgsave_picture_145990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145990.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:5FF4672E8A855A21F500FCEC45A41418EC03B33A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145991.jpgsave_picture_145991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145991.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:7C2F26434E20E19BFEE243D5320007B62E7F2F24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145994.jpgsave_picture_145994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145994.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sidious - Revealed in Profane Splendour (2014) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145995.jpgsave_picture_145995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145995.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:6B8C6E15AC3CEA583C7AD3D05D9BAEDF1301BD2F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145996.jpgsave_picture_145996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145996.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:23A4992A37EDAAA16AFAEC7DADE3816FEB03A3F7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145997.jpgsave_picture_145997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145997.jpg" />
 </div>
 
 

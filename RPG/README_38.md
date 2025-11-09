@@ -6,7 +6,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.0.4/dlc) Repack FitGirl [Special Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114454.jpgsave_picture_114454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled (2004) [Ru/Multi] (2.2.b) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114758.jpgsave_picture_114758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114758.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114783.jpgsave_picture_114783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114783.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Secrets of Grindea (2024) [En] (13601958) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114900.jpgsave_picture_114900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114900.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (13566803/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115142.jpgsave_picture_115142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115142.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115284.jpgsave_picture_115284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115284.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Scene SKID
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116043.jpgsave_picture_116043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116043.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Akumi Wars (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116077.jpgsave_picture_116077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116077.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116095.jpgsave_picture_116095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116095.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116107.jpgsave_picture_116107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116107.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ELEX II (2022) [Ru/Multi] (1.05c) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116460.jpgsave_picture_116460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116460.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.3.1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116464.jpgsave_picture_116464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116464.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Trinity Fusion (2023) [Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116621.jpgsave_picture_116621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116621.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116799.jpgsave_picture_116799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116799.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116808.jpgsave_picture_116808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116808.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ GRAVEN (2021) [Ru/Multi] (16864) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117121.jpgsave_picture_117121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117121.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117482.jpgsave_picture_117482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117482.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117896.jpgsave_picture_117896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117896.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118040.jpgsave_picture_118040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118040.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Realms of Arkania: Blade of Destiny (Remake) (2013) [Multi] (1.36) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118195.jpgsave_picture_118195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118195.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pixel Noir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118334.jpgsave_picture_118334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118334.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ocean's Heart (2021) [Ru/Multi] (1.0.3(5)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118335.jpgsave_picture_118335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118335.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118377.jpgsave_picture_118377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118377.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118381.jpgsave_picture_118381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118381.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118383.jpgsave_picture_118383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118383.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118483.jpgsave_picture_118483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118483.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157009.jpgsave_picture_157009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157009.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LogTail 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157010.jpgsave_picture_157010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157010.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:644E563E21F36869A6CBD1E26AD2132469380CA6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157011.jpgsave_picture_157011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157011.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Rhinoceros 7 v7.2.20343 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157013.jpgsave_picture_157013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157013.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:0D62540BD106019DA622EA9A47B2CE9661BB0102
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157014.jpgsave_picture_157014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157014.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1664A90144C4662E0C1F1B969DEDEA5B3F91022D
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157015.jpgsave_picture_157015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157015.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Viber 12.1.0.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157016.jpgsave_picture_157016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157016.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Permute 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157017.jpgsave_picture_157017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157017.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ The Radio Sun - Heaven Or Heartbreak (2015) [MP3|320 кб/с] <Melodic Rock, AOR
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157018.jpgsave_picture_157018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157018.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:BCF4F9F1378BFE9C68930EF0899FC37B2BDC9A8F
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157019.jpgsave_picture_157019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157019.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ BlueStacks App Player 4.32.80.1017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157021.jpgsave_picture_157021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157021.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:A2DE6D161E639EEAFA20065F30F506E86D3CE99A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157022.jpgsave_picture_157022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157022.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Gates of Ishtar - At Dusk and Forever (1998) Japanese Ed. [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157023.jpgsave_picture_157023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157023.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jigoku Shoujo: Yoi no Togi | Hell Girl: Fourth Twilight | Адская дево�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157024.jpgsave_picture_157024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157024.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Udemy, Vicki Lau | VFX Compositing with Nuke: Invisible Visual Effects (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157025.jpgsave_picture_157025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157025.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ The J.J. Johnson Quintet - J Is For Jazz (1956) Remaster, 2015, Sony Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157026.jpgsave_picture_157026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157026.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:C870F23EF87AA9622F9CAFA07D8D065ECF6C8154
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157027.jpgsave_picture_157027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157027.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ IObit Driver Booster Pro 9.1.0.140 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157028.jpgsave_picture_157028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157028.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:92E6C5EB9FBA2A308E6A8F3C982792FD88FF5D74
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157029.jpgsave_picture_157029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157029.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Efficient Sticky Notes Pro 5.50 Build 542  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157032.jpgsave_picture_157032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157032.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Redemption Cemetery 5: Bitter Frost / Кладбище Обреченных 5: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157033.jpgsave_picture_157033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157033.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:2FF27463FFEF095AA861CC53211CE4A27ACBB4FC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157034.jpgsave_picture_157034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157034.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:AF707C193F7DB4B1A6700128DE2F79A59339E6CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157035.jpgsave_picture_157035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157035.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:172021B135075F7470FC816FD6F9AEE1DABBD09E
 >>Доктор Хаус / House M.D.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157037.jpgsave_picture_157037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157037.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:CD950902974CEF211039FB72E5A3EC881C35E851
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157039.jpgsave_picture_157039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157039.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Doc Cheatham - The Eighty-Seven Years Of Doc Cheatham (1993) Columbia[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157040.jpgsave_picture_157040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157040.jpg" />
 </div>
 
 

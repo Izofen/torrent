@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233956.jpgsave_picture_233956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233956.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PhotoLine 24.00 + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233957.jpgsave_picture_233957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233957.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Earl Hines - Fine & Dandy (1949) 1992, Vogue [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233958.jpgsave_picture_233958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233958.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Synthesis (2022) [MP3|320 Kbps] <Synthwave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233959.jpgsave_picture_233959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233959.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:5F1B09862630D8A78ADFDBC646846FB8919DFD13
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233961.jpgsave_picture_233961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233961.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - Шоферской 17 (2005) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233962.jpgsave_picture_233962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233962.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Topaz Photo AI 1.3.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233963.jpgsave_picture_233963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233963.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Abiotic - Symbiosis (2012) [FLAC|Lossless|image + .cue] <Progressive Deathcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233964.jpgsave_picture_233964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233964.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ PDF Extra: сканер и редактор 10.3.2039 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233965.jpgsave_picture_233965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233965.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:F006DDC34BD5EC3CB0375BC8CA6467A5FDCC0784
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233966.jpgsave_picture_233966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233966.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:C66D6A28AA05BAA11D5B32E2DDFC4D1D53A15AA8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233967.jpgsave_picture_233967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233967.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Lightbreaker - The Annihilation of the Annealids (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233968.jpgsave_picture_233968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233968.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Opera 99.0.4788.9 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233970.jpgsave_picture_233970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233970.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Avsky - Mass Destruction (2007) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233971.jpgsave_picture_233971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233971.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:F90110CE4E5372D0EB3DA1326B645B063C79FD6E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233972.jpgsave_picture_233972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233972.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:F664119C9E19E1B2F5C2A1C4DA35C8F44F125AEA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233973.jpgsave_picture_233973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233973.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ FireAlpaca 2.11.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233975.jpgsave_picture_233975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233975.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:035B41100A3158ED00ACA578C0220B56749C9F2E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233976.jpgsave_picture_233976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233976.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Abiotic - Casuistry (2015) [FLAC|Lossless|image + .cue] <Progressive Deathcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233977.jpgsave_picture_233977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233977.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Detectives United 6: Beyond Time (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233978.jpgsave_picture_233978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233978.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Nagender Kumar Suryadevara | Beginning Machine Learning in the Browser (2021) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233979.jpgsave_picture_233979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233979.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233980.jpgsave_picture_233980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233980.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Topaz Photo AI 1.3.12 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233981.jpgsave_picture_233981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233981.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:9F39AC31447EDE98779D608751A5859CE5840D9C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233983.jpgsave_picture_233983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233983.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Röyksopp - The Understanding (2005) [AAC|~332 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233984.jpgsave_picture_233984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233984.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:DFEBA6E8DCBC936920A884289FD4D6822961B332
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233985.jpgsave_picture_233985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233985.jpg" />
 </div>
 
 

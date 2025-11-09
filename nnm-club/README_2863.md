@@ -6,7 +6,7 @@ Call of Duty: Modern Warfare 3 + COOP + TeknoMW3 v2.7.0.1 [Ru] (Lossless Repack)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83592.jpgsave_picture_83592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83592.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WINDOWS 7 ULTIMATE x64 SP1 REACTOR 3.12
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83593.jpgsave_picture_83593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83593.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA- Для Юбилея, Дня Рождения Русский (2012) [MP3|128 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83595.jpgsave_picture_83595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83595.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Mathworks Matlab R2012a [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83596.jpgsave_picture_83596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83596.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Sexy Girl - Темы для Windows 7 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83598.jpgsave_picture_83598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83598.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sexy Girl - Темы для Windows 7 2012 [Rus/Eng]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83601.jpgsave_picture_83601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83601.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ SSDlife Pro 2.2.42 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83604.jpgsave_picture_83604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83604.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ SSDlife Pro 2.2.42 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83605.jpgsave_picture_83605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83605.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Dead Island. Ryder White [Ru/En] (RePack/1.3) 2012 | R.G. Unigamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83606.jpgsave_picture_83606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83606.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:FBC92803A7578DD62D23637266D57622428A1B0C
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83607.jpgsave_picture_83607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83607.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Фоновая музыка для дня рождения (2012) [MP3|128-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83608.jpgsave_picture_83608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83608.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:D376547DE6B20CAF507CD6FA6210EA28474E18C2
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83610.jpgsave_picture_83610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83610.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:52B9283C62302C6B6B3D689249DFEF30D1BC3D2A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83611.jpgsave_picture_83611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83611.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:B9B4269AA3813A142BE6C7B78C2F63B248C57605
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83612.jpgsave_picture_83612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83612.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:AEC04114FB815FDAA07189FCAE2186EBD50AF13F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83613.jpgsave_picture_83613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83613.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Living Legends: Ice Rose Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83617.jpgsave_picture_83617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83617.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Esperanto - 3 альбома [Дискография] (1973-1975) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83619.jpgsave_picture_83619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83619.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83620.jpgsave_picture_83620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83620.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:CD812BA290568832B70B0765EC0F90502E0B236C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83623.jpgsave_picture_83623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83623.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:CD812BA290568832B70B0765EC0F90502E0B236C
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83624.jpgsave_picture_83624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83624.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:1D813A153324BD2B9D3EDC48F684C2A4BE7E82F9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83626.jpgsave_picture_83626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83626.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Goa Power: Finest Full On & Trance Selection (2011) [MP3|320 кб/с]<Psytr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83627.jpgsave_picture_83627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83627.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - XXXL Популярный 50/50 Весна (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83629.jpgsave_picture_83629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83629.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:36070FD7B78819427CE0EC144F9D60D50348A57D
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83632.jpgsave_picture_83632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83632.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Лучший Русский Хит (2012) [MP3|128-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83633.jpgsave_picture_83633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83633.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:D5A0D9A7D7978FF954D264EB857D6B0E13876ADE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83634.jpgsave_picture_83634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83634.jpg" />
 </div>
 
 

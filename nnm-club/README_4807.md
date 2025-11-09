@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150438.jpgsave_picture_150438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150438.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Driver Booster Pro 8.2.0.306 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150439.jpgsave_picture_150439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150439.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Latin Blues (2023) [MP3|320 Kbps] <Blues, Rock, Latino>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150440.jpgsave_picture_150440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150440.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Microsoft Windows 10.0.19043.1415, Version 21H1 (Updated December 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150441.jpgsave_picture_150441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150441.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:39CDBC747A73EDE5AB5CCFAF097E2E48BACDC86B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150442.jpgsave_picture_150442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150442.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:399192A79106EEE0C5D45D9E80A008F6A73AFA75
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150443.jpgsave_picture_150443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150443.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Bat! Professional 9.3.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150446.jpgsave_picture_150446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150446.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:2B0DEBA85CF59413A02D9E9C82515B9B9DCC43C6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150447.jpgsave_picture_150447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150447.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:AF38CE56762CC54C5D7F1CBE2F47B1560C224F5E
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150449.jpgsave_picture_150449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150449.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Autorun Organizer 2.15 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150450.jpgsave_picture_150450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150450.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:9E1746D45A62F0533A8913927A022E13B8D6C9A2
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150451.jpgsave_picture_150451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150451.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Casiopea - Made in Melbourne (1994) Pioneer[FLAC|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150452.jpgsave_picture_150452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150452.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:91B5BA535AC34218790D3E2AF8203D01ACE8B2CF
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150453.jpgsave_picture_150453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150453.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C8EE81239BEDA23078FFEAAC3F31B706DC7BF2B9
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150454.jpgsave_picture_150454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150454.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Apple iMovie 10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150455.jpgsave_picture_150455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150455.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:C88D35E721D75558383264E97FB9EB0A7C74FCCF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150456.jpgsave_picture_150456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150456.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Everything 1.4.1.1015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150457.jpgsave_picture_150457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150457.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ FAR: Lone Sails v1.31 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150460.jpgsave_picture_150460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150460.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dolly Parton - Rockstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150463.jpgsave_picture_150463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150463.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:BE13C0369448F58880DF95D3DF8AB0CC0324C452
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150464.jpgsave_picture_150464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150464.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:4556E1278D36CC8EFFE738C4F1F5C1EACAE686A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150465.jpgsave_picture_150465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150465.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:D45F3986F8D5C208EB227551B6E9B63108A4159F
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150466.jpgsave_picture_150466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150466.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ R-Studio Network Edition 8.15 Build 180091 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150467.jpgsave_picture_150467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150467.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:90A852B0DADDA6C3BFE56169D50D0C0A146A4251
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150470.jpgsave_picture_150470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150470.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:63ED219018347875BB87C9D58367A65E56AB147F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150471.jpgsave_picture_150471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150471.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Topaz Photo AI 2.1.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150472.jpgsave_picture_150472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150472.jpg" />
 </div>
 
 

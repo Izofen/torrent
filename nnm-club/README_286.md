@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7520.jpgsave_picture_7520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7520.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ventusky: Прогноз погоды v47.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7521.jpgsave_picture_7521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7521.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C202E279CA0D7BF5CA60B58C12474629BCD27D65
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7522.jpgsave_picture_7522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7522.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Half-Life 2: Документальный фильм к 20-летию / Half-Lif
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7523.jpgsave_picture_7523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7523.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7524.jpgsave_picture_7524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7524.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6960CB74FB8D0E06B9938A06E74421DEB47C53EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7525.jpgsave_picture_7525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7525.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5914A8B046BAEAB14BE407FAC96AFEE5734D526C
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7526.jpgsave_picture_7526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7526.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Any Video Downloader Pro 9.3.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7527.jpgsave_picture_7527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7527.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ PrivaZer Pro 4.0.109 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7528.jpgsave_picture_7528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7528.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:7E606E34D79DA53339D3A0D0C9FFF35B1923CDB4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7529.jpgsave_picture_7529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7529.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:746B873FF11A4F1CE69B9459DEB4EEA2FCBD2CE4
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7530.jpgsave_picture_7530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7530.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:153CFA237F02C80614AF612476D06E51ECD4EFD0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7531.jpgsave_picture_7531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7531.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:A33D85399164350EF7F01094ABAD7B5AFF3EDE8E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7532.jpgsave_picture_7532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7532.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ NVIDIA GeForce Desktop Game Ready 580.97 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7533.jpgsave_picture_7533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7533.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:4FC0FCDAB683351082C61CA9051A5EF52E00244C
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7534.jpgsave_picture_7534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7534.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ubuntu*Pack 24.04 Cinnamon (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7535.jpgsave_picture_7535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7535.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:ABE179A565284101FE285A8B576861E3C4ADCB9C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7536.jpgsave_picture_7536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7536.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ubuntu*Pack 24.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7537.jpgsave_picture_7537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7537.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:828DDF9ADCE79FF16CEC5C1966604ABA79D77A4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7538.jpgsave_picture_7538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7538.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Ubuntu*Pack 24.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7539.jpgsave_picture_7539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7539.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7540.jpgsave_picture_7540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7540.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ StasPiter | Программирование на Delphi в Rad Studio (2015) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7541.jpgsave_picture_7541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7541.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:FCE79AFD5715904710652B14D43E1F3A60452B8C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7542.jpgsave_picture_7542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7542.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:865ECFB01E51A7426723820E92F2D07E2B0FEE67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7543.jpgsave_picture_7543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7543.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Ubuntu*Pack 24.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7544.jpgsave_picture_7544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7544.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:903A62F0DD801D3C37D529C696F16E62BC7B1618
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7545.jpgsave_picture_7545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7545.jpg" />
 </div>
 
 

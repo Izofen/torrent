@@ -6,7 +6,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7308 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7731.jpgsave_picture_7731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7731.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinTools.net 25.9.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7732.jpgsave_picture_7732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7732.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EFE9EB11C102F9284A58E6F5C89A1A46E2ABF2F5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7733.jpgsave_picture_7733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7733.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FDDC79F338C714ED30B0E18CDF71E8A3192E7996
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7734.jpgsave_picture_7734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7734.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D7B4E7EC33F2D8D520960711588D395337E34E86
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7735.jpgsave_picture_7735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7735.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7736.jpgsave_picture_7736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7736.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AIMP 5.40 Build 2691 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7737.jpgsave_picture_7737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7737.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:84C14BB4353B7496E50741AF6634AF54C77B1673
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7738.jpgsave_picture_7738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7738.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3D2793BA7620484D9CF4923F925AFAC56F50F105
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7739.jpgsave_picture_7739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7739.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:9D8F76ADF48C305AD1D090E39BB0EEF8769A8105
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7740.jpgsave_picture_7740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7740.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:77BEFA57DF403B90BD40256CAD33FEB7057721AB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7741.jpgsave_picture_7741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7741.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E7F903F9BC7310B8458E3E97E46D369E2304EBCE
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7742.jpgsave_picture_7742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7742.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Wise Care 365 Pro 7.2.8.709 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7743.jpgsave_picture_7743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7743.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Fan Control V231 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7744.jpgsave_picture_7744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7744.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:2D35C05C907FE5CB31A2CAD9BFD341AE369CED7D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7745.jpgsave_picture_7745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7745.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MassTube Ultra 20.1.7.142 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7746.jpgsave_picture_7746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7746.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:68A4AF22F6E232A9DFB7DCD55A4991C8683FC57C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7747.jpgsave_picture_7747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7747.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:CFC2CB0770E12765CC7C7900C14B46877F8CCE72
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7748.jpgsave_picture_7748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7748.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:4BDAA2AA96FC280D4BBF77E64E81B13A2C9BBF25
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7749.jpgsave_picture_7749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7749.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:FBD6FEE7D8E5BCD8740A8569C79A7A99DB161E52
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7750.jpgsave_picture_7750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7750.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Eridani Survivors (2025) [Multi] (12.08.2025) Repack AIexandro
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7751.jpgsave_picture_7751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7751.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VirtualBox 7.2.0 Build 170228 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7752.jpgsave_picture_7752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7752.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ FastStone Photo Resizer 4.4 + Portable [Ru/En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7753.jpgsave_picture_7753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7753.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7754.jpgsave_picture_7754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7754.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:A0C560C51B13BE5023BF5E2E0D254C6E5B318C5E
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7755.jpgsave_picture_7755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7755.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7756.jpgsave_picture_7756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7756.jpg" />
 </div>
 
 

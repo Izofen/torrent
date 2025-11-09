@@ -6,7 +6,7 @@
 >>25
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88920.jpgsave_picture_88920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88920.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Lord of the Rings: The Battle for Middle-earth 2 The Rise of the Witch-king 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88923.jpgsave_picture_88923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88923.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8B99454AB7BE20732625EB6EBAEE3A68735FFBA6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88926.jpgsave_picture_88926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88926.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88927.jpgsave_picture_88927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88927.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F1901D4086A93818B09FE3BF1FBA29B0862D49E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88928.jpgsave_picture_88928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88928.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:060A32D3F9C7BBDEB644FB7A8753E323F7C68F54
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88932.jpgsave_picture_88932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88932.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88933.jpgsave_picture_88933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88933.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88934.jpgsave_picture_88934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88934.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88936.jpgsave_picture_88936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88936.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ ReFX Nexus 2 - 2011 Presets Pack [FXB|NXP][английский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88938.jpgsave_picture_88938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88938.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:08E9C8E73FA7DD06596D29F9BFB0EF0311684A24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88941.jpgsave_picture_88941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88941.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Abakus - We Share The Same Dreams (2008) [FLAC|Lossless]<Chillhouse / Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88942.jpgsave_picture_88942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88942.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88949.jpgsave_picture_88949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88949.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88952.jpgsave_picture_88952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88952.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:7277CCA4695B6498D341ADB061688A0B358A5E4A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88963.jpgsave_picture_88963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88963.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:FA7D2A1929EC8F8B30A0E37EFDBBE0559401CCEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88966.jpgsave_picture_88966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88966.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FA7D2A1929EC8F8B30A0E37EFDBBE0559401CCEC
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88968.jpgsave_picture_88968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88968.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B066DCE7A01DF41281D8BAF256410B21BF0141FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88971.jpgsave_picture_88971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88971.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Windows 7 Manager v4.0.4 Final [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88972.jpgsave_picture_88972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88972.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Windows 7 Manager - это мощная системная утилита, ко�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88973.jpgsave_picture_88973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88973.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:C19AE3E9D647CC1BA1E7C15AD9CB8E32F7D3A912
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88975.jpgsave_picture_88975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88975.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88978.jpgsave_picture_88978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88978.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88981.jpgsave_picture_88981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88981.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88982.jpgsave_picture_88982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88982.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88983.jpgsave_picture_88983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88983.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Chris Botti & Friends Night Sessions: Live In Concert (2001) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88984.jpgsave_picture_88984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88984.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Farmer's Father: Save the Innocence (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60609.jpgsave_picture_60609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60609.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1DD46E210664296E5D7B1D94B6E8FC1D59306BB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60610.jpgsave_picture_60610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60610.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rod Stewart - 55 albums, 5 Box-sets, 137 CD (1969-2024) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60611.jpgsave_picture_60611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60611.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Bucchigiri?! | Буттигири [2024, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60612.jpgsave_picture_60612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60612.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EA459A742A42D1F1E83E91F73425807A689B6C3F
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60613.jpgsave_picture_60613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60613.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8E302E6C9D91083DDAA07EA3A9378F72C8C57BBA
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60614.jpgsave_picture_60614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60614.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ UNIGINE,  Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60615.jpgsave_picture_60615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60615.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Lynda, Kevin Skoglund | Git Essential Training (2012) PCRec [EN, RU / RU Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60616.jpgsave_picture_60616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60616.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Beat Slayer (2024) [Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60617.jpgsave_picture_60617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60617.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:A37DAFF3CC23F21EFE51BF685735986A266ADC1A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60618.jpgsave_picture_60618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60618.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Horizon: Forbidden West (2024) [Ru/Multi] (1.1.47.0/dlc) Repack Other s [Complet
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60619.jpgsave_picture_60619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60619.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Horizon Forbidden West – продолжение приключения охо�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60620.jpgsave_picture_60620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60620.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E441D6E478F8CEA4F5E20435D0DDE5C3DE4394B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60621.jpgsave_picture_60621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60621.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:AE45D9AAAC969F48B8632B1FA8F78FF4A60A9C2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60622.jpgsave_picture_60622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60622.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:AE45D9AAAC969F48B8632B1FA8F78FF4A60A9C2F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60623.jpgsave_picture_60623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60623.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:5E6DA2556098786D38BEC740DED69A63DAF2D755
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60624.jpgsave_picture_60624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60624.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8F9586463D41A4B2955CCE1EA6508128C1363422
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60625.jpgsave_picture_60625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60625.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:DB396C47367F89E49E21B9F1D9795E6199192607
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60626.jpgsave_picture_60626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60626.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9A44E494FC625C307DBBC68F211AE7B037701318
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60627.jpgsave_picture_60627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60627.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:35F7F24A1D9487D5BF924D4F9D2DBE5C4E1D2EE8
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60628.jpgsave_picture_60628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60628.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E659EB93FD4D33B641A9AB9DA2F637F0A2ECEE0A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60629.jpgsave_picture_60629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60629.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:6A021E801C089FB06A0F43DDB000F7856AF68219
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60630.jpgsave_picture_60630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60630.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:AD1193CBFBD8CF99015EF8CE6ADF04E6A18D0B89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60631.jpgsave_picture_60631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60631.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Bulletstorm (2017) [Ru/Multi] (1.0upd2/dlc) Repack dixen18 [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60632.jpgsave_picture_60632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60632.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:5E80108AFEDB8511F40CF6D0F47E034E125C65AC
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60633.jpgsave_picture_60633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60633.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Hime-sama "Goumon" no Jikan Desu | Время пытки, принцесса | T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60634.jpgsave_picture_60634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60634.jpg" />
 </div>
 
 

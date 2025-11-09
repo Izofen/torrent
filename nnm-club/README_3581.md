@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113481.jpgsave_picture_113481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113481.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113482.jpgsave_picture_113482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113482.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:E24F074E95D73F32B8C57FE14A3DE46E52AE49CA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113483.jpgsave_picture_113483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113483.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ SQLPro Studio 2024.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113484.jpgsave_picture_113484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113484.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113485.jpgsave_picture_113485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113485.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ System Dashboard Pro 1.10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113486.jpgsave_picture_113486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113486.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113487.jpgsave_picture_113487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113487.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:7BF545B4D2ED41D8663E9A6E38EE2484B090E906
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113488.jpgsave_picture_113488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113488.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Lipz - Changing The Melody (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113489.jpgsave_picture_113489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113489.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:53966AEC9B886D1EA59FFF5ED7659C9B5179C958
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113490.jpgsave_picture_113490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113490.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Cronette 1.10.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113491.jpgsave_picture_113491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113491.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Upscayl for Mac 2.10.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113492.jpgsave_picture_113492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113492.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Музыкальный телетайп 3 (1988) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113493.jpgsave_picture_113493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113493.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ FanControl V183 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113494.jpgsave_picture_113494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113494.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Telegram Desktop 4.15.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113495.jpgsave_picture_113495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113495.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Chromium 122.0.6261.129 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113496.jpgsave_picture_113496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113496.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:5BA64A177B8D2243BE38BC45BB104E2C3FEAA2A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113497.jpgsave_picture_113497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113497.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Topaz Video AI for Mac 4.2.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113498.jpgsave_picture_113498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113498.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:F1C1DF3EF75E693CBFDAD0C16DB87C85A9AEC461
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113499.jpgsave_picture_113499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113499.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:A384BAB6A93633909A1B8612C34BD68308BCE723
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113500.jpgsave_picture_113500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113500.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:DC9DBADD0324F0B9BFA0E65B7F7A1F830FBE09F3
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113501.jpgsave_picture_113501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113501.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [MP3|320 Kbps] <Melodic Heavy, Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113502.jpgsave_picture_113502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113502.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Brave Browser 1.63.174 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113503.jpgsave_picture_113503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113503.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rathole - Out Of Phase (2024) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113504.jpgsave_picture_113504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113504.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3B045D3141294A6E309020E1360BE7A553B41DD3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113505.jpgsave_picture_113505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113505.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - С Новым годом! (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113506.jpgsave_picture_113506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113506.jpg" />
 </div>
 
 

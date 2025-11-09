@@ -6,7 +6,7 @@ Valentina Studio Pro 13.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236273.jpgsave_picture_236273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236273.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ EXIF App 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236274.jpgsave_picture_236274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236274.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236275.jpgsave_picture_236275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236275.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Charlie A’Court - A’Court, Spiegel, & Vinnick (2023) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236278.jpgsave_picture_236278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236278.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:46EED9DD69F290D1B2A9BDCC4B0A07DF43D581B5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236279.jpgsave_picture_236279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236279.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ SiteSucker Pro 5.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236280.jpgsave_picture_236280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236280.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Zoner Photo Studio X 19.2303.2.450 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236281.jpgsave_picture_236281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236281.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Udemy, Imran Nuruhussen | Complete Blender Course: From modelling to a short ani
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236282.jpgsave_picture_236282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236282.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:5C55B2ECFA0AD592F716FB1D1DF8BA19712E649F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236284.jpgsave_picture_236284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236284.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Statistics Pro 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236286.jpgsave_picture_236286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236286.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ EditReady 23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236287.jpgsave_picture_236287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236287.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:D436741E50D4450BEDEB9E44B87BCC57649ABB2B
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236289.jpgsave_picture_236289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236289.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:8B8BCB4E3CFDEE8F9D056A26F80A009F43DB7584
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236291.jpgsave_picture_236291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236291.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:6224C91758835F626AAA8B2B4135DFE2E1D4B779
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236293.jpgsave_picture_236293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236293.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Luciana Souza - The Book Of Chet (2012) Sunnyside [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236294.jpgsave_picture_236294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236294.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ NG. Тайны слонов / Secrets of the Elephants (2023) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236295.jpgsave_picture_236295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236295.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:4C1C76CE89AB80000E67124AC4205148E3A1CC7F
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236296.jpgsave_picture_236296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236296.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:4FEE8527B6EBB5B2357AD583172318D3E8A80EAF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236298.jpgsave_picture_236298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236298.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:04B655256E7E6D0F223EDC99D0BB73677A4F0C17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236300.jpgsave_picture_236300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236300.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:04B655256E7E6D0F223EDC99D0BB73677A4F0C17
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236301.jpgsave_picture_236301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236301.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:DDAF134252AD2136315D304E04DBB675271000B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236303.jpgsave_picture_236303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236303.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Plexim Plecs 4.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236304.jpgsave_picture_236304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236304.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Jabo - Jabo Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236305.jpgsave_picture_236305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236305.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:3BD2070A6E829AB9B71E49A66FF7575D7DB9AD64
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236306.jpgsave_picture_236306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236306.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:D7225B1BD7A67E47CD862037C078BD0BD292ABF9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236307.jpgsave_picture_236307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236307.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ iReal Pro 2020.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236309.jpgsave_picture_236309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236309.jpg" />
 </div>
 
 

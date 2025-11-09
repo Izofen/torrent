@@ -6,7 +6,7 @@ Butchamana And The Big Bang Brothers Band - Indian Dream (1981) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190605.jpgsave_picture_190605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190605.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Flower Kings - Look At You Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190607.jpgsave_picture_190607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190607.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Sto
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpgsave_picture_190609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190609.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fire Rose - Blood On Your Hands (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190611.jpgsave_picture_190611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190611.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Steely Dan - Memphis 1974 (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190614.jpgsave_picture_190614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190614.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stream Of Passion - Beautiful Warrior (2023) EP [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190615.jpgsave_picture_190615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190615.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Metal Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190621.jpgsave_picture_190621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190621.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ King Gizzard & The Lizard Wizard - Live in Chicago '23 (2023) [MP3|320 Kbps] <Ps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190624.jpgsave_picture_190624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190624.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Staehely Brothers - Sta-Hay-Lee (1973) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190626.jpgsave_picture_190626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190626.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sarayasign - The Lion's Road (2023) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190628.jpgsave_picture_190628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190628.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Street Fighter - Second Hand Hero (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190630.jpgsave_picture_190630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190630.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|WEB-DL|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190632.jpgsave_picture_190632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190632.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Total Stranger - Mean Season (1986-1990) Remastered, 2023, MelodicRock Classics 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190634.jpgsave_picture_190634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190634.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lav
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190640.jpgsave_picture_190640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190640.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Loggins & Messina - Long Island 1976 (live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190642.jpgsave_picture_190642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190642.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Iced Earth - I Walk Among You (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190648.jpgsave_picture_190648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190648.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:C0A63AE564F185AE17031BBC02409D68A2E6BC1E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpgsave_picture_190650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190650.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mustang - Beyond Raging Thunder (2023) [MP3|320 Kbps] <Speed, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190652.jpgsave_picture_190652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190652.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mats Karlsson - The Time Optimist (2019) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190654.jpgsave_picture_190654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190654.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Elderseer - Drown in the Shallowness (2023) [MP3|320 Kbps] <Melodic Doom, Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190656.jpgsave_picture_190656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190656.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Fiction Syxx - Tall Dark Secrets (2017) Reissue, 2020, MelodicRock Records [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190658.jpgsave_picture_190658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190658.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Art Of Shock - Shine Black Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190660.jpgsave_picture_190660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190660.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Graveworm - Killing Innocence (2023) [FLAC|Lossless|image + .cue] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190662.jpgsave_picture_190662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190662.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Teiger - Teiger (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock, Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190663.jpgsave_picture_190663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190663.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Catalyst - The Age Of Rocketeers (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190666.jpgsave_picture_190666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190666.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Genitals - Genital Horrors (2023) EP [FLAC|Lossless|image + .cue] <Goregrind>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190668.jpgsave_picture_190668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190668.jpg" />
 </div>
 
 

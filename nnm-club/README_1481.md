@@ -6,7 +6,7 @@ K-Lite Codec Pack 18.6.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38861.jpgsave_picture_38861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38861.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4D168C576CB5E43DD7A426ECCE3B9B6CF2F7A733
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38862.jpgsave_picture_38862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38862.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9985AD7F9869A779672C3F7716C9F16C391CDA3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38863.jpgsave_picture_38863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38863.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F8CAABDC3260ADECEE036C131897A0F717A4BE9D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38864.jpgsave_picture_38864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38864.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D4DE8848D9242695CB03AF6E18C32E8BAB604CD6
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38865.jpgsave_picture_38865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38865.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ RustDesk 1.3.2 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38866.jpgsave_picture_38866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38866.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ iTop VPN 6.1.0.5882 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38867.jpgsave_picture_38867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38867.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Akross Con / Акросс Кон  AMV, 2003-2023 года (2091 клипов)
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38868.jpgsave_picture_38868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38868.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:E79C9B9EB655487D29B0A9BEDACAD231C2E889DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38869.jpgsave_picture_38869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38869.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:58FF80D6DB510A3EA41A72F9FCE7D9E66BE45289
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38870.jpgsave_picture_38870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38870.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Call Of Duty Black Ops 2 (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [En
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38871.jpgsave_picture_38871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38871.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:07972B9935F8D5171E1B822549F0CD2618E7DB21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38872.jpgsave_picture_38872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38872.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Adobe After Effects 2025 25.0.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38873.jpgsave_picture_38873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38873.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:D239A715BAE7339825500F491FAA377D2825D45B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38874.jpgsave_picture_38874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38874.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38875.jpgsave_picture_38875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38875.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:94C4A087F48D6290842A37C7212D0BC21E001453
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38876.jpgsave_picture_38876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38876.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:94C4A087F48D6290842A37C7212D0BC21E001453
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38877.jpgsave_picture_38877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38877.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Document Reader & Viewer 2024 v1.2.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38878.jpgsave_picture_38878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38878.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.0973) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38879.jpgsave_picture_38879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38879.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:123352ABE9BFF159C955048FC7D76D0F66D46251
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38880.jpgsave_picture_38880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38880.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:96C7F786315293B8CF95AD2F1E1C2754F0549493
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38881.jpgsave_picture_38881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38881.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38882.jpgsave_picture_38882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38882.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Adobe Illustrator 2025 29.0.1.192 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38883.jpgsave_picture_38883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38883.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Adobe Acrobat Pro 2024.004.20220 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38884.jpgsave_picture_38884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38884.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38885.jpgsave_picture_38885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38885.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38886.jpgsave_picture_38886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38886.jpg" />
 </div>
 
 

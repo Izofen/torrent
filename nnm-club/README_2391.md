@@ -6,7 +6,7 @@ Listen Audiobook Player v5.2.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62533.jpgsave_picture_62533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F366F7EC135778E385E000B44B11A34ADD923C4A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62534.jpgsave_picture_62534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62534.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ DailyArt - Daily Dose of Art v3.2.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62535.jpgsave_picture_62535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62535.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A1D1A9C0392CE01246A424EC0D4ECC67AABF9657
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62536.jpgsave_picture_62536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62536.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5DAE559B5FBFB735FF1A0B7E8C8B2D7C41BBC1A9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62537.jpgsave_picture_62537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62537.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:2ACBBA88A4E2CC18B1C198805B03EFE9D9D8811D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62538.jpgsave_picture_62538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62538.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Gacharic Spin - W (2024) [MP3|320 Kbps] <J-Rock, Alt. Rock, Electronic>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62539.jpgsave_picture_62539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62539.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:B9E12CB2F9C31E6D68C5B1D02B8B240B33D9C9B5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62540.jpgsave_picture_62540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62540.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:0EC8C89A04A98EB624A14097459651B2288C3D96
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62541.jpgsave_picture_62541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62541.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:747AEAAB74C0AF52BB9CEC138FBC6E9991A59D2E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62542.jpgsave_picture_62542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62542.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:1A57926C21A1DB4C5DEC684AC97EF1589B758F4C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62543.jpgsave_picture_62543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62543.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:83CBF41991706205F37B6FF19E0783A36A2C6FA8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62544.jpgsave_picture_62544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62544.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Corey Taylor - Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock, Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62545.jpgsave_picture_62545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62545.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:22AE044A47A60A27B04164BE0C6CCEF8CE27FDBF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62546.jpgsave_picture_62546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62546.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:0487800E4B945B2F7E58EA1A4E5326A4C38CEFFA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62547.jpgsave_picture_62547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62547.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ CheckBook Pro 2.7.29 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62548.jpgsave_picture_62548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62548.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Navicat Charts Viewer for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62549.jpgsave_picture_62549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62549.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:3E187F221872B124FE1F8D3FCA5621ADB4257E9F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62550.jpgsave_picture_62550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62550.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:34AEDF252B583E022B1822CCDFD3DBB921F316FA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62551.jpgsave_picture_62551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62551.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Phish - The Spectrum '97 (2024) 6 x CD [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62552.jpgsave_picture_62552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62552.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ The Enders - Shelter (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62553.jpgsave_picture_62553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62553.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Rutube v29.1.1 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62554.jpgsave_picture_62554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62554.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Oracle Linux 9.3 [x64] 3xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62555.jpgsave_picture_62555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62555.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Topaz Gigapixel AI 7.0.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62556.jpgsave_picture_62556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62556.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Deep Forest - Studio Albums & Projects (23 releases) (1994-2023) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62557.jpgsave_picture_62557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62557.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:84C84CFE37FF6FE826B47CF17136733BA9C0525F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62558.jpgsave_picture_62558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62558.jpg" />
 </div>
 
 

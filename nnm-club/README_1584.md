@@ -6,7 +6,7 @@ YouTube начал вносить в теневой бан аккаунты за
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41541.jpgsave_picture_41541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41541.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YouTube начал массово блокировать аккаунты за �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41542.jpgsave_picture_41542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41542.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D91853CB6AD8EE3B5C4AE3D0124CD126AA9AFB3D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41543.jpgsave_picture_41543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41543.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:EC650C6113C51F92577A57238EE377B18F1B314E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41544.jpgsave_picture_41544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41544.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:7921670B46600274702F939BFC78270C946342D3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41545.jpgsave_picture_41545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41545.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:94E3729030DE6C1159AA64C2760C07A90A138AD4
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41546.jpgsave_picture_41546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41546.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C6A3A56E7182C3CF18A9CA98187906CF88CEF3B3
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41547.jpgsave_picture_41547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41547.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C46C773403952A7EBBDBFE56935D0C52CCFD352B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41548.jpgsave_picture_41548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41548.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:4A2F01116080ADEC1131D0644CA71157E928D4A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41549.jpgsave_picture_41549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41549.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:4A2F01116080ADEC1131D0644CA71157E928D4A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41550.jpgsave_picture_41550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41550.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ KMS_VL_ALL v53 + AIO Portable 53 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41551.jpgsave_picture_41551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41551.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:A75D3386D4E0CA1C00BD2C575F3FFCFE899F510B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41552.jpgsave_picture_41552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41552.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:A75D3386D4E0CA1C00BD2C575F3FFCFE899F510B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41553.jpgsave_picture_41553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41553.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AOMEI Partition Assistant Technician Edition 10.5.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41554.jpgsave_picture_41554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41554.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B3406120E4040F38060E5D0056D217E3A9EB73D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41555.jpgsave_picture_41555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41555.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:E0CED69892BDACB8F056A7D307DC29BB9A789CF1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41556.jpgsave_picture_41556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41556.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Advanced Renamer 4.03 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41557.jpgsave_picture_41557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41557.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - RetroFutur 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41558.jpgsave_picture_41558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41558.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Chill Sessions: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41559.jpgsave_picture_41559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41559.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:A40445FEE45EC2815FC061E2AA857C150ACB8DE9
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41560.jpgsave_picture_41560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41560.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:2ABBFB4DF9D3F2C016B8016E1DF35946551FC063
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41561.jpgsave_picture_41561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41561.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:4B8FAFBF4CE3FED202C49EE73E5CB68816B34508
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41562.jpgsave_picture_41562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41562.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:8AB7DAAF8323F16A50220785DD175AF45650DFAD
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41563.jpgsave_picture_41563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41563.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:42C42E64AEF24DD5DC5B49F633A67A8C29E00AB0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41564.jpgsave_picture_41564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41564.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ IObit Smart Defrag Pro 10.1.0.419 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41565.jpgsave_picture_41565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41565.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Vivaldi 6.9.3447.51 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41566.jpgsave_picture_41566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41566.jpg" />
 </div>
 
 

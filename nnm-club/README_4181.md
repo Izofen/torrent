@@ -6,7 +6,7 @@ VA - Deep Club Booms (2012) [MP3|320 кб/с]<House, Club>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129449.jpgsave_picture_129449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129449.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Deep Club Booms (2012) [MP3|320 кб/с]<House, Club>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129450.jpgsave_picture_129450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129450.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Deep Club Booms (2012) [MP3|320 кб/с]<House, Club>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129453.jpgsave_picture_129453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129453.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129455.jpgsave_picture_129455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129455.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129456.jpgsave_picture_129456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129456.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129459.jpgsave_picture_129459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129459.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129461.jpgsave_picture_129461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129461.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129463.jpgsave_picture_129463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129463.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129465.jpgsave_picture_129465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129465.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Mirror for Roku TV 2.9.3 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129466.jpgsave_picture_129466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129466.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Guenter Haas - Tales of a Broken Planet (2013) [AAC|~319 Kbps] <Lounge, Chill Ou
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129467.jpgsave_picture_129467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129467.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Permute 3 v3.8.3 U2B [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129468.jpgsave_picture_129468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129468.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Towards Atlantis Lights - When The Ashes Devoured The Sun (2021) [FLAC|Lossless|
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129469.jpgsave_picture_129469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129469.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Mirror for Arcelik TV 3.5.3 [Multi]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129470.jpgsave_picture_129470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129470.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - My Electronic Kitchen, Vol. 2 (2017) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129471.jpgsave_picture_129471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129471.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - My Electronic Kitchen, Vol. 2 (2017) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129472.jpgsave_picture_129472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129472.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - My Electronic Kitchen, Vol. 1 (2016) [AAC|~335 Kbps] <Lounge, Chill Out, Do
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129473.jpgsave_picture_129473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129473.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Law Of The Tongue - Law Of The Tongue (2012) [MP3|320 кб/с]<Sludge Stoner>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129474.jpgsave_picture_129474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129474.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Find Any File (FAF) 2.3.3b1 [Multi]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129475.jpgsave_picture_129475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129475.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Find Any File не содержит никаких подменю с настр�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129476.jpgsave_picture_129476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129476.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Stil vor Talent 300, Pt. 1 (2021) [AAC|~326 Kbps] <Melodic House, Progressi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129477.jpgsave_picture_129477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129477.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ aText 2.40.4 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129478.jpgsave_picture_129478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129478.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - My Electronic Kitchen, Vol. 3 (2017) [AAC|~324 Kbps] <Lounge, Chill Out, Do
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129479.jpgsave_picture_129479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129479.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129480.jpgsave_picture_129480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129480.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Stil vor Talent 300, Pt. 2 (2021) [AAC|~315 Kbps] <Melodic House, Progressi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129481.jpgsave_picture_129481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129481.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Absolva - Never a Good Day to Die (2015) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129482.jpgsave_picture_129482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129482.jpg" />
 </div>
 
 

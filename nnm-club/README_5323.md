@@ -6,7 +6,7 @@ Das EFX - Real Hip-Hop (2019) Reissue, Compilation [FLAC|Lossless|Web-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165227.jpgsave_picture_165227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165227.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adobe Media Encoder 24.0.2.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165228.jpgsave_picture_165228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165228.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Music News vol.155 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165229.jpgsave_picture_165229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165229.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mp3tag 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165230.jpgsave_picture_165230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165230.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:66918C53D6CB9B02E4ACEF7C0EC27EB102648ED0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165231.jpgsave_picture_165231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165231.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Its Time To Party December (2019) [MP3|320 Kbps] <Electro, Big Room, Dutch 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165232.jpgsave_picture_165232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165232.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Unclutter 2.1.25 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165233.jpgsave_picture_165233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165233.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Topaz Video AI 4.0.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165234.jpgsave_picture_165234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165234.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:46654C675F283A1157AD5ED214ED6729872EB022
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165235.jpgsave_picture_165235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165235.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Christmas Rock Legends (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165236.jpgsave_picture_165236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165236.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:D41D23BDF2B4D6600C9268F13AB7ACB2574D46B7
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165237.jpgsave_picture_165237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165237.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Screenshot touch v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165238.jpgsave_picture_165238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165238.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:7732D4ECDACEDCE899C7B25CD9EABE82C7A6DD01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165239.jpgsave_picture_165239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165239.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ The Baylor Project - Generations (2021) [AAC|~343 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165240.jpgsave_picture_165240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165240.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:51B498BC07D11D8EB19512630947CA5190095746
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165241.jpgsave_picture_165241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165241.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:DEB2E2DCC178B9182AD0B4243282F261B5BB8614
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165242.jpgsave_picture_165242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165242.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Listen Audiobook Player v5.2.1 (972) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165243.jpgsave_picture_165243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165243.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Omega - Testamentum (Búcsúztató) (2021) Maxi Single [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165244.jpgsave_picture_165244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165244.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ djay - DJ App & AI Mixer 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165245.jpgsave_picture_165245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165245.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Dark Pink Moon - A Chill Out Tribute To Pink Floyd (2002) [MP3|320 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165246.jpgsave_picture_165246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165246.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:5D1432A566E1FCD47EE162DBB010796021D3DF87
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165247.jpgsave_picture_165247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165247.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Ripper - Return To Death Row (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165248.jpgsave_picture_165248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165248.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Icecream Screen Recorder Pro 7.31 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165249.jpgsave_picture_165249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165249.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Freddie Gibbs & Amerigo Gazaway - A Freddie Christmas Album (2019) [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165250.jpgsave_picture_165250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165250.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165251.jpgsave_picture_165251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165251.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Bill Evans - 25 Evans (2005) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165252.jpgsave_picture_165252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165252.jpg" />
 </div>
 
 

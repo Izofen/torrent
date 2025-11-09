@@ -6,7 +6,7 @@ Merv Spence - Phenomena Recovered (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237603.jpgsave_picture_237603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237603.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Smoke 'N' Flame - On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237609.jpgsave_picture_237609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237609.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Excalion - Emotions (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237614.jpgsave_picture_237614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237614.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lions at the Gate (ex. El Nino) - 2 Singles (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237617.jpgsave_picture_237617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237617.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Czakan - Unreal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237626.jpgsave_picture_237626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237626.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Wonders - Beyond The Mirage (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237627.jpgsave_picture_237627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237627.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Inner Prospekt - Canvas Two (2021) [MP3|320 Kbps] <Progressive Rock, Crossover P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237629.jpgsave_picture_237629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237629.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Overkill - Scorched (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash-metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237634.jpgsave_picture_237634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237634.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Coronary - Sinbad (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237641.jpgsave_picture_237641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237641.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Eyes of Eva - Temptation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237643.jpgsave_picture_237643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237643.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Hard Buds - Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237649.jpgsave_picture_237649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237649.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Black & Damned - Heavenly Creatures (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237650.jpgsave_picture_237650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237650.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Elvenpath - Faith Through The Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237656.jpgsave_picture_237656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237656.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Total - 4 Albums + 7 Singles (2001-2021) [FLAC, WV|Lossless|image + .cue, tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237659.jpgsave_picture_237659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237659.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ MotorTrinken - 2 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237661.jpgsave_picture_237661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237661.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Fifth Angel - When Angels Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237669.jpgsave_picture_237669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237669.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ False Memories - Hybrid Ego System (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237675.jpgsave_picture_237675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237675.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Saturnus - The Storm Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237677.jpgsave_picture_237677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237677.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Lattermath - Winter's Painting (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237679.jpgsave_picture_237679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237679.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Shamael - Il Suono Di Mille Orchestre, Parte I (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237686.jpgsave_picture_237686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237686.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Slow Fall - Obsidian Waves (2023) [MP3|320 Kbps] <Progressive Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237687.jpgsave_picture_237687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237687.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Random - Reloaded (2010) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237701.jpgsave_picture_237701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237701.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Pounder - Breaking The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237723.jpgsave_picture_237723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237723.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Leper Colony - Leper Colony (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237727.jpgsave_picture_237727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237727.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237728.jpgsave_picture_237728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237728.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Gods of Gaia - As Daylight Dies (2023) [MP3|320 Kbps] <Symphonic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237731.jpgsave_picture_237731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237731.jpg" />
 </div>
 
 

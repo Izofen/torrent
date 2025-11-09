@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55409.jpgsave_picture_55409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55409.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55410.jpgsave_picture_55410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55410.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4FBE8BD95E812EA1D6485CF8DB19E32B35CF3018
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55411.jpgsave_picture_55411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55411.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.5r2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55412.jpgsave_picture_55412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55412.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:09E63453AE5EEA27E2B96A71C8B92AF90138674C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55413.jpgsave_picture_55413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55413.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F489B68C9C602F8ED3C532F6AC916F5711999AEF
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55414.jpgsave_picture_55414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55414.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Topaz Gigapixel AI 7.1.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55415.jpgsave_picture_55415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55415.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3F55D7878CC01405A6E27734EF1A2214768E8E6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55416.jpgsave_picture_55416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55416.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - РАДИО БАТЯ - 010 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55417.jpgsave_picture_55417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55417.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:32EC1920368DD1CD9AF4B5A911891A7EE5A09407
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55418.jpgsave_picture_55418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55418.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C06A3302E9F3B18A064FB0B00D00AEBD51ED9B83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55419.jpgsave_picture_55419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55419.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:0442AE012ECD2BDEFAECB4087ABCEAB8E6FF9A2D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55420.jpgsave_picture_55420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55420.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:607A3853668B55455C2CF8C525A9EF52DA4C3EA0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55421.jpgsave_picture_55421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55421.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - РАДИО БАТЯ - 009 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55422.jpgsave_picture_55422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55422.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:AD34CD56A45087C87DDBAA4F4A90B24B07DB85C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55423.jpgsave_picture_55423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55423.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:DAB5991ADB599B52757CC64BE32847A60B2B1CEB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55424.jpgsave_picture_55424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55424.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:CC2F98933527C157079AA58DB7962F8F93A69AB5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55425.jpgsave_picture_55425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55425.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4A35D4C44468239929FEAE2A5E36F0F723759D3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55426.jpgsave_picture_55426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55426.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:AF4600A5E7F3BE23E4816427AC26B1891D72742B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55427.jpgsave_picture_55427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55427.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Blackmagic Design Fusion Studio 19.0 Build 29 (x64) Public Beta 3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55428.jpgsave_picture_55428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55428.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Navier HUD 3.4.22 Mod by youarefinished [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55429.jpgsave_picture_55429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55429.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Foreca Погода / Foreca Weather 4.55.6 (ARM64) Lite-Mod by alenka_persikova
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55430.jpgsave_picture_55430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55430.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:0EFA565E3E43035007E7EDBE20404DD9DCEE7604
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55431.jpgsave_picture_55431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55431.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:926716BE692CA64C516BB1E00700B6D186C6C348
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55432.jpgsave_picture_55432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55432.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Navier HUD 3.4.22 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55433.jpgsave_picture_55433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55433.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - YHV Organic House (Summer Sampler 2024) [MP3|320 Kbps] <Organic House, Down
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55434.jpgsave_picture_55434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55434.jpg" />
 </div>
 
 

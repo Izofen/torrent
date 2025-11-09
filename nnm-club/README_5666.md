@@ -6,7 +6,7 @@
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174447.jpgsave_picture_174447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174447.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:232CBB1F89497283AB7B4A976CB92EFF2BCCD98F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174449.jpgsave_picture_174449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174449.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Spotify 1.2.21.1104 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174450.jpgsave_picture_174450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174450.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F892FBD1B8AB4F0344E2B5568498CF0BD9649772
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174451.jpgsave_picture_174451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174451.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Vivaldi 5.6.2867.36 + Автономная версия (standalone) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174453.jpgsave_picture_174453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174453.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:957E8C04E68F75A017624945EB6A3A382FD08992
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174454.jpgsave_picture_174454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174454.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2188F7F19E8BA155D70119FA5FAA4884B7A3355B
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174455.jpgsave_picture_174455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174455.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:12B1ABD0EDCE3A47AF2FEE1C39DF2E12448AF660
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174457.jpgsave_picture_174457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174457.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:113EDE190768AE6312DA542A3018BE630138F74B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174458.jpgsave_picture_174458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174458.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Auslogics Video Grabber 1.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174460.jpgsave_picture_174460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174460.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D184DA4763144F40949719EC9663A7895A891736
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174461.jpgsave_picture_174461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174461.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:183547593553547A9940D42A82CF8E4612760245
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174462.jpgsave_picture_174462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174462.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ NVIDIA GeForce Desktop Game Ready 537.58 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174464.jpgsave_picture_174464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174464.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Mirillis Action! 4.30.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174465.jpgsave_picture_174465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174465.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ GOM Player Plus 2.3.81.5348 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174466.jpgsave_picture_174466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174466.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022)
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174467.jpgsave_picture_174467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174467.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Revo Uninstaller Pro 5.0.8 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174468.jpgsave_picture_174468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174468.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:3468DC7634BB4634DB5B62B09C9E0C91FAFCC520
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174469.jpgsave_picture_174469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174469.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:BD63217600DFF10FC890D108E8304AB7DC43E29A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174470.jpgsave_picture_174470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174470.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:B872060485A727E9DE6871E8A030469E7185CC3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174471.jpgsave_picture_174471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174471.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:5C1617F788F361FB55974C7D254951E1DA7F4A3D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174472.jpgsave_picture_174472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174472.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ NIUBI Partition Editor 9.1.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174474.jpgsave_picture_174474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174474.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Auslogics Windows Slimmer 4.0.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174475.jpgsave_picture_174475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174475.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Blind Guardian - Imaginations From The Other Side (2020) Live [MP3|320 Kbps] <He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174476.jpgsave_picture_174476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174476.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Telegram Desktop 4.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174477.jpgsave_picture_174477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174477.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:DE143DC183CAD8CC03C3839708F9358672EBA3BE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174479.jpgsave_picture_174479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174479.jpg" />
 </div>
 
 

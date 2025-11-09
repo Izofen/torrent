@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_684.jpgsave_picture_684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_684.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5D809DE0CAE0358BC42153E6D7FC20DB807DB899
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_685.jpgsave_picture_685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_685.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0ABE56FAE4413FF263B6AB515AAF16D273195C99
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_686.jpgsave_picture_686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_686.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Google призналась в разработке Android для ПК — гл
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_687.jpgsave_picture_687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_687.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Google сделала самый прозрачный намёк на то, чт
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_688.jpgsave_picture_688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_688.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:2E96EA3B34244C6E5A53C6692AAC0682C16F382A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_689.jpgsave_picture_689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_689.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:803D07829DFF03629221DE072A7AA2835CFD883F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_690.jpgsave_picture_690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_690.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:B7E249B0F550A73D64BC75AFAB58C48AD7D63CB5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_691.jpgsave_picture_691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_691.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Tougen Anki | Legend of the Cursed Blood | Тёмный демон [2025, TV, 12
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_692.jpgsave_picture_692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_692.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Anne Shirley | Энн Ширли [2025, TV, 24 эп.] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_693.jpgsave_picture_693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_693.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Silent Witch: Chinmoku no Majo no Kakushigoto / Secrets of the Silent Witch / М
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_694.jpgsave_picture_694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_694.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ TurretGirls (2025) [Multi] (1.0.2) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_696.jpgsave_picture_696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_696.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:D6A695949AD5451BA954D07B36CCCF494DCA85A4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_697.jpgsave_picture_697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_697.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D6A695949AD5451BA954D07B36CCCF494DCA85A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_698.jpgsave_picture_698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_698.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:366A50029B1653282CB0486130EFF3910CFC4CFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_699.jpgsave_picture_699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_699.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.2/dlc) Repack Let'sРlay [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_700.jpgsave_picture_700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_700.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:341DA446622173A4A082294B8DC206360D1B5A31
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_701.jpgsave_picture_701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_701.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:8028D8FFA284E6051F48210637F97474C2208417
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_702.jpgsave_picture_702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_702.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:F9019DAB4326EB4D7FF98408B6FEE15A05D41030
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_703.jpgsave_picture_703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_703.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:5FC28059E2242B9D692321DB862E54B6F36F936B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_704.jpgsave_picture_704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_704.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E995B025BADE2FF73D047806497D5602D3DC1A50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_705.jpgsave_picture_705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_705.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Undead West (2024) [Ru/Multi] (1.0.4.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_706.jpgsave_picture_706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_706.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:297702138D89F6881D51F04C965A28835639E329
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_707.jpgsave_picture_707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_707.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:2B4042CB7AA2817E5FB8F7143618EB4B70FC9C64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_708.jpgsave_picture_708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_708.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:5AB63EFEB9C54A6C37737C5336C9611455929FD1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_709.jpgsave_picture_709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_709.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:BE105780DA347D533973667D52AB5D0FEA1E1CE9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_710.jpgsave_picture_710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_710.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120592.jpgsave_picture_120592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120592.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120593.jpgsave_picture_120593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120593.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Sarah Vaughan - Four Classic Albums (1954 - 1957) 2CD, 2019, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120594.jpgsave_picture_120594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120594.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slower - Slower (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal, Heavy P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120595.jpgsave_picture_120595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120595.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Maze Of Sothoth - Extirpated Light (2023) [FLAC|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120596.jpgsave_picture_120596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120596.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sentencia - Tronos de Maldad (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120597.jpgsave_picture_120597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120597.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ JD Allen - Barracoon (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120598.jpgsave_picture_120598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120598.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Cognizance - Phantazein (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technical 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120599.jpgsave_picture_120599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120599.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Fast Aggressive - Волюнтаризм (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120600.jpgsave_picture_120600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120600.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Vintage Culture - Live @ VNTG Is A Festival,Sao Paulo Brazil (2023-12-09) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120601.jpgsave_picture_120601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120601.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Soulstance - The Jazz Art Of Relax Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120602.jpgsave_picture_120602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120602.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:43469B7DFAF5017B02081F9277D2F63F4760B73B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120603.jpgsave_picture_120603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120603.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Nevermore (& Sanctuary; Warrel Dane) - Studio Albums (12 releases) (1995-2018) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120604.jpgsave_picture_120604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120604.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:CAE1A42BD7D81B818E2D436A1386A53649BBE001
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120605.jpgsave_picture_120605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120605.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ iA Writer 7.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120606.jpgsave_picture_120606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120606.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Bjorn (Bjørn)  Berge - Introducing SteelFinger Slim (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120607.jpgsave_picture_120607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120607.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Thunder - Live at Islington Academy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120608.jpgsave_picture_120608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120608.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:043EFE4F8560474257AB0ECEB78397C5A56A5AC5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120609.jpgsave_picture_120609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120609.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Emerald Table - Book of illusion's fragments (2023) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120610.jpgsave_picture_120610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120610.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Sleater-Kinney - Little Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120611.jpgsave_picture_120611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120611.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:F76E7DFFA9DF28707E84DDCE6AA0E3B67A6D899B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120612.jpgsave_picture_120612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120612.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120613.jpgsave_picture_120613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120613.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120614.jpgsave_picture_120614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120614.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Oblivion - Called To Rise (2013) [FLAC|Lossless|image + .cue] <Technical Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120615.jpgsave_picture_120615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120615.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:2033DD58E7B294FF520BC71475C442A09474DA50
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120616.jpgsave_picture_120616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120616.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120617.jpgsave_picture_120617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120617.jpg" />
 </div>
 
 

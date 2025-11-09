@@ -6,7 +6,7 @@ Make Mama Proud - Make Mama Proud II (2022) [MP3|320 Kbps] <Stoner Rock, Heavy P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243420.jpgsave_picture_243420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243420.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4780421F802AD50BCB39F490C7B8BB602B7B65F2
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243421.jpgsave_picture_243421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243421.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Ohhms - Rot (2023) [MP3|320 Kbps] <Sludge, Doom, Stoner, Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243422.jpgsave_picture_243422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243422.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:4BE87B85F326F89A599BA5A9843A95E1B23BBF1B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243423.jpgsave_picture_243423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243423.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:16FDBD2AF9E7581E39024146C6B04E59096D0E78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243424.jpgsave_picture_243424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243424.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ VA - 00s Anthems (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243425.jpgsave_picture_243425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243425.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Cisdem Data Recovery 6.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243426.jpgsave_picture_243426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243426.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ PrivaZer 4.0.69 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243427.jpgsave_picture_243427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243427.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:A416FE610B5B03784E9157F7846003F7F7EEB872
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243428.jpgsave_picture_243428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243428.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:56F65C7E9847935952E1D14EAB7B9DBE7392EE9B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243429.jpgsave_picture_243429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243429.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ TG Pro (Temperature Gauge Pro) 2.67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243430.jpgsave_picture_243430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243430.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Hayit Murat - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243431.jpgsave_picture_243431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243431.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ National Youth Jazz Orchestra - Remembrance (1991) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243432.jpgsave_picture_243432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243432.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:DF63184FDB2A18298179FC499D7386BCC707F504
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243433.jpgsave_picture_243433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243433.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - The Savory Collection 1935-1940 (2018) 6CD, Mosaic Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243434.jpgsave_picture_243434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243434.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:8969C04D73F6498C82CCC236F325841CF50A158B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243435.jpgsave_picture_243435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243435.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Veronica Swift - This Bitter Earth (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243436.jpgsave_picture_243436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243436.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Fellowship - The Saberlight Chronicles (2022) [FLAC|Lossless|tracks + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243437.jpgsave_picture_243437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243437.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Sunshine Universe Harmonies (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243438.jpgsave_picture_243438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243438.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Chromium 111.0.5563.147 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243439.jpgsave_picture_243439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243439.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ DP Animation Maker 3.5.16 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243440.jpgsave_picture_243440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243440.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:D3D56F1D694962B92A5B5E58439B91BB840E6C03
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243441.jpgsave_picture_243441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243441.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:3290CE0A231197D7FDD4E8B7726F4DAE77B6BBED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243442.jpgsave_picture_243442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243442.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Cirez D(Eric Prydz) - Live @ Seismic Dance Event, United States (Beats 1 Eric Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243443.jpgsave_picture_243443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243443.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:04E5623FEF469B3FC2E039E04AE5A4D45915A851
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243444.jpgsave_picture_243444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243444.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:7AC51DEC4CBBE740833C2C90761F4D1C83A2616A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243445.jpgsave_picture_243445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243445.jpg" />
 </div>
 
 

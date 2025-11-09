@@ -6,7 +6,7 @@ Affinity Studio 3.0.1.3808 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251844.jpgsave_picture_251844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251844.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ V-Ray 6.00.03 for SketchUp 2019-2023 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252198.jpgsave_picture_252198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252198.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.3 Build 6 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252268.jpgsave_picture_252268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252268.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Zoner Photo Studio X 19.2509.2.661 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252281.jpgsave_picture_252281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252281.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ FireAlpaca 2.13.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252284.jpgsave_picture_252284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252284.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ MKVToolNix 96.0 Stable + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252324.jpgsave_picture_252324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252324.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Dopamine 3.0.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252330.jpgsave_picture_252330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252330.jpg" />
 </div>
 
 

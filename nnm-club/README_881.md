@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23245.jpgsave_picture_23245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23245.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:02C3FF944412C7897A6AA4659E8A385D11BE4F05
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23246.jpgsave_picture_23246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23246.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:98237FCB036762FD26A9C8E395F62D57250FA101
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23247.jpgsave_picture_23247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23247.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ChatGPT-4; М.Р. Брослав, О.А. Яблокова (сост.) | Авто
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23248.jpgsave_picture_23248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23248.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A48D02FA67302CF62B96789B10986AAD059B9610
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23249.jpgsave_picture_23249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23249.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:811BDEA2FC505A2E13FA4877C3271CA44BA2AC80
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23250.jpgsave_picture_23250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23250.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:69547C92279718BFA950A4B525DECC1B8408D2DE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23251.jpgsave_picture_23251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23251.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:9983F54CAD3EA7F845FD531C4B5C5A89442B84AD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23252.jpgsave_picture_23252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23252.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23253.jpgsave_picture_23253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23253.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Exact Audio Copy 1.8 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23254.jpgsave_picture_23254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23254.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:418DAC6461338F1FCE500D8CA85F6CC73C11E6E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23255.jpgsave_picture_23255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23255.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:2B0FDE0379D64C76A315111799D976B256783C3F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23256.jpgsave_picture_23256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23256.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ I Am Future: Cozy Apocalypse Survival (2024) [Ru/Multi] (1.2.0.009r) Repack Let'
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23257.jpgsave_picture_23257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23257.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:C393CFFCDBF70BD9D8781D048F953EC8AC27DDBE
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23258.jpgsave_picture_23258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23258.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:CC7F2D1F1DE047654CB5297AB2921628CA90D6FF
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23259.jpgsave_picture_23259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23259.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D68C7235C6B3B5A129072414A3C1668AB6E6FFDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23260.jpgsave_picture_23260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23260.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Topaz Gigapixel AI Pro 8.3.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23261.jpgsave_picture_23261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23261.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:50C21B2C1E5F30FA6E4CD428AB2FD4A75FFA6921
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23262.jpgsave_picture_23262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23262.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:066ABC3B375FFE19927ED4986F388F8FC234944C
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23263.jpgsave_picture_23263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23263.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:F700DEC39D024FAC25F28281D3367AA42FEFE7CA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23264.jpgsave_picture_23264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23264.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:F700DEC39D024FAC25F28281D3367AA42FEFE7CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23265.jpgsave_picture_23265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23265.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Nordhold (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23266.jpgsave_picture_23266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23266.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:59613E8A9C1236DC072DB1EF3BBB291FE0BCD921
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23267.jpgsave_picture_23267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23267.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:956A84B1E3C9D6F6FB87E18B06E14B177811550F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23268.jpgsave_picture_23268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23268.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:292D3A90629B29DFADE25B161DAA36B76C92FB7C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23269.jpgsave_picture_23269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23269.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Ryse: Son of Rome (2014) [Ru/En] (1.0.0.153/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23270.jpgsave_picture_23270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23270.jpg" />
 </div>
 
 

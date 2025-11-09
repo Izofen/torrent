@@ -6,7 +6,7 @@ Saltatio Mortis - Das Schwarze IXI (2013) [FLAC|Lossless|image + .cue] <Folk Met
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177030.jpgsave_picture_177030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177030.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Masaki - Feed The Flame (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177032.jpgsave_picture_177032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177032.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sonny Rollins & Heikki Sarmanto Trio - Live at Finlandia Hall Helsinki (1972) 20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177038.jpgsave_picture_177038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177038.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Poisonblack - Lust Stained Despair (2006) [FLAC|Lossless|image + .cue] <Gothic M
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177041.jpgsave_picture_177041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177041.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Poisonblack - A Dead Heavy Day (2008) [FLAC|Lossless|image + .cue] <Gothic Metal
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177044.jpgsave_picture_177044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177044.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Exhumed - Beyond The Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Gri
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177049.jpgsave_picture_177049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177049.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Saltatio Mortis - Aus Der Asche (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177053.jpgsave_picture_177053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177053.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Saltatio Mortis - Aus Der Asche (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177087.jpgsave_picture_177087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177087.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Saltatio Mortis - Aus Der Asche (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177102.jpgsave_picture_177102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177102.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Saltatio Mortis - Aus Der Asche (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177122.jpgsave_picture_177122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177122.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Saltatio Mortis - Aus Der Asche (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177131.jpgsave_picture_177131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177131.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:3147A4FEA0E8B9269712A86D6768C1DC3D4042A0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177132.jpgsave_picture_177132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177132.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Chromium 108.0.5359.72 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177134.jpgsave_picture_177134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177134.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:18F30BABFC4C59652771DBA7F352D00D00A36E51
 >>Мультимедийные материалы для родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177135.jpgsave_picture_177135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177135.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (6.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177136.jpgsave_picture_177136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177136.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:477EC3FAA5CC1170A12233601AF121ADBDE1918D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177138.jpgsave_picture_177138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177138.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:9B8E03E1DD0B119AB5949D9C8F22052A04BB3226
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177139.jpgsave_picture_177139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177139.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mozilla Thunderbird 102.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177140.jpgsave_picture_177140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177140.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:62E9003E8D40B90B3C71D793F266515829B80C36
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177142.jpgsave_picture_177142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177142.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:5C879E7A31D76C882CFB9505BBAA055D5873968D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177143.jpgsave_picture_177143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177143.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:CBDCB49C8554183C00D90AC692369CD92A3B0AC3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177144.jpgsave_picture_177144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177144.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:3870340AE4CF9527EB05EE4167684401054BFE64
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177146.jpgsave_picture_177146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177146.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:35596449C097A40062037AA63C2FF94DBB0AF6EB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177147.jpgsave_picture_177147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177147.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:67C0B45B61EEA5E6DC27068F28EB34717EAEFB90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177148.jpgsave_picture_177148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177148.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ EarthView 7.4.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177149.jpgsave_picture_177149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177149.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:0DA287812D1354CE10257B7C0F1D800896E62872
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177150.jpgsave_picture_177150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177150.jpg" />
 </div>
 
 

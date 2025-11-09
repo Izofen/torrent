@@ -6,7 +6,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20522.jpgsave_picture_20522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20522.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20523.jpgsave_picture_20523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20523.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20527.jpgsave_picture_20527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20527.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6E765DD6AC5613FB5F6AC4EB6FFF4018A9868772
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20542.jpgsave_picture_20542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20542.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20543.jpgsave_picture_20543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20543.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20544.jpgsave_picture_20544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20544.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Forever Winter (2024) [Ru/Multi] (0.1.45959.0) Repack Pioneer [Early Access 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20555.jpgsave_picture_20555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20555.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Multi] (0.411.140.0/dlc) S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20570.jpgsave_picture_20570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20570.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20573.jpgsave_picture_20573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20573.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Synergy (2024) [Ru/Multi] (1.0.2504161516/dlc) Repack FitGirl [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20608.jpgsave_picture_20608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20608.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGir
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20610.jpgsave_picture_20610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20610.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0 Build 8682/dlc) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20613.jpgsave_picture_20613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20613.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20615.jpgsave_picture_20615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20615.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.11025947/dlc) Repack Wanterlude [Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20619.jpgsave_picture_20619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20619.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20623.jpgsave_picture_20623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20623.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16.269) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20630.jpgsave_picture_20630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20630.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ House of Golf 2 (2024) [Ru/Multi] (1.2.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20639.jpgsave_picture_20639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20639.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145-gentle-wolf/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20640.jpgsave_picture_20640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20640.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Artisan TD (2024) [Ru/Multi] (1.310) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20652.jpgsave_picture_20652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20652.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Haydee III (3) (2025) [Ru/Multi] (1.0.21.1529/dlc) Repack Other s [18+]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20654.jpgsave_picture_20654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20654.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) License GOG [Soundtrack Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20664.jpgsave_picture_20664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20664.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 17120566) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20666.jpgsave_picture_20666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20666.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Arms Trade Tycoon: Tanks (2024) [En] (1.1.8.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20667.jpgsave_picture_20667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20667.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Air Xonix 3D / Воздушный ксоникс (L) [Ru] 2005
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20671.jpgsave_picture_20671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20671.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20721.jpgsave_picture_20721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20721.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Creepy Shift: House For Sale (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20722.jpgsave_picture_20722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20722.jpg" />
 </div>
 
 

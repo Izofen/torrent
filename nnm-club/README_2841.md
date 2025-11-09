@@ -6,7 +6,7 @@ Native Instruments - Guitar Rig Pro 5.0.2 by ASSiGN [x86 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82571.jpgsave_picture_82571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82571.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Native Instruments Guitar Rig 5 Pro - универсальный студийн�
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82575.jpgsave_picture_82575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82575.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D41B421834F1358C886134EDA181C59998A69C95
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82576.jpgsave_picture_82576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82576.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A24B67910C98C218033AE907B34DB10BAEB00561
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82577.jpgsave_picture_82577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82577.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2FA2A7C8B697A3EABAA38770B17C64D38851B0EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82579.jpgsave_picture_82579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82579.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Windows 7 Ultimate SP1 х86 by Loginvovchyk с программами {Март 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82580.jpgsave_picture_82580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82580.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Windows 7 Ultimate SP1 х86 by Loginvovchyk с программами {Март 
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82581.jpgsave_picture_82581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82581.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:DD5848B34D63126B84DB01C264E3FBD3E3BA0884
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82582.jpgsave_picture_82582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82582.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ AntiSMS 1.8 [Rus] simplix Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82583.jpgsave_picture_82583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82583.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ AntiSMS 1.8 [Rus] simplix Edition
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82584.jpgsave_picture_82584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82584.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:A104F19D23F933BCB0608424268A322E89CC2F05
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82587.jpgsave_picture_82587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82587.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D639A0B7DD024ED798EB23918F0E1112C6E417BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82590.jpgsave_picture_82590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82590.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:D639A0B7DD024ED798EB23918F0E1112C6E417BA
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82591.jpgsave_picture_82591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82591.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:371057457F32BB0352336804843D03F7755A498A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82594.jpgsave_picture_82594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82594.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:AA3892D2884915820C170728E692D398AC8543C2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82596.jpgsave_picture_82596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82596.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:D2E3D62FEB0F56D2F046642868D260EB1FF64BD7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82597.jpgsave_picture_82597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82597.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Mystery Chronicles: Murder Among Friends / Загадочное происшес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82598.jpgsave_picture_82598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82598.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:CD9C2C3FAC7E24793CBEFE3271B89B8031677641
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82599.jpgsave_picture_82599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82599.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:69E9A5702712C1877BF3D754234139C7521B4499
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82604.jpgsave_picture_82604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82604.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:934C0F4A52C02E899A1893017D08863F5B4E4D6C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82609.jpgsave_picture_82609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82609.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:934C0F4A52C02E899A1893017D08863F5B4E4D6C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82610.jpgsave_picture_82610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82610.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:455B8D23E298691BA71747ACE42FE7329986DA55
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82611.jpgsave_picture_82611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82611.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:7E833E9371054CE87461099CDD8CED5C85CC76F1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82616.jpgsave_picture_82616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82616.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:ABBD0A48FB266B64D801DCAE8705D207C1407290
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82618.jpgsave_picture_82618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82618.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:4A9EF192CC626C06E570EC9687905F4CDC1D51A9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82619.jpgsave_picture_82619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82619.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Audio Damage - Ratshack Reverb 2.1.0 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82622.jpgsave_picture_82622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82622.jpg" />
 </div>
 
 

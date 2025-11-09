@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123765.jpgsave_picture_123765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123765.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Everspace 2 (2021) [Ru/Multi] (1.1.36529) Scene Tenoke
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123766.jpgsave_picture_123766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123766.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinRAR 6.24 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123767.jpgsave_picture_123767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123767.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BDFFAB779916ACE9DD90EA4E3E4D0CC085B07892
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123768.jpgsave_picture_123768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123768.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:256F280199103B45B5892ADBFC54350BD2E7C886
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123769.jpgsave_picture_123769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123769.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:97E2D9A32B8EFECBEA7285E715C058CA743103E3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123770.jpgsave_picture_123770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123770.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A2421EFE3C63B67FE2AD2FDCBB91FD213E49DD87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123771.jpgsave_picture_123771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123771.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Лучшие песни Радио DFM за 2023 год (2024) [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123772.jpgsave_picture_123772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123772.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:70FA2CFE3B6DF22C28FDBBD8DF7E5BAD42FBA2FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123773.jpgsave_picture_123773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123773.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:96FCACC25D390C96762A3BC3706D51A631C5EC36
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123774.jpgsave_picture_123774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123774.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F99CB181B5385C6958C88D520D6B1280D1EF51AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123775.jpgsave_picture_123775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123775.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gregorio Allegri - Miserere (The Sixteen, Christophers; et al) (2008) Compilatio
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123776.jpgsave_picture_123776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123776.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:687F6519CF42112E8F34CF008C4D9C2A76E548B8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123777.jpgsave_picture_123777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123777.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Monkey's Audio 10.42 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123778.jpgsave_picture_123778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123778.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B20F1BA2757E39A9C4B4250F8E999E3F2125D276
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123779.jpgsave_picture_123779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123779.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:29FA7105FC5193A0AC66A61D5289B0DFB96AC5D4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123780.jpgsave_picture_123780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123780.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Penfield - We All Fall Apart (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123781.jpgsave_picture_123781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123781.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Lumiere Trouble - Sisterie (2023) [MP3|320 Kbps] <Rock Opera, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123782.jpgsave_picture_123782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123782.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Nothing But... Trancetopia Vol. 11 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123783.jpgsave_picture_123783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123783.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123784.jpgsave_picture_123784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123784.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:196C0F02C6C78DEE8775067FFA3BA67A96E12095
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123785.jpgsave_picture_123785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123785.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:A7517B230DB24B1D63F74706558B6974F94E2C1E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123786.jpgsave_picture_123786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123786.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:20C1D34852ACB526C35ADB11210D6DE58A61733C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123787.jpgsave_picture_123787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123787.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:A53556D9AE8C112794B16042506FA37A42C177D6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123788.jpgsave_picture_123788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123788.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - One Year Anniversary (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123789.jpgsave_picture_123789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123789.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:52D2165E30F7DA668E7F3BA280378C69F79DB751
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123790.jpgsave_picture_123790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123790.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Jerry Phillips - For The Universe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104826.jpgsave_picture_104826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104826.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ T. Graham Brown - From Memphis to Muscle Shoals (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104829.jpgsave_picture_104829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104829.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Enslaved - Studio Albums (19 releases) (1993-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104834.jpgsave_picture_104834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104834.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:61AB8827AA09E7DC99F5D02F2F6CB35B16FDAA83
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104868.jpgsave_picture_104868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104868.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Violent Homicidal Slasher (VHS) - For a Few Riffs More (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104901.jpgsave_picture_104901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104901.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dust Bolt - Studio Albums (6 releases) (2010-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104902.jpgsave_picture_104902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104902.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Joji - Nectar (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop, Neo-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104912.jpgsave_picture_104912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104912.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lamb of God - Ashes of the Wake (2004) 20th Anniversary Edition, 2024, Epic - Le
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104915.jpgsave_picture_104915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104915.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Lazarus A.D. - Studio Albums (2 releases) (2009-2011) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104922.jpgsave_picture_104922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104922.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Endrick & the Sandwiches - Straight Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104926.jpgsave_picture_104926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104926.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Gordo - Diamante (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104928.jpgsave_picture_104928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104928.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Tanzwut - Achtung Mensch! (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104941.jpgsave_picture_104941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104941.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Deluxe Version [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104942.jpgsave_picture_104942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104942.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Kehlani - While We Wait 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Funk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104943.jpgsave_picture_104943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104943.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Iamx - Fault Lines² (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <dark electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104944.jpgsave_picture_104944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104944.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Iamx - Fault Lines¹ (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <dark electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104945.jpgsave_picture_104945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104945.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Shemekia Copeland - Blame It On Eve (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104947.jpgsave_picture_104947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104947.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Fiona Cosgrove - Fiona Cosgrove Introspective (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104949.jpgsave_picture_104949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104949.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Haken - Studio Albums (9 releases) (2008-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104950.jpgsave_picture_104950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104950.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Frank Catalano & Lurrie Bell - Set Me Free (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104965.jpgsave_picture_104965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104965.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Leprous - Melodies Of Atonement (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104967.jpgsave_picture_104967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104967.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Joji - Smithereens (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104971.jpgsave_picture_104971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104971.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Beyond Veils - Think happy thoughts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104972.jpgsave_picture_104972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104972.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Andre Matos (& Virgo (Matos-Paeth)) - Studio Albums (4 releases) (2001-2012) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105013.jpgsave_picture_105013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105013.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Moonshine Jasmine - Grateful (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105032.jpgsave_picture_105032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105032.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Emily Wurramara - NARA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie-Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105033.jpgsave_picture_105033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105033.jpg" />
 </div>
 
 

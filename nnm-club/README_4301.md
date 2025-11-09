@@ -6,7 +6,7 @@ Kiosc 1.15.13 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133545.jpgsave_picture_133545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133545.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Anger As Art - Virtual Sympathy (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133546.jpgsave_picture_133546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133546.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A580F76B283116B1FEFFA5D0422F88AB4EC2C34E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133548.jpgsave_picture_133548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133548.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:52854AB495159B00FCB8F264307A61380633A2C5
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133550.jpgsave_picture_133550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133550.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4B25C063DAF832449AC55AA59260B8A6B5E80A39
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133551.jpgsave_picture_133551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133551.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Navitel / Навител: Официальные карты релиза Q3 2023
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133553.jpgsave_picture_133553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133553.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:AC66DF2444E0B6B921C272123CBEC52456B45E9B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133554.jpgsave_picture_133554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133554.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A390FF5E19A80FD589F4B2A8F6456DD2E7F47FE1
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133555.jpgsave_picture_133555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133555.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:A390FF5E19A80FD589F4B2A8F6456DD2E7F47FE1
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133556.jpgsave_picture_133556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133556.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1B528C705EB7B109581EE1870E63DBB6E4AA812D
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133557.jpgsave_picture_133557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133557.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C5F456F78A29A52B5155CA31F8A61448EFBED4ED
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133558.jpgsave_picture_133558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133558.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Adobe Photoshop 2024 25.2.0.196 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133559.jpgsave_picture_133559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133559.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Dokken - 27 альбомов (1983 - 2023) 37 CD[FLAC|WavPack|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133561.jpgsave_picture_133561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133561.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Coolutils Total PDF Converter 2.1.229 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133562.jpgsave_picture_133562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133562.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Half-Life (1998) [Ru/En] (12833965) Repack dixen18 [25th Anniversary Update]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133563.jpgsave_picture_133563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133563.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ PROTO - симулятор схем v1.25.0 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133564.jpgsave_picture_133564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133564.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:409805C8BFE485627F08DCCC32AF375078921883
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133566.jpgsave_picture_133566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133566.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Stepik, Дмитрий Фокеев | Adobe After Effects 2023. С нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133567.jpgsave_picture_133567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133567.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133569.jpgsave_picture_133569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133569.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:FD4FA91B665B4E79BC0F44E3A4FD3B574B6D9E45
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133570.jpgsave_picture_133570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133570.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:853402178F575F7574C52D8EC8660BA2D0ECAE81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133571.jpgsave_picture_133571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133571.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:3F0F30338683EC2752737BBB1975D03753ECADD6
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133572.jpgsave_picture_133572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133572.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:06CAC60FD0EEAB8FA88B010A283385CF27588102
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133573.jpgsave_picture_133573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133573.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133575.jpgsave_picture_133575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133575.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - 100 золотых романтических хитов - 10 (2012) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133576.jpgsave_picture_133576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133576.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:BFEBA97CD3483F7142A68E80D104E6C321322098
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133577.jpgsave_picture_133577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133577.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20868.jpgsave_picture_20868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20868.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:54E82C2EBEA5883A72C3D92E22C1394F96F4385F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20869.jpgsave_picture_20869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20869.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0DAE5283079A160A8A68CFE72601180F4409E0EA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20870.jpgsave_picture_20870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20870.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20871.jpgsave_picture_20871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20871.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20872.jpgsave_picture_20872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20872.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20873.jpgsave_picture_20873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20873.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20874.jpgsave_picture_20874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20874.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:8F2EB9B0E66C992596F681890AA0CBFB508D0EF2
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20875.jpgsave_picture_20875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20875.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20876.jpgsave_picture_20876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20876.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0F8109F14BD312B41F5087FF61558C7A723CC298
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20877.jpgsave_picture_20877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20877.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:D967F84112C3B980FB2666A1CEF1074CC22013F4
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20878.jpgsave_picture_20878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20878.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:19A1E371608DC8E5257BC753AD703A16863DBBBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20879.jpgsave_picture_20879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20879.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:FD62135A969EAA20AA431EBF2A373819912A0A7A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20880.jpgsave_picture_20880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20880.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:EE333BE95466C5C57A25C75851703030BC5FD911
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20881.jpgsave_picture_20881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20881.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:EE333BE95466C5C57A25C75851703030BC5FD911
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20882.jpgsave_picture_20882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20882.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:E2E8594BBC78D74C3B406E762370E4F3F5B6D0C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20883.jpgsave_picture_20883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20883.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:E2E8594BBC78D74C3B406E762370E4F3F5B6D0C0
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20884.jpgsave_picture_20884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20884.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Resource Tuner Business | Personal 2.25 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20885.jpgsave_picture_20885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20885.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:CA6C585318D614A0847FB6A89FA41FB86DBC991E
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20886.jpgsave_picture_20886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20886.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Steinberg - HALion 7 7.1.30 STANDALONE, VSTi 3, AAX (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20887.jpgsave_picture_20887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20887.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Beyond Compare Pro 5.0.7.30840 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20888.jpgsave_picture_20888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20888.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:B9DDEF980874D44A8EE50ED48C229971403249A3
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20889.jpgsave_picture_20889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20889.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:2550DBA70685BAECF18F187B46A30B5EFAC12523
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20890.jpgsave_picture_20890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20890.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ IPTV Pro v9.0.14 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20891.jpgsave_picture_20891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20891.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:A16B8C20FB634ECA96BCFAB10983AA43C3EF9F19
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20892.jpgsave_picture_20892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20892.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:D2F450C8FA5770F9C2E5CF72915E830E1A426529
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20893.jpgsave_picture_20893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20893.jpg" />
 </div>
 
 

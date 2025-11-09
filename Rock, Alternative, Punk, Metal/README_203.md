@@ -6,7 +6,7 @@ Nocturna - Daughters Of The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129201.jpgsave_picture_129201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129201.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John Mellencamp - Strictly A One-Eyed Jack (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129218.jpgsave_picture_129218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129218.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129221.jpgsave_picture_129221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129221.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129239.jpgsave_picture_129239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129239.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:4E776C4CE8F58B975186A1A880304C266096B05D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129246.jpgsave_picture_129246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129246.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Foghat - Night Shift (1976) (Reissue 2008), Limited Edition, Remastered K2HD  [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129269.jpgsave_picture_129269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129269.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Gates of Ishtar - The Dawn of Flames (1997) [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129271.jpgsave_picture_129271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129271.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The Alive - Turned up to Destroy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129536.jpgsave_picture_129536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129536.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Ashes Of Ares - Emperors And Fools (2022) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129554.jpgsave_picture_129554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129554.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Ryan Hamilton - 1221 (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129560.jpgsave_picture_129560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129560.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Cryptic Wintermoon - The Age Of Cataclysm (1999) (Reissue 2004) [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129579.jpgsave_picture_129579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129579.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129615.jpgsave_picture_129615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129615.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Raccomandata Ricevuta Ritorno - Il Pittore Volante (2010) [MP3|320 кб/с]<Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129637.jpgsave_picture_129637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129637.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Swallow The Sun - 10 Albums (2003-2021) 14CD [FLAC|Lossless|image + .cue|tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129645.jpgsave_picture_129645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129645.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Boston - Boston (1976) (Reissue 2007) Remastered Japan Edition [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129692.jpgsave_picture_129692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129692.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Six Foot Six - Beggar's Hill (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129727.jpgsave_picture_129727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129727.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Chamelion - Legends & Lores (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129730.jpgsave_picture_129730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129730.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Void - Jadjow (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129735.jpgsave_picture_129735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129735.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Supuration - Promo '91 (1991) Reissue, 2019, Dark Symphonies [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129737.jpgsave_picture_129737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129737.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Supuration - 9092 (1995) Compilation [FLAC|Lossless|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129740.jpgsave_picture_129740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129740.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Neverland In Ashes - Haunted (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129741.jpgsave_picture_129741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129741.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Rik Emmett - Then Again (2012) Remastered, 2023, Deko Entertainment [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129744.jpgsave_picture_129744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129744.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129749.jpgsave_picture_129749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129749.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Dream Drop - Acne Superstar (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129758.jpgsave_picture_129758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129758.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Bad Touch - Bittersweet Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129761.jpgsave_picture_129761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129761.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Green Day - BBC Sessions (2021) Live [FLAC|Lossless|tracks + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129763.jpgsave_picture_129763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129763.jpg" />
 </div>
 
 

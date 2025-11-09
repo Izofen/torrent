@@ -6,7 +6,7 @@ The Sonic Tapestry - Into the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110477.jpgsave_picture_110477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110477.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bobby Watson & Horizon - Horizon Reassembled (2004) Palmetto Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110478.jpgsave_picture_110478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110478.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:53AE5CD30C5F3062EC4611EB0D8A4F42083E0BD9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110479.jpgsave_picture_110479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110479.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Niels van Gogh - Miami (2023) [FLAC|Lossless|tracks] <EDM, Club House, Dance-Pop
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110480.jpgsave_picture_110480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110480.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B1961573AA870C2D5969CE922688C445A6A47F06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110481.jpgsave_picture_110481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110481.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Dave Brubeck - Jazz Impressions Of Japan & Jazz Impressions Of New York (1960, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110482.jpgsave_picture_110482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110482.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110483.jpgsave_picture_110483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110483.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Eve To Adam - Locked and Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110484.jpgsave_picture_110484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110484.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Apenheart - Realizer (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Jaz
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110485.jpgsave_picture_110485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110485.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Sleazy Town - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110486.jpgsave_picture_110486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110486.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Amon Duul II - Yeti (1970) Japanese Edition, Reissue, Remastered, 2005, Belle An
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110487.jpgsave_picture_110487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110487.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:C1904BA50363A58F4ADE3487066CB8F35208D082
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110488.jpgsave_picture_110488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110488.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Burning Black - Resilience of a Broken Heart (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110489.jpgsave_picture_110489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110489.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ACOD - Versets Noirs (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110490.jpgsave_picture_110490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110490.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Vesperian Sorrow - Awaken The Greylight (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110491.jpgsave_picture_110491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110491.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Alchemist - Equilibrium (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110492.jpgsave_picture_110492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110492.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Preacher Stone - V (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110493.jpgsave_picture_110493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110493.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:BF7BEAAC185B303F3D2E0AF6DF1B4667CF2DC714
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110494.jpgsave_picture_110494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110494.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:537F22DCBBD582D7AEA5364324B37E0011E7533B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110495.jpgsave_picture_110495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110495.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Ibiza Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110496.jpgsave_picture_110496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110496.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:AD380DA80357897E993BC9768BD9095C0BDAC4BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110497.jpgsave_picture_110497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110497.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Opera GX 109.0.5097.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110498.jpgsave_picture_110498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110498.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Vivaldi 6.7.3329.21 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110499.jpgsave_picture_110499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110499.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe InCopy 2024 19.4.0.63 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110500.jpgsave_picture_110500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110500.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Firefox Browser 125.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110501.jpgsave_picture_110501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110501.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Fruits Basket: Prelude | Корзинка фруктов: Прелюдия [2022
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110502.jpgsave_picture_110502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110502.jpg" />
 </div>
 
 

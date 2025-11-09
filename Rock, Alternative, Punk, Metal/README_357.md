@@ -6,7 +6,7 @@ Il Bacio della Medusa - Imilla (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204221.jpgsave_picture_204221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204221.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Serpent Bite - Army of Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204222.jpgsave_picture_204222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204222.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Scent of Death - Into Everlasting Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204231.jpgsave_picture_204231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204231.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Serpent Corpse - Blood Sabbath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204233.jpgsave_picture_204233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204233.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Heirloom - Romanticize (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204235.jpgsave_picture_204235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204235.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Morpheus Project By Mustafa Khetty - On The Edge (2023) [FLAC|24/44.1|tracks|WEB
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204242.jpgsave_picture_204242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204242.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Casanovas - Backseat Rhythms (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204245.jpgsave_picture_204245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204245.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Vandenberg - Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204247.jpgsave_picture_204247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204247.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Hot Milk - A Call To The Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Fe
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204248.jpgsave_picture_204248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204248.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Dangerous Summer - Coming Home (2022) Deluxe Edition, 2023, Relapse Records 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204251.jpgsave_picture_204251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204251.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Concrete Castles - Brand New Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204254.jpgsave_picture_204254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204254.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Serpent Bite - Army of Darkness (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204259.jpgsave_picture_204259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204259.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Word Alive - Hard Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204260.jpgsave_picture_204260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204260.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Seraina Telli - Addicted To Color (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204264.jpgsave_picture_204264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204264.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ T. Rex - Elemental Child... Live (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204291.jpgsave_picture_204291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204291.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Nick Cave & Warren Ellis - Australian Carnage (2023) 2 x CD, Live At The Sydney 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204307.jpgsave_picture_204307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204307.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Lions at the Gate (ex. El Nino) - The Excuses We Cannot Make (2023) [FLAC|24/44.
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204321.jpgsave_picture_204321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204321.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Альянс Tribute (2022) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204352.jpgsave_picture_204352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204352.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Exmortus - Necrophony (2023) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204374.jpgsave_picture_204374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204374.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Augurium - Unearthly Will (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204381.jpgsave_picture_204381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204381.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Hurricane - Reconnected (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204403.jpgsave_picture_204403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204403.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Unity - The Hellish Joyride (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204408.jpgsave_picture_204408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204408.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Manntra - Kreatura (2022) [FLAC|24/44.1|tracks|WEB-DL] <Metal, Alternative Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204423.jpgsave_picture_204423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204423.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Marc Hudson - Starbound Stories (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204426.jpgsave_picture_204426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204426.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Daedric - Mortal (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Industrial Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204464.jpgsave_picture_204464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204464.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|24/96|tracks|WEB-DL] 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204490.jpgsave_picture_204490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204490.jpg" />
 </div>
 
 

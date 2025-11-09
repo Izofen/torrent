@@ -6,7 +6,7 @@ BitComet 2.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122185.jpgsave_picture_122185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122185.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Eassiy Data Recovery for Mac 5.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122186.jpgsave_picture_122186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122186.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Perfectly Clear WorkBench 4.6.0.2632 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122187.jpgsave_picture_122187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122187.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122188.jpgsave_picture_122188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122188.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:06C02F2196589DA00E9F17225C652A83BF26119F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122189.jpgsave_picture_122189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122189.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Capture One 23 Pro 16.3.4.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122190.jpgsave_picture_122190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122190.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:133200D8668F391CA0ED621EBCD130EF4D9EB8C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122191.jpgsave_picture_122191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122191.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Java SE Development Kit 11.0.22 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122192.jpgsave_picture_122192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122192.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Numi 3.32 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122193.jpgsave_picture_122193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122193.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:AB481CEE0CCD703C6A84639D9E47C47B96CA3D22
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122194.jpgsave_picture_122194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122194.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Busuu - изучение языков 31.11.0(911013) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122195.jpgsave_picture_122195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122195.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Rel
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122196.jpgsave_picture_122196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122196.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:4ECDC6273B67419CEC173F907D737ACFC8CB891A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122197.jpgsave_picture_122197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122197.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Telegram Desktop 4.14.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122198.jpgsave_picture_122198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122198.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:F4A29B3D7AF7A31F4DB5C5AE4683595F08C83D7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122200.jpgsave_picture_122200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122200.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122201.jpgsave_picture_122201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122201.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ FontLab 8.3.0.8766 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122202.jpgsave_picture_122202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122202.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:6896C8C61FDE506A1267E1B37170BF1745BBBA05
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122203.jpgsave_picture_122203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122203.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:A056F42C93776196C257B375B809D63B72360A60
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122204.jpgsave_picture_122204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122204.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:953441E958F0166148D7F8BD2E42CF77C364D195
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122205.jpgsave_picture_122205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122205.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Microsoft Windows 11 [10.0.22621.3007], Version 22H2 (Updated January 2024) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122206.jpgsave_picture_122206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122206.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:A293E601C25000A1EA6712622732A92A24C64AA3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122207.jpgsave_picture_122207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122207.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:2A3637DADBBFE74F676BE17379A9E13AB68A3205
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122208.jpgsave_picture_122208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122208.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Heart Beats (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122209.jpgsave_picture_122209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122209.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ WiFi Explorer 3 Pro 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122210.jpgsave_picture_122210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122210.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Just Dance 2023 / 2024 (The EDM Charts Playlist Compilation) (2024) [MP3|32
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122211.jpgsave_picture_122211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122211.jpg" />
 </div>
 
 

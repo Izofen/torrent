@@ -6,7 +6,7 @@ Eliptic - Evolve Or Die (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244797.jpgsave_picture_244797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244797.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BurnAware Professional 16.4 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244798.jpgsave_picture_244798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244798.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Lian Ross - 4You (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244799.jpgsave_picture_244799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244799.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chilhouette - Questions (2015) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244800.jpgsave_picture_244800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244800.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:07EA07480CA7FD2C18A1ECF1410853840C37F52E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244801.jpgsave_picture_244801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244801.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Photo Supreme 2023.1.1.4880 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244802.jpgsave_picture_244802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244802.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Anzillu - Ex Nihilo (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244803.jpgsave_picture_244803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244803.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mike Zito & Albert Castiglia - Blood Brothers (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244804.jpgsave_picture_244804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244804.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Adrian Benegas - Arcanum: El Mantra Secreto De Los Espíritus (2023) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244805.jpgsave_picture_244805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244805.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:92A190E073511D85D2E6A30C3E5645A5706BB012
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244806.jpgsave_picture_244806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244806.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:E3347EE9C8556414430A66C115534C559E612978
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244807.jpgsave_picture_244807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244807.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Opera 89.0.4447.71 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244808.jpgsave_picture_244808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244808.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:02BB1811C22A591577DB3C7BB05F4398937DDB2E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244809.jpgsave_picture_244809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244809.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - Electro Pop Of The 80s Reloaded (2016) (2016) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244810.jpgsave_picture_244810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244810.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Ashen Horde - Fallen Cathedrals (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244811.jpgsave_picture_244811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244811.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ FinePrint Software (FinePrint 11.21 / pdfFactory Pro 8.21) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244812.jpgsave_picture_244812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244812.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:09EC59C2A3AE2ADF8C41D09F75B51AA29AB677CA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244813.jpgsave_picture_244813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244813.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:FA8254B5F0C1E3BCE08D35454251BF13E58E8C8E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244814.jpgsave_picture_244814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244814.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Dizzy Gillespie Quintet - Treffpunkt Jazz (1961) 2020, Jazzhaus [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244815.jpgsave_picture_244815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244815.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E0B303A8832823334B957AE63DCE63AEDEBB3267
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244816.jpgsave_picture_244816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244816.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Altair Flux & FluxMotor 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244817.jpgsave_picture_244817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244817.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:704C365520BFF3E94C9B77F51C97FC0999577104
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244818.jpgsave_picture_244818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244818.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Clubland 2017 (2016) [MP3|320 Kbps] <House, Futurepop, Synthpop, Nu-Disco, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244819.jpgsave_picture_244819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244819.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:484732493F2F433F20E05E06661AE94117708029
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244820.jpgsave_picture_244820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244820.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DBA37D7D79EF5A26C427624792C4E2CF898458C5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244821.jpgsave_picture_244821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244821.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Ashen Horde - Nine Plagues (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244822.jpgsave_picture_244822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244822.jpg" />
 </div>
 
 

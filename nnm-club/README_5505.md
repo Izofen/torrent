@@ -6,7 +6,7 @@ CopyQ 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170089.jpgsave_picture_170089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170089.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Songs 4 Sex Sexy Chill Out Night Vibes (2023) [MP3|320 Kbps] <Electronic, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170090.jpgsave_picture_170090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170090.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8E9BC4CC8FD7D83297310B956D4CDC9041B3B225
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170091.jpgsave_picture_170091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170091.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Data Guardian 6 v.6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170092.jpgsave_picture_170092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170092.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:CD1984BC2D02B4314886471B35AD0B9ADB647C7E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170093.jpgsave_picture_170093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170093.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:87ADE7D571FFD38DCDE5B953AED9C6D777F09860
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170094.jpgsave_picture_170094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170094.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ F20 (2022) WEBRip [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170095.jpgsave_picture_170095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170095.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0D39520E25C5037D246736486EAB0C3DE2002FC7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170096.jpgsave_picture_170096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170096.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:35E21C9AB670AFAB931808ACA9244AD7E9DFCDF8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170097.jpgsave_picture_170097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170097.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:70D54F00022ECF651C5B5AB2A6389FE46D6E90EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170098.jpgsave_picture_170098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170098.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ QTTabBar 1043 (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170099.jpgsave_picture_170099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170099.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:53DD7915CD407FE7E7E6518DE3FCB0B7954AE699
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170100.jpgsave_picture_170100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170100.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170101.jpgsave_picture_170101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170101.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:91058873D3E08C97169FD0AD3F4EFC9CA869ECE2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170102.jpgsave_picture_170102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170102.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:AC2C458077BB8B8645F7FF5E4F361F9254DC4137
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170103.jpgsave_picture_170103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170103.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:EEFE3442381E533F35C39416DFB974840A4274A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170104.jpgsave_picture_170104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170104.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:2A28F1D13B13C7232A5513653A521CF395FA4FD3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170105.jpgsave_picture_170105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170105.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Foxit PDF Reader 12.1.0.15250 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170106.jpgsave_picture_170106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170106.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:4903AC4B732CF4CA621C519672375597EECF4D0B
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170107.jpgsave_picture_170107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170107.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:6EE267ECBB89B63E5FCAE06FF5B466903BF75FCF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170108.jpgsave_picture_170108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170108.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Windows 10 Professional 20H2 x64 Game OS 1.1 by CUTA [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170109.jpgsave_picture_170109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170109.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:785B7175001441151C64E5222B842140DCBFBE2A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170110.jpgsave_picture_170110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170110.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:CEF35B86C96055CF5154925069BC09A0E6EB8D22
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170111.jpgsave_picture_170111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170111.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:F8CD7A375C85134760F12715ABAC1BC55721E282
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170112.jpgsave_picture_170112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170112.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Prince & The New Power Generation - Diamonds and Pearls (Super Deluxe Edition) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170113.jpgsave_picture_170113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170113.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:2F069045280CF4113CDFEAF1F8CA4026B1C19B1E
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170114.jpgsave_picture_170114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170114.jpg" />
 </div>
 
 

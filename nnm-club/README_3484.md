@@ -6,7 +6,7 @@ Neil Young & Crazy Horse - Fu##in' Up (2024) [MP3|320 Kbps] <Classic Rock, Count
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110945.jpgsave_picture_110945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110945.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Duplicate Cleaner Pro 5.22.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110946.jpgsave_picture_110946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110946.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ English LinDuo HD v5.32.0 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110947.jpgsave_picture_110947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110947.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ GPS АнтиРадар v43.0 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110948.jpgsave_picture_110948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110948.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Glary Utilities Pro 6.9.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110949.jpgsave_picture_110949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110949.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Arcade Tycoon: Simulation Game (2021) [Ru/Multi] (2.0.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110950.jpgsave_picture_110950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110950.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Comodo Dragon 123.0.6312.123 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110951.jpgsave_picture_110951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110951.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A5B4E3029D52A8EC28780750744CE1BF35B89912
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110952.jpgsave_picture_110952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110952.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Google Chrome 124.0.6367.79 Stable Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110953.jpgsave_picture_110953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110953.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Outdooractive v3.16.6 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110954.jpgsave_picture_110954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110954.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E1FFCAA48C504BE2800D24FBA40DECB5182C22BD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110955.jpgsave_picture_110955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110955.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Wise Disk Cleaner 11.1.1.826 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110956.jpgsave_picture_110956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110956.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Macrorit Data Wiper 7.1.1 Pro / Unlimited / Technician Edition RePack (& Portabl
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110957.jpgsave_picture_110957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110957.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ LibreWolf 125.0.2-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110958.jpgsave_picture_110958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110958.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Accept - Humanoid (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110959.jpgsave_picture_110959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110959.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Anjunadeep presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110960.jpgsave_picture_110960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110960.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Shawn Kellerman - Kell's Kitchen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110961.jpgsave_picture_110961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110961.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Walt Dickerson Quartet - To My Queen Revisited (1978) 1987, SteepleChase [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110962.jpgsave_picture_110962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110962.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:DAD3FAD73717F6DA91D91F95C67B3837CB8540D6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110963.jpgsave_picture_110963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110963.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Blue Sun - Festival (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110964.jpgsave_picture_110964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110964.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Brace For War - Chromium Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110965.jpgsave_picture_110965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110965.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Biarritz Boys - Inside Clean Waves (2023) [FLAC|Lossless|image + .cue] <Surf
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110966.jpgsave_picture_110966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110966.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Baker Gurvitz Army - Hearts On Fire (1976) Japanese Edition, Reissue, 2005, Stra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110967.jpgsave_picture_110967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110967.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110968.jpgsave_picture_110968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110968.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Strom - En Orkan Pa Var Sida (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110969.jpgsave_picture_110969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110969.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Jean-Jacques Milteau - Key To The Highway (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110970.jpgsave_picture_110970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110970.jpg" />
 </div>
 
 

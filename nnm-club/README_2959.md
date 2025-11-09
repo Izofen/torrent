@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87847.jpgsave_picture_87847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87847.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:668AF5C325FBE981C4935084331E33D9700D5B50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87851.jpgsave_picture_87851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87851.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:C08682B934E8D018D3F54DC4416678A78C6DF30C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87852.jpgsave_picture_87852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87852.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C08682B934E8D018D3F54DC4416678A78C6DF30C
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87854.jpgsave_picture_87854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87854.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87855.jpgsave_picture_87855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87855.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87858.jpgsave_picture_87858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87858.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:9DB5F1C34024129F62B359196C318261988E902B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87859.jpgsave_picture_87859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87859.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Uniblue PowerSuite 2012 3.0.7.2 Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87860.jpgsave_picture_87860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87860.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ AVG Anti-Virus Pro 2012 v12.0.2127 Build 4918 Final [ML/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87861.jpgsave_picture_87861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87861.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 (L) [En] 201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87863.jpgsave_picture_87863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87863.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Zолушка (2012) [720p] BDRip
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87867.jpgsave_picture_87867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87867.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Шедевры православной музыки (2000) [MP3|320 кб/�
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87868.jpgsave_picture_87868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87868.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Шедевры православной музыки (2000) [MP3|320 кб/�
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87870.jpgsave_picture_87870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87870.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Шедевры православной музыки (2000) [MP3|320 кб/�
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87872.jpgsave_picture_87872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87872.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Шедевры православной музыки (2000) [MP3|320 кб/�
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87874.jpgsave_picture_87874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87874.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:DF8936A09D718577A50D8CB575463A08146A787E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87875.jpgsave_picture_87875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87875.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:F19741F291C472F4FBD24231F4F4D081AC600410
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87878.jpgsave_picture_87878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87878.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:F19741F291C472F4FBD24231F4F4D081AC600410
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87880.jpgsave_picture_87880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87880.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:F19741F291C472F4FBD24231F4F4D081AC600410
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87881.jpgsave_picture_87881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87881.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:0AC8877B092C57DE2A84CDBC24DC8F6D2E819C25
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87888.jpgsave_picture_87888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87888.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:73BFA5EBF8B3CE181AD3FB6898D0393DD64F6B88
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87889.jpgsave_picture_87889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87889.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ X PROJECT 2012 v6.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87890.jpgsave_picture_87890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87890.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ X PROJECT 2012 v6.0 [Русский]
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87891.jpgsave_picture_87891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87891.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Luxology modo 401 SP5 build 36460 401 Service Pack 5 - build 36460 [только
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87892.jpgsave_picture_87892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87892.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Luxology MODO инновационная программа для 3D модел
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87893.jpgsave_picture_87893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87893.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ BattleForge: Lost Souls Edition (L) [Ru] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87894.jpgsave_picture_87894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87894.jpg" />
 </div>
 
 

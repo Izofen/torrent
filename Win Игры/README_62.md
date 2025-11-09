@@ -6,7 +6,7 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18681.jpgsave_picture_18681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18681.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18682.jpgsave_picture_18682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18682.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14 20230201) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18688.jpgsave_picture_18688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18688.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18691.jpgsave_picture_18691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18691.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Unavowed (2018) [En] (2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18693.jpgsave_picture_18693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18693.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Forgive Me Father (2021) [Ru/Multi] (1.4.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18704.jpgsave_picture_18704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18704.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.85) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18728.jpgsave_picture_18728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18728.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18729.jpgsave_picture_18729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18729.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18731.jpgsave_picture_18731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18731.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18735.jpgsave_picture_18735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18735.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18748.jpgsave_picture_18748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18748.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ XENOBREAKERS: Classic Tower Defense (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18750.jpgsave_picture_18750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18750.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dark Envoy (2023) [Ru/Multi] (1.6.1.73592) Repack seleZen [Director's Cut - Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18751.jpgsave_picture_18751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18751.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18753.jpgsave_picture_18753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18753.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18758.jpgsave_picture_18758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18758.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ iDigging (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18759.jpgsave_picture_18759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18759.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18771.jpgsave_picture_18771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18771.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Phasmophobia (2020) [Ru/En] (0.12.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18772.jpgsave_picture_18772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18772.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18775.jpgsave_picture_18775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18775.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18776.jpgsave_picture_18776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18776.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mind Over Magic (2025) [Ru/Multi] (1.0.536.1435.9b6043f8) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18780.jpgsave_picture_18780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18780.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ratopia (2023) [Ru/Multi] (1.0.0500) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18785.jpgsave_picture_18785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18785.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18383361) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18787.jpgsave_picture_18787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18787.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Volcanoids (2019) [Ru/Multi] (1.33.502.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18804.jpgsave_picture_18804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18804.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ary and the Secret of Seasons (2020) [Ru/Multi] (1.0) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18808.jpgsave_picture_18808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18808.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18811.jpgsave_picture_18811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18811.jpg" />
 </div>
 
 

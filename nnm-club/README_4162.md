@@ -6,7 +6,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128809.jpgsave_picture_128809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128809.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8D67E2835EB1EBE58D6E642F45C44D795E0D2618
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128810.jpgsave_picture_128810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128810.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128811.jpgsave_picture_128811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128811.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.1) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128812.jpgsave_picture_128812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128812.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:578E4826F574196CA6E59D6A2219235ACB84CAF3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128813.jpgsave_picture_128813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128813.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.6456 (Updated October 2025) by FaTaL 
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128814.jpgsave_picture_128814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128814.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128815.jpgsave_picture_128815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128815.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:86C0D2DD3240EA3341032B4DC7A0F2C39F0E762F
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128816.jpgsave_picture_128816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128816.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:3C46AF2C1FE31DEA08947CFBA0CCB86B22741C23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128817.jpgsave_picture_128817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128817.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Kinland Station - LoFi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128818.jpgsave_picture_128818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128818.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:C571034ECB54161E5CC8564A913E2F1F5F64D195
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128819.jpgsave_picture_128819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128819.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Jon Hines - Memphis Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128820.jpgsave_picture_128820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128820.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:8F96597F8167CE711D5732D00C3439C793125B0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128821.jpgsave_picture_128821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128821.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:6B8837065B38077E5C0A85B3A22F1109663516B7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128822.jpgsave_picture_128822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128822.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:631B8F8889FD1C4060BFC018C8BD604F28CE444C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128823.jpgsave_picture_128823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128823.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:A324965C1974F6F5BBAAB295E41AD13A95D1E720
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128824.jpgsave_picture_128824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128824.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Windows Manager 2.2.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128825.jpgsave_picture_128825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128825.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ ChatGPT-4. (М.Р. Брослав, О.А. Яблокова. сост.) | Авт�
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128826.jpgsave_picture_128826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128826.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:9387026E6AD268C326AFD1082016133A696B77D1
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128827.jpgsave_picture_128827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128827.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:AD7E0081492111F1D071C54BB79142B1573F605E
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128828.jpgsave_picture_128828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128828.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:37EBA393D7448B04FAF92CABE794ABDFDF5E837A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128829.jpgsave_picture_128829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128829.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:EE503C32A7EF338030661F47455D925AFDE4065F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128830.jpgsave_picture_128830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128830.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:9217B2B2F93D9B5F74A84C67BC7D90EF86E4A7F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128831.jpgsave_picture_128831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128831.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:5E25031406DA55B218EC84D58439E19CDED306D1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128832.jpgsave_picture_128832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128832.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:C4E5F857C8A0597AEBE64D8FE50E0185BA9E3EEA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128833.jpgsave_picture_128833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128833.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:719D942D5C0992C8EC2D5BC31CB575632EC9FD4A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128834.jpgsave_picture_128834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128834.jpg" />
 </div>
 
 

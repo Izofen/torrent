@@ -6,7 +6,7 @@ Easy Voice Recorder - Pro / Простой диктофон Про v2.8.7 Mod by
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62741.jpgsave_picture_62741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62741.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62742.jpgsave_picture_62742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62742.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1440E1DD9798D8BAFF50D3F00625021D5093F01F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62743.jpgsave_picture_62743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62743.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Living Legends 11: The Red Trace (2024) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62744.jpgsave_picture_62744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62744.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:DD0FF5F26451D1CC90EDF3C88D9CECBCB507C785
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62745.jpgsave_picture_62745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62745.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:62C0B8C7E281BD07FDAAFD1573C2200EB335D159
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62746.jpgsave_picture_62746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62746.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:10ADDE911A9AC176CDD68EEC6DEE64E8416A5609
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62747.jpgsave_picture_62747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62747.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:94E24038E4A1C18069704087F7C575882C59AE46
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62748.jpgsave_picture_62748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62748.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ TikTok 33.8.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.29 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62749.jpgsave_picture_62749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62749.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ PointerStick 6.35 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62750.jpgsave_picture_62750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62750.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9418C9D4C9E3F3A969543E23F6B672EE0EDE2BB0
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62751.jpgsave_picture_62751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62751.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:8774FD9928D5C73F59D2F4043F0F3A8BACA65891
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62752.jpgsave_picture_62752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62752.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Dark Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62753.jpgsave_picture_62753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62753.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:34C7F8D66A03DE063E92D082A7B8145F593399F5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62754.jpgsave_picture_62754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62754.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:82595826212E4E6974BC44CFA372A747488BDB33
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62755.jpgsave_picture_62755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62755.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Combichrist - 3 EP (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Techno, Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62756.jpgsave_picture_62756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62756.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:5F1AE784D907F3AAEE6BFA9B4A14B791F6209670
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62757.jpgsave_picture_62757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62757.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:5BEA953E918167756EE859FFBBE2DDEE5021D3FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62758.jpgsave_picture_62758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62758.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Wondershare Recoverit for Mac 12.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62759.jpgsave_picture_62759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62759.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Lucky Patcher 11.2.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62760.jpgsave_picture_62760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62760.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Ungoogled Chromium 122.0.6261.111-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62761.jpgsave_picture_62761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62761.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Image Uploader 1.4.0 Build 5136 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62762.jpgsave_picture_62762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62762.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Gorky Park - Stare (1996) Reissue, 2023,  Moroz Records [FLAC|Lossless|image + .
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62763.jpgsave_picture_62763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62763.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Silent Cause (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62764.jpgsave_picture_62764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62764.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:8AF5B09C33FA8CE203EFA7A544EBB6D4FE57EF91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62765.jpgsave_picture_62765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62765.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:8D31EECD6296DF0C46520F6064AA3B3A75AF7043
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62766.jpgsave_picture_62766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62766.jpg" />
 </div>
 
 

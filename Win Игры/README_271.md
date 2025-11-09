@@ -6,7 +6,7 @@ Fireball Wizard (2023) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196534.jpgsave_picture_196534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196534.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Unwording (2023) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196565.jpgsave_picture_196565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196565.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Yakuza 5 Remastered (2021) [Multi] (1.006a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196577.jpgsave_picture_196577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196577.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Forgotten Fields (2021) [En] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196592.jpgsave_picture_196592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196592.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Yakuza 0 (2018) [Multi] (1.015a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196602.jpgsave_picture_196602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196602.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196607.jpgsave_picture_196607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196607.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yakuza Kiwami (2019) [Multi] (1.011a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196614.jpgsave_picture_196614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196614.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Neon Chrome (2016) [Ru/Multi] (1.1.12/dlc) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196615.jpgsave_picture_196615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196615.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196633.jpgsave_picture_196633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196633.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Yakuza Kiwami 2 (2019) [Multi] (1.004a/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196644.jpgsave_picture_196644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196644.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Yakuza 3 Remastered (2021) [Multi] (1.005a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196646.jpgsave_picture_196646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196646.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Yakuza 4 Remastered (2021) [Multi] (1.003a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196660.jpgsave_picture_196660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196660.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Spriters, Hopes Blooming Dawn (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196691.jpgsave_picture_196691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196691.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Crossroads 3: What Was Lost (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196703.jpgsave_picture_196703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196703.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196704.jpgsave_picture_196704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196704.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Case of the Golden Idol (2022) [En] (2.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196728.jpgsave_picture_196728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196728.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196740.jpgsave_picture_196740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196740.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mystery Case Files 25: The Dalimar Legacy / За семью печатями 25:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196760.jpgsave_picture_196760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196760.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tales of Vogar - Lost Descendants (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196768.jpgsave_picture_196768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196768.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Park Beyond (2023) [Ru/Multi] (1.0) Scene Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196784.jpgsave_picture_196784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196784.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196785.jpgsave_picture_196785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196785.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.0.3.0) Repack dixen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196789.jpgsave_picture_196789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196789.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Impaler (2022) [Ru/Multi] (1.0.475) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196792.jpgsave_picture_196792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196792.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196807.jpgsave_picture_196807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196807.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Chronicles of Galdurvale (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196854.jpgsave_picture_196854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196854.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Academia : School Simulator (2017) [Ru/Multi] (1.0.44) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196883.jpgsave_picture_196883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196883.jpg" />
 </div>
 
 

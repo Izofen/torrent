@@ -6,7 +6,7 @@ PotPlayer 250207 (1.7.22446) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27962.jpgsave_picture_27962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27962.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F9B7A092C9052E7C25B6169A6C9B11D0FA6EE355
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27963.jpgsave_picture_27963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27963.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:272AF29C276ECE8CB0CF3642DC7BB11FC147BE94
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27964.jpgsave_picture_27964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27964.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:273BE4FFA7F1F25554A2D06ECB736A982A88DD01
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27965.jpgsave_picture_27965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27965.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8753EB13B9AEA6E7FAC21F20C70E033A20F11F7E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27966.jpgsave_picture_27966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27966.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:6501A66416FF5032A89139E2B8FCBCDF8E448555
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27967.jpgsave_picture_27967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27967.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:DA667C174B252EBC1545B68730FEA32E8575022C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27968.jpgsave_picture_27968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27968.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27969.jpgsave_picture_27969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27969.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ CoolUtils Total Audio Converter 6.1.0.280 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27970.jpgsave_picture_27970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27970.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:62081B1F929A2C0424F8D8B5989194E1552061DE
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27971.jpgsave_picture_27971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27971.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ O&O ShutUp10++ 1.9.1443 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27972.jpgsave_picture_27972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27972.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:ACC165CD956EB32B87924F66CA7013ADBE5AD2D8
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27973.jpgsave_picture_27973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27973.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Wondershare UniConverter 16.2.1.134 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27974.jpgsave_picture_27974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27974.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Cockos REAPER 7.33 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27975.jpgsave_picture_27975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27975.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:E3DF86A0F07A515BAD5B827D96D615D2415B20B8
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27976.jpgsave_picture_27976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27976.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:B44028471AB2374124FC3CF1D09FEC9B373AF7FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27977.jpgsave_picture_27977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27977.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Давид Тухманов – Притяжение Земли. Лучши
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27978.jpgsave_picture_27978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27978.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FF6CB6554E6DF2FAE1D57555B7D7AE0E0DF78CAE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27979.jpgsave_picture_27979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27979.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F023E8360099D0445C6823BD4E0E91C44776A518
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27980.jpgsave_picture_27980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27980.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ TikTok 38.4.3 Mod by Dmitry Nechiporenko + Plugin 1.66 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27981.jpgsave_picture_27981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27981.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:7B3866F30C174CD04E95DEE7B761FBDA955AA75C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27982.jpgsave_picture_27982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27982.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ CyberLink PowerDirector 2025 Ultimate 23.1.1406.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27983.jpgsave_picture_27983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27983.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27984.jpgsave_picture_27984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27984.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Wolfram Mathematica 14.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27985.jpgsave_picture_27985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27985.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:10FBF712DB5D28CD352F33636829785687B959C1
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27986.jpgsave_picture_27986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27986.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:02CF0A73F8366639470F2292DA2257BD73F5DB1D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27987.jpgsave_picture_27987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27987.jpg" />
 </div>
 
 

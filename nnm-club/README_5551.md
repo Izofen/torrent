@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171312.jpgsave_picture_171312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171312.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ TurboCollage Advanced / Home / Professional 7.2.11.0 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171313.jpgsave_picture_171313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171313.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:55A2DACA3894E7E1D7D9508CA21E4C2116590672
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171314.jpgsave_picture_171314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171314.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ qBittorrent 4.6.0 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171315.jpgsave_picture_171315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171315.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ YouTube Music ReVanced 6.23.54 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171316.jpgsave_picture_171316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171316.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:6355B445B150EE912289D949E359186B6F5D256E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171317.jpgsave_picture_171317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171317.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Novak Dekor | Франшиза производства Гибкого камн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171318.jpgsave_picture_171318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171318.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:CBFFD75B18D431147E4ACE78538A32966972ED45
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171319.jpgsave_picture_171319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171319.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:86768DC907AFA633B0D1B270982A62929DA53595
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171320.jpgsave_picture_171320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171320.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:86768DC907AFA633B0D1B270982A62929DA53595
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171321.jpgsave_picture_171321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171321.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:FE318F3949A78D4D58933277ADCF051167F32803
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171322.jpgsave_picture_171322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171322.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F256FDCC318554295EEBF2847767B69DFDD77AD6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171323.jpgsave_picture_171323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171323.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VCartoonizer 2.0.5 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171324.jpgsave_picture_171324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171324.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:FA217566AC35CAD4D69E889756E853D9719E698C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171325.jpgsave_picture_171325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171325.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:D830437AC821E51E73D5761339257187EDBDE6F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171326.jpgsave_picture_171326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171326.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:BCB1640C1A46EF98BFA34407F96B83C950678157
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171327.jpgsave_picture_171327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171327.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171328.jpgsave_picture_171328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171328.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:4DB5AB796CDFA516C7AFF87E19800A94A8792BF4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171329.jpgsave_picture_171329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171329.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:E7E5F4907A94B9F8DE53C870EDC84C7589BE5954
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171330.jpgsave_picture_171330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171330.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:C4AC18C9387053D00C9960BFA7EC66153BD4F34E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171331.jpgsave_picture_171331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171331.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adobe Animate 2024 v.24.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171332.jpgsave_picture_171332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171332.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:B0E3F657084936605C8CADCA9AA27F7B5C6B149C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171333.jpgsave_picture_171333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171333.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:8B751187E7D815F81D7032CA51DD40A2E0FCAAAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171334.jpgsave_picture_171334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171334.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:BDA32621BFC52872141D929F623D029B7E39141E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171335.jpgsave_picture_171335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171335.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Adobe Character Animator 2024 v.24.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171336.jpgsave_picture_171336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171336.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ PDF-XChange Editor Plus 10.1.2.382 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171337.jpgsave_picture_171337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171337.jpg" />
 </div>
 
 

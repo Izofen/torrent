@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207035.jpgsave_picture_207035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207035.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare UniConverter Ultimate 15.0.1.5 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207036.jpgsave_picture_207036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207036.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Universal USB Installer 2.0.1.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207037.jpgsave_picture_207037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207037.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3DC8E9F1587DCA54746AB56755841D347197C5B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207041.jpgsave_picture_207041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207041.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207042.jpgsave_picture_207042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207042.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Liveclasses, Анатолий Ясинский | Субкультуры и ко�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207044.jpgsave_picture_207044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207044.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207047.jpgsave_picture_207047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207047.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Depeche Mode - Sounds Of The Universe | The 12" Singles (2023) [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207051.jpgsave_picture_207051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207051.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207052.jpgsave_picture_207052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207052.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9DD946DC8742E009C09B1017D53D89CF58A539A0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207053.jpgsave_picture_207053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207053.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:40E3BD5A7564AD169AA230763F91A171F8C84CE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207056.jpgsave_picture_207056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207056.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:562D1EF09462D977DA5C61C1A1E62109C3D8FFBF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207059.jpgsave_picture_207059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207059.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Full Moon Rush (2023) [Multi] (1.0.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207062.jpgsave_picture_207062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207062.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Floorp Browser 11.1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207063.jpgsave_picture_207063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207063.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:439BECF7BCFDF823F463400B9A35475DD28300A1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207066.jpgsave_picture_207066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207066.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:160F678EFAB2D14E5AB36F648122BB25802A42B3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207067.jpgsave_picture_207067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207067.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:3EABE41E4E93C0FB0D13A3BAEC34D22BB066604D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207068.jpgsave_picture_207068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207068.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SteerMouse 5.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207069.jpgsave_picture_207069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207069.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:45C0DDA58EA86559A05CD92CBD6AB4AB33451240
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207074.jpgsave_picture_207074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207074.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:5060203F5EAAC6DABDD93F738DBA989247D9C1A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207075.jpgsave_picture_207075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207075.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:825EFC6F1D3094B2258B872DD5B097919ADE3771
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207078.jpgsave_picture_207078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207078.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:65D6141C43C07DCFF46488EE470042C17A96EC35
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207081.jpgsave_picture_207081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207081.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Ashampoo UnInstaller 12.00.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207083.jpgsave_picture_207083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207083.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.0 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207085.jpgsave_picture_207085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207085.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Depeche Mode - Sounds Of The Universe | The 12" Singles (2023) [MP3|320 Kbps] <S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207087.jpgsave_picture_207087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207087.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Fancy - Viva la Vida (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207088.jpgsave_picture_207088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207088.jpg" />
 </div>
 
 

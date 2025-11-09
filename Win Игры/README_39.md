@@ -6,7 +6,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.55.2.1/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11831.jpgsave_picture_11831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11831.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Union of Gnomes (2024) [Ru/Multi] (1.5.28) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11843.jpgsave_picture_11843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11843.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Everdeep Aurora (2025) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11847.jpgsave_picture_11847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11847.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blacksmith Master (2025) [Ru/Multi] (0.8.147) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11854.jpgsave_picture_11854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11854.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Palworld (2024) [Ru/Multi] (0.6.2.76269) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11864.jpgsave_picture_11864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11864.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Vault: Logic Puzzle Box (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11869.jpgsave_picture_11869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11869.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Build 18713680/dlc) Repack FitG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11883.jpgsave_picture_11883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11883.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.37ea) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11895.jpgsave_picture_11895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11895.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.23.2/dlc) Repack seleZen [Reloaded E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11971.jpgsave_picture_11971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11971.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sofia in Exchange for Lies (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11976.jpgsave_picture_11976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11976.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12050.jpgsave_picture_12050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12050.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Rise of Rebellion (2025) [Multi] (build 18176641) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12059.jpgsave_picture_12059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12059.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.18) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12082.jpgsave_picture_12082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12082.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12104.jpgsave_picture_12104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12104.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Grandma, No! (2025) [Ru/Multi] (20250522R) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12155.jpgsave_picture_12155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12155.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Eternal Strands (2025) [Ru/Multi] (1.0.14.1638) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12195.jpgsave_picture_12195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12195.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.114/dlc) Repack Let'sРlay [Digital 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12196.jpgsave_picture_12196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12196.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12197.jpgsave_picture_12197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12197.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.14) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12201.jpgsave_picture_12201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12201.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Motor Town: Behind The Wheel (2021) [Ru/Multi] (0.7.14 b865) Repack Pioneer [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12203.jpgsave_picture_12203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12203.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12211.jpgsave_picture_12211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12211.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hidden Legacy: Dark Heirloom / Скрытое наследие: Темная р�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12267.jpgsave_picture_12267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12267.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Railway Empire 2 (2023) [Ru/Multi] (64144 114/dlc) License GOG [Digital Deluxe E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12296.jpgsave_picture_12296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12296.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.6) Repack Let'sРlay [The Complete Col
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12299.jpgsave_picture_12299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12299.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Eternal Strands (2025) [Multi] (1.0.14.1638) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12300.jpgsave_picture_12300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12300.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12302.jpgsave_picture_12302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12302.jpg" />
 </div>
 
 

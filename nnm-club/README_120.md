@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3162.jpgsave_picture_3162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3162.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Rasmus - Weirdo (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3163.jpgsave_picture_3163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3163.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1B18EDDA532EFE012844FC2D6B0744679A5052AE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3164.jpgsave_picture_3164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3164.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F45D3B91349A90E3B6DAA55D2C0843CDC1A9C6CD
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3165.jpgsave_picture_3165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3165.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:94BB76703B5791AAAE0A0038EED3DB636552F05A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3166.jpgsave_picture_3166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3166.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:17E26003CEFE1B9A08F55DA3D109467CE5CA2059
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3167.jpgsave_picture_3167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3167.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:F8D8CF16E1F50E6DD7FC1F6DA90ED48E784C5CCB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3168.jpgsave_picture_3168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3168.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:4B890E3FDE3AFC5672EE462E64D3CBBF58248B5B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3169.jpgsave_picture_3169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3169.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F37692698811A9D36EF1EA67D27F4E1FD1FEE679
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3170.jpgsave_picture_3170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3170.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ WeNote: заметки блокнот планер v6.39 Mod by PieMods [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3171.jpgsave_picture_3171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3171.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Foreigner - 4 (1981) 2025 4CD Deluxe Edition [FLAC 24/96, 16/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3172.jpgsave_picture_3172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3172.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.3.0) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3173.jpgsave_picture_3173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3173.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B2597A83CD9EA441BCC7E74C6470C9BFAA35E613
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3174.jpgsave_picture_3174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3174.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:DF5C285C6CD4DC85E429C8D5FCA7D5D57573E178
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3175.jpgsave_picture_3175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3175.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v3.1.19 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3176.jpgsave_picture_3176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3176.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:E10F12DE2EF1ABC74FC6AD1973BB3D56022EF1AE
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3177.jpgsave_picture_3177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3177.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:2CD087C50B414BFC00978948EAE2E3E275673984
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3178.jpgsave_picture_3178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3178.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D430ABD16D3FDA09D6E6C1198318474C2C99E930
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3179.jpgsave_picture_3179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3179.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Anna Zueva - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3180.jpgsave_picture_3180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3180.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:AE822914D26A189E7CE4DE7736B271E3F48C597F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3181.jpgsave_picture_3181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3181.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:0A16455C6B9598E08B628DE3F2751E95D4FA5EF4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3182.jpgsave_picture_3182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3182.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ ILWT - Наполовину полон. Сорокалетним посвяща�
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3183.jpgsave_picture_3183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3183.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Strava: бег, велоезда, хайкинг v428.10 Mod by PieMods [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3184.jpgsave_picture_3184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3184.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:7143A5661E918938A87B6B6AC52F25888E8587F5
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3185.jpgsave_picture_3185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3185.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F9B404CBF666022C98B10EC100CB5B94D92A22D1
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3186.jpgsave_picture_3186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3186.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Mindroid: AVS, Mind machine v8.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3187.jpgsave_picture_3187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3187.jpg" />
 </div>
 
 

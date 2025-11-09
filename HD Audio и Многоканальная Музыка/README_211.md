@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237599.jpgsave_picture_237599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237599.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237690.jpgsave_picture_237690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237690.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237707.jpgsave_picture_237707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237707.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237749.jpgsave_picture_237749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237749.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ VA - Убойная Сила. Любимые песни из телесериа�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237777.jpgsave_picture_237777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237777.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237801.jpgsave_picture_237801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237801.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237820.jpgsave_picture_237820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237820.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Bea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237874.jpgsave_picture_237874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237874.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237909.jpgsave_picture_237909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237909.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:DC32DDC07E889DCB56331AA7C26854BCF9BDA82E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237946.jpgsave_picture_237946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237946.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238010.jpgsave_picture_238010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238010.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Carl Perkins/Карл Перкинс - Лучшее из репертуара К
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238121.jpgsave_picture_238121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238121.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Мелодии экрана, 7 серия (1961) [FLAC 1.0|96/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238151.jpgsave_picture_238151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238151.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - В Помощь Любителям Грамзаписи. Для Прове�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238228.jpgsave_picture_238228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238228.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238237.jpgsave_picture_238237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238237.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238268.jpgsave_picture_238268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238268.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:9B6717AE599D59EB30E48D921F7C4A010F96DFB1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238299.jpgsave_picture_238299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238299.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Jonathan Jeremiah - Horsepower For The Streets (2023) Deluxe Version [FLAC 2.0|4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238316.jpgsave_picture_238316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238316.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238348.jpgsave_picture_238348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238348.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238355.jpgsave_picture_238355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238355.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238371.jpgsave_picture_238371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238371.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238389.jpgsave_picture_238389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238389.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Elton John - The New Collection vol. I - vol. II (1983) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238397.jpgsave_picture_238397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238397.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - RETROспектива часть XXI. Зарубежные исполнит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238403.jpgsave_picture_238403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238403.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA (Юрий Антонов, Александр Серов, Александр �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238423.jpgsave_picture_238423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238423.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238458.jpgsave_picture_238458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238458.jpg" />
 </div>
 
 

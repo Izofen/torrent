@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34701.jpgsave_picture_34701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34701.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7311A583A39D95CC410D3823807024866DF35B32
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34702.jpgsave_picture_34702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34702.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:968C9DF3C3C2839F8C2E48AE0D8B0FB57A6DC865
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34703.jpgsave_picture_34703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34703.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BE9BFEBC2AAD8821BD41FD8DACFACD48A65BC0C0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34704.jpgsave_picture_34704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34704.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ PTE AV Studio Pro 11.0.15.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34705.jpgsave_picture_34705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34705.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Vocal Trance NNM 3 (2024) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34706.jpgsave_picture_34706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34706.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34707.jpgsave_picture_34707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34707.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:51DF8F30C6B8827120BF08FCF07B529EFE7343B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34708.jpgsave_picture_34708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34708.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:976F582E3272ED2809D805CB28C5C4F6F19AB18E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34709.jpgsave_picture_34709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34709.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1AD8D6B5977C4288D2D3B34349B20D34F8781C59
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34710.jpgsave_picture_34710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34710.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:424D86E85BD6B3D65DA4BED3DDA1DFF466C4584B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34711.jpgsave_picture_34711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34711.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:2054F416F6213D38DBEEB5FD4A2655E4476C2AB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34712.jpgsave_picture_34712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34712.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Wise Disk Cleaner 11.1.8.834 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34713.jpgsave_picture_34713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34713.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ HDCleaner 2.084 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34714.jpgsave_picture_34714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34714.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:7F27AB60A8E3D830AFCDDCFFAA067860C01D8D96
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34715.jpgsave_picture_34715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34715.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Revo Uninstaller Free 2.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34716.jpgsave_picture_34716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34716.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Gilisoft Audio Recorder Pro 13.3.0 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34717.jpgsave_picture_34717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34717.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Tablacus Explorer 24.12.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34718.jpgsave_picture_34718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34718.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:F7CB27762395C2C8ABDC5A3738886E1957E8B4E2
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34719.jpgsave_picture_34719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34719.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:240D06A5EC416B955596170E95C7EEAAE55B78AD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34720.jpgsave_picture_34720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34720.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Revo Uninstaller Pro 5.3.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34721.jpgsave_picture_34721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34721.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Intellectual Lounge Music (2024) [MP3|320 Kbps] <Lounge, Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34722.jpgsave_picture_34722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34722.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Movavi Video Editor 25.1.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34723.jpgsave_picture_34723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34723.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Nautilus Pompilius - Compilation (1983-1997) [MP3|320 Kbps] <New wave, Art rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34724.jpgsave_picture_34724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34724.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:9C9DA6A5012644D35224F14C30CDFA99DBDB7EF9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34725.jpgsave_picture_34725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34725.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:818D0D0F098C198B44475C8E99815D5A4D522227
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34726.jpgsave_picture_34726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34726.jpg" />
 </div>
 
 

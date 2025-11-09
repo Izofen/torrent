@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86181.jpgsave_picture_86181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86181.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86182.jpgsave_picture_86182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86182.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D6DD41CFCE864E0930DC777BD7F6800534FCDEE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86183.jpgsave_picture_86183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86183.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Chuu Bra!! / Chu-Bra!! / Чу-Бра!! [2010, TV, 12] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86186.jpgsave_picture_86186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86186.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:58532ABBCA17903CD984BAD6EC575355E491AD50
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86187.jpgsave_picture_86187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86187.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B423A609230E286D52C396F31F2F745101FB3382
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86188.jpgsave_picture_86188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86188.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B423A609230E286D52C396F31F2F745101FB3382
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86189.jpgsave_picture_86189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86189.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:A12DEFBC2C3EB881C7B45217BDE9A1DA52B4F82E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86190.jpgsave_picture_86190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86190.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:B4EBB94F33EF61BB5FDD91978EE96D4C684DA871
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86191.jpgsave_picture_86191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86191.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Kaspersky World 1.3.3.95 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86192.jpgsave_picture_86192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86192.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86196.jpgsave_picture_86196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86196.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - Любимые песни для детей 3 (2012) [MP3|160-192 кб/с]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86197.jpgsave_picture_86197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86197.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:6406EA0AB0EC52623ADB10D22C0A557AB38B1771
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86198.jpgsave_picture_86198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86198.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:D07C904A5F02BBD87840DD8DD352706F01069AF2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86199.jpgsave_picture_86199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86199.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:3E0C0A82E0A6951C554279FBC6C65A0C35D11B63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86200.jpgsave_picture_86200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86200.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ CyberLink MediaShow Ultra 6 0 3914 [Multi без русского]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86203.jpgsave_picture_86203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86203.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ CyberLink MediaShow Ultra - мощное профессиональное реш
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86204.jpgsave_picture_86204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86204.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ CyberLink MediaShow Ultra - мощное профессиональное реш
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86205.jpgsave_picture_86205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86205.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Nvidia-Roketdock v1.3.5 by kubines v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86206.jpgsave_picture_86206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86206.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Uniblue PowerSuite 2012 3.0.6.6 Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86207.jpgsave_picture_86207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86207.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Uniblue PowerSuite - комплект программ для ускорения
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86208.jpgsave_picture_86208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86208.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Rammstein - 2 бутлега (2012) Bercy, Paris, France - 2012-03-07 + Birmingh
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86212.jpgsave_picture_86212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86212.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:184203F6350C760F05A5D22CBD64BDDB47BBD442
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86213.jpgsave_picture_86213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86213.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:97A6CD6FFC8BFD79ACC5BE1A2CAFDFCBFC74FCB4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86214.jpgsave_picture_86214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86214.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:4D6A90663DC1D89D286576419EFB32AE33A627A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86217.jpgsave_picture_86217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86217.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Freevods. Всё покерное видео. Обновления за март
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86219.jpgsave_picture_86219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86219.jpg" />
 </div>
 
 

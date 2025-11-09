@@ -6,7 +6,7 @@ The Hu - Rumble of Thunder (2022) Deluxe, Reissue, 2023, Better Noise Music [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209936.jpgsave_picture_209936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209936.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Truecaller: определитель номера 13.21.200 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209938.jpgsave_picture_209938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209938.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dynamic Island (iOS 16 Notch) 8.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209940.jpgsave_picture_209940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209940.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5FD3AB9D295CB197F78613BD71F48CC808D8A7B2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209941.jpgsave_picture_209941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209941.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0F6FED728D6FC86C6D831EF9EA7CF476C9290076
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209943.jpgsave_picture_209943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209943.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:887B3431CC9E53CC187AD85EEDC6F5614CF1C955
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209944.jpgsave_picture_209944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209944.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6136A331BF96EFA39F28C4486F543BC17B233F78
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209948.jpgsave_picture_209948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209948.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D6FD42C9BB650CBAB6FF9815DCB5FB86A41C3054
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209950.jpgsave_picture_209950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209950.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:13D6D1BFB833B34267B4041CFF453156911A6F76
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209952.jpgsave_picture_209952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209952.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209953.jpgsave_picture_209953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209953.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Revo Uninstaller Pro 5.1.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209955.jpgsave_picture_209955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209955.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:3CC293A328B2ED6CB57990CB7CF030C6FABA2BD9
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209956.jpgsave_picture_209956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209956.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:073CF7870939F1B409F5128F655BFAB3389E7A15
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209959.jpgsave_picture_209959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209959.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ SnapEdit - ИИ фоторедактор 4.3.1 Mod by Mixroot, maxi123444, Oflar
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209962.jpgsave_picture_209962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209962.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Creedence Clearwater Revival - Chronicle: The 20 Greatest Hits (1976) Remastered
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209964.jpgsave_picture_209964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209964.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:66D7EB4D987671333C84A03E44EB21228458D2F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209965.jpgsave_picture_209965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209965.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:83A19C01D84DE3A28AB1DB055DCD9C3C18489CA6
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209969.jpgsave_picture_209969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209969.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Lemongrass - Mosaic (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209972.jpgsave_picture_209972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209972.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Creedence Clearwater Revival - Chronicle: The 20 Greatest Hits (1976) Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209973.jpgsave_picture_209973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209973.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:3816CC7F4ED45F26E0581CFFE11D09DA22B75935
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209975.jpgsave_picture_209975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209975.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:93D4ECDD29918DD092B5368A3577D383C7E0616B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209977.jpgsave_picture_209977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209977.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:E32B6D4F9F4123EC37727BEE40A79F88CA06CD12
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209980.jpgsave_picture_209980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209980.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Vehemence - The Thoughts From Which I Hide (2000) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209982.jpgsave_picture_209982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209982.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Alight Motion 5.0.62.103295 Mod by ImanAlien [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209983.jpgsave_picture_209983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209983.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:717EF92114EEDD2BDF116F869F20EC86A2357144
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209988.jpgsave_picture_209988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209988.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Serif Affinity Designer 2.1.1.1847 RePack by AlekseyPopovv [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209992.jpgsave_picture_209992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209992.jpg" />
 </div>
 
 

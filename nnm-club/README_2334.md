@@ -6,7 +6,7 @@ Stardew Valley v.1.6.3.24087_6495347694 (2016)  [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61051.jpgsave_picture_61051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61051.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7C3EF3FDE265E77B871F4E277F450B29A555922C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61052.jpgsave_picture_61052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61052.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C9EECA70F6D176C2ACCAA529EC4643F4981D8271
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61053.jpgsave_picture_61053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61053.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Anastacia - 10 альбомов (2000-2023) 11CD [FLAC|Lossless|image + .cue | t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61054.jpgsave_picture_61054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61054.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe After Effects 2024 v.24.3.0 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61055.jpgsave_picture_61055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61055.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D27F2DE0B104EFE06CB28EDB6EB24FCB9C33B29D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61056.jpgsave_picture_61056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61056.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:BC77FC7940966020584F8EF277853648BE082EBF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61057.jpgsave_picture_61057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61057.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4A0C6896BD2173608C0B12BBA376BB5169AF14E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61058.jpgsave_picture_61058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61058.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ WonderFox HD Video Converter Factory Pro 27.0 RePack (& Portable) by TryRooM [Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61059.jpgsave_picture_61059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61059.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Topaz Video AI 4.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61060.jpgsave_picture_61060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61060.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61061.jpgsave_picture_61061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61061.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Incredible Bee Archiver 4 for Mac v.4.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61062.jpgsave_picture_61062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61062.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:FA4CC76462EF0AF35930F2E236758DCDC523D56A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61063.jpgsave_picture_61063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61063.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61064.jpgsave_picture_61064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61064.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.0 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61065.jpgsave_picture_61065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61065.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:487DB6B79CFF95E36DEBB6AA89C4DB3046E2EAD7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61066.jpgsave_picture_61066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61066.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ JetBrains DataSpell for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61067.jpgsave_picture_61067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61067.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Serial Box & SerialSeeker 04-2024 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61068.jpgsave_picture_61068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61068.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E5FCEE90AA7A685E1EAE8725569121DD86E26EF1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61069.jpgsave_picture_61069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61069.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ LDPlayer 9.0.68.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61070.jpgsave_picture_61070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61070.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:A9BBE7DB50EEE7B1B154BE8510A420764E7B202C
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61071.jpgsave_picture_61071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61071.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ File Juicer 4.99 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61072.jpgsave_picture_61072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61072.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61073.jpgsave_picture_61073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61073.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:ADEFFC985E27D58F777C6E652A6B3198D74D0D8E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61074.jpgsave_picture_61074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61074.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ AnyBurn 6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61075.jpgsave_picture_61075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61075.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61076.jpgsave_picture_61076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61076.jpg" />
 </div>
 
 

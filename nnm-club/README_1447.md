@@ -6,7 +6,7 @@ Astral Doors - Studio Albums (10 releases) (2003-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37977.jpgsave_picture_37977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37977.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Guns N Roses - 3 Lives Albums (1991-1993) HQ Remastered, 2024, DMG [MP3|320 Kbps
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37978.jpgsave_picture_37978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37978.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B83BEDF61C7C389B9061747A79AAE80B05EAE175
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37979.jpgsave_picture_37979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37979.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ocenaudio 3.14.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37980.jpgsave_picture_37980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37980.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:D3D6E5039AFB930D1C6828BDF57C2F4EAB80CD56
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37981.jpgsave_picture_37981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37981.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:940A1EFF2AB03691DD08235A34562BADCCFD4881
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37982.jpgsave_picture_37982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37982.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:46EFB7E284008C5C6E3FDEC0C6D6492CA332144C
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37983.jpgsave_picture_37983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37983.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Lovers Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37984.jpgsave_picture_37984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37984.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:606129FC4E4A02134ADAF9C9913078EB1531D0B3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37985.jpgsave_picture_37985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37985.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:DC67453B376A165203CCB590391664AD9881E6D5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37986.jpgsave_picture_37986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37986.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:5D1C362B623435FD059E5FA2663B3D027E0504CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37987.jpgsave_picture_37987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37987.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:ECE24630125DCDC04394059BCD5F8D26D96513EB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37988.jpgsave_picture_37988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37988.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0711) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37989.jpgsave_picture_37989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37989.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:961C9C002228CE3BE8C8951B9CF75A8E0CED9980
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37990.jpgsave_picture_37990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37990.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Soft Organizer Pro 9.56 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37991.jpgsave_picture_37991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37991.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D0F3B8AC06D634C08A1E7001FF233DEBC876B4B0
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37992.jpgsave_picture_37992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37992.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:841E5211277CD3FE34298CD8A9F779A7BC066D08
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37993.jpgsave_picture_37993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37993.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Ashampoo UnInstaller 15.00.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37994.jpgsave_picture_37994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37994.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Wise Care 365 Pro 7.0.8.690 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37995.jpgsave_picture_37995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37995.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Macrorit Disk Scanner 6.9.3 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37996.jpgsave_picture_37996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37996.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Pop-Rock Hits Of The New Generation (2024) [MP3|320 Kbps] <Pop, Rock, Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37997.jpgsave_picture_37997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37997.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:07A1EE682DF75227518214D540AFF655383EF96D
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37998.jpgsave_picture_37998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37998.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Wise Disk Cleaner 11.1.7.833 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37999.jpgsave_picture_37999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37999.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:FFAED545F45E5798F934758D1DDB7772039B85F6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38000.jpgsave_picture_38000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38000.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:BC7F1CF295F435D344A6510B4DB8F776F4072075
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38001.jpgsave_picture_38001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38001.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ MediaInfo 24.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38002.jpgsave_picture_38002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38002.jpg" />
 </div>
 
 

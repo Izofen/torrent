@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251721.jpgsave_picture_251721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251721.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:714636DCC9557C71A354FC2F6A190D5E65100C31
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251722.jpgsave_picture_251722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:06B44A0767FFF36EFC9C565AECF1B92A7310AC62
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251723.jpgsave_picture_251723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251723.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:10CBE5FF3AAF164BA74AD986AF609755F32BCA02
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251724.jpgsave_picture_251724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251724.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:0C0AA89092691547B925E51DBD8B7D1E574B8E7A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251725.jpgsave_picture_251725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251725.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:CA785E9BE2161F39D7393D2AE6FDF05C897C0E97
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251726.jpgsave_picture_251726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251726.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C41BFE087444F11C90D4F52C53EB3D41BB191D64
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251727.jpgsave_picture_251727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251727.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ The Who - Who Are You (2025) Box Set, 7XCD, Reissue, Remastered, 	Polydor, Delux
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251728.jpgsave_picture_251728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251728.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Adobe Acrobat Pro 2025.001.20844 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251729.jpgsave_picture_251729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251729.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2FB7C5438E3F1839D3C7A71FFC1057F2C4F4685D
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251730.jpgsave_picture_251730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251730.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:E8365E3163B9C60C2D02EDA5805FEE1B32FF5609
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251731.jpgsave_picture_251731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251731.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7E5BCBD77ED666109FD0741AEBA6F19DF9CC0A69
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251732.jpgsave_picture_251732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251732.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:54C338C042B4CDEF0D5908B1C187A618E1A1DA8B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251733.jpgsave_picture_251733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251733.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:E6AA619D95AC733C369FF6CDDBA714DFAEF089E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251734.jpgsave_picture_251734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251734.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Marc Fruttero - Eagles (2025) Limited Edition [FLAC|Lossless|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251735.jpgsave_picture_251735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251735.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:1499B1E98BB62C8107D549BE54CF3AD52184F70E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251736.jpgsave_picture_251736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251736.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:226630297ACC56D76CC31C5DFF6A3A92DAB7F9BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251737.jpgsave_picture_251737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251737.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:604A6E27B6CC0860D17613B01F11231437A02923
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251738.jpgsave_picture_251738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251738.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:1C6C71971635B44C8542F0AB9FEA0EEF69F2CB5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251739.jpgsave_picture_251739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251739.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Quick Wallpaper Pro 1.0.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251740.jpgsave_picture_251740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251740.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Adguard 7.22.1 (7.22.5226.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251741.jpgsave_picture_251741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251741.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:ABE9F9AB4BB495F6DE5496E58DFCD949F1F1D590
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251742.jpgsave_picture_251742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251742.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Xpeng представила самого человекоподобного р�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251743.jpgsave_picture_251743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251743.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Xpeng представила самого человекоподобного р�
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251744.jpgsave_picture_251744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251744.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:66EA5DD27AF81F4E981220993D7839D85D6A7FDB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251745.jpgsave_picture_251745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251745.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ No Players Online (2025) [Ru/Multi] (6000.024f1) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251746.jpgsave_picture_251746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251746.jpg" />
 </div>
 
 

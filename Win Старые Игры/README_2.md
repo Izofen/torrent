@@ -6,7 +6,7 @@ StarCraft & Brood War (1998) [Ru] (1.16.1/dlc) Repack EXROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27352.jpgsave_picture_27352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27352.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Resident Evil 2 (1999) [Multi] (1.0 HotFix 2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27672.jpgsave_picture_27672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27672.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.091) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28309.jpgsave_picture_28309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28309.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Star Trek: Bridge Commander (2002) [En] (1.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29231.jpgsave_picture_29231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29231.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29863.jpgsave_picture_29863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29863.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31007.jpgsave_picture_31007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31007.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Manhunt (2004) [Ru] (1.1) Repack TaloN
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31289.jpgsave_picture_31289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31289.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Pyrrhic Tales: Prelude To Darkness (2002) [En] (1.8) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31599.jpgsave_picture_31599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31599.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Garry's Mod (2006) [Ru/Multi] (Build 162138607) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31950.jpgsave_picture_31950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31950.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ MediEvil: Trilogy (1998-2005) [Ru/Multi] (1.0.0.2/1.0.0.2/1.0.0.0) Repack Ma2012
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32366.jpgsave_picture_32366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32366.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Monster Jam (2007) [En] (1.0.1) Scene Reloaded
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32392.jpgsave_picture_32392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32392.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:EC0A5A947316F02D87834F619BC950EBCDB734B1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33106.jpgsave_picture_33106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33106.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33222.jpgsave_picture_33222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33222.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Resident Evil (1997) [Multi] (1.0 HotFix 3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33500.jpgsave_picture_33500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33500.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34036.jpgsave_picture_34036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34036.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ StarCraft: Brood War (1998) [Ru] (1.16.1/dlc) Repack Ranger
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34560.jpgsave_picture_34560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34560.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Diablo: Hellfire - The Hell 3 (2024) [En] (1.147) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35290.jpgsave_picture_35290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35290.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ul
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35898.jpgsave_picture_35898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35898.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36022.jpgsave_picture_36022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36022.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36412.jpgsave_picture_36412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36412.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36432.jpgsave_picture_36432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36432.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36643.jpgsave_picture_36643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36643.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Microsoft Bicycle Board Games (2002) [En] (2.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36695.jpgsave_picture_36695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36695.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36987.jpgsave_picture_36987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36987.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37044.jpgsave_picture_37044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37044.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Sid Meier's Alpha Centauri™ (1999) [En] (1.1/dlc) License GOG [Planetary Pack]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37051.jpgsave_picture_37051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37051.jpg" />
 </div>
 
 

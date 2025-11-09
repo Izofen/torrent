@@ -6,7 +6,7 @@ Reckless and Blue - Can't Give Me the Blues (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162082.jpgsave_picture_162082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162082.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AF064C9296D4C379FC98D6996FA3272429EC302A
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162083.jpgsave_picture_162083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162083.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ WhyNotWin11 2.4.3.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162084.jpgsave_picture_162084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162084.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:61556BF289E6A381452552DAA670A8DB930C1EAF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162085.jpgsave_picture_162085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162085.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:56AD082C802D535BC276F5FD914039F8D199765D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162086.jpgsave_picture_162086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162086.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:107AADA7E00AEE717806A8BE5D0F20F32540703E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162087.jpgsave_picture_162087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162087.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C95070B85D661B9DF0FB814AEBE85EDEE6AC8F55
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162088.jpgsave_picture_162088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162088.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ High School Music Band - Rock It (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162089.jpgsave_picture_162089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162089.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:F0B86E1FDCB358C56A94F657895961138BB964C5
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162090.jpgsave_picture_162090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162090.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Jrago - Disconnect (2022) [MP3|320 Kbps] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162091.jpgsave_picture_162091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162091.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ MyLanViewer 6.6.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162092.jpgsave_picture_162092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162092.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Brave Browser 1.18.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162093.jpgsave_picture_162093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162093.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:262D7CC76155AA371F89BE60AB3612D30007F352
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162094.jpgsave_picture_162094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162094.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Say Nothing: Indie Pop Rock Selection (2020) [MP3|320 Kbps] <Indie, Pop Roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162095.jpgsave_picture_162095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162095.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:AAB14060BBF1436D539EE07D46A286BEF1FD6263
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162096.jpgsave_picture_162096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162096.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:5ED11EF2AA7E54424685B98015520CF0B999A567
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162097.jpgsave_picture_162097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162097.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Artstudio Pro 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162098.jpgsave_picture_162098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162098.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Soft Organizer Pro 9.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162099.jpgsave_picture_162099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162099.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:EFC9E46D1E6A2D9CD061118B8ABE5E9E9E10905E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162100.jpgsave_picture_162100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162100.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ PhoneRescue for iOS 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162101.jpgsave_picture_162101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162101.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Teorex Inpaint 10.2.2 Portable by Spirit Summer [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162102.jpgsave_picture_162102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162102.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:8EFA0935DB5A183F1C9E18196F495C504118D0DB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162103.jpgsave_picture_162103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162103.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:F196177A83B5911522A81A71622A84FED22FC10F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162104.jpgsave_picture_162104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162104.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Bavaustrian Metalbrothers United - Fall into Oblivion (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162105.jpgsave_picture_162105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162105.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - The Christmas Songs 2022 (2021) [MP3|320 Kbps] <Pop, Rock, R&b, Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162106.jpgsave_picture_162106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162106.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Essential EDM Selection (2020) [MP3|320 Kbps] <Club, Dance, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162107.jpgsave_picture_162107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162107.jpg" />
 </div>
 
 

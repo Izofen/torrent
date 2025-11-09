@@ -6,7 +6,7 @@ Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54090.jpgsave_picture_54090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54090.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Godsmack (& Sully Erna) - Studio Albums (11 releases) (1998 - 2023) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54117.jpgsave_picture_54117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54117.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ elkka - Prism of Pleasure (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54140.jpgsave_picture_54140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54140.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54141.jpgsave_picture_54141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54141.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54145.jpgsave_picture_54145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54145.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54153.jpgsave_picture_54153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54153.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Pet Shop Boys - A new bohemia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Éle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54167.jpgsave_picture_54167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54167.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Bon Jovi - Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54180.jpgsave_picture_54180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54180.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ com.pass - Полюса (2021) [FLAC|Lossless|WEB-DL|tracks] <Russian Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54551.jpgsave_picture_54551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54551.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Snoop Dogg & Dj Drama - Gangsta Grillz: I Still Got It (2022) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54552.jpgsave_picture_54552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54552.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54664.jpgsave_picture_54664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54664.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:481279DD7028C9857300A7DD62000F5BE49EB494
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55307.jpgsave_picture_55307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55307.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Slash (Saul Hudson, Slash's Snakepit, Velvet Revolver) - Studio Albums (10 relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55449.jpgsave_picture_55449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55449.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ twenty one pilots - Clancy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55509.jpgsave_picture_55509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55509.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Jazz Erotic Lounge Collective, Jazz Music Collection - Erotic Improvisation: Sen
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56042.jpgsave_picture_56042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56042.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:FAC2EE6022EAED6553935B9FFFF3D67B363E8CE6
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56132.jpgsave_picture_56132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56132.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ New Kids On The Block - Still Kids (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56246.jpgsave_picture_56246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56246.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Billie Eilish - HIT ME HARD AND SOFT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56270.jpgsave_picture_56270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56270.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56279.jpgsave_picture_56279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56279.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56281.jpgsave_picture_56281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56281.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56341.jpgsave_picture_56341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56341.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56449.jpgsave_picture_56449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56449.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56694.jpgsave_picture_56694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56694.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56755.jpgsave_picture_56755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56755.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Unleash the Archers - Studio Albums (7 releases) (2009-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56903.jpgsave_picture_56903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56903.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Cliff Richard - Rock 'N' Roll Juvenile (1979) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57302.jpgsave_picture_57302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57302.jpg" />
 </div>
 
 

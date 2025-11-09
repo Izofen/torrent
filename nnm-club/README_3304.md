@@ -6,7 +6,7 @@ Epoch Ensemble - Blues In Every Shade (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106265.jpgsave_picture_106265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106265.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chris Boudreaux - Beside Myself (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106266.jpgsave_picture_106266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106266.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Photo Supreme 2024.2.2.6593 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106267.jpgsave_picture_106267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106267.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ron Beer - Best Beer Ever (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106268.jpgsave_picture_106268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106268.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Lara Price - Half & Half (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106269.jpgsave_picture_106269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106269.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BuddyRo and the 'Lanes - I'm Through with Trouble (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106270.jpgsave_picture_106270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106270.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Bad Day - The Irish Goodbye (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106271.jpgsave_picture_106271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106271.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Mine Road - Tomorrow's Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106272.jpgsave_picture_106272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106272.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Soulseller - Witching Hour (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106273.jpgsave_picture_106273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106273.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Jessie Allen Cooper - Classics II (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106274.jpgsave_picture_106274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106274.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sage Perez - Sage & The Imaginaries (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106275.jpgsave_picture_106275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106275.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Curtis Waters - Bad Son (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106276.jpgsave_picture_106276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106276.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Dickey Betts & Great Southern - Atlanta's Burning Down (1978) Remaster, 2024, Le
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106277.jpgsave_picture_106277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106277.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dickey Betts & Great Southern - Dickey Betts & Great Southern (1977) Remaster, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106278.jpgsave_picture_106278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106278.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Richard "Groove" Holmes - Legends Of Acid Jazz: Spicy (1966) 1999, Prestige [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106279.jpgsave_picture_106279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106279.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ InnoExtractor Ultra 8.0.0.603 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106280.jpgsave_picture_106280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106280.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ FontLab 8.3.0.8898 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106281.jpgsave_picture_106281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106281.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:55923A1C90599FC72E38DB19C4E23ACB18C7E9C8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106282.jpgsave_picture_106282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106282.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:0F8E6109FDB6B2B8EBEE5638E534EF397E1A530B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106283.jpgsave_picture_106283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106283.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:B0B7A421516A8E95DB8B17CF90D96E24CD21FC0D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106284.jpgsave_picture_106284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106284.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ John Lennon - Mind Games (1973) 2xCD, Reissue, 2024, Lenono Music, Universal Mus
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106285.jpgsave_picture_106285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106285.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Babbba - Extended Cabaret (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106286.jpgsave_picture_106286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106286.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Max Him - The Original Maxi-Singles Collection (2014) Remastered [OGG Vorbis|480
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106287.jpgsave_picture_106287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106287.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ RJ TextEd 16.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106288.jpgsave_picture_106288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106288.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Richard "Groove" Holmes - Comin' On Home (1971) 2002, Blue Note [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106289.jpgsave_picture_106289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106289.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ The Swing Bot - Tournedisc (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106290.jpgsave_picture_106290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106290.jpg" />
 </div>
 
 

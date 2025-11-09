@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248557.jpgsave_picture_248557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248557.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248559.jpgsave_picture_248559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248559.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Traveling Wilburys - The True History Of The Traveling Wilburys (2007) 2CD [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248560.jpgsave_picture_248560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248560.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Traveling Wilburys - The True History Of The Traveling Wilburys (2007) 2CD [FLAC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248562.jpgsave_picture_248562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248562.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Traveling Wilburys - The True History Of The Traveling Wilburys (2007) 2CD [FLAC
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248563.jpgsave_picture_248563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248563.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Wondershare PDF Converter Pro 3.1.1 + Portable (2012) PC (Multi/Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248564.jpgsave_picture_248564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248564.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Wondershare PDF Converter - это мощный инструмент, котор
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248565.jpgsave_picture_248565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248565.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Лучшие Хиты Радио Дача Часть 8 (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248566.jpgsave_picture_248566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248566.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:11FEAAE8A02F87A7C0C4B856A499AF7A60FC068F
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248567.jpgsave_picture_248567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248567.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Pitbull - Original Hits (2012) [MP3|~245 кб/с ]<Rap, RnB, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248568.jpgsave_picture_248568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248568.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sons of Ashes - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248569.jpgsave_picture_248569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248569.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Enlly Blue - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248571.jpgsave_picture_248571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248571.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:58CD7661271FE351EBE60EA89741D832C2509C71
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248572.jpgsave_picture_248572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248572.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Ilaria Argento - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248573.jpgsave_picture_248573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248573.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Ilaria Argento - Assorted (2025) [MP3|320 Kbps] <Pop, Dance,  rock, Other, AI>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248575.jpgsave_picture_248575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248575.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:D107DEA50122377FE4C1368B5DDE166753864003
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248577.jpgsave_picture_248577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248577.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:E9BAD47AAE81473F54135FCA8FAC2C54F9E8F67B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248578.jpgsave_picture_248578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248578.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Megadeth - Warchest(Live in London 30.09.92) (2007) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248579.jpgsave_picture_248579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248579.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Nick Menza -- drums & bkg vocalsПеревод: ОтсутствуетПродо
 >>Спортивные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248581.jpgsave_picture_248581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248581.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:AE56AE5ADC179018C6A96C1E88CAD54C313333EF
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248582.jpgsave_picture_248582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248582.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:5D0E953C1C592B177B70BF203ED3C7BD65607886
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248583.jpgsave_picture_248583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248583.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:A2E25854060FFAAB5F3E4E50B780AF3590451A90
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248584.jpgsave_picture_248584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248584.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Splinter Cell: Караул смерти / Splinter Cell: Deathwatch (2025) WEBR
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248586.jpgsave_picture_248586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248586.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Fear for Sale 2: Sunnyvale Story Collectors Edition / Страх на прода
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248587.jpgsave_picture_248587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248587.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ B.M. Askerov | Electron Transport Phenomena in Semiconductors (1994) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248588.jpgsave_picture_248588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248588.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:2B2551F02EAAB3C63A322C7F02EDEA25F1140456
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248589.jpgsave_picture_248589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248589.jpg" />
 </div>
 
 

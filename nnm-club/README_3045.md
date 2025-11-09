@@ -6,7 +6,7 @@ Arminstel - Trance Evolution vol.71 (11.03.2012) [MP3|320 кб/с]<Uplifting Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96499.jpgsave_picture_96499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96499.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - 538 Dance Smash 2011 Vol.4 (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96500.jpgsave_picture_96500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96500.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Plexus Relax Sector - Bleak Winter Wailing 2 (tracks + mix) (2012) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96504.jpgsave_picture_96504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96504.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Dub Step vol.2 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96505.jpgsave_picture_96505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96505.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ One Year Later - The Sound of a Broken World (2012) [MP3|320 кб/с]<Metalcore,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96506.jpgsave_picture_96506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96506.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:F8F11E2E1EADAAAAFB6F912A7F09949F2A218122
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96507.jpgsave_picture_96507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96507.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C742E7DAC3D8C5A5AA843405531CBE5FD8055F15
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96509.jpgsave_picture_96509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96509.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - Plexus Relax Sector - Bleak Winter Wailing (2012) [MP3|320 кб/с]<Ambient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96511.jpgsave_picture_96511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96511.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:C4FED4F9F83631E5A6C6FF558A6607CD2CE97C50
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96513.jpgsave_picture_96513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96513.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:7DC9FAC594D2426BF4C475A8D2C9DDFB59388BF1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96514.jpgsave_picture_96514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96514.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Big Shanty - Collection (2011) (2 Disc Set) [MP3|320 кб/с]<Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96555.jpgsave_picture_96555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96555.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Danny Thurmer & The Uptown Road House Devils - A Rockin Blues Album (2012) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96556.jpgsave_picture_96556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96556.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9DCD4C7712CD4DE8E661B231BAD5EAC610D9F21F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96560.jpgsave_picture_96560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96560.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Chillout Sessions XIV (2011) [MP3|320 кб/с]<Chillout / Downtempo / Lo-Fi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96562.jpgsave_picture_96562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96562.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Ibiza Chill Session (2011) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96576.jpgsave_picture_96576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96576.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - 538 Dance Smash 2011 vol.1 (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96580.jpgsave_picture_96580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96580.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96584.jpgsave_picture_96584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96584.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:34B72FE1C89769E35D107E6E997F5F9CF211EBD9
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96585.jpgsave_picture_96585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96585.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ UCS - No Rules (2012) [MP3|~205 кб/с (V1)]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96594.jpgsave_picture_96594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96594.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:597178F996F0DA7DD7A60446E675DB56537C87F2
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96595.jpgsave_picture_96595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96595.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - White Night vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96599.jpgsave_picture_96599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96599.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Best of Club 2012 (01.03.2012) [MP3|320 кб/с]<Progressive House, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96601.jpgsave_picture_96601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96601.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Black Light Discipline - 2 albums (2008, 2012) [MP3|320 кб/с]<Industrial Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96609.jpgsave_picture_96609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96609.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ VA - Лучшая 100ка - Хитовый взрыв 4 50/50 (2012) [MP3|256 к
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96610.jpgsave_picture_96610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96610.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ magnet:?xt=urn:btih:135F3AB700D1DC857AABB5BB02CCE00BA1C14881
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96617.jpgsave_picture_96617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96617.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ VA - Dub Step vol.4 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96620.jpgsave_picture_96620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96620.jpg" />
 </div>
 
 

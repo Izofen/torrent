@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145839.jpgsave_picture_145839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145839.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5E39EDA59D08223DF44AFBC6AFDA1400F25B6EA1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145840.jpgsave_picture_145840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145840.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C77B99903D09D65EC55452C9FAF261EDED788552
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145843.jpgsave_picture_145843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145843.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Dream Into 2022 (2021) [AAC|~312 Kbps] <Deep House, Organic House, Progress
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145844.jpgsave_picture_145844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145844.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Topaz Video AI for Mac 4.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145845.jpgsave_picture_145845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145845.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Smooth & Relaxed (2018) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145846.jpgsave_picture_145846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145846.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8BEDB75D3186DE0735B258E5FBEF5B44E2CDDFB0
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145847.jpgsave_picture_145847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145847.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Bercana Ritual (2020) [AAC|~338 Kbps] <Organic House, Deep House, Melodic H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145849.jpgsave_picture_145849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145849.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:D798B6E27FCB31378A0FFAFB761E2E8E4F43DAAD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145850.jpgsave_picture_145850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145850.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:14CAC74ECE76584C5F522A7B2831C0E95123B59C
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145851.jpgsave_picture_145851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145851.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:9293C3CF2ED73A8BA96411C1B68281682B860C62
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145852.jpgsave_picture_145852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145852.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Dreamful Moments Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145854.jpgsave_picture_145854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145854.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:CEE50A608D3770905329DF216A80BA684872586D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145855.jpgsave_picture_145855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145855.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - The Best Of Suanda Music (Mixed By Roman Messer & Ruslan Radriges) (2018) [
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145856.jpgsave_picture_145856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145856.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Deep Reflections, Session 1 (Deep House Vibes) (2021) [AAC|~316 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145857.jpgsave_picture_145857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145857.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:099FE9865F64E5A7087C21E8A5CEBA166DEF9F6F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145858.jpgsave_picture_145858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145858.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Thief (Dylan Neal) - 4 Albums (2016-2021) [MP3|320 Kbps] <Alternative, Dark Elec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145859.jpgsave_picture_145859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145859.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Slechtvalk - A Forlorn Throne (2010) [FLAC|Lossless|image + .cue] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145860.jpgsave_picture_145860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145860.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:0D3FE720FACF2E615E6DF90670570F955197AB2F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145862.jpgsave_picture_145862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145862.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:AAE24D29BE852E3E844C07DEFC5A58EBE98A4486
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145863.jpgsave_picture_145863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145863.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Sofa King Sick, Chapter 1 (2019) [AAC|~321 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145864.jpgsave_picture_145864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145864.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:C1A1BE4FB95731A1EF5E3DDF444EADB260F11357
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145865.jpgsave_picture_145865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145865.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:D263CFF582F2CF9513FAA3113B6BC8DECCB9FF05
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145866.jpgsave_picture_145866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145866.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Chill Session 2016 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145868.jpgsave_picture_145868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145868.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ FabFilter Total Bundle 2019.03.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145869.jpgsave_picture_145869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145869.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:E3EA239738298572A8276E9138D3672E3442B76E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145870.jpgsave_picture_145870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145870.jpg" />
 </div>
 
 

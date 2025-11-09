@@ -6,7 +6,7 @@ VA - Music News vol.299 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186399.jpgsave_picture_186399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186399.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Discovery: Покушение на Гитлера / Virtual History: The Secret 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186400.jpgsave_picture_186400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186400.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:132AB64EF76E7BEF686C15DCC5CA881A346310D2
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186401.jpgsave_picture_186401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186401.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CFB3569E380104FF4465A58F66CAEF49CBC90F46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186402.jpgsave_picture_186402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186402.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:54595F35156CFAD142920B0A049028373FB465FF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186404.jpgsave_picture_186404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186404.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186405.jpgsave_picture_186405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186405.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:1ED9A88254F2BBEDE9EA68789F0171A894C673B7
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186406.jpgsave_picture_186406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186406.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Telegram Desktop 4.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186407.jpgsave_picture_186407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186407.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:72F42358CF4DBD5B682C477D9D9241663CDDB793
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186408.jpgsave_picture_186408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186408.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Joplin 2.12.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186409.jpgsave_picture_186409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186409.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:57D318E3E093768608FE7E94986BE3338AF519FC
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186410.jpgsave_picture_186410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186410.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Billy's Band - В шляпе (2023) [MP3|320 Kbps] <Rock, Alco-jazz>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186411.jpgsave_picture_186411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186411.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ The Who - Tommy (1969) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186412.jpgsave_picture_186412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186412.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ OCCT 12.1.5 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186413.jpgsave_picture_186413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186413.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:CEA3B5610306031F959D907669B48C146FC2FDEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186414.jpgsave_picture_186414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186414.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Bonfire - 3 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186415.jpgsave_picture_186415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186415.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:902552DC39E814EC430B7C6868BA5864719881F0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186416.jpgsave_picture_186416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186416.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - A State Of Trance Radio Top 50 - 2023, Vol. 2 (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186417.jpgsave_picture_186417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186417.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:3B715BFA2A5B5BC39E7A46513158D06E0B9789DF
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186418.jpgsave_picture_186418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186418.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:F7DE0929796FBFCE07AC6B8CDA09B85DF5C0E520
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186419.jpgsave_picture_186419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186419.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Java SE Development Kit 21.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186420.jpgsave_picture_186420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186420.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:56D3475F1E9B1CE81D6A62EEC71E86A1015B3DB1
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186421.jpgsave_picture_186421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186421.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Guns N’ Roses - Anarchy In The Uk (2020) 2023, SMOKIN'[FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186422.jpgsave_picture_186422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186422.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Brave Browser 1.58.131 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186423.jpgsave_picture_186423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186423.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:392CC58615E542B162323DE200106E38AABC6C70
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186424.jpgsave_picture_186424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186424.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186425.jpgsave_picture_186425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186425.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114001.jpgsave_picture_114001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114001.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9F02E818C22BDDBAF30D74212E252A46F0753155
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114002.jpgsave_picture_114002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114002.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:46A145C8A506C196F3D79C7A7BD2FB8647FE5958
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114003.jpgsave_picture_114003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114003.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Process Lasso Pro 14.0.0.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114004.jpgsave_picture_114004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114004.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ A Better Finder Attributes 7 v.7.31 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114005.jpgsave_picture_114005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114005.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Andry - Skies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114006.jpgsave_picture_114006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114006.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:F3706AF9AD3C3C99FBC90AB8CCD7CC4885C65BA1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114007.jpgsave_picture_114007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114007.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Cycling'74 Max 8.6.1 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114008.jpgsave_picture_114008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114008.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4F59091B3E03F20AA253E04E894DBCCA0030F23C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114009.jpgsave_picture_114009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114009.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Magoria - Hollingsworth Mansion (2017) 2024, Butler Records [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114010.jpgsave_picture_114010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114010.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ ForkLift 4 v.4.1.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114011.jpgsave_picture_114011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114011.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:81DE9040D1950FB1DD3F6D6A8DFA7B53BFAA0E7A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114012.jpgsave_picture_114012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114012.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ ForkLift 4 v.4.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114013.jpgsave_picture_114013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114013.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Dropshare 5 v.5.48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114014.jpgsave_picture_114014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114014.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:9DB8B1ABC9E9C9631B8DA62B894483F01C3D7D46
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114015.jpgsave_picture_114015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114015.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ IObit Uninstaller Pro 13.4.0.2 Portable by  FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114016.jpgsave_picture_114016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114016.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:6262CDFC72D481EEEA521369D20127960532222D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114017.jpgsave_picture_114017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114017.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:462B0869014A654BD8346AE51AB195E5A137A084
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114018.jpgsave_picture_114018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114018.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Coastal Chill Vibes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114019.jpgsave_picture_114019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114019.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:11446FAC3CA43207BED358098647C48693FC97CF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114020.jpgsave_picture_114020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114020.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Opera GX 107.0.5045.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114021.jpgsave_picture_114021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114021.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Thibaudet, Feinstein - Gershwin Rhapsody (2024) [FLAC|Lossless|image + .cue] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114022.jpgsave_picture_114022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114022.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Valentine's Day Perfect Chillout Playlist (2024) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114023.jpgsave_picture_114023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114023.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Opera Magna - Heroica (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114024.jpgsave_picture_114024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114024.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Boinx FotoMagico Pro 6 v.6.5.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114025.jpgsave_picture_114025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114025.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Blue Dawn - Reflections From An Unseen World (2023) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114026.jpgsave_picture_114026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114026.jpg" />
 </div>
 
 

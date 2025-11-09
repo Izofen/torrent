@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133859.jpgsave_picture_133859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133859.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Opera GX 104.0.4944.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133860.jpgsave_picture_133860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133860.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Soledriver - Return Me To Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133861.jpgsave_picture_133861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133861.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:CC3BB66086C130AABC39D33476B8AF0BBBE4F14D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133862.jpgsave_picture_133862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133862.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:E88249583181493A95553111BA04699E507727CB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133863.jpgsave_picture_133863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133863.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Beowulf: The Game / Беовульф [Ru] (RePack) 2007 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133864.jpgsave_picture_133864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133864.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:20E548419A9829E60A293510E9256916CF9F34D1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133865.jpgsave_picture_133865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133865.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ uDock 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133866.jpgsave_picture_133866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133866.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Driver Fusion 1.4.0 Portable by 6sergey5 [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133867.jpgsave_picture_133867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133867.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Arabs In Aspic - The Magic of Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133869.jpgsave_picture_133869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133869.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:3F62FF51C169C6289613221EF4BD15F9CAD7BD1E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133870.jpgsave_picture_133870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133870.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:751B36DAA0E31B23E093ABA0CF1561E9C86A001F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133871.jpgsave_picture_133871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133871.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Visions Of Atlantis - A Pirate's Symphony (2023) Orchestral Version [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133873.jpgsave_picture_133873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133873.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Hit News Vol. 8 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133875.jpgsave_picture_133875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133875.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ ManyCam Virtual Webcam 3.1.29.3991 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133876.jpgsave_picture_133876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133876.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ ManyCam Virtual Webcam 3.1.29.3991 [Multi/Русский]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133877.jpgsave_picture_133877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133877.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Dropzone 4 Pro v.4.80.0 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133879.jpgsave_picture_133879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133879.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Aperture Update 3.4.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133880.jpgsave_picture_133880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133880.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Sony Sound Forge Pro Mac 1.0.22 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133885.jpgsave_picture_133885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133885.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ AirMail Pro 5 v.5.6.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133886.jpgsave_picture_133886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133886.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Bazaart: Photo Editor & Graphic Design v2.3.4 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133888.jpgsave_picture_133888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133888.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:D6009DC8A12D730211A0DA0C6D0D36DD7D920C3D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133889.jpgsave_picture_133889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133889.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:D6009DC8A12D730211A0DA0C6D0D36DD7D920C3D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133890.jpgsave_picture_133890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133890.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Hands Off! 2.0.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133891.jpgsave_picture_133891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133891.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ SILKYPIX Developer Studio Pro 11 for Panasonic 11.3.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133892.jpgsave_picture_133892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133892.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Duplicate File Remover 3.4.1257 Build 34 [Multi / Русский]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133893.jpgsave_picture_133893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133893.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189488.jpgsave_picture_189488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189488.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stratovarius - Father Time (1996) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189489.jpgsave_picture_189489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189489.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Windows 11 Pro 22H2 Build 22621.2134 x64 ReviOS (23.08.2023) [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189490.jpgsave_picture_189490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189490.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Stratovarius - Eagleheart (2002) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189491.jpgsave_picture_189491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189491.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Stratovarius - Maniac Dance (2005) Maxi-Single, Enhanced [OGG Vorbis|480 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189492.jpgsave_picture_189492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189492.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:9750EA32BE3773D2BD691B41D3DA287267C85119
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189494.jpgsave_picture_189494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189494.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ God-Rot - God-Rot (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Doom, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189496.jpgsave_picture_189496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189496.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D1155A24690CC108DD697406AC9762D70E0BB471
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189503.jpgsave_picture_189503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189503.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:7FD6936D0586362499D0DFF29FF32817F8D3F021
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189504.jpgsave_picture_189504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189504.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:EC43F4C441E348609F52756F719431D16645BE97
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189508.jpgsave_picture_189508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189508.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:427AAFAEC288C054E49BE60B8FA284AFD778FEF4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189510.jpgsave_picture_189510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189510.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Airbus A320 авиакомпании «Уральские авиалинии», 
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189512.jpgsave_picture_189512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189512.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Lempo (2023) [Multi] (0.111) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189514.jpgsave_picture_189514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189514.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:76E849AF471E49A320B967622821E190ADC29B15
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189515.jpgsave_picture_189515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189515.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:4C55CE83C8E07BEB704259E17C5799480B39627C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189516.jpgsave_picture_189516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189516.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:4B078D6376893D4A92AE3FEAAD0B2DBCF31E3AA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189517.jpgsave_picture_189517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189517.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:785429C377321C51436FA917FBC7CA4F011940F4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189518.jpgsave_picture_189518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189518.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:5973CF7EDBBDF57597B27C2146D454BC37AA9E67
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189519.jpgsave_picture_189519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189519.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:437F3556C75B3C5E7AB0F870C76A5F8EDEC3607B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189520.jpgsave_picture_189520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189520.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:2916035EFFE2095DC3A7CB09EBE8D45917F5F10E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189521.jpgsave_picture_189521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189521.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:C4A8378CC3CD81B1302A324F09458DE354636A96
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189522.jpgsave_picture_189522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189522.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C4A8378CC3CD81B1302A324F09458DE354636A96
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189523.jpgsave_picture_189523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189523.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:8F1C3713052087D48FC7733B28803CAFB536EB67
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189524.jpgsave_picture_189524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189524.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:7E6E4451D06ADA3C1A244E9E9B0F00D89629A22E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189528.jpgsave_picture_189528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189528.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:31B95B8A93C48F7FF658A5B18E473BBBD052D985
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189529.jpgsave_picture_189529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189529.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189531.jpgsave_picture_189531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189531.jpg" />
 </div>
 
 

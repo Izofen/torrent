@@ -6,7 +6,7 @@ VA - Sonic Space, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Music, Ambi
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20712.jpgsave_picture_20712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20712.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - National Pop Dance Music Vol.105 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20713.jpgsave_picture_20713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20713.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:221716563412DAFA4941B54E3436AB50B20916F1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20714.jpgsave_picture_20714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20714.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:817F95BBCD3D924DBB70F0E30146DB0BAE27E79B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20715.jpgsave_picture_20715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20715.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:481E5F272400469AFDFC8EB37B116AF3A339D07F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20716.jpgsave_picture_20716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20716.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ OCCT 14.0.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20717.jpgsave_picture_20717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20717.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:1B89F20EC0D5587C243512731FAC0FC4BC41DE25
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20718.jpgsave_picture_20718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20718.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:4EA0CCF78DCBB28C0A666D58EEF201DDD80E5FD7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20719.jpgsave_picture_20719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20719.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ DLNow Video Downloader 1.54.2025.04.19 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20720.jpgsave_picture_20720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20720.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20721.jpgsave_picture_20721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20721.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Creepy Shift: House For Sale (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20722.jpgsave_picture_20722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20722.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:399DBB052D54E53FE6E9C47F75F6EEB01F62E666
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20723.jpgsave_picture_20723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20723.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:7E5C966547763392B1B4C56D3ED352735F5F17B1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20724.jpgsave_picture_20724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20724.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ By Click Downloader Premium 2.4.20 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20725.jpgsave_picture_20725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20725.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ FacePic - AI Face App v2.4.0 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20726.jpgsave_picture_20726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20726.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:9771C646B4FF81B4CEC4D52765A3BBCC480EB15F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20727.jpgsave_picture_20727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20727.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:107E854E279339DB7F92A792E5D853AA6AB1B381
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20728.jpgsave_picture_20728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20728.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ The Fool's Apprentice (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20729.jpgsave_picture_20729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20729.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Reg Organizer 9.70 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20730.jpgsave_picture_20730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20730.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Autorun Organizer 6.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20731.jpgsave_picture_20731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20731.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:86D6C417DC923A74C138D15E53A35B78A27AFA78
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20732.jpgsave_picture_20732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20732.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Double Commander 1.1.24 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20733.jpgsave_picture_20733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20733.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:91C1E723E1A167797208821BC08BB817CF2A89EF
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20734.jpgsave_picture_20734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20734.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:BDED679CCD8610D230ED6B48A20DD7625C5C7B85
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20735.jpgsave_picture_20735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20735.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - National Pop Dance Music Vol.104 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20736.jpgsave_picture_20736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20736.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:AD0F70FD487E5E9E1347DFB0A9836085DC5A6FFB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20737.jpgsave_picture_20737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20737.jpg" />
 </div>
 
 

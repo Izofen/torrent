@@ -6,7 +6,7 @@ Wondershare UniConverter for Mac 15.0.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122506.jpgsave_picture_122506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122506.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122507.jpgsave_picture_122507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122507.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fort Firewall 3.10.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122508.jpgsave_picture_122508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122508.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:6C461E05F8CF8F13DBC5A4533479BD7192DBB14F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122509.jpgsave_picture_122509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122509.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D3D1B753ADB4CC3CEFDD094529CFD087711D3BE4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122510.jpgsave_picture_122510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122510.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ DxO ViewPoint 4 for Mac v.4.13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122511.jpgsave_picture_122511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122511.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ To The Max! - Midnight Tea (2024) [MP3|320 Kbps] <Heavy Rock'n'Roll, Garage, Sto
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122512.jpgsave_picture_122512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122512.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:A1635BECED329FF0F947A8710B15693BD7F3170E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122513.jpgsave_picture_122513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122513.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9A5DEFB4385686389B4FB5ACDA5A9AD8FEF49214
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122514.jpgsave_picture_122514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122514.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ DxO PhotoLab 6 ELITE Edition 6.13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122515.jpgsave_picture_122515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122515.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Magia Nera - Vlad (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122516.jpgsave_picture_122516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122516.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ MetaImage for Mac 2.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122517.jpgsave_picture_122517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122517.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ PowerTribe - Up with the Sword (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122518.jpgsave_picture_122518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122518.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122519.jpgsave_picture_122519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122519.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ ScrollNavigator 5.15.3 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122520.jpgsave_picture_122520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122520.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ K-Lite Codec Pack Update 18.0.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122521.jpgsave_picture_122521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122521.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Chris Rea - The Blue Jukebox (2004) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122522.jpgsave_picture_122522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122522.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:4B7EA95C14F7B47751ED8F402D259637F5B53C24
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122523.jpgsave_picture_122523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122523.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264/720p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122524.jpgsave_picture_122524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122524.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Chris Rea - Blue Street (Five Guitars) (2003) [OGG Vorbis|480 Kbps] <Blues Rock,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122525.jpgsave_picture_122525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122525.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A504A6D0EF67542F2C78D5BE8FCEC49A6C7FECEE
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122526.jpgsave_picture_122526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122526.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:38B2C6C5E1EFE50B805946699627D06CBF6FCC79
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122527.jpgsave_picture_122527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122527.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:0E2B67FF170AB0A6BBDA664C2D3777E34AFBE308
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122528.jpgsave_picture_122528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122528.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:65A7FE6A247E0674390577E0317750FD89B92F6F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122529.jpgsave_picture_122529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122529.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:9A7325D4705C79B46CDB8588DE0AB360284CA59E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122530.jpgsave_picture_122530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122530.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Adobe InCopy 2024 v.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122531.jpgsave_picture_122531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122531.jpg" />
 </div>
 
 

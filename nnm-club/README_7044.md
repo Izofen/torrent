@@ -6,7 +6,7 @@ VA - Discotheque Miss Soul (2023) [MP3|320 Kbps] <Jazz, Soul, R'B>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241349.jpgsave_picture_241349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241349.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:57C9201BD7FB7E5FB92F5AFC19E3B4C030DA42AB
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241350.jpgsave_picture_241350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241350.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ URL Manager Pro 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241351.jpgsave_picture_241351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241351.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Rittz - MellowLOvation Music (2023) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241352.jpgsave_picture_241352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241352.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:9BC74D9F74B6884DCA801DC15D1652916F17CD8D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241354.jpgsave_picture_241354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241354.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:C79BD8CD42702347EFD0B14236C94E94329E6DA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241355.jpgsave_picture_241355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241355.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:6D270D2F404436D5E0AD48F553E8FD75679C9A62
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241356.jpgsave_picture_241356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241356.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:E12BECDAB10E53756AF774F46916A21AABC4343B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241357.jpgsave_picture_241357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241357.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:42AD87342060A41CBA6920555431A33E4970DB1F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241358.jpgsave_picture_241358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241358.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ aText 2.36.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241359.jpgsave_picture_241359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241359.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Hawkwind - Days Of The Underground: The Studio & Live Recordings 1977-1979 (2023
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241360.jpgsave_picture_241360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241360.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:73681AFB5870A0C64A8697881B95E93F4B16BF59
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241362.jpgsave_picture_241362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241362.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Burito - Псевдопанк (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241363.jpgsave_picture_241363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241363.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:4E84192823CC64B2C531ACB900D37270B6DABBFA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241364.jpgsave_picture_241364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241364.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ OBLADAET - PLAYERS CLUB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241365.jpgsave_picture_241365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241365.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ SQLPro Studio 2020.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241366.jpgsave_picture_241366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241366.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Black Hole Trance Music 03-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241367.jpgsave_picture_241367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241367.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Swizz Beatz - Hip Hop 50, Vol. 2 (2023) [MP3|192 Kbps] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241368.jpgsave_picture_241368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241368.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:FD514289D8641C68F41206D36E7F3EB770A65E37
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241370.jpgsave_picture_241370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241370.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:997D1FE29E3F7708984D7C6226AADED36B8947AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241371.jpgsave_picture_241371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241371.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:9589E20E2BF38A0188975DE2E5E7F9A46C07ACC9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241372.jpgsave_picture_241372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241372.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:D54AEF8F55134A5C13D7285B7759398A5061DF31
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241373.jpgsave_picture_241373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241373.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Santana - Santana Live In 1978: Black Magic Woman (Live) (2022) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241374.jpgsave_picture_241374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241374.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:0FCCA10E5306B6266D69D076AEA7271618F4F3CD
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241375.jpgsave_picture_241375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241375.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FastFlix 5.5.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241376.jpgsave_picture_241376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241376.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Rectangle Pro 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241377.jpgsave_picture_241377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241377.jpg" />
 </div>
 
 

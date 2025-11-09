@@ -6,7 +6,7 @@ VA - Dubai Chill Lounge Vol.1,2,3 (Сomplеte Сollection) (2007) [MP3|320 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145712.jpgsave_picture_145712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145712.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:607DDADACF0F6B816FE27689BABFD6D6B30CBA74
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145713.jpgsave_picture_145713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145713.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Deep Reflections, Session 3 (Deep House Vibes) (2021) [AAC|~322 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145714.jpgsave_picture_145714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145714.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:58E4E8C0AFA43EE49724141A4E9E362A46C5AE1C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145715.jpgsave_picture_145715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145715.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145717.jpgsave_picture_145717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145717.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:FC5DD9ED2D637773DC6E762AF91F6CB75611110C
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145718.jpgsave_picture_145718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145718.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Cent Browser 4.3.9.241 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145719.jpgsave_picture_145719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145719.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Deep Reflections, Session 2 (Deep House Vibes) (2021) [AAC|~328 Kbps] <Deep
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145721.jpgsave_picture_145721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145721.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145722.jpgsave_picture_145722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145722.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:4097A10E506D618BA14C620EC1FDBA9B410AD927
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145723.jpgsave_picture_145723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145723.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:ECB4D08E2A43435967052B093D683CA8E72BAD3B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145724.jpgsave_picture_145724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145724.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:07A3CF0CEF274442D5A90BA3D54F76EB994A6BCD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145726.jpgsave_picture_145726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145726.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Photo Lab 3.12.77 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145727.jpgsave_picture_145727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145727.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:9B555A756B1FB80BE66DB799B958ED653105170F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145729.jpgsave_picture_145729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145729.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:AD32C0C2DDB3D45F2154DF95F8D94A66544B988A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145731.jpgsave_picture_145731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145731.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Sincopat 2021 Day Collection (2021) [AAC|~347 Kbps] <Deep House, Tech House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145732.jpgsave_picture_145732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145732.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ BELLATRIX - I Love KOTO - Covers and Remixes (2018) [MP3|320 Kbps] <Spacesynth, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145733.jpgsave_picture_145733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145733.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:71C7E41C6A9C25AF537CE34F8D2213DED283F529
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145734.jpgsave_picture_145734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145734.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:C15D5E315C69706670AC5356E2E5F16AFBB8AFF3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145735.jpgsave_picture_145735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145735.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - DeepHouseJazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145736.jpgsave_picture_145736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145736.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:EE36CF17A5540635B6AC1E6CD125389E5296543E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145738.jpgsave_picture_145738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145738.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:6CC71013B5F7E7ADA34BE857B4D1F1C385A933C0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145739.jpgsave_picture_145739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145739.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:571606B239E8BA9D0522390165B567A12646D4F5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145740.jpgsave_picture_145740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145740.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Rencontre Nocturne - Recap 2021 (2021) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145742.jpgsave_picture_145742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145742.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:F76EEA687E197A6880112B0BBDCE05B1C3BB0724
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145743.jpgsave_picture_145743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145743.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Imperia - Tears Of Silence (2015) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145744.jpgsave_picture_145744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145744.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3004.jpgsave_picture_3004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3004.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:42DF7367476F6BB93BC92B3EC3CA5C7BD3C7E956
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3005.jpgsave_picture_3005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3005.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F828BAE7CC2AE24D7A4D88394CA89D8D697DC1EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3006.jpgsave_picture_3006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3006.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CE82D7EF0E97A8962A12590F86AEA3D72DAEB329
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3007.jpgsave_picture_3007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3007.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:78BE3D925D680317BAC650F75F5C7C97E636D789
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3008.jpgsave_picture_3008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3008.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7CE94E7CD0F374994F66FAF25CF0DCC6E25E6366
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3009.jpgsave_picture_3009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3009.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2317FA33CF2D3B3D7F18D47DCAF01113D8893407
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3010.jpgsave_picture_3010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3010.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ FireAlpaca 2.13.25 + Standalone [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3011.jpgsave_picture_3011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3011.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ IObit Uninstaller Pro 15.0.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3012.jpgsave_picture_3012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3012.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:CF38BDF47306489C0EAE0DD6C3DC0FC8E8F6E12F
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3013.jpgsave_picture_3013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3013.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:FFF729F4E5180A693000CA92D7231DC9B1C63B67
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3014.jpgsave_picture_3014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3014.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:77D2200746C0F1EF6D4C2E79AA1CCBA0DFB108B7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3015.jpgsave_picture_3015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3015.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:21F816DAB906769D3480262B17F67A81D5F94FB1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3016.jpgsave_picture_3016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3016.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:58805C808BEC45F2C8D9A0077BB652E7B88F5E50
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3017.jpgsave_picture_3017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3017.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WPS Office + PDF v18.20.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3018.jpgsave_picture_3018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3018.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ iDownerGo Video Downloader 10.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3019.jpgsave_picture_3019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3019.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:3304A5C4A6CD6AA28BBEBB9A7F0F739DB4841981
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3020.jpgsave_picture_3020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3020.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:E079B0FBD86CDA531CD1E14438FDC4E3ACA5B132
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3021.jpgsave_picture_3021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3021.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ GerbView 11.20 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3022.jpgsave_picture_3022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3022.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:C2C21929AFDFF20C67157775CFA4E95FF7DA3995
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3023.jpgsave_picture_3023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3023.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Talksy: Навык общения v0.1.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3024.jpgsave_picture_3024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3024.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Galina Miami, Галина Шувалова | Мастер-класс по по�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3025.jpgsave_picture_3025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3025.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ AMS Ландшафтный Дизайн 3D 10.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3026.jpgsave_picture_3026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3026.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack seleZen [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3027.jpgsave_picture_3027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3027.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ ZBrush 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3028.jpgsave_picture_3028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3028.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.01.010/dlc) Repack Let'sРlay [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3029.jpgsave_picture_3029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3029.jpg" />
 </div>
 
 

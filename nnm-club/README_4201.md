@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130125.jpgsave_picture_130125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130125.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:89AF4194370E827EA37DBA602ECAED3785A9A846
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130127.jpgsave_picture_130127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130127.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Smart Disk Image Utilities 3.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130128.jpgsave_picture_130128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130128.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CrystalDiskInfo 8.14.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130129.jpgsave_picture_130129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130129.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ History Channel: Тайны древности: Магия и чудеса Ве�
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130130.jpgsave_picture_130130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130130.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Jennifer Lyn & The Groove Revival - Nothing Holding Me Down (2021) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130131.jpgsave_picture_130131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130131.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Devin Townsend - Empath (2019) 2020 [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130132.jpgsave_picture_130132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130132.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:7DCB2DF173AA2E6C2404A0686CBFEB2BB4B1117E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130134.jpgsave_picture_130134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130134.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:1A37385B4D54A70C8895BA39E1C82AC99E91C36D
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130135.jpgsave_picture_130135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130135.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ MediaHuman YouTube Downloader 3.9.9.66 (1601) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130136.jpgsave_picture_130136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130136.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Duolingo Plus: изучение иностранных языков 5.41.1 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130137.jpgsave_picture_130137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130137.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Muskogee Hotel - Do You Want to Spend the Night (2021) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130139.jpgsave_picture_130139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130139.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Opera 83.0.4254.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130142.jpgsave_picture_130142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130142.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:26B25F5C6E89EE240577E8E70A18BC691A9C06F3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130144.jpgsave_picture_130144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130144.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:26B25F5C6E89EE240577E8E70A18BC691A9C06F3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130145.jpgsave_picture_130145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130145.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:26B25F5C6E89EE240577E8E70A18BC691A9C06F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130146.jpgsave_picture_130146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130146.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:01B88FB61BA77EBAE7D505D495AA7AE1426E581F
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130148.jpgsave_picture_130148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130148.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:F66449346F848E35E9DDC1CA85C5E1A9C1665F72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130149.jpgsave_picture_130149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130149.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E7CD09A6ACBE8FDC9EF2330F579CD0540DFF7151
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130151.jpgsave_picture_130151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130151.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130153.jpgsave_picture_130153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130153.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:B3959E03E2D5D58EB883CEF05FA08099DA08A9A4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130154.jpgsave_picture_130154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130154.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:765363A4E02835B61136F2CCB29A024C69A9A526
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130155.jpgsave_picture_130155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130155.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:D01C4A23B27B594252569F635721B1F8A52D0CC5
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130156.jpgsave_picture_130156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130156.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:D01C4A23B27B594252569F635721B1F8A52D0CC5
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130157.jpgsave_picture_130157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130157.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ UnHackMe 13.30.2022.0111 RePack by Umbrella Corporation [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130158.jpgsave_picture_130158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130158.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:94B1CA3673308524145E79C512491DC3041E2E35
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130159.jpgsave_picture_130159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130159.jpg" />
 </div>
 
 

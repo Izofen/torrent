@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251529.jpgsave_picture_251529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251529.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:9A3A4B8D77434FD479071E7C49AC3C23D3F99B88
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251530.jpgsave_picture_251530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251530.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:09177884395D0DD63098189290FB65B5D2949B2D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251531.jpgsave_picture_251531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251531.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Walking Dead: Episode 1 (P) [Ru/En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251532.jpgsave_picture_251532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251532.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3F46610239F9799A9FF5E13418599694BE8CA31B
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251534.jpgsave_picture_251534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251534.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3F46610239F9799A9FF5E13418599694BE8CA31B
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251535.jpgsave_picture_251535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251535.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4D2B8982CEC818A302CCEEBF87DFB2318EF6BBEE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251540.jpgsave_picture_251540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251540.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6CE88DC45979ACF2ABE93037221A398215214B9F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251542.jpgsave_picture_251542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251542.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:D8D6E2BC71388C9086CF1376EDC44EA5AA044BAC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251544.jpgsave_picture_251544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251544.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Big Aperture 1.0.0 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251545.jpgsave_picture_251545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251545.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Big Aperture – поможет добавить вашим фотография
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251547.jpgsave_picture_251547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251547.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251549.jpgsave_picture_251549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251549.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251550.jpgsave_picture_251550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251550.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251553.jpgsave_picture_251553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251553.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Open Hardware Monitor 0.4.0 Beta [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251557.jpgsave_picture_251557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251557.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Open Hardware Monitor - это свободное программное обе�
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251559.jpgsave_picture_251559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251559.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:B9309CE7D84A8DD3D7D45B0C74F108226E683D3C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251560.jpgsave_picture_251560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251560.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Mystery Case Files: Return to Ravenhearst / За семью печатями. В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251562.jpgsave_picture_251562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251562.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:22FC71CD21FBB4E7A6EBD41E216E221D68BD5BDB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251566.jpgsave_picture_251566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251566.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:0B24BF6590A3CD695E749BB700A3A299A107309A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251567.jpgsave_picture_251567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251567.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:2CDE59EE48984A0305AA5DABCE60B54077E42C39
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251569.jpgsave_picture_251569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251569.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:AE81259D2A11043B551CB4140894A03C61EB6A1E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251570.jpgsave_picture_251570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251570.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:DA753FDEA40CB34C47BD3ABF8159ED19529CB927
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251571.jpgsave_picture_251571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251571.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:928AA9AC6346E0B4317EE3A600BB35D6150EC758
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251573.jpgsave_picture_251573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251573.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:928AA9AC6346E0B4317EE3A600BB35D6150EC758
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251574.jpgsave_picture_251574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251574.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:18D7BC74B1E22ABDC17BF822F70402C82789ECBF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251575.jpgsave_picture_251575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251575.jpg" />
 </div>
 
 

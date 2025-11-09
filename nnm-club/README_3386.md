@@ -6,7 +6,7 @@ Dolorosa - Summoning Ancient Bleakness (2024) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108397.jpgsave_picture_108397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108397.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Fail Of God - Acatalepsy (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108398.jpgsave_picture_108398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108398.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108399.jpgsave_picture_108399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108399.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Suffering Souls - In Synergy Obscene (2019) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108400.jpgsave_picture_108400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108400.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Charlie Byrd - The Concord Jazz Heritage Series (1980 - 1997) 1998, Concord Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108401.jpgsave_picture_108401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108401.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Deliverance - Stay of Execution (1992) [FLAC|Lossless|image + .cue] <Speed, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108402.jpgsave_picture_108402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108402.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Young Acid - Murder At Maple Mountain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108403.jpgsave_picture_108403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108403.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nightmares On Wax - Carboot Soul (1999) Deluxe Edition, 2024, Warp Records [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108404.jpgsave_picture_108404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108404.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Red Morrow - Instigator of Unexpected Change (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108405.jpgsave_picture_108405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108405.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Youn Sun Nah - Elles (2024) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108406.jpgsave_picture_108406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108406.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:0D643128C658B416F670983839599C421D4F46D2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108407.jpgsave_picture_108407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108407.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - DJ Hits Vol. 26 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108408.jpgsave_picture_108408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108408.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - DJ Hits Vol. 25 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108409.jpgsave_picture_108409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108409.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:DC6D29E6B14E20156E475D3291A5ED9AEE42E6AA
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108410.jpgsave_picture_108410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108410.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Night Wilds - All That Should Have Been (2024) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108411.jpgsave_picture_108411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108411.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:6EEFEFF1D25F21639EC5DAF87108351A1A6D642D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108412.jpgsave_picture_108412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108412.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:F345BE71A75DFCBABB2BB5F6B31BB07284B66152
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108413.jpgsave_picture_108413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108413.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:31172F33A18AFFEC200EAB25BC4A47FA749ADE89
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108414.jpgsave_picture_108414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108414.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Barock Project - Time Voyager (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108415.jpgsave_picture_108415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108415.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Lee Ritenour - Captain Fingers (1977) 1987, Epic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108416.jpgsave_picture_108416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108416.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Deicide - Banished by Sin (2024) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108417.jpgsave_picture_108417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108417.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ The Acid Machine - 3 Albums (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brazil
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108418.jpgsave_picture_108418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108418.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Dreamgate - Dreamgate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108419.jpgsave_picture_108419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108419.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Grain Of Pain - The Moon Lights The Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108420.jpgsave_picture_108420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108420.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Suffering Souls - An Iconic Taste Of Demise (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108421.jpgsave_picture_108421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108421.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Deliverance - What a Joke (1991) Remastered, 2020, Retroactive Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108422.jpgsave_picture_108422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108422.jpg" />
 </div>
 
 

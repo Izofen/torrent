@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123872.jpgsave_picture_123872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123872.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4198BE4DFD7B8262C9482FE65CDAC5C24125A6FC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123873.jpgsave_picture_123873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123873.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:7212FEBF91FE1519C1579AE23E03E1F13B8F1457
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123874.jpgsave_picture_123874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123874.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:D2574D298F15685F62283C719A7110CC5FF45022
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123875.jpgsave_picture_123875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123875.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123876.jpgsave_picture_123876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123876.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C3CB72E65EB632E7A4E147150773328BD1F7D9E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123877.jpgsave_picture_123877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123877.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:93600BCC097957D49D08BB7862A4983C8E6CD11F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123878.jpgsave_picture_123878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123878.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D4D3F25114ABC12BA3A55E4327982408EB3B4C28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123879.jpgsave_picture_123879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123879.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:A33FA058316934573A2AAA935CE35D7C3E329A5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123880.jpgsave_picture_123880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123880.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:A7393531E88D066C0F20063D2807481B56B6AD14
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123881.jpgsave_picture_123881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123881.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:D4D75FC42470008157E5EB7831D981AA7CCEC54A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123882.jpgsave_picture_123882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123882.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:FFAE0452F3CCDD789AA9F3218CADEA06F8F6C1FA
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123883.jpgsave_picture_123883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123883.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7C47F132F00A7BA4DDD702A7AE22140750CF7E5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123884.jpgsave_picture_123884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123884.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ TweakTimeSaver 1.1.0 [Ru/En] (Авторская раздача)
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123885.jpgsave_picture_123885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123885.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:C61D6A78C7FB0406C335DA0CE17710199953F384
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123886.jpgsave_picture_123886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123886.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:04A9A3BDEC3E4554413C0D699DBB561C21CAD9B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123887.jpgsave_picture_123887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123887.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123888.jpgsave_picture_123888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123888.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:60874EC3BCA734C55D8F053070B362ECF74BB9CD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123889.jpgsave_picture_123889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123889.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:12DE46BE8D611C340E962DA0A4C32AF15E5CA1DB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123890.jpgsave_picture_123890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123890.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:75CD1086D00BC796E2973B02DFBF22180CFB9829
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123891.jpgsave_picture_123891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123891.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Stepik, Renat Lotfullin | Excel VBA – Программирование мак�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123893.jpgsave_picture_123893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123893.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:35723365C0E692DF781B9EF4E82CD4975BE8B30D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123894.jpgsave_picture_123894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123894.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:C02150E638B262165D520CCFF497446D5818C395
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123895.jpgsave_picture_123895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123895.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:1769A991CC4677ACEF9592B373FD4B89CA82A121
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123896.jpgsave_picture_123896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123896.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Two Are One - A Question Of Time (1995) Reissue, 2018, Minotauro [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123897.jpgsave_picture_123897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123897.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Kharmaguess - 9 Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indust
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123898.jpgsave_picture_123898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123898.jpg" />
 </div>
 
 

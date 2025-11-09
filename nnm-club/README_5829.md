@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182671.jpgsave_picture_182671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182671.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:15229EF8AC9DBECDA15510315C0F254DC6261AEC
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182672.jpgsave_picture_182672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182672.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4D0E71862A4BF94D72D9ED76F1B67E9AD92D6A1F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182673.jpgsave_picture_182673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182673.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:31113C8A16665E9C3B2B357C95C132C5BBB20452
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182676.jpgsave_picture_182676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182676.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:5731E385BD82C991297C0514D0E98BF230444E65
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182677.jpgsave_picture_182677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182677.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FA014077986CC83E2DE179D53337BFC81666A6B2
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182678.jpgsave_picture_182678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182678.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:803826A1EC73FED828AFB3A7173F1463702E5530
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182681.jpgsave_picture_182681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182681.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:EA07016346BA287D20032D882F8362B5CA9768E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182683.jpgsave_picture_182683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182683.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ GeekBrains, Фёдор Гребенников и др. | Создание сай
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182686.jpgsave_picture_182686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182686.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:47184DD5E8E06E63319B929771BB1AD992B50C5B
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182687.jpgsave_picture_182687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182687.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Office 2013-2021 C2R Install + Lite 7.7.3 ++ Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182688.jpgsave_picture_182688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182688.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Marmoset Toolbag 4.06 (4063) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182691.jpgsave_picture_182691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182691.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:DFE30838DF24FBEE2F58B2A43212FBE156E0B078
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182692.jpgsave_picture_182692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182692.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Nickelback - 10 Albums (1996-2022) Full Studio Discography [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182693.jpgsave_picture_182693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182693.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:9B70A3D5E0BFC37754B470B5C2CF9DBC6AC9292E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182695.jpgsave_picture_182695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182695.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:C03B02CF9D847A67DD24449C576A347BD8C5EA5F
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182697.jpgsave_picture_182697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182697.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:18555647C6525E81B13238446EEBCC329D64F523
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182698.jpgsave_picture_182698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182698.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:1F331CD6DB95037EB781D220F25009EA9E0170CE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182700.jpgsave_picture_182700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182700.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:676694D02A13704D171D07EAD2C2867884962D36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182701.jpgsave_picture_182701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182701.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Zhenyu George Li | Unreal Engine 5 Game Development with C++ Scripting (2023) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182703.jpgsave_picture_182703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182703.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:D4623467A0421F98991FBC83FA1CD4F631145640
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182706.jpgsave_picture_182706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182706.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:43E24BA2ABFB7E554B410EE2BE4DC3BD2CABC998
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182707.jpgsave_picture_182707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182707.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F63E48286CA88BA27F3DAE27A901CA2A333ECDDD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182708.jpgsave_picture_182708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182708.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:8342095937C853D3E14FCC020616900D87263BE7
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182710.jpgsave_picture_182710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182710.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:5F436D96EEE2CF98C33CEB010FC48DAE010C8778
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182711.jpgsave_picture_182711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182711.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bendy and the Dark Revival (2022) [En] (1.0.0.0215) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182713.jpgsave_picture_182713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182713.jpg" />
 </div>
 
 

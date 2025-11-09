@@ -6,7 +6,7 @@ Heavy Blanket - Moon Is (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245195.jpgsave_picture_245195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245195.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dust Prophet - One Last Look Upon The Sky (2023) [MP3|320 Kbps] <Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245204.jpgsave_picture_245204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245204.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Rock Collection: Rock Ballads (1992) 2CD Compilation [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245226.jpgsave_picture_245226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245226.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ After All - Mercury Rising (2003) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245237.jpgsave_picture_245237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245237.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alan Parsons - From The New World (2022) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245255.jpgsave_picture_245255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245255.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Bar Stool Preachers - Above the Static (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245304.jpgsave_picture_245304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245304.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Tribute - Breaking Barriers (1986) Reissue, 2013, Sireena Record [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245322.jpgsave_picture_245322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245322.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ninja - Invincible (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245336.jpgsave_picture_245336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245336.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ghosts of Sunset - Breathe (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245337.jpgsave_picture_245337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245337.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Birthday Massacre - Fascination (2022) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245340.jpgsave_picture_245340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245340.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245344.jpgsave_picture_245344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245344.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:593F4F9AA874B2B9A75C485ED31BDFC101CC0A43
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245352.jpgsave_picture_245352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245352.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Moonlight Benjamin - Wayo (2023) [MP3|320 Kbps] <Blues Rock, Voodoo Rock, Native
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245353.jpgsave_picture_245353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245353.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Panopticon - Roads To The North (2014) [FLAC|Lossless|image + .cue] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245358.jpgsave_picture_245358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245358.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Manegarm - Manegarm (2015) [FLAC|Lossless|image + .cue] <Viking Metal, Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245365.jpgsave_picture_245365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245365.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Legacy Pilots - Helix (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Sy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245370.jpgsave_picture_245370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245370.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sedmina - Melita & Veno Dolenc (1980) Reissue,  2014,  Mellotron Records [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245372.jpgsave_picture_245372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245372.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Demonstealer - The Propaganda Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245378.jpgsave_picture_245378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245378.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Deathcode Society - Eschatonizer (2015) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245383.jpgsave_picture_245383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245383.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sekta Core - En la Zona del Terror (En Vivo) (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245388.jpgsave_picture_245388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245388.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Austere - Corrosion of Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressive B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245389.jpgsave_picture_245389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245389.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ High Spirits - Another Night (2011) [FLAC|Lossless|image + .cue] <NWoBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245390.jpgsave_picture_245390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245390.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Classic Crime - GRIM AGE (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245399.jpgsave_picture_245399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245399.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:40F3618496937529CD895CEE58F6AC5A035BD617
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245404.jpgsave_picture_245404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245404.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Vanish - A Hint Of Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245407.jpgsave_picture_245407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245407.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Discreation - Iron Times (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245410.jpgsave_picture_245410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245410.jpg" />
 </div>
 
 

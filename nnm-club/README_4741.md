@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148374.jpgsave_picture_148374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148374.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AE963C8E3311F9D8550BBA1C0386A7521BD5599B
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148375.jpgsave_picture_148375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148375.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B2D0B7C4BA2AB85C5FC1E0685CA47AAAEE4D6705
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148376.jpgsave_picture_148376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148376.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Movavi Screen Recorder 11.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148378.jpgsave_picture_148378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148378.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Letter Templates for Pages 4.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148379.jpgsave_picture_148379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148379.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:E7F01F06A90B49A8DC93E01146F3E721918DAEC0
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148380.jpgsave_picture_148380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148380.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:CF39B9B78A5037471FB6F60DA4C148B3119EEBC9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148381.jpgsave_picture_148381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148381.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:977142AC8236956C324559D16D62443DD9993BDE
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148382.jpgsave_picture_148382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148382.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Avidemux 2.8.0 Release(r211223) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148383.jpgsave_picture_148383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148383.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Udemy, Norbert B. Menyhart | React for Beginners - From HTML CSS & JavaScript to
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148384.jpgsave_picture_148384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148384.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:44F2028A890BBE64F08417FADB4F517AE8A445A8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148386.jpgsave_picture_148386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148386.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:EB6B3D8D92548ED47124D34BBE2551A16A410B99
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148387.jpgsave_picture_148387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148387.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Apofeozъ - 2 Albums (2019-2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148389.jpgsave_picture_148389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148389.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:7CB265DE7FC734894BCB842675313E5A0A1D1F68
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148390.jpgsave_picture_148390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148390.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:3E54086A0BA4D9C6117DEECB44A2B7CAACC5CBA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148391.jpgsave_picture_148391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148391.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:362F19158006FA116F585FEAC7F487E3AE7CB1BA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148393.jpgsave_picture_148393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148393.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:93CC9D38021D2EA6033F9DF020BF4144902BC46A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148394.jpgsave_picture_148394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148394.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:7A0E5A741A8D2405D71A2F2A7E73D18B24198FDC
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148395.jpgsave_picture_148395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148395.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:55A144950FAE9B8A3CDC12C4650675E78BDCD058
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148397.jpgsave_picture_148397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148397.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:19AA761357962069B92DEDCA39BEB8B68257E5BB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148398.jpgsave_picture_148398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148398.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:6A00117E9CDC154BA888A78053EC289A11481BCB
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148399.jpgsave_picture_148399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148399.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FlashBack 2 (2023) [Multi] (1.00) Scene FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148400.jpgsave_picture_148400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148400.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ AnyTrans 5.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148402.jpgsave_picture_148402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148402.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Tiger Moth Tales - The Whispering Of The World - Live From The Quiet Room (2020)
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148403.jpgsave_picture_148403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148403.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ This PC Tweaker 1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148405.jpgsave_picture_148405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148405.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ IZotope Iris 2 2.02.455 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148406.jpgsave_picture_148406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148406.jpg" />
 </div>
 
 

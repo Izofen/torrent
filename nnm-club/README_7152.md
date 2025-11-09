@@ -6,7 +6,7 @@ VA - Шальной Музон Хорошего Настроения 7 (2016) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244901.jpgsave_picture_244901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244901.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Grafenberg Disciples - Breathing Through My Ears (2023) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244902.jpgsave_picture_244902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244902.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B9D3346DAC8174F5F1D059995B73EE7D47A5AB46
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244903.jpgsave_picture_244903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244903.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ HiBit Uninstaller 3.1.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244904.jpgsave_picture_244904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244904.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Avulsed - Stabwound Orgasm (1999) [FLAC|Lossless|image + .cue] <Brutal Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244905.jpgsave_picture_244905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244905.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:301D1F2B3F38DB4E3387829E5936C468164A0A25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244906.jpgsave_picture_244906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244906.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Back to Earth #02 (2020) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244907.jpgsave_picture_244907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244907.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Count Basie - Swinging The Blues (1937 - 1949) 2000, Disques Dreyfus [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244908.jpgsave_picture_244908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244908.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Verberis - Adumbration of the Veiled Logos (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244909.jpgsave_picture_244909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244909.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Beatport Club Techno: Sound Pack #248 (2021) [MP3|320 Kbps] <Techno, Tech H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244910.jpgsave_picture_244910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244910.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:799DD7ADA2523F970CF90CB5EB52655CD1E84013
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244911.jpgsave_picture_244911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244911.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:C3792C274425390908B6478E25BED907D1A30C1C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244912.jpgsave_picture_244912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244912.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:9A428E88BD0326EC2035D7AAAFEA26794C58CDB5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244913.jpgsave_picture_244913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244913.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A9E08AD4C9D17FA8D32A4091C4B2CB71ED99A4F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244914.jpgsave_picture_244914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244914.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ MAGIX Sound Forge Pro 17.0.0 Build 81 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244915.jpgsave_picture_244915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244915.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Back to Earth #01 (2020) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244916.jpgsave_picture_244916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244916.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:88D369B30966C2B27E086ACD4F7F6CDF3492F301
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244917.jpgsave_picture_244917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244917.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:AFC32D855B8AB2D3E17F662BB8C77C90433B7972
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244918.jpgsave_picture_244918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244918.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ K-Lite Codec Pack Update 17.5.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244919.jpgsave_picture_244919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244919.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:81A2EB8DC741DFF69A3DA5430FB8E3512FDA7819
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244920.jpgsave_picture_244920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244920.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Nitro PDF Pro 13.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244921.jpgsave_picture_244921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244921.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:96D29FB131E928C1669DDECD9F2BF9FE715E338D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244922.jpgsave_picture_244922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244922.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:4010ED5FA8FADDCE281FE77AAEE54D5037AC4379
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244923.jpgsave_picture_244923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244923.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:B748CC4D753CBC92989A604D9A9C574660862F43
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244924.jpgsave_picture_244924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244924.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:00CB72E6EA40F3EAF00ACD08D77AEA5F16FA4126
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244925.jpgsave_picture_244925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244925.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Ink Stains Games | Артбук по игре 12 is Better Than 6 / 12 is Better
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244926.jpgsave_picture_244926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244926.jpg" />
 </div>
 
 

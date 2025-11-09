@@ -6,7 +6,7 @@ Teskey - White Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66374.jpgsave_picture_66374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66374.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lowell Hopper - Opposite Direction (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66375.jpgsave_picture_66375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66375.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A13C33B746C72CDE48590347B09A1B709E5B6130
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66376.jpgsave_picture_66376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66376.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8742DB4FF09D7131067DA57F92221BC4C1D1AD8A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66377.jpgsave_picture_66377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66377.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:4F4FFFFB8BEDE75EA9460CBD79C5BA4ECC1CD3FC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66378.jpgsave_picture_66378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66378.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - The Midnighters Vol. III (Last Chapter) (2025) Signora Ward Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66379.jpgsave_picture_66379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66379.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Redux Selection, Vol. 6 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66380.jpgsave_picture_66380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66380.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ John Stewart Simpson and Old Brown Dog - Chasing the Moon (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66381.jpgsave_picture_66381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66381.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:B4E08AA243DABEEE492FDA8047A26428F0BA5F56
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66382.jpgsave_picture_66382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66382.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:0B693E5276525F534DCC32CB3E9504F6DA91A672
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66383.jpgsave_picture_66383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66383.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:DC90D418C032152D1F15E84593EEEBE97857D4B3
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66384.jpgsave_picture_66384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66384.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:9D0BA57AADA5F3E9C5506141FC2F06209C887C68
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66385.jpgsave_picture_66385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66385.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ George Strait - One Step at a Time (1998) CD, HDCD, Album [FLAC|Lossless|tracks 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66386.jpgsave_picture_66386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66386.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:FA8FF7FDB0C0B37E361F9BD62B643A96369F0BFD
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66387.jpgsave_picture_66387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66387.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Sam Ghezzi - Bad Boy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66388.jpgsave_picture_66388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66388.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:3F413B676B89B805210E1D28D10DED7CC88CB98D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66389.jpgsave_picture_66389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66389.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VueScan Pro 9.8.45.24 RePack (& Portable) by elchupacabra (DC 26.05.2025) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66390.jpgsave_picture_66390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66390.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:D58F2F0EC3D4CD753C64899E5DDA7F648E6AFCA6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66391.jpgsave_picture_66391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66391.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Inborn Suffering - Pale Grey Monochrome (2025) [FLAC|Lossless|image + .cue] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66392.jpgsave_picture_66392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66392.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ John Elijah - Take and Give (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66393.jpgsave_picture_66393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66393.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Loop of Boom - Human Artifacts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66394.jpgsave_picture_66394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66394.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:ACF8D9508D86B7CC2E742E2B07F42BEC19668620
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66395.jpgsave_picture_66395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66395.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:49963B7BF148F248E4B0317D5B3A60B84A04CC59
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66396.jpgsave_picture_66396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66396.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:16026EC2B5B809E12AAA89FBE1DDB1F4B467B99C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66397.jpgsave_picture_66397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66397.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:0EA912ABDF900E999377626913316450632AC92B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66398.jpgsave_picture_66398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66398.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:493CAD1C89CC752AA2CEAD2CF96A9B7446313E32
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66399.jpgsave_picture_66399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66399.jpg" />
 </div>
 
 

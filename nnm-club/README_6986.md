@@ -6,7 +6,7 @@ VA - Refreshing Jazz Lounge: Chillout Your Mind (2020) [AAC|~304 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239793.jpgsave_picture_239793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239793.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mystic Circle - Erzdamon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239794.jpgsave_picture_239794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239794.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Жирные Хиты Весны Remix NNM (2022) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239795.jpgsave_picture_239795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239795.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Word Counter Pro 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239796.jpgsave_picture_239796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239796.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Bruce Torff - Look Again (2013) Summit Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239797.jpgsave_picture_239797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239797.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - 90s Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239798.jpgsave_picture_239798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239798.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:30366A852F3A3DEB08FBC65CBB42F9B5FC199274
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239799.jpgsave_picture_239799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239799.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:84FF828E3E8006E8CFF9CFFECEACC9B7D0479330
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239801.jpgsave_picture_239801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239801.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239802.jpgsave_picture_239802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239802.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Library Monkey Pro 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239803.jpgsave_picture_239803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239803.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Shadow of Everest - Where Giants Die (2022) [MP3|320 Kbps] <Progressive Metal, G
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239804.jpgsave_picture_239804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239804.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Uninstall Tool 3.6.0 Build 5684 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239805.jpgsave_picture_239805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239805.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:91AE2755C62899EE7233604B367E2EBA33FE245A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239806.jpgsave_picture_239806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239806.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Image Tuner Pro 9.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239807.jpgsave_picture_239807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239807.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:5770E400D7E606C668CB3A66E3C9124EF0796A20
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239808.jpgsave_picture_239808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239808.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Oryx - Lamenting a Dead World (2021) [FLAC|Lossless|WEB-DL|tracks] <doom metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239809.jpgsave_picture_239809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239809.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:FDC24C09F088D07D87744977E5E38BA536D0B02B
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239810.jpgsave_picture_239810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239810.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Dark Millennium - Acid River (2022) [FLAC|Lossless|image + .cue] <Progressive De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239811.jpgsave_picture_239811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239811.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Howling Giant - 8 Albums (2015-2021) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239812.jpgsave_picture_239812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239812.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ ReVamp - ReVamp (2010) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239813.jpgsave_picture_239813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239813.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Fatal Vision - Once (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239814.jpgsave_picture_239814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239814.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:A5F70DDAF9C96722C5352EDA56A276D6D141A05D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239815.jpgsave_picture_239815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239815.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:9B907A3862B7511C8F6069FBA1A1CDCF4BE8BB28
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239816.jpgsave_picture_239816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239816.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Windows 10 Manager 3.6.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239817.jpgsave_picture_239817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239817.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - African Jazz For The Soul (2022-2023) Vol. 1 - 5  [MP3|320 Kbps] <Jazz, Sou
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239818.jpgsave_picture_239818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239818.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:8D40E9C369312CDE30EDCF9D50D6A7290BD60C33
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239819.jpgsave_picture_239819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239819.jpg" />
 </div>
 
 

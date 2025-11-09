@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141104.jpgsave_picture_141104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141104.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DiskDigger 1.20.9.2683 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141105.jpgsave_picture_141105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141105.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Corona Renderer 1.7 for 3ds Max 2012-2018 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141106.jpgsave_picture_141106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141106.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A43323818731E647554F564596DA7797AC578712
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141107.jpgsave_picture_141107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141107.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CCleaner 6.18.10838 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141108.jpgsave_picture_141108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141108.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B176BD26351B810B7A74E5D886EE318BFD159E3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141109.jpgsave_picture_141109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141109.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CFF0146F1670BA4F2F079E4E93438C633D20856D
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141110.jpgsave_picture_141110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141110.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FF90479B75072109063049E7C368BFC947F5906E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141112.jpgsave_picture_141112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141112.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:BD99172C31182E64B584FA15BF5DD29D6321A890
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141113.jpgsave_picture_141113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141113.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:CD53E80FDBCD007DB4DEBB0316BE0BE77E289E2D
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141114.jpgsave_picture_141114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141114.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141115.jpgsave_picture_141115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141115.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ WidsMob Viewer 2.10 (1266)[Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141116.jpgsave_picture_141116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141116.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:45849B87D82A9B17FFF7D72660232FA34A6CD2D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141117.jpgsave_picture_141117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141117.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Bamboo Industry - Tortured By Pleasure (1989) [MP3|320 Kbps] <Alternative Pop, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141119.jpgsave_picture_141119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141119.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:C7B3BF2B924A1D52001020529AADDCFE93ADFBBD
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141120.jpgsave_picture_141120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141120.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:888FBA6517EEE8B355827AF2D76ECFA12570CA88
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141121.jpgsave_picture_141121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141121.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:888FBA6517EEE8B355827AF2D76ECFA12570CA88
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141122.jpgsave_picture_141122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141122.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:51F37B4278A52B9DEBE7B7E67606F520742F7ACA
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141123.jpgsave_picture_141123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141123.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:093BEAD65FFE15938DC16AA2328CAB72E40E8D29
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141124.jpgsave_picture_141124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141124.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - Workout After Xmas 2016 (2016) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141125.jpgsave_picture_141125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141125.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:0E114431A37A03B8F61B9BD742E8253FB3A09919
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141126.jpgsave_picture_141126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141126.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:D7034F33F8E2925AF3B35B7C327030521CE526DF
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141128.jpgsave_picture_141128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141128.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:248496685D1498862E77C6BCF80237B238EEAFAC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141129.jpgsave_picture_141129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141129.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:9F21FB2224A7F69FB2A52B20D11DC770647A026E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141130.jpgsave_picture_141130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141130.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Sine Mora [En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141131.jpgsave_picture_141131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141131.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141132.jpgsave_picture_141132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141132.jpg" />
 </div>
 
 

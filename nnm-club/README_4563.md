@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142808.jpgsave_picture_142808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142808.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A78CD0CF04585755DBE0F60704A2B16280442DD2
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142810.jpgsave_picture_142810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142810.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jinn'sLiveUSB 11.2.2 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авт�
 >>44
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142811.jpgsave_picture_142811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142811.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C79CC823A81CBD9C1F87BFA4C28BD179B3936933
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142812.jpgsave_picture_142812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142812.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Movavi Video Converter 22.2.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142813.jpgsave_picture_142813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142813.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Michelle Gurevich - Exciting Times (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142814.jpgsave_picture_142814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142814.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ BluePlum Home Inventory 4 v4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142815.jpgsave_picture_142815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142815.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ USB Safely Remove 6.2.1.1284 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142817.jpgsave_picture_142817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142817.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0F5B9C00F436BC834F65C3E0162FFBBA86B19A57
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142818.jpgsave_picture_142818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142818.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Room Arranger 9 v9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142819.jpgsave_picture_142819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142819.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B1E955B65EBDA20D1A7462F45E096385780A73B7
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142820.jpgsave_picture_142820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142820.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523.2310241203) Repack 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142821.jpgsave_picture_142821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142821.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ BurnAware Professional 11.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142822.jpgsave_picture_142822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142822.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:6BC55E2FAEFA55CBEA066978795FA920C865311C
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142823.jpgsave_picture_142823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142823.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:17773375B19345F784870727CA70AC9A522EB4A2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142825.jpgsave_picture_142825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142825.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:B752464A4EBDC88DF007E0109308DDE2E2A72026
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142827.jpgsave_picture_142827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142827.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Pop Rock Chart Music (2018) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142828.jpgsave_picture_142828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142828.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:15096C954963AEC46AA90AAB43E964D36624477A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142829.jpgsave_picture_142829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142829.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:8F499E18BA21E0E10D6B1872014F60A442E242F6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142831.jpgsave_picture_142831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142831.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Twinkstar 4.10.1000.1812 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142832.jpgsave_picture_142832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142832.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:34E8E9C8A2B1E29CE2A66E14DDBCDCF3BAFBEE93
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142834.jpgsave_picture_142834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142834.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Reflect Studio 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142835.jpgsave_picture_142835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142835.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Stormzy - Gang Signs & Prayer (2017) [FLAC|Lossless|tracks + .cue] <Grime>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142836.jpgsave_picture_142836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142836.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:7EB73A97158668F7C968013D93F328F70A82404E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142837.jpgsave_picture_142837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142837.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Microsoft Windows 10.0.19045.3693, Version 22H2 (Updated November 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142838.jpgsave_picture_142838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142838.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Soilwork - Verkligheten (2019) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142840.jpgsave_picture_142840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142840.jpg" />
 </div>
 
 

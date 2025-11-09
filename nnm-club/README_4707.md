@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147330.jpgsave_picture_147330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147330.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Geekbench 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147331.jpgsave_picture_147331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147331.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:181B32935D83D79BE567AE3320259D43ACFE7BAD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147333.jpgsave_picture_147333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147333.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Music That Moves You 2022 (2021) [AAC|~317 Kbps] <House, Dance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147334.jpgsave_picture_147334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147334.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:288F6DF8083B9703415A659E66A73078F4E7105B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147335.jpgsave_picture_147335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147335.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147336.jpgsave_picture_147336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147336.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:DA4740BCF00B3A5B148DDF3C039ABE95B33D4C89
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147337.jpgsave_picture_147337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147337.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Minecraft (2013) [Ru] (1.0) Mod
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147338.jpgsave_picture_147338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147338.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Topaz Photo AI for Mac 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147339.jpgsave_picture_147339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147339.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ iBoostUp Premium 9.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147340.jpgsave_picture_147340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147340.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:431F7616AD90E54D971EBA40C47FC8997A16A15A
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147341.jpgsave_picture_147341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147341.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:E508BBEA6748D3706918C6E1E59873283F1AFA4E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147343.jpgsave_picture_147343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147343.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - The Purr Best Of Winter 2021 (2021) [AAC|~335 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147344.jpgsave_picture_147344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147344.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:0BABFC80809C12A918E4D2A325DCB2A21C168B04
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147347.jpgsave_picture_147347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147347.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Downie 4 v.4.6.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147348.jpgsave_picture_147348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147348.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:D1C1ED35FDB1FAE8D5A09A7D6713F99FD829C1D3
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147349.jpgsave_picture_147349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147349.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:59EB02C448967463D16B5F47A792C3D40D9876ED
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147350.jpgsave_picture_147350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147350.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:1DF8A3596D451E6B45193022B5A1E31B2B9191C3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147351.jpgsave_picture_147351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147351.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Apple выдали патент, подтверждающий, что компа
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147352.jpgsave_picture_147352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147352.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Apple выдали патент, подтверждающий, что компа
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147353.jpgsave_picture_147353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147353.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Finest NY House 2021, Pt. 2 (2021) [AAC|~325 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147355.jpgsave_picture_147355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147355.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:CBC229B836ECCA13E107643A7B51E3052BC0C32E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147356.jpgsave_picture_147356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147356.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:35DB76BF1FF44AE07FCEC8ACA0151D05B8ABFD41
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147357.jpgsave_picture_147357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147357.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:C38FA08322F5EEC24EAC7E057DC7A34735BAC924
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147358.jpgsave_picture_147358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147358.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:560E907E78A2E638424CD123F1D8793273CA98EA
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147359.jpgsave_picture_147359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147359.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Bedrock Collection 2021 (2021) [AAC|~322 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147360.jpgsave_picture_147360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147360.jpg" />
 </div>
 
 

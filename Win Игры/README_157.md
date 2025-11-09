@@ -6,7 +6,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46245.jpgsave_picture_46245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46245.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ICARUS (2021) [Ru/Multi] (2.2.16.125988/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46246.jpgsave_picture_46246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46246.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Batman: Arkham Asylum (2010) [Ru/En] (1.1) Repack Decepticon [Game of the Year E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46265.jpgsave_picture_46265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46265.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ X Invader (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46315.jpgsave_picture_46315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46315.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Shoulders of Giants: Ultimate (2024) [Multi] (1.9.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46343.jpgsave_picture_46343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46343.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Abathor (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46345.jpgsave_picture_46345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46345.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Regiments (2022) [Ru/Multi] (1.4.0S.1609/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46376.jpgsave_picture_46376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46376.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Berserk Boy (2024) [Ru/Multi] (1.06) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46386.jpgsave_picture_46386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46386.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Just Crow Things / Вредные вороны (2024) [Ru/Multi] (1.0) Scene Ten
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46408.jpgsave_picture_46408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46408.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Arco (2024) [En] (1.0) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46421.jpgsave_picture_46421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46421.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hidden Through Time 2: Discovery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46424.jpgsave_picture_46424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46424.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:28596AD8019E4F93E14B0DE12914D6613133A386
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46432.jpgsave_picture_46432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46432.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Meowsterpiece Museum (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46435.jpgsave_picture_46435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46435.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.2D) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46437.jpgsave_picture_46437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46437.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Welcome to Elk (2020) [Multi] (1.22.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46478.jpgsave_picture_46478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46478.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46514.jpgsave_picture_46514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46514.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Inversion (2012) [Ru] (5.48) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46522.jpgsave_picture_46522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46522.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46527.jpgsave_picture_46527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46527.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46529.jpgsave_picture_46529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46529.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46536.jpgsave_picture_46536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46536.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Last Case of Benedict Fox (2023) [Multi] (1.40.2.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46549.jpgsave_picture_46549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46549.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Lullaby of Life (2024) [Ru/Multi] (1.0.7.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46557.jpgsave_picture_46557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46557.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46558.jpgsave_picture_46558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46558.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46562.jpgsave_picture_46562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46562.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Passpartout 2: The Lost Artist (2023) [Multi] (20240110) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46568.jpgsave_picture_46568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46568.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46580.jpgsave_picture_46580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46580.jpg" />
 </div>
 
 

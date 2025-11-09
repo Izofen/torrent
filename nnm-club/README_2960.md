@@ -6,7 +6,7 @@ Heroes of Might and Magic V Complete Pack [Ru/En] (RePack) 2006-2007 | Seraph1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87896.jpgsave_picture_87896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87896.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Shogun 2: Total War (RePack) {1.1.0 + 7 DLC} [En/Ru] 2011 | R.G. Механик�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87897.jpgsave_picture_87897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87897.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Windows 7 Professional SP1 IDimm Edition v.12.12 х86/x64 (2012) (Rus)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87898.jpgsave_picture_87898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87898.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Windows 7 Professional SP1 IDimm Edition v.12.12 х86/x64 (2012) (Rus)
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87901.jpgsave_picture_87901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87901.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Windows 7 Professional SP1 IDimm Edition v.12.12 х86/x64 (2012) (Rus)
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87905.jpgsave_picture_87905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87905.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Windows 7 Professional SP1 IDimm Edition v.12.12 х86/x64 (2012) (Rus)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87906.jpgsave_picture_87906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87906.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Shameless, основанный на одноименном британском
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87907.jpgsave_picture_87907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87907.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Shameless, основанный на одноименном британском
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87908.jpgsave_picture_87908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87908.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3728BEE10EC02D66D381AC4D3EAFD8D2E903DC2D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87910.jpgsave_picture_87910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87910.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87911.jpgsave_picture_87911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87911.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:D48112C14550C3FBB0A7C194D539698E7FDDAB80
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87914.jpgsave_picture_87914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87914.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D9C0F84C2AE34A10C1CE93150287D37097791A7E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87920.jpgsave_picture_87920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87920.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:ED979494E3447B1309B5FA2B65B6416E3D0F6F34
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87922.jpgsave_picture_87922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87922.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:ED979494E3447B1309B5FA2B65B6416E3D0F6F34
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87925.jpgsave_picture_87925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87925.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2708400E4743A536435FF78EDE9903FC34AD3FAD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87928.jpgsave_picture_87928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87928.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:2708400E4743A536435FF78EDE9903FC34AD3FAD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87929.jpgsave_picture_87929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87929.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:5C1F6B2A7EA5AA50EE73B939A42C14F842776722
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87930.jpgsave_picture_87930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87930.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:70CBC5264BBA31C9B8D9911A7383FFB4187CE880
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87933.jpgsave_picture_87933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87933.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The National Fanfare of Kadebostany - Walking With A Ghost (2012) [H.264/720р] 
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87934.jpgsave_picture_87934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87934.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:4AE6A3719319424866463E7525D1BCFCEC4F04FA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87935.jpgsave_picture_87935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87935.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Natasha Bedingfield - 4 альбома (2004-2010) Дискография. Ст�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87936.jpgsave_picture_87936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87936.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Natasha Bedingfield - 4 альбома (2004-2010) Дискография. Ст�
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87937.jpgsave_picture_87937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87937.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Quadro Nuevo - In Concert (2012) [MP3|320 кб/с]<Jazz, Instrumental>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87938.jpgsave_picture_87938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87938.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:E608D14D1078050F4D837FC74C3FE7290639F907
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87939.jpgsave_picture_87939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87939.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:FDB72484C6F04D2A6678E1384AE4EFE131E45E0B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87940.jpgsave_picture_87940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87940.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:5DE1F5E4769AB7E6103408E1317E99CDB110E0EF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87941.jpgsave_picture_87941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87941.jpg" />
 </div>
 
 

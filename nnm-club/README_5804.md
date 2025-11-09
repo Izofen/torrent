@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181137.jpgsave_picture_181137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181137.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Elder - Innate Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181139.jpgsave_picture_181139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181139.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Tom Petty And The Heartbreakers - Live at the Fillmore (1997) Deluxe Edition, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181141.jpgsave_picture_181141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181141.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5DE60197006C43C97671165AB4117A10E23C82E0
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181142.jpgsave_picture_181142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181142.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:9DA1DD1EB5D38C90A2C3A758D21E40C192545BF1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181144.jpgsave_picture_181144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181144.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - The Columbia Jazz Piano Moods Sessions (1949 - 1952) 7CD, 2000, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181147.jpgsave_picture_181147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181147.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:35BC0652B2989E92140037E08205E79C7101BFC2
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181150.jpgsave_picture_181150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181150.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:0B54319B0B08722D989F3412FC3DEF11914821AE
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181152.jpgsave_picture_181152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181152.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Total Uninstall Portable (Ultimate, Professional, Essential) 7.5.0.655 x64 by re
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181154.jpgsave_picture_181154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181154.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181156.jpgsave_picture_181156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181156.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:363D4B4A93DF0C4AB5CE3D20DD2500B8BA0AD659
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181158.jpgsave_picture_181158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181158.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Bad Sister - 2 Albums (2009-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181159.jpgsave_picture_181159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181159.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:11E33E491183BFD3115255991CC48D6995412138
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181161.jpgsave_picture_181161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181161.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Udemy, Neyamul Hasan, M.Pharm | ChatGPT PROFIT: Complete Passive Income Supremac
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181164.jpgsave_picture_181164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181164.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Leather - We Are The Chosen (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181165.jpgsave_picture_181165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181165.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:6C7A3AB2720874A70072E10C1261DD5DC2A39B99
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181167.jpgsave_picture_181167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181167.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:BB97E0B6BAA8F0517BE61D31904447789CE5E1C4
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181168.jpgsave_picture_181168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181168.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:4DF33462607CA57AF58B307452F4055EB73472B1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181171.jpgsave_picture_181171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181171.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Total Uninstall Ultimate Portable 7.4.0.650 x64 by remek002 [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181173.jpgsave_picture_181173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181173.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ KiCad 7.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181176.jpgsave_picture_181176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181176.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ SpiritWorld - Deathwestern (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181177.jpgsave_picture_181177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181177.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Skarlett Roxx - Skarlett's Web (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181179.jpgsave_picture_181179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181179.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:5A1E3EC553E5FA1F8CF01A5F2B06E402BB581EF7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181181.jpgsave_picture_181181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181181.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:86DCF61E54B22F05A71287D0A44D6221880F0978
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181183.jpgsave_picture_181183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181183.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:E479F90A1A18A09109BE08BA0619C173434ED04D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181185.jpgsave_picture_181185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181185.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:7455014B471C3413844E3789D3ED1F9B0FDF53FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181188.jpgsave_picture_181188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181188.jpg" />
 </div>
 
 

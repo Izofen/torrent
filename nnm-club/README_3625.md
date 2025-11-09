@@ -6,7 +6,7 @@ Toadliquor - Back In The Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114625.jpgsave_picture_114625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114625.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ George Rabbai & Brian Betz Trio - Muted Bebop (2006) Dreambox Media [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114626.jpgsave_picture_114626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114626.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B7D0D118FC904729BC066FDF2258D06B1765FF81
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114627.jpgsave_picture_114627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114627.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C9CA2E6E35FF12ECF23DCB3F70B1CC23ACA8CC4F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114628.jpgsave_picture_114628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114628.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ministry - HOPIUMFORTHEMASSES (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114629.jpgsave_picture_114629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114629.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6D7C845C404FC89A4CE5C9477826933BE4C9DC7C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114630.jpgsave_picture_114630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114630.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:AEC0B916D2A0226B0CADE43E592B270DCC4D3A82
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114631.jpgsave_picture_114631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114631.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:740071639E21A9D5E1D600B62F44711C42B3966C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114632.jpgsave_picture_114632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114632.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Lars Leonhard - Reflections (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114633.jpgsave_picture_114633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114633.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:020599B9BEAB4C1AC1A8224895536F1D978DA610
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114634.jpgsave_picture_114634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114634.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:76BA2192D50FDF20D5E9E00FDA64663AA02A0B46
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114635.jpgsave_picture_114635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114635.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:FCA78AA335802609022F382715852C712FB65495
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114636.jpgsave_picture_114636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114636.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:D7C9F0EF8BB600E9D4AED49C8CAA3E209503B88E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114637.jpgsave_picture_114637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114637.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:C628EF57D4C55C8E6B2239AA379A5E1F1B92D3C2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114638.jpgsave_picture_114638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114638.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ QOwnNotes 24.2.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114639.jpgsave_picture_114639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114639.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Liam Gallagher & John Squire - Liam Gallagher & John Squire (2024) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114640.jpgsave_picture_114640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114640.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:B90C1CA5E1663B40F1F8947EB463E6DC043A8AF6
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114641.jpgsave_picture_114641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114641.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:424C410541AD138B5B89CD17C77255A331EA6B2B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114642.jpgsave_picture_114642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114642.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A58C42BE0E4A93725018D262A51BB2A0E8ADC563
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114643.jpgsave_picture_114643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114643.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Pearl Django - Modern Times (2007) Modern Hot Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114644.jpgsave_picture_114644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114644.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:D10B8E3ED792CBE308E25E971CD80F8FE3DF838F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114645.jpgsave_picture_114645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114645.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Believer - Extraction from Mortality (1989) Reissue, 2007, Metal Mind Production
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114646.jpgsave_picture_114646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114646.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Lee Mvtthews - Exit (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114647.jpgsave_picture_114647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114647.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:46234D2C7B5ED48F6D674D35B6FF19B88EF969A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114648.jpgsave_picture_114648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114648.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Suldusk - Anthesis (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Atmospheric Dark,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114649.jpgsave_picture_114649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114649.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:375781DC63AEABB9688FAC13D3316628BD31D1D8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114650.jpgsave_picture_114650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114650.jpg" />
 </div>
 
 

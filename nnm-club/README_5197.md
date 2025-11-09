@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161874.jpgsave_picture_161874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161874.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4BD3E767F0A840C32B8F98A1322E8220D6958892
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161875.jpgsave_picture_161875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161875.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kerbal Space Program v1.12.3.03173 (2015) [Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161876.jpgsave_picture_161876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161876.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E9B0FB6F91EBD5F194A77C0BDA301D0ACFA46EB1
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161877.jpgsave_picture_161877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161877.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161878.jpgsave_picture_161878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161878.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:AF252FFC7654718BB063C7A708624623C4F4E593
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161879.jpgsave_picture_161879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161879.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:9EBFF2E52E7B553723863F16017CB6400847A9C7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161880.jpgsave_picture_161880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161880.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161881.jpgsave_picture_161881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161881.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:880BEAAD51789FBD60D5DD475A28872B471A68AC
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161882.jpgsave_picture_161882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161882.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Иисус Христос - Суперзвезда (Театр им. Мос
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161883.jpgsave_picture_161883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161883.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161884.jpgsave_picture_161884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161884.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161885.jpgsave_picture_161885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161885.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ AnyBurn 5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161886.jpgsave_picture_161886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161886.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:802C000ED290201B1619A62E663BCF25A6A3C55F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161887.jpgsave_picture_161887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161887.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:802C000ED290201B1619A62E663BCF25A6A3C55F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161888.jpgsave_picture_161888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161888.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Audio Hijack 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161889.jpgsave_picture_161889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161889.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Trojan Killer 2.1.57 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161890.jpgsave_picture_161890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161890.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - 50 песен радио шансон, Часть 7 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161891.jpgsave_picture_161891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161891.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:4A29BC9516EE5C4A204911EE624955328D36C84B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161892.jpgsave_picture_161892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161892.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:32C290C6A2032EDC566B58F9F948D112A9DBA68F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161893.jpgsave_picture_161893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161893.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:5B6440DB9621F2280C8BF606C218FC22A15CC02C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161894.jpgsave_picture_161894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161894.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ HiBit Uninstaller 3.0.25 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161895.jpgsave_picture_161895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161895.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:3BAD79E8CC6D9060846AB12D15297F370E393BC0
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161896.jpgsave_picture_161896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161896.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wireshark 3.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161897.jpgsave_picture_161897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161897.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:1D1CB3E5B03D4C14412DA16E38171769FA2064D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161898.jpgsave_picture_161898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161898.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Learn Squared, Pablo Dominguez | Vehicle Concept Art (2020) PCRec [EN, ES]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161899.jpgsave_picture_161899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161899.jpg" />
 </div>
 
 

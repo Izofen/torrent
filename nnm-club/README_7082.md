@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242414.jpgsave_picture_242414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242414.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Revo Uninstaller Pro 5.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242415.jpgsave_picture_242415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242415.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Blueprint's - Organic Life Hazards (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242417.jpgsave_picture_242417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242417.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Acres - Burning Throne (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242434.jpgsave_picture_242434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242434.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B94367117AFBF42D1DCB1CE63DD99B4957C8A23C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242455.jpgsave_picture_242455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242455.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B94367117AFBF42D1DCB1CE63DD99B4957C8A23C
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242459.jpgsave_picture_242459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242459.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:5982E17A0325BF05D40653CCFE3DC684234AA482
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242475.jpgsave_picture_242475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242475.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Beatport Electro House: Sound Pack #262 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242476.jpgsave_picture_242476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242476.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Omni Recover 3 v3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242527.jpgsave_picture_242527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242527.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ MKVToolNix 67.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242533.jpgsave_picture_242533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242533.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Kaioh - Emotional Fire (2021) [FLAC|Lossless|tracks] <Eurobeat>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242534.jpgsave_picture_242534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242534.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:E135DB30A897C68A0D836EB97E7CBE561DED7B12
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242545.jpgsave_picture_242545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242545.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242547.jpgsave_picture_242547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242547.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Camera Pro 3.4.0 Mod by vitaxa978 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242560.jpgsave_picture_242560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242560.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:5A1CCFC8F4E30B9631A76631ECB1E53883FE729A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242592.jpgsave_picture_242592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242592.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:DB502804FE4B225EDCAFC7EEED6DA93309DFC34C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242609.jpgsave_picture_242609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242609.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:DB502804FE4B225EDCAFC7EEED6DA93309DFC34C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242616.jpgsave_picture_242616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242616.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:4A8185AC96ABB40924FC27382FA1AAE04DDE70C4
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242637.jpgsave_picture_242637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242637.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:48D5E1236EED01763BBCD5B113494557B22A703B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242667.jpgsave_picture_242667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242667.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ MediaHuman YouTube Downloader 3.9.9.74 (0708) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242675.jpgsave_picture_242675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242675.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:96F0C53F42530BFD93736ABD2A1ACD09D77B8182
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242691.jpgsave_picture_242691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242691.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:96F0C53F42530BFD93736ABD2A1ACD09D77B8182
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242699.jpgsave_picture_242699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242699.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Enter Shikari - A Kiss for the Whole World (2023) [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242702.jpgsave_picture_242702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242702.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dual Monitor Auto Mouse Lock 1.0.0.8 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242706.jpgsave_picture_242706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242706.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:5BEE61F034E8C857F30FB44CA4A1CF8BE55AFD7F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242712.jpgsave_picture_242712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242712.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:B712BEF77347D25F09C50DB841F2AC012E785B3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242717.jpgsave_picture_242717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242717.jpg" />
 </div>
 
 

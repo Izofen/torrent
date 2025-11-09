@@ -6,7 +6,7 @@ Wildstreet - Origins (I-II) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101451.jpgsave_picture_101451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101451.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jerry Cantrell (Alice in Chains) - Studio Albums (4 releases) (1998-2024) hand m
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101452.jpgsave_picture_101452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101452.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Best Of Suanda Dance 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101453.jpgsave_picture_101453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101453.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6F9F55B3EE3F1839B865A4F4E55C4D5B25E96DAE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101454.jpgsave_picture_101454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101454.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:A07CA2310610205A53D243BAAE2411B0607B197B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101455.jpgsave_picture_101455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101455.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Dark Lightning - The Demons We Create (2024) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101456.jpgsave_picture_101456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101456.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Whip - Whip, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101457.jpgsave_picture_101457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101457.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:E09EE53A60246FD9641CEA4A599281736C9D7FE7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101458.jpgsave_picture_101458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101458.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Detlev Schmidtchen - The Tears of Chronos (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101459.jpgsave_picture_101459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101459.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Faded Remembrance - 2 Albums (2023-2024) [MP3|320 Kbps] <Gothic, Doom, Death-Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101460.jpgsave_picture_101460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101460.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Teddy Wilson And His Orchestra - 1934 - 1935 (1990) Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101461.jpgsave_picture_101461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101461.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - The Best Of 2024 (2024) Gert Records [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101462.jpgsave_picture_101462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101462.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:0C4A6AF9B8F1DFE79E7B4DCFDEE827384E1C5684
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101463.jpgsave_picture_101463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101463.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - VINT (2024) Lapsus Records [FLAC|Lossless|Web-DL|tracks] <Experimental, IDM
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101464.jpgsave_picture_101464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101464.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:BB16BCA84DB3D2ACE3877BCC0BD70A7412F3DD19
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101465.jpgsave_picture_101465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101465.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:DCA9E72CD93A080670C7586398316B3C7EA64870
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101466.jpgsave_picture_101466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101466.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:324BE3675D1CA300DB242D5473B7A4FB817674A4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101467.jpgsave_picture_101467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101467.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Pat Benatar - Gravity’s Rainbow (1993) CD, Album, Club Edition [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101468.jpgsave_picture_101468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101468.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:FCCF053CB205BCD7348F51535AC0EE3EC1A2676D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101469.jpgsave_picture_101469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101469.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:8E54958A96B8F6FF29EA1642FC970C71929E0AE1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101470.jpgsave_picture_101470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101470.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:9AF2CAC4F298F423D039DB83EEAC875C34C2ABE2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101471.jpgsave_picture_101471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101471.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Eldritch - Studio Albums (13 releases) (1995-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101472.jpgsave_picture_101472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101472.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Night In Gales - Shadowreaper (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101473.jpgsave_picture_101473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101473.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Randy Newman - Randy Newman's Faust (1995) CD, Album [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101474.jpgsave_picture_101474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101474.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Lars Jansson - Standards (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101475.jpgsave_picture_101475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101475.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Catherine Russell, Sean Mason - My Ideal (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101476.jpgsave_picture_101476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101476.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Topaz Video AI 3.2.9 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230358.jpgsave_picture_230358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230358.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DF5A70F0A7659086E61962426FC6E9C2C64683DC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230362.jpgsave_picture_230362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230362.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6F2CB1F8802AC5256DD35B563A847C6E4A1746F2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230363.jpgsave_picture_230363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230363.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8A40C600EDA9D7184F70F5D8AC2CE99DE580EACF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230365.jpgsave_picture_230365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230365.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ioon Cosmic Downtempo - Unearthed Chants (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230367.jpgsave_picture_230367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230367.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Hot Unkle T - Stay In A Club (2023) [FLAC 2.0|44.1/24|image +.cue|WEB-DL] <Nu Di
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230370.jpgsave_picture_230370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230370.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Zoom Player MAX 22.0 Beta 3 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230371.jpgsave_picture_230371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230371.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ SmartTube Next 18.50 (Stable) Mod by armanych [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230372.jpgsave_picture_230372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230372.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Opera 99.0.4788.65 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230373.jpgsave_picture_230373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230373.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ EasyWay - общественный транспорт 6.0.2.44 Lite-Mod by andy_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230376.jpgsave_picture_230376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230376.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:EBF0B5414116496D74E199F28DDFACDF7320E58C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230377.jpgsave_picture_230377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230377.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:438D64B69AF790775628530D942BE6A62977DC54
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230380.jpgsave_picture_230380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230380.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Reg Organizer 9.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230381.jpgsave_picture_230381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230381.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Topaz Photo AI 1.3.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230385.jpgsave_picture_230385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230385.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:35509AFC3F44F5F52C95672771EE2AB5DF9284A4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230386.jpgsave_picture_230386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230386.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:F1AFBDBABCAB458336D4BD44B5C21C4809004218
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230389.jpgsave_picture_230389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230389.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:31EB7E30A22CEB8B30DB6AEB4D048DE677BC7153
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230391.jpgsave_picture_230391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230391.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:9AB54AC0B572AA9F25C6166EEA41F3EB62397450
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230392.jpgsave_picture_230392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230392.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ PDF Compressor 2.2.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230395.jpgsave_picture_230395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230395.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ NewPipe 0.25.1 Mod by N3k1t4_1996 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230397.jpgsave_picture_230397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230397.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Wise Care 365 Pro 6.5.6.629 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230398.jpgsave_picture_230398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230398.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ PDF Password Remover 2.2.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230400.jpgsave_picture_230400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230400.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Adobe Bridge 2026 16.0.0.63 RePack by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230402.jpgsave_picture_230402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230402.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ NoMachine 8.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230403.jpgsave_picture_230403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230403.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:E247B7BFEC40EB335B261EBBD65802456A772B6A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230404.jpgsave_picture_230404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230404.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ MediaHuman YouTube Downloader 3.9.17 (3010) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230406.jpgsave_picture_230406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230406.jpg" />
 </div>
 
 

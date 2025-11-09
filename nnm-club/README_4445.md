@@ -6,7 +6,7 @@
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138932.jpgsave_picture_138932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138932.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz DeNoise AI 3.4.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138934.jpgsave_picture_138934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138934.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3FB23BC44FB46C56DDE4EE67E83DFAFEA66751CA
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138935.jpgsave_picture_138935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138935.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:090DDCC1A6B666CCD6EC8A5E072065ED903AB2EB
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138936.jpgsave_picture_138936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138936.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Room Arranger 9.6.0.622 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138937.jpgsave_picture_138937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138937.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Haruna Luna - 3 сингла (2012) [MP3|320 кб/с]<J-Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138938.jpgsave_picture_138938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138938.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ HammAli & Navai - JANAVI (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138939.jpgsave_picture_138939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138939.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4DD1E04DD5D9FA41689FB904BD8C87EA89076571
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138942.jpgsave_picture_138942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138942.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:DC2056AF23AA9933D58E65D18841B7136804292F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138943.jpgsave_picture_138943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138943.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:24C03CD527BE5F4068410FD375F324B29FF8F8AB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138944.jpgsave_picture_138944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138944.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138945.jpgsave_picture_138945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138945.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138946.jpgsave_picture_138946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138946.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - The Official UK Top 40 Singles Chart 29.12.2017 [MP3|192-320 Kbps] <Alterna
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138948.jpgsave_picture_138948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138948.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Aryan King - Juliet (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138949.jpgsave_picture_138949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138949.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:D7319749762FAF31DB466A3C628DED1A9F529C64
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138951.jpgsave_picture_138951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138951.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:F70B173E3FA500E69C236776D29EA15485A9F046
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138952.jpgsave_picture_138952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138952.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:15AD471F5811711D158B5609F9847D518FB22B35
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138953.jpgsave_picture_138953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138953.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:15AD471F5811711D158B5609F9847D518FB22B35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138954.jpgsave_picture_138954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138954.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:06272C6AB9BB2BD8A172738456E563033390E656
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138955.jpgsave_picture_138955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138955.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Liveclasses, Дмитрий Щербаков | 3D моделирование в 
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138958.jpgsave_picture_138958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138958.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:10FB3723945E57D164684506672ACD14A60E7171
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138959.jpgsave_picture_138959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138959.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:CD123454100FACFBA8B7A4C3717C7121B74C7BA0
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138960.jpgsave_picture_138960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138960.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:4C7ED860F9732B155C9D1ADAD56E7336D045CFB1
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138961.jpgsave_picture_138961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138961.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E043EDE8BFB3DC262863804228CF0283E82C3F60
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138964.jpgsave_picture_138964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138964.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:C0976E7F0F68CAA09C37A4749CFC01347215785D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138965.jpgsave_picture_138965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138965.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Auslogics Duplicate File Finder 9.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138967.jpgsave_picture_138967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138967.jpg" />
 </div>
 
 

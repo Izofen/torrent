@@ -6,7 +6,7 @@ NIUBI Partition Editor 10.1.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33791.jpgsave_picture_33791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33791.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A40E0E06034A8F8E9F65704A7E09A36390786690
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33792.jpgsave_picture_33792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33792.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E1A8419BF88D2F144D24D3FFF9E5CC3E28527E77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33793.jpgsave_picture_33793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33793.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Longing v1.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33794.jpgsave_picture_33794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33794.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33795.jpgsave_picture_33795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33795.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VueScan Pro 9.8.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33796.jpgsave_picture_33796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33796.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Blender 4.2.5 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33797.jpgsave_picture_33797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33797.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3DBF12634E7EE73DE3061CAD42FFF67115F2BC06
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33798.jpgsave_picture_33798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33798.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Art of Rally 1.0.7_b200 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33799.jpgsave_picture_33799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33799.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5889F1A0E73CF0122EC70D87895A7695494C0FC0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33800.jpgsave_picture_33800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33800.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:601B64CF3D3D2E00C2BAC42D5C1284F8DA12BCB1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33801.jpgsave_picture_33801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33801.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Opera One 115.0.5322.109 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33802.jpgsave_picture_33802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33802.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ TweakNow WinSecret Plus! 5.8.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33803.jpgsave_picture_33803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33803.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Topaz Photo AI 3.4.0 RC (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33804.jpgsave_picture_33804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33804.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Scythe: Digital Edition 2.1.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33805.jpgsave_picture_33805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33805.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Thimbleweed Park 1.0.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33806.jpgsave_picture_33806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33806.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - 10s - 100 Best (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33807.jpgsave_picture_33807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33807.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:5530720ABD636DDACE8215DC46C27DAE3BE6CAA3
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33808.jpgsave_picture_33808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33808.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:00EBF2585698E5EC15A3EE430FED00EC24644C3C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33809.jpgsave_picture_33809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33809.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33810.jpgsave_picture_33810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33810.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Ashampoo Burning Studio 26.0.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33811.jpgsave_picture_33811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33811.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:A2E966308B6BC5DBD3A12933B6E759DD2482F0B4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33812.jpgsave_picture_33812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33812.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming S2 | A Herbivorous Dragon of 5,000 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33813.jpgsave_picture_33813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33813.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ qBittorrent 5.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33814.jpgsave_picture_33814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33814.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.9.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33815.jpgsave_picture_33815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33815.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:763B49EDAB792212FB9177BF15D1073EF2FE0BA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33816.jpgsave_picture_33816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33816.jpg" />
 </div>
 
 

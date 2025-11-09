@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70690.jpgsave_picture_70690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70690.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:65A2FC539010C8FFC9D69A29DECD5E5920DA4EB3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70691.jpgsave_picture_70691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70691.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FDCAFA76A363526763EED14937A2CAA751F68686
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70692.jpgsave_picture_70692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70692.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9B96ED08431F4E17DDB2A5CF9CDC66C2D74BF3B9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70693.jpgsave_picture_70693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70693.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6CE5AF5E031CF695890FBBE1BC1E5FC661021B93
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70694.jpgsave_picture_70694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70694.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A5303074ED9A451D958A423C6BCCAF0076D05F31
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70695.jpgsave_picture_70695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70695.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Prehistoria - Cryptic Halo (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70696.jpgsave_picture_70696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70696.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D050AAEB67C72FE6F8595C86C61BD0A8AE78C949
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70697.jpgsave_picture_70697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70697.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Alfa eBooks Manager 9.1.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70698.jpgsave_picture_70698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70698.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:5E62CFF8AD38F4DB1A7BA14672FA231F685343BD
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70699.jpgsave_picture_70699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70699.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Coolutils Total Mail Converter 6.2.0.399 RePack (& Portable) by elchupacabra [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70700.jpgsave_picture_70700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70700.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Display Tester v5.35.1 Mod by Balatan, AnBo39  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70701.jpgsave_picture_70701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70701.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ TikTok Private Plus (PayBack Edition) v38.7.5 Mod by TikTok Updates [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70702.jpgsave_picture_70702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70702.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:386DB17644B6319D4093816DC23DDBD490C94E9E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70703.jpgsave_picture_70703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70703.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Alfa eBooks Manager 9.0.240.0 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70704.jpgsave_picture_70704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70704.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - A State of Trance 2025 - TRANSFORMATION (The Official Album) (2025) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70705.jpgsave_picture_70705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70705.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:706B749F2B5D4902CD70A9A7EF317400410273DC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70706.jpgsave_picture_70706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70706.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Just Color Picker 6.1 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70707.jpgsave_picture_70707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70707.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:41DC6671C8BFF885BF2FF20FF841E768431EBD97
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70708.jpgsave_picture_70708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70708.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Musical kaleidoscope part 27 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70709.jpgsave_picture_70709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70709.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0966543517F5EB40C9A5FF7A986324AB9E3F997C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70710.jpgsave_picture_70710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70710.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:50CF033ABD8023C418948A6CDA39BBAEE5C6A9CB
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70711.jpgsave_picture_70711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70711.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:AAD9650A74CC284586AAC63589FD06BEF730746B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70712.jpgsave_picture_70712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70712.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Louis Philippson - Exposition (2025) (2CD) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70713.jpgsave_picture_70713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70713.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Eliane Elias - Quietude (2022) Candid [FLAC|Lossless|tracks + .cue] <Vocal Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70714.jpgsave_picture_70714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70714.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Bland Lemon Denton - At the Earth's Core (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70715.jpgsave_picture_70715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70715.jpg" />
 </div>
 
 

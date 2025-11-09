@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241546.jpgsave_picture_241546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241546.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F30C392B7C1249FDAD84FAFF746A772CF8986746
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241547.jpgsave_picture_241547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241547.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Veell - For What? (2005) SHUM Records [FLAC|Lossless|tracks+.cue] <IDM, Downtemp
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241548.jpgsave_picture_241548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241548.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Freakangel + Matthew Creed (Side Project) - Discography 20 Releases (2010-2021) 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241549.jpgsave_picture_241549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241549.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:E82BD7A84D09B1CB6E920E50282E1E5316E503E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241550.jpgsave_picture_241550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241550.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Argion - Lux Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241551.jpgsave_picture_241551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241551.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ VA - 80s Gold (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241552.jpgsave_picture_241552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241552.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:19710803C75B29A3B15F4B57381214A41427CB69
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241553.jpgsave_picture_241553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241553.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C92713A6F643AA25F4908B1A1574783E8BA1243E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241554.jpgsave_picture_241554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241554.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:064C5A4BE02D5FFBE279AF9C497224B91FC89DF4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241555.jpgsave_picture_241555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241555.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:D2904DF1B40C1B0FBB50FE5FD82DE8BD9E96CEA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241556.jpgsave_picture_241556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241556.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - The Official UK Top 40 Singles Chart 24.04.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241557.jpgsave_picture_241557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241557.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Bill Reichenbach & Rodger Fox - Something Juicy (1984) 1992, Circular Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241558.jpgsave_picture_241558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241558.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Firefox Browser ESR 102.10.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241560.jpgsave_picture_241560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241560.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:B3DB7AE278B4917F987EAE24E4D1B5EA812BD866
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241561.jpgsave_picture_241561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241561.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:76DB4B15C0BC23B44AE7663D5ADC13A60DE2E6D6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241562.jpgsave_picture_241562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241562.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Jaimee Harris - Boomerang Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241563.jpgsave_picture_241563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241563.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:E51783943F46F71392ACCC5C928807A8AFD367C5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241564.jpgsave_picture_241564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241564.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Booker - Выбери жизнь (2021) [MP3|320 Kbps] <Rap, Alternative, Punk>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241565.jpgsave_picture_241565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241565.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Rocket Pro 1.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241566.jpgsave_picture_241566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241566.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ PrivaZer 4.0.70 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241568.jpgsave_picture_241568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241568.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:296C3056D96E64C546F9FCC3BEC2FF1148AB9D88
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241569.jpgsave_picture_241569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241569.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Asphagor - Pyrogenesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241570.jpgsave_picture_241570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241570.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Uartsy, Daniel Orchard | Building Perceptive AI in Unreal Engine (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241571.jpgsave_picture_241571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241571.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ District 4 - Закон молчания (2023) [FLAC|Lossless|WEB-DL|tracks] <N
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241572.jpgsave_picture_241572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241572.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Lee Kerslake - Eleventeen (2021) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241573.jpgsave_picture_241573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241573.jpg" />
 </div>
 
 

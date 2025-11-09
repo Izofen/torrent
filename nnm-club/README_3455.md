@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110191.jpgsave_picture_110191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110191.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Brave Browser 1.65.126 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110192.jpgsave_picture_110192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110192.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Futurephonic - Rhythmizer Ultra 1.1.0 CLAP, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110193.jpgsave_picture_110193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110193.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:87A0D49A1A1AAE346E4ABA205799CC0E291475E8
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110194.jpgsave_picture_110194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110194.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Shotcut 24.04.28 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110195.jpgsave_picture_110195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110195.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:3318DAC4573502E6B962B65ACEFE3A8A9F51797A
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110196.jpgsave_picture_110196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110196.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F8EF919E1AB9D0BD4D36298E6131D3085499EF3D
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110197.jpgsave_picture_110197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110197.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ FastCopy Pro 5.7.10 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110198.jpgsave_picture_110198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110198.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:EE940E217D5A8F92CF5AD9E771B08256285B8274
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110199.jpgsave_picture_110199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110199.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:162424D233C3BF31C8D6ACDA67C3428B839BF158
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110200.jpgsave_picture_110200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110200.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:7A016A193A741D223A34932ACCC9BB6BF5EEFC22
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110201.jpgsave_picture_110201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110201.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Perseus - Into The Silence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110202.jpgsave_picture_110202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110202.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Rapid Transit - Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110203.jpgsave_picture_110203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110203.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:7BE7022BF3496429E37D0C3A4CD385D268F18316
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110204.jpgsave_picture_110204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110204.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Eternal Breath - Road to Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110205.jpgsave_picture_110205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110205.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:529A70D22816C34BE772561658760722421031AA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110206.jpgsave_picture_110206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110206.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Fergus McCreadie - Stream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110207.jpgsave_picture_110207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110207.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Gothminister - Pandemonium II: The Battle of the Underworlds (2024) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110208.jpgsave_picture_110208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110208.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Win Pongsakorn - Time Has Changed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110209.jpgsave_picture_110209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110209.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Tim Garland - Moment Of Departure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110210.jpgsave_picture_110210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110210.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Blaze of Perdition - Upharsin (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110211.jpgsave_picture_110211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110211.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110212.jpgsave_picture_110212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110212.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Wheel - Charismatic Leaders (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110213.jpgsave_picture_110213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110213.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Missio - I Am Cinco (2024) [FLAC|Lossless|WEB-DL|tracks] <electropop>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110214.jpgsave_picture_110214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110214.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ PhotoDirector v19.1.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110215.jpgsave_picture_110215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110215.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:F98DDB02B4A24777BDA4998966485AB8F175AD78
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110216.jpgsave_picture_110216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110216.jpg" />
 </div>
 
 

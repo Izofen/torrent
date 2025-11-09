@@ -6,7 +6,7 @@ VA - Crazy Disco Show Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106317.jpgsave_picture_106317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106317.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AE1ECB4B5DB4833E66FB8440778B2D42EDD99927
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106318.jpgsave_picture_106318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106318.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fun Fun - Have Fun! & More... (2006) Remastered [OGG Vorbis|480 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106319.jpgsave_picture_106319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106319.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:72C99E05273DAD3E9811C3E30B64329841601E92
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106320.jpgsave_picture_106320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106320.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Perfectly Clear WorkBench 4.6.1.2678 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106321.jpgsave_picture_106321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106321.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Angel Sword - World Fighter (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106322.jpgsave_picture_106322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106322.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:987C2D2C414964A60E63AB955D79A83862BF0323
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106323.jpgsave_picture_106323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106323.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5BAA335D600E5E58FD178111E50F126E11111F23
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106324.jpgsave_picture_106324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106324.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listen
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106325.jpgsave_picture_106325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106325.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ New Years Day - Half Black Heart (2024) [FLAC|Lossless|tracks + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106326.jpgsave_picture_106326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106326.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Hard Power - Hard Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106327.jpgsave_picture_106327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106327.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ King Curious - Common Sense For The Animal (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106328.jpgsave_picture_106328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106328.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Maduro - End In Noise (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM, Darkwave,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106329.jpgsave_picture_106329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106329.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106330.jpgsave_picture_106330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106330.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Krypticy - The Non-Return (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106331.jpgsave_picture_106331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106331.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Plague Pits - Bukolik (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Coldwave, Mini
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106332.jpgsave_picture_106332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106332.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D37D41DD3CB8F1D4E86FE032216EE68C7AD3299E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106333.jpgsave_picture_106333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106333.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:BBE96DF9F8DD8710B24D3523A91605D8A9F30B5E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106334.jpgsave_picture_106334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106334.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Joplin 3.0.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106335.jpgsave_picture_106335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106335.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:C9A6F539B01097B2931550C535EA33E2306CBEAE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106336.jpgsave_picture_106336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106336.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:8890D3D613FE50A284C8A47F8B080DD85823A4F6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106337.jpgsave_picture_106337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106337.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:AFEB6D3D9F4CACEC56D22F80715A974897313EFB
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106338.jpgsave_picture_106338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106338.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ PageEdit 2.2.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106339.jpgsave_picture_106339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106339.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Lee Aaron - Tattoo Me (2024) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106340.jpgsave_picture_106340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106340.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ XYplorer 26.30.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106341.jpgsave_picture_106341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106341.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Gorgon City - 6 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <House, Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106342.jpgsave_picture_106342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106342.jpg" />
 </div>
 
 

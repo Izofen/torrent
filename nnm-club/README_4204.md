@@ -6,7 +6,7 @@ VA - Русские Новинки Интернета (2012) [MP3|256 кб/с]<P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130226.jpgsave_picture_130226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130226.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Jinn'sLiveUSB 9.3 - флешка с Windows 7, 8.1 и 10 [Ru/En] [Авторск
 >>28
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130227.jpgsave_picture_130227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130227.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:086B39DA74C2A4A0F40D827A9DD4C5F58F8DB832
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130228.jpgsave_picture_130228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130228.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ magnet:?xt=urn:btih:E82AF63E16956C84F015621F8AB48C76D17F945E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130229.jpgsave_picture_130229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130229.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Adobe Photoshop for Mac 2022 v23.1.0 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130231.jpgsave_picture_130231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130231.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lucky Patcher 9.8.7 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130233.jpgsave_picture_130233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130233.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Teddy Edwards Octet - Back to Avalon (1960) [FLAC|Lossless]<Bop, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130234.jpgsave_picture_130234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130234.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Adobe Photoshop 2022 23.1.1.202 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130235.jpgsave_picture_130235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130235.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:EA5E79B2F1E1A2A97236B4C0AA07848D440773A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130237.jpgsave_picture_130237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130237.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:3A4BF176FCDAC8BA882FFDC6DC79DB2405947F70
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130238.jpgsave_picture_130238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130238.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Adobe Lightroom Classic for Mac v11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130239.jpgsave_picture_130239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130239.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:7D8D8F3085BD396D63DEDCE62389DDD100C2AC31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130240.jpgsave_picture_130240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130240.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Xenus /  Xenus Точка кипения (2005) [Ru] (2.2/dlc) Repack Other s [G
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130241.jpgsave_picture_130241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130241.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:6D5A734BBBC358314070C565AC02120FDA3AFF16
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130242.jpgsave_picture_130242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130242.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:896736B7C42E40A3B540B68D5530A250AB58F168
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130243.jpgsave_picture_130243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130243.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:36D2944EDD3B3D324E8BA5F5B87805B450848A2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130244.jpgsave_picture_130244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130244.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ George Williams - Swing Classics In Stereo and Put On Your Dancing Shoes (2003) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130245.jpgsave_picture_130245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130245.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ George Williams - Swing Classics In Stereo and Put On Your Dancing Shoes (2003) 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130247.jpgsave_picture_130247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130247.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:1D72C1969D0E7FE7CA518DAC81258424A870EBAD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130249.jpgsave_picture_130249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130249.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:9EACE3970C3F8869049799836CB5BF6502B3D28F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130250.jpgsave_picture_130250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130250.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ The Swing Session - Whispering Grass (2001) [FLAC|Lossless]<Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130251.jpgsave_picture_130251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130251.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Swing Session - Whispering Grass (2001) [FLAC|Lossless]<Swing>
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130252.jpgsave_picture_130252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130252.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ HitmanPro 3.8.28 Build 324 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130254.jpgsave_picture_130254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130254.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:816EB94DB30D6648E421F78EBF297E4DF90FAE49
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130255.jpgsave_picture_130255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130255.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130256.jpgsave_picture_130256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130256.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Woody Herman - Thundering Herd (1974) (1995) [FLAC|Lossless]<Big Band>
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130257.jpgsave_picture_130257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130257.jpg" />
 </div>
 
 

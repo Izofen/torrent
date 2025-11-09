@@ -6,7 +6,7 @@
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248920.jpgsave_picture_248920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248920.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Garden Defense / Огородные войны. Атака жуков (P) [Ru] 2
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248941.jpgsave_picture_248941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248941.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cisco Aspire (L / Beta) [En] 2011
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248970.jpgsave_picture_248970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248970.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248988.jpgsave_picture_248988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248988.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Crysis Wars: Wreckage [En] (Mod / L / 1.0) 2012 | Chrjs
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249017.jpgsave_picture_249017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249017.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Lonesome Guild (2025) [Multi] (Build 20207065) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249039.jpgsave_picture_249039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249039.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249040.jpgsave_picture_249040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249040.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack Decepticon [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249043.jpgsave_picture_249043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249043.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249047.jpgsave_picture_249047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249047.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249048.jpgsave_picture_249048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249048.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249053.jpgsave_picture_249053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249053.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.4.1/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249055.jpgsave_picture_249055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249055.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Myths and Legends (2024) [Ru/Multi] (20121460/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249056.jpgsave_picture_249056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249056.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20076054/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249058.jpgsave_picture_249058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249058.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Orbyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249059.jpgsave_picture_249059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249059.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Rebuild the History (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249203.jpgsave_picture_249203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249203.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Bubblenauts: The Hunt for Jolly Rogers Treasure (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249269.jpgsave_picture_249269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249269.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Necros [Deluxe E
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249337.jpgsave_picture_249337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249337.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Hoomanz (2025) [Ru/Multi] (0.3.26) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249340.jpgsave_picture_249340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249340.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Scene voices38 [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249360.jpgsave_picture_249360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249360.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249369.jpgsave_picture_249369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249369.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249374.jpgsave_picture_249374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249374.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0 Build 20467470/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249377.jpgsave_picture_249377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249377.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Maze Of Realities: Flower Of Discord / Лабиринт Реальностей: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249954.jpgsave_picture_249954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249954.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250335.jpgsave_picture_250335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250335.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Knightica (2025) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250336.jpgsave_picture_250336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250336.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176224.jpgsave_picture_176224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176224.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Brejestovski Language School, Антон Брежестовский | Основ
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176225.jpgsave_picture_176225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176225.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Diablo - When All The Rivers Are Silent (2022) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176227.jpgsave_picture_176227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176227.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:07E16BEFC24812DC47C17259867A425733EE1F56
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176228.jpgsave_picture_176228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176228.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Tenants (2021) [Ru/Multi] (1.2.9/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176229.jpgsave_picture_176229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176229.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Richard Marx - Rush Street (1991) [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176231.jpgsave_picture_176231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176231.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176233.jpgsave_picture_176233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176233.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:0CB8D02AD4F3F57D1E51B4E852AB0923255C9B44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176235.jpgsave_picture_176235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176235.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Thundermother - Black And Gold (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176236.jpgsave_picture_176236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176236.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:D7579EFC61FA0C3C46FE8EFD044B223DEBCB3388
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176237.jpgsave_picture_176237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176237.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:69B2D382255D82065B7D40DF7541F9DFDFBF3444
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176239.jpgsave_picture_176239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176239.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:17AB2B5866C708E6DFEE9C8399FB1298C5813B2A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176240.jpgsave_picture_176240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176240.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Aseprite 1.2.25 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176241.jpgsave_picture_176241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176241.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:5DB38C98E5B8187C820695B177FB19E5860C1E5F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176243.jpgsave_picture_176243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176243.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:6FBBB8FC9B01ADF1FFACF93A9B895B14857DCE61
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176244.jpgsave_picture_176244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176244.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Simulation: On! - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176245.jpgsave_picture_176245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176245.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:15378211AF3CA241D16CF814038BEF972926DD62
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176247.jpgsave_picture_176247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176247.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:24D5C3CD875FD3E442E77B60094B6A2480D48873
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176248.jpgsave_picture_176248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176248.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:BA457219DF71327EAAA80C27BDA998653C1C4BE7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176249.jpgsave_picture_176249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176249.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:724D243AC2899CFA8A86772D4512A55AEFAA7694
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176251.jpgsave_picture_176251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176251.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:3C7629CAAE6D16393F75A3AE011F24F9A202D492
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176252.jpgsave_picture_176252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176252.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:7DDFC570027674DC2F331BB50C6BBE4FB571BD16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176255.jpgsave_picture_176255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176255.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:842A0C6ABDFF96BDD25F2004E13F16F661A27974
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176256.jpgsave_picture_176256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176256.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:404532E3060CB20FFCD13073F46E09EB1416EE2C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176257.jpgsave_picture_176257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176257.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:1E983285A0807DEAB0BDEB55F80B50A4B79F0CD2
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176259.jpgsave_picture_176259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176259.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Ron Carter - Finding The Right Notes (2022) In+Out Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176260.jpgsave_picture_176260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176260.jpg" />
 </div>
 
 

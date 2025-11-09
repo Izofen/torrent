@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188275.jpgsave_picture_188275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188275.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ataraxie - Resignes (2019) 2 x CD, Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188276.jpgsave_picture_188276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188276.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpgsave_picture_188279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188280.jpgsave_picture_188280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188280.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Roadwolf - Midnight Lightning (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188281.jpgsave_picture_188281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188281.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Pansophic - The 2023 Massacre (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188283.jpgsave_picture_188283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188283.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:1F71024D76EF50DD8F35BD061AE702889D318F07
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188285.jpgsave_picture_188285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188285.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ CorelDRAW Graphics Suite 2023 24.5.0.731 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188286.jpgsave_picture_188286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188286.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:C0DE6E549D2A1679D6E4DD43BEEDF0FDC5D09533
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188287.jpgsave_picture_188287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188287.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:F6A5C16EDB56F468916E77ECCF8A0093176C7F22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188288.jpgsave_picture_188288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188288.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 09.2023
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188289.jpgsave_picture_188289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188289.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Adobe Photoshop 2024 25.0.0.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188292.jpgsave_picture_188292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188292.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (1.0.0.28038) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188293.jpgsave_picture_188293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188293.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ CorelDRAW Technical Suite 2023 24.5.0.731 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188295.jpgsave_picture_188295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188295.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ CorelDRAW Technical Suite 2023 24.5.0.731 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188296.jpgsave_picture_188296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188296.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:F71E9D2A7A471B92EE1E41D112EACB9EB677D98F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188298.jpgsave_picture_188298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188298.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:BC0C052641EDB82B967140FAD2626AED9F312D06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188299.jpgsave_picture_188299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188299.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Adobe Photoshop for Mac 2024 v.25.0.0 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188300.jpgsave_picture_188300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188300.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Adobe Illustrator 2023 27.9.0.80 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188301.jpgsave_picture_188301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188301.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Adobe Illustrator 2023 27.9.0.80 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188303.jpgsave_picture_188303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188303.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:4E2B3BB50CF1A622A2CF5D475F179C628B218AAD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188306.jpgsave_picture_188306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188306.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:C22CDF9CCC3519A17284EF8A0B6DB0A4D3EF38D1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188307.jpgsave_picture_188307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188307.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:00CB02949C93AD2600A5505BB5AF2DA1D95FB589
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188308.jpgsave_picture_188308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188308.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:00CB02949C93AD2600A5505BB5AF2DA1D95FB589
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188309.jpgsave_picture_188309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188309.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:F502B2C45E2AC797B736BC8530672142C92AF73D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188310.jpgsave_picture_188310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188310.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:9853C484EB6EA996892D1347A444418E10647C59
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188311.jpgsave_picture_188311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188311.jpg" />
 </div>
 
 

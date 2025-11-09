@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111517.jpgsave_picture_111517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111517.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Harry Orlove - Mildly Popular (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111518.jpgsave_picture_111518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111518.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Anita O'Day - 1945 - 1950 (2002) Classics [FLAC|Lossless|image + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111519.jpgsave_picture_111519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111519.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Anita O'Day - 1950 - 1952 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111520.jpgsave_picture_111520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111520.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Regime - The Regime (1998) Compilation [APE|Lossless|image + .cue] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111521.jpgsave_picture_111521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111521.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Unkreated - Apoptosi (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111522.jpgsave_picture_111522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111522.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ James Carter - Layin' In The Cut (2000) Atlantic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111523.jpgsave_picture_111523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111523.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:D4865C89CDBD6CCB342BB65C9F1DA1D8031EF421
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111524.jpgsave_picture_111524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111524.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Italian Jazzy Mix for Restaurant (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111525.jpgsave_picture_111525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111525.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:CA80BE7CFDC2E4C6685403004AC57466B758C65C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111526.jpgsave_picture_111526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111526.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VA - Top 9 March 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111527.jpgsave_picture_111527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111527.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Keep It Trance Vol. 20 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111528.jpgsave_picture_111528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111528.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Bounced Up! (volume 16) (2023) [FLAC|Lossless|WEB-DL|tracks] <Scouse House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111529.jpgsave_picture_111529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111529.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:5A695AEE2EB20FCB2FEB90E1342730A8B34C1C16
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111530.jpgsave_picture_111530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111530.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:90F3C7C2386808FB158409D91E28DBF3599F4449
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111531.jpgsave_picture_111531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111531.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Ascent - Gamma (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111532.jpgsave_picture_111532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111532.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Sexy Feel-Good Intimate Lounge Relaxing Tracks to Chill (2024) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111533.jpgsave_picture_111533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111533.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Superb Soothing & Inviting Lounge Chill Out Playlist (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111534.jpgsave_picture_111534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111534.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Greatest Feel-Good Intimate Jazz Tunes to Unwind (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111535.jpgsave_picture_111535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111535.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Vintage Culture - Live @ Warung Beach Club 2024 (Opening Fiesta) Itajai, Brazil 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111536.jpgsave_picture_111536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111536.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Jay Heye - Smooth & Easy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111537.jpgsave_picture_111537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111537.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:AC639E0420902F9A36968BCCBD0FCF963996DD88
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111538.jpgsave_picture_111538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111538.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:38D8B6F8DF66AA45F55F028548C24FD826D3BC49
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111539.jpgsave_picture_111539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111539.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Secta - Panzer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111540.jpgsave_picture_111540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111540.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:DD4B59ACF8B3ADACAC8BD9F8A63AA81B1E101442
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111541.jpgsave_picture_111541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111541.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:C95B04651E43682F2ED532AE50E048FA9EC098E8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111542.jpgsave_picture_111542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111542.jpg" />
 </div>
 
 

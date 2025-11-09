@@ -6,7 +6,7 @@ Tony Parenti's All Stars - Happy Jazz (1955) 2007, Membran Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156126.jpgsave_picture_156126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156126.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0BB7AE215001796AF67F1B19B25573BC84DB38F6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156128.jpgsave_picture_156128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156128.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7E5D6399C596B5305C72DF8E1026DAC2A4B95C62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156129.jpgsave_picture_156129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156129.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ YouWave for Android Home 4.0.1 [Английский]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156131.jpgsave_picture_156131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156131.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ iCompta 6 v.6.0.60 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156132.jpgsave_picture_156132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156132.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Music Tag Editor 5.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156133.jpgsave_picture_156133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156133.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Wallpaper Engine 1.4.140 RePack by Komoliddin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156134.jpgsave_picture_156134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156134.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:DD5E82862E770BE3CB3DA7B9B8CBCE4F4CEF6FC8
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156136.jpgsave_picture_156136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156136.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Liveclasses, Антон Мартынов | Нейросети для генер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156137.jpgsave_picture_156137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156137.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:DDA5C4EB3059830474E8F54E1910152960ABB2F4
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156138.jpgsave_picture_156138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156138.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:92E57A8708442E7811B575619E583F5931B19BED
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156139.jpgsave_picture_156139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156139.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:8D910E9014D2718F6A52559296D744BDBEB874F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156140.jpgsave_picture_156140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156140.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:4D7122969B21BD6CC43405827D9CFC46C6CFB5C0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156142.jpgsave_picture_156142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156142.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Herlin Riley - Perpetual Optimism (2017) 2019, Mack Avenue [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156143.jpgsave_picture_156143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156143.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:51886600E96EDB9AC7658F497F051F514851CCDF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156144.jpgsave_picture_156144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156144.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:053E0C1F9A98AF99BEF4EFB174D7C0D96522439F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156145.jpgsave_picture_156145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156145.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Disney Classic Games Collection: Aladdin, The Lion King, The Jungle Book (2021) 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156147.jpgsave_picture_156147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156147.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.22.12.17) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156148.jpgsave_picture_156148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156148.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:040C434C9ABF89C2E0D3FBB830DA7934E42CD66D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156149.jpgsave_picture_156149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156149.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Viper FTP 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156150.jpgsave_picture_156150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156150.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Minecraft / Майнкрафт 1.14.0.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156151.jpgsave_picture_156151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156151.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Methinks - Будет день опять (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156153.jpgsave_picture_156153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156153.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Wise Care 365 Pro 4.51.423 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156154.jpgsave_picture_156154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156154.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:3CB5CAD3958F3966035F1CCDFA3EFD90BEF202BD
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156155.jpgsave_picture_156155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156155.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:6D0E28183178EC1A435086F886816D59820D6754
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156156.jpgsave_picture_156156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156156.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Nu Urban Jazz 2 (2018) [AAC|~336 Kbps] <Jazz, Nu Jazz, Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156158.jpgsave_picture_156158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156158.jpg" />
 </div>
 
 

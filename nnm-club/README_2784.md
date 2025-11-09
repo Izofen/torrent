@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78454.jpgsave_picture_78454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78455.jpgsave_picture_78455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78455.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 7 SP1 x86 Ultimate Standart by keglit 24.02.2012 [Английский,�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78456.jpgsave_picture_78456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78456.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 7 SP1 x86 Ultimate Standart by keglit 24.02.2012 [Английский,�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78457.jpgsave_picture_78457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78457.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:3073F249256513D868D977DB6E12BB096640867A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78460.jpgsave_picture_78460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78460.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Governor Of Poker [Native] [Eng]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78461.jpgsave_picture_78461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78461.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ CrossOver Games 10.3.0 + CrossOver Standart 10.2.0 [English] [deb, rpm, bin]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78471.jpgsave_picture_78471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78471.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Heroes Of Might And Magic V [Native port] [Eng]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78473.jpgsave_picture_78473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78473.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Need For Speed: ProStreet [Cider] [Rus]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78475.jpgsave_picture_78475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78475.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Lenovo IdeaPad Z460 Z560 оригинальный диск для Windows 7 Driv
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78479.jpgsave_picture_78479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78479.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 19.02.2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78480.jpgsave_picture_78480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78480.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Microsoft Windows 7 Ultimate Ru x64 SP1 WPI Boot by OVGorskiy 19.02.2012
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78481.jpgsave_picture_78481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78481.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Privatefirewall 7.0.26.4 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78483.jpgsave_picture_78483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78483.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Privatefirewall включает в себя мощный оборонный п�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78484.jpgsave_picture_78484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78484.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:3EE248BAEA110D173668AE21A1E457412AE2AB20
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78494.jpgsave_picture_78494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78494.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D0A248BCAE66CDF4EDA8E29352C4F90A6439E743
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78506.jpgsave_picture_78506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78506.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:65338F31404B0CD8137E279AED0BBD2881F10EC6
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78507.jpgsave_picture_78507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78507.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:01BE9B5DA13EA6CD07CFEECBFD57187143D3C637
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78511.jpgsave_picture_78511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78511.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:01BE9B5DA13EA6CD07CFEECBFD57187143D3C637
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78516.jpgsave_picture_78516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78516.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:0B435D9B2DE1EF869BD365D36DF696455884CA22
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78526.jpgsave_picture_78526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78526.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:EE98B397B8297AEC3B6FF830A64EA21C8DBB5C51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78529.jpgsave_picture_78529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78529.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:1E2DFE1B1F182E4DF6913BEF49667065B1E97B3C
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78541.jpgsave_picture_78541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78541.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Shovellica (Красная плесень) - The Symphony Of The Shovel (2011) [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78543.jpgsave_picture_78543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78543.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:E3AF2B8F370FE0A5EBC3163808C8D75723563B51
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78547.jpgsave_picture_78547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78547.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Fisher-Price. Tender Lullabies (2005) [MP3|320 кб/с]<Музыка для
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78548.jpgsave_picture_78548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78548.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Spotmau Power Suite Golden Edition 2012 v7.0.1 & Portable  / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78549.jpgsave_picture_78549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78549.jpg" />
 </div>
 
 

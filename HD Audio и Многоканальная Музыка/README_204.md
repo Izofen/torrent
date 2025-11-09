@@ -6,7 +6,7 @@ Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187530.jpgsave_picture_187530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187530.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rory Gallagher - Big Guns – The Very Best Of (2005) 2 x SACD, Compilation, Rem
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187674.jpgsave_picture_187674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187674.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Seventh Wonder - Studio Albums (6 releases) (2005-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188078.jpgsave_picture_188078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188078.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188101.jpgsave_picture_188101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188101.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188255.jpgsave_picture_188255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188255.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Vindictiv - Studio Albums (4 releases) (2008-2016) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpgsave_picture_188279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188279.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpgsave_picture_188544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188544.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpgsave_picture_188563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188563.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpgsave_picture_188658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188658.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpgsave_picture_188800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188800.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189034.jpgsave_picture_189034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189034.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189035.jpgsave_picture_189035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189035.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpgsave_picture_189373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpgsave_picture_189404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189666.jpgsave_picture_189666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189666.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189703.jpgsave_picture_189703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189703.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190118.jpgsave_picture_190118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190118.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190121.jpgsave_picture_190121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190121.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190165.jpgsave_picture_190165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190165.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190186.jpgsave_picture_190186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190186.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190207.jpgsave_picture_190207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190207.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190478.jpgsave_picture_190478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190478.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ OSI - Дискография (4 releases) (2003-2012) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190636.jpgsave_picture_190636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190636.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190968.jpgsave_picture_190968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190968.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industri
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190972.jpgsave_picture_190972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190972.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191028.jpgsave_picture_191028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191028.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149118.jpgsave_picture_149118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149118.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Music News vol.315 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149120.jpgsave_picture_149120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149120.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Nuclear Blast Presents: Best Metal (2015) [MP3|320 кб/с] <Heavy Metal, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149121.jpgsave_picture_149121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149121.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:BC7D5B0F7B27B3F80DDB4B9293F9D6A99FEF9FCE
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149122.jpgsave_picture_149122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149122.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:31F4B934E39289ACB79807E7837D99EBB05E6F52
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149123.jpgsave_picture_149123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149123.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:139E803A679CB8046A2814FD4D6C6B940DBBA257
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149124.jpgsave_picture_149124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149124.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Plugins - Стили для Фотошопа 5 / Photoshop Styles 5 [PSD,ASL]
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149125.jpgsave_picture_149125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149125.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:5490AEA9E33491E1142DCBAF442AB0B422CDCA16
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149126.jpgsave_picture_149126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149126.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:DCF82F78BD53350184C69D5112E906EFCB13E8F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149127.jpgsave_picture_149127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149127.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DCF82F78BD53350184C69D5112E906EFCB13E8F2
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149128.jpgsave_picture_149128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149128.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149129.jpgsave_picture_149129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149129.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:7F241ED71FE8F4A2956DA3D9D8D1A32EA766B5E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149130.jpgsave_picture_149130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149130.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:32BBF97426A503D2AF421ECE7E7F18EF66FF2FA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149131.jpgsave_picture_149131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149131.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Allman Brothers Band - 5 Classic Albums (2015) Universal Music [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149132.jpgsave_picture_149132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149132.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ City Patrol: Police (2018) [Multi] (1.0) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149134.jpgsave_picture_149134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149134.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Total HTML Converter 4.1.81 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149135.jpgsave_picture_149135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149135.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:EBDBE170146F2BF4F18D6ED295872CBCF48A5BBC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149136.jpgsave_picture_149136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149136.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:9B84E2B6BDE7260A02C90BDE7ED03FFC662108E3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149137.jpgsave_picture_149137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149137.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Echogarden Compilation #1 • #2 • #3 (2013-2016) [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149139.jpgsave_picture_149139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149139.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:BF6C1BDA7B229D855DA0BDFF29F206F14579D4DA
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149140.jpgsave_picture_149140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149140.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D8CE97BB377BBD96243D2C409D4E2DA49FFC3A93
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149141.jpgsave_picture_149141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149141.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:D8CE97BB377BBD96243D2C409D4E2DA49FFC3A93
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149144.jpgsave_picture_149144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149144.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:BFD4D2B4D73E9F35CE709A1D3CCF4678221ED3BD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149145.jpgsave_picture_149145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149145.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:EFFB701EEBA397E18ADA60FA4A7C3FE46942B82A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149146.jpgsave_picture_149146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149146.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Far Cry (2004) [En] (License GOG) [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149147.jpgsave_picture_149147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149147.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:7B701142434FA452CB3EEE24AE113126A706EF7A
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149148.jpgsave_picture_149148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149148.jpg" />
 </div>
 
 

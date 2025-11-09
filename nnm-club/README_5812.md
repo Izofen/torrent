@@ -6,7 +6,7 @@ Google Chrome 107.0.5304.122 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181601.jpgsave_picture_181601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181601.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Valhalla DSP - Valhalla Delay 2.5.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181605.jpgsave_picture_181605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181605.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Ataraxie - Slow Transcending Agony (2005) [FLAC|Lossless|image + .cue] <Funeral 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181606.jpgsave_picture_181606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181606.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:492D61420E53EFFC80D813E919F26F8AF7F853BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181608.jpgsave_picture_181608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181608.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E8729993CD1B8127621488B3C7F82557F7FEC073
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181610.jpgsave_picture_181610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181610.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpgsave_picture_181613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181613.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181614.jpgsave_picture_181614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181614.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:064060518EDDD44BBC612E202D77F5AE8195E0CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181615.jpgsave_picture_181615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181615.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Christmas Wonderland 13 (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181618.jpgsave_picture_181618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181618.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:7B225F06DA72C98D9C5415DB71D23CD53BFCE1DA
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181620.jpgsave_picture_181620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181620.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Artweaver Plus 7.0.14.15552 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181622.jpgsave_picture_181622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181622.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ KORG Collection 4 4.0.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181624.jpgsave_picture_181624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181624.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181626.jpgsave_picture_181626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181626.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:50267A417E405875D734BE0AABC4BEA48D428420
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181628.jpgsave_picture_181628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181628.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ iZotope Audiolens 1.1.0 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181629.jpgsave_picture_181629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181629.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Create Illusions - Illusion I (2023) [FLAC|Lossless|WEB-DL|tracks] <Italy Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181631.jpgsave_picture_181631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181631.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sacrifix - Killing Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181633.jpgsave_picture_181633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181633.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Yakuro - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181634.jpgsave_picture_181634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181634.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:87AF839CBE09EC84C24A97B9655307A6502E0F5C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181636.jpgsave_picture_181636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181636.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Bear - Vanta (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Groove Metal, Ma
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181637.jpgsave_picture_181637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181637.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Calibre 6.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181638.jpgsave_picture_181638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181638.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Michael Wolff - Impure Thoughts (2000) Indianola Music Group [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181640.jpgsave_picture_181640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181640.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ XYplorer 23.80 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181642.jpgsave_picture_181642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181642.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Endseeker - Corrosive Revelation (2015) EP [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181643.jpgsave_picture_181643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181643.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Hank Mobley - Hank Mobley (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181645.jpgsave_picture_181645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181645.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Arkane Studios | Артбук по игре Dishonored: Обесчещенный
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181646.jpgsave_picture_181646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181646.jpg" />
 </div>
 
 

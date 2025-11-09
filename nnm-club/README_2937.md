@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86837.jpgsave_picture_86837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86837.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4D0B25236A9250C618438C1531D03FDAF016CC8D
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86838.jpgsave_picture_86838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86838.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MIDI Pack - Collection ONE (MIDI) Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86839.jpgsave_picture_86839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86839.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ dupeGuru Picture Edition 2.5.0 [Multi/Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86842.jpgsave_picture_86842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86842.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dupeguru Picture Edition - инструмент для поиска дублир
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86844.jpgsave_picture_86844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86844.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Dupeguru Picture Edition - инструмент для поиска дублир
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86845.jpgsave_picture_86845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86845.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:A2C1632C5C7EDE471B30266C27174568155CC7DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86847.jpgsave_picture_86847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86847.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ MIDI Pack - Collection ONE Part 6 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86848.jpgsave_picture_86848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86848.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ MIDI Pack - Collection ONE - это огромнейший сборник Мид
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86850.jpgsave_picture_86850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86850.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Counter-Strike 1.6 {Чистый клиент} (P) [En] 2000 (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86851.jpgsave_picture_86851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86851.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:79DF541688E75ED45C5C86659E68910B0C6526F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86854.jpgsave_picture_86854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86854.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:79DF541688E75ED45C5C86659E68910B0C6526F0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86855.jpgsave_picture_86855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86855.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:594E89DCC091E52FADF5010F8A827BB353024D0E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86856.jpgsave_picture_86856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86856.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:594E89DCC091E52FADF5010F8A827BB353024D0E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86857.jpgsave_picture_86857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86857.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:8B02B6BC6AAAD235978B71361D62D03109D14352
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86858.jpgsave_picture_86858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86858.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Kolor Panotour Pro v1.8.0.400 Final + Portable [2012,ML\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86859.jpgsave_picture_86859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86859.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Kolor Panotour Pro - новая версия программы для созд�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86860.jpgsave_picture_86860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86860.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Top Gun: Hard Lock [En] (RePack) 2012 | z10yded
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86863.jpgsave_picture_86863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86863.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ WinKit (Windows 7 Toolkit) 1.4.0.15 Final Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86864.jpgsave_picture_86864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86864.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ WinKit (Windows 7 Toolkit) 1.4.0.15 Final Portable [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86865.jpgsave_picture_86865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86865.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:2184071D791232830E02EC6F63AF1AA8F521A2AC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86866.jpgsave_picture_86866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86866.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Driver Genius Professional v.11.0.0.1112 27.03.2012 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86867.jpgsave_picture_86867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86867.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Manhunt Дилогия (P) [Ru] 2004-2009
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86869.jpgsave_picture_86869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86869.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86871.jpgsave_picture_86871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86871.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Call of Duty: Modern Warfare 3 (L) [Ru] 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86872.jpgsave_picture_86872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86872.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Minecraft IndustrialClient 1.4.1 (P) [Multi56/+] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86873.jpgsave_picture_86873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86873.jpg" />
 </div>
 
 

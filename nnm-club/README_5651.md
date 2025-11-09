@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173959.jpgsave_picture_173959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173959.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ John Lennon - Imagine (1971) The Raw Studio Mixes, 2023, UMC [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173960.jpgsave_picture_173960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173960.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8A348C11DC79094EEEDC9EE0B6648E8279737794
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173961.jpgsave_picture_173961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173961.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:83DFB0D2BB65F064ABEEEEEED9C0806CA08FE4C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173962.jpgsave_picture_173962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173962.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5044400C05F3E693C9CE2E8856541EE66434E86A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173964.jpgsave_picture_173964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173964.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ FlippedNormals, David Saiz | Hard Surface Modeling for Games (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173965.jpgsave_picture_173965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173965.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A69BF726C84F924179F42000EE86903E4801990B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173966.jpgsave_picture_173966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173966.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:79BDD4D82C352176DE847C53EAF4F0C48E128BA1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173967.jpgsave_picture_173967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173967.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Icecream Screen Recorder Pro 7.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173968.jpgsave_picture_173968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173968.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Piezo 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173969.jpgsave_picture_173969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173969.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:8F8D5FD1C7945628BCCC0DBAF41FAB9792130CEE
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173970.jpgsave_picture_173970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173970.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ File List Export 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173972.jpgsave_picture_173972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173972.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Telegram for Android 9.2.1 (2962) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173973.jpgsave_picture_173973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173973.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F358063459E48AF9626EAFF5466061C182BA74E0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173974.jpgsave_picture_173974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173974.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:02415CC3997F087852D273F29BD9E98787A7FA1C
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173975.jpgsave_picture_173975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173975.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Topaz Photo AI for Mac 2.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173976.jpgsave_picture_173976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173976.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Mic Drop 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173977.jpgsave_picture_173977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173977.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:52BC2B589C6532DDAAAD7F544E5C19A4A16A13FE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173978.jpgsave_picture_173978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173978.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Trminal 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173979.jpgsave_picture_173979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173979.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Electro Swing Bass Party (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173980.jpgsave_picture_173980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173980.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Multitouch 1.20.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173981.jpgsave_picture_173981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173981.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Meditative State: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173982.jpgsave_picture_173982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173982.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Udemy, Barry C Donovan | Fantastic Faces - A Course for Photographers (2025) PCR
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173983.jpgsave_picture_173983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173983.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:C52E21DC1927A611731A335FF0715363F0BA676A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173984.jpgsave_picture_173984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173984.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Adobe Acrobat Pro DC 2020.013.20074 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173985.jpgsave_picture_173985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173985.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:3EBDF2D4ADE8CB28BF99194E5443554B463FE63F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173986.jpgsave_picture_173986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173986.jpg" />
 </div>
 
 

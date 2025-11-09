@@ -6,7 +6,7 @@ PictureThis - Plant Identification v4.4.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40188.jpgsave_picture_40188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40188.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - XX. Трибьют группе Артерия (2024) [FLAC|Lossless|WEB-DL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40189.jpgsave_picture_40189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40189.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:27070749C8D02F7D3FD320E7454A0F92D6495D3C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40190.jpgsave_picture_40190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40190.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9C787337AD04A1DC12F2013FE2C6F3F7AB94B62A
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40191.jpgsave_picture_40191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40191.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Pavarotti - Verdi  (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40192.jpgsave_picture_40192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40192.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B061AA95B096AFBEF22F218AB68B6B88BC2D4798
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40193.jpgsave_picture_40193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40193.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Soothing & Soft Lounge Playlist to Unwind and Relax (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40194.jpgsave_picture_40194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40194.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:AF94031BCE7EF0DD2F0D3060A2985ECE145F1DB2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40195.jpgsave_picture_40195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40195.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:975705A369EB20184763B34E4CE684D617E1F4CD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40196.jpgsave_picture_40196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40196.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ CareUEyes 2.4.5.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40197.jpgsave_picture_40197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40197.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:31D8F273CA0E860ED832E7EB9B7FAE94E395D051
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40198.jpgsave_picture_40198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40198.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:8206940F3F1450696D8B6E9CE64CEA5EA4B7CFB6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40199.jpgsave_picture_40199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40199.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ GPU Shark II 2.4.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40200.jpgsave_picture_40200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40200.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:EEFBEE31A3EF705CEB0DBAE3C97CB3249E86DF02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40201.jpgsave_picture_40201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40201.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:BA2853A17A535A4FE8E527089525F0E3A11D47B8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40202.jpgsave_picture_40202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40202.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E6F8945B8D4226552D9F79D3103801949426F99E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40203.jpgsave_picture_40203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40203.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E2C8743B6145FD9B017AB2DF4572CD1A56BDD348
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40204.jpgsave_picture_40204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40204.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:76EB15BB43DB4B05ADF82EE0A22C7877ACFF391C
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40205.jpgsave_picture_40205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40205.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:8CBE9481E6FD2AF43002A3567C875D4E56F499D3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40206.jpgsave_picture_40206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40206.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WPS Office + PDF v18.13.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40207.jpgsave_picture_40207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40207.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:56734FE190584A8634B0E69CAEBB098625BC857C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40208.jpgsave_picture_40208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40208.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:6D54D2AF8A079867018FB395F6667A0F87875225
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40209.jpgsave_picture_40209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40209.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Telegram Desktop 5.6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40210.jpgsave_picture_40210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40210.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Google Chrome 130.0.6723.59 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40211.jpgsave_picture_40211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40211.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Союз 15  (1995) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40212.jpgsave_picture_40212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40212.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Sexy Bath 5 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40213.jpgsave_picture_40213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40213.jpg" />
 </div>
 
 

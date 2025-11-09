@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107097.jpgsave_picture_107097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107097.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:77C9E0629C3EA5B0BBB305C7DACDEE3F397062FC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107098.jpgsave_picture_107098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107098.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DDD811BEE0D967682857D2C6F53A2F138257248F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107099.jpgsave_picture_107099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107099.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Charlotte de Witte - Power Of Thought EP (2023) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107100.jpgsave_picture_107100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107100.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Tommy Crane - Dance Music For All Occasions (2024) [FLAC 24/88.2|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107101.jpgsave_picture_107101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107101.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Visions Of Atlantis - Pirates II Armada (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107102.jpgsave_picture_107102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107102.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107103.jpgsave_picture_107103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107103.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Billie Piper - Walk Of Life (2CD) (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107104.jpgsave_picture_107104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107104.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Plugin Boutique - DC Snares 1.0.1 VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107105.jpgsave_picture_107105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107105.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:6A4CA4C721A147CD6CE54E20A4DA49BD3D650B06
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107106.jpgsave_picture_107106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107106.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Jason Lane Band - Full Steam Ahead (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107107.jpgsave_picture_107107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107107.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Josie Field - Blue Planet (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107108.jpgsave_picture_107108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107108.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Carole Stott, Sam Priddy, Jolyon Goddard, SusaMcKeeve, Bernadette Crowley (еdit
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107109.jpgsave_picture_107109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107109.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:1125515EEEE5AC287A39BCD61D62AE03B3733AB7
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107110.jpgsave_picture_107110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107110.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Indepen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107111.jpgsave_picture_107111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107111.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Joe Clark - Hillbilly Voodoo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107112.jpgsave_picture_107112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107112.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ John Woodward | Horses (2014) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107113.jpgsave_picture_107113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107113.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ John Albert - Down the Rabbit Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107114.jpgsave_picture_107114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107114.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Charlie Gardner, Jennifer Quasha (еditors) | Butterfly (2004) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107115.jpgsave_picture_107115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107115.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Louis Prima - The Very Best Of Louis Prima (1956 - 1962) 2CD, 2016, Not Now Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107116.jpgsave_picture_107116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107116.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ James McKinley - Working Class Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107117.jpgsave_picture_107117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107117.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Jasper & Jade - The Copper God (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107118.jpgsave_picture_107118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107118.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:4DE1487C19C3D84B6475B2196E9E0C929BE5799A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107119.jpgsave_picture_107119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107119.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Jacek Siciarek - In Yo Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107120.jpgsave_picture_107120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107120.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107121.jpgsave_picture_107121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107121.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107122.jpgsave_picture_107122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107122.jpg" />
 </div>
 
 

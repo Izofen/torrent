@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250619.jpgsave_picture_250619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250619.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:AA94B0F4D003285AF07C0C6A7573FD5B639E0F73
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250620.jpgsave_picture_250620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250620.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:19803CC6D97DC8DEB8389373C69F25B909D3A243
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250621.jpgsave_picture_250621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250621.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:EE151AED29066BC41530B046709817AE697CEF47
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250622.jpgsave_picture_250622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250622.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EE420323827A3D44E8DFC5EE041649F447654A74
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250623.jpgsave_picture_250623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250623.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:3A3DF0A838D77BA4EAE36D75657965BE584A9E32
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250624.jpgsave_picture_250624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250624.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ AltSnap 1.66 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250625.jpgsave_picture_250625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250625.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:D4387A1FB4027CD048B8BDCA8AB2169C617D094C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250626.jpgsave_picture_250626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250626.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8824814692F16217334F3C9730FA5C39C888D964
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250627.jpgsave_picture_250627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250627.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:02B33BCA9E31CB1F1F85698C3F44311B66DF3A10
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250628.jpgsave_picture_250628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250628.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Florence + The Machine - Everybody Scream (Chamber Version) (2025) [FLAC 24/48|L
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250629.jpgsave_picture_250629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250629.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Deez Nuts - Saudade (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Hardcor
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250630.jpgsave_picture_250630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250630.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:A888DECEDFD0C967B69073E5E28B82B986033433
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250631.jpgsave_picture_250631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250631.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:0215261C6FE4B28814797D687A6D60F3C50D4245
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250632.jpgsave_picture_250632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250632.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:C3D259739591C9793C8A90CE16648F65A70A05F4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250633.jpgsave_picture_250633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250633.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Digital Juice - AnimationBoxx - Volume 1 to 22 [MP4]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250634.jpgsave_picture_250634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250634.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Realms of Madness (2025) [En] (1.0.1) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250635.jpgsave_picture_250635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250635.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E2AC3BA22EB048268B55FF054133AD34A5B2CB61
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250636.jpgsave_picture_250636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250636.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Cold Steel - Discipline & Punish (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250637.jpgsave_picture_250637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250637.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:347DD447A620FBDA483B4896D10E697E4EB0B972
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250638.jpgsave_picture_250638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250638.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:FA13166650BE0527F4E48F2BB367BDC879AC9301
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250639.jpgsave_picture_250639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250639.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Opera One 123.0.5669.47 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250640.jpgsave_picture_250640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250640.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:4DD1E993D37E0FEF09D1147D6F6EAE9318F0AC05
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250641.jpgsave_picture_250641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250641.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:5313021AD5DAA1215D546A011109965AFC781668
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250642.jpgsave_picture_250642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250642.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VMware Workstation 8.0.3 703057 [ENG + RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250644.jpgsave_picture_250644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250644.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VMware Workstation – по праву самая популярная прог�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250645.jpgsave_picture_250645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250645.jpg" />
 </div>
 
 

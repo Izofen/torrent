@@ -6,7 +6,7 @@ Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52732.jpgsave_picture_52732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52732.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52920.jpgsave_picture_52920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52920.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:13C2317F97E53DA0E87C14AF53A851A6A6D6D4EF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53004.jpgsave_picture_53004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53004.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53554.jpgsave_picture_53554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53554.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpgsave_picture_53614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Dying Fetus - Reign Supreme (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Brutal 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53723.jpgsave_picture_53723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53723.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53891.jpgsave_picture_53891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53891.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Evergrey - Studio Albums (14 releases) (1998-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54075.jpgsave_picture_54075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54075.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54090.jpgsave_picture_54090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54090.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Godsmack (& Sully Erna) - Studio Albums (11 releases) (1998 - 2023) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54117.jpgsave_picture_54117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54117.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54141.jpgsave_picture_54141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54141.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54145.jpgsave_picture_54145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54145.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54664.jpgsave_picture_54664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54664.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Slash (Saul Hudson, Slash's Snakepit, Velvet Revolver) - Studio Albums (10 relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55449.jpgsave_picture_55449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55449.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56279.jpgsave_picture_56279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56279.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56281.jpgsave_picture_56281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56281.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56341.jpgsave_picture_56341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56341.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56449.jpgsave_picture_56449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56449.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56694.jpgsave_picture_56694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56694.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Unleash the Archers - Studio Albums (7 releases) (2009-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56903.jpgsave_picture_56903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56903.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Cliff Richard - Rock 'N' Roll Juvenile (1979) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57302.jpgsave_picture_57302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57302.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Scott Stapp (Creed) - Studio Albums (4 releases) (2005-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58673.jpgsave_picture_58673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58673.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58683.jpgsave_picture_58683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58683.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59085.jpgsave_picture_59085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59085.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59611.jpgsave_picture_59611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59611.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60091.jpgsave_picture_60091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60091.jpg" />
 </div>
 
 

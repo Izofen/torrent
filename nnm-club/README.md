@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1.jpgsave_picture_1.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DF8DFAD0D4226FB607A4E1D97ECEA3F80285C15B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2.jpgsave_picture_2.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DAC1FAF73FDB6FE15E710CDBA12A1358F700E61D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3.jpgsave_picture_3.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Siege Of Power - Studio Albums (2 releases) (2018-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4.jpgsave_picture_4.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5.jpgsave_picture_5.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:56BEF468E109900754770D1B0063E14982E8D08D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6.jpgsave_picture_6.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C9C0396D374A637103D34D90758AF4126F59F263
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7.jpgsave_picture_7.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Eric Street Band - Compilation'25 (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8.jpgsave_picture_8.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:2A608F80CBF77228303A850408FF1716C38DA8E3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9.jpgsave_picture_9.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:17BBC6B5EB9AD9DE374ADF0D8776DE1890DBB504
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10.jpgsave_picture_10.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Teenbird - Beauty of the Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11.jpgsave_picture_11.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Arabs In Aspic - Studio Albums (8 releases) (2003-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12.jpgsave_picture_12.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13.jpgsave_picture_13.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:F81618308B647B74EDF1DDEF7FA01D9BA4BC9FED
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14.jpgsave_picture_14.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:B10DDA5DF474A9293B1ABB2E71A57926CC1B9F46
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15.jpgsave_picture_15.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Crime - Cold Air (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16.jpgsave_picture_16.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Talla 2XLC pres. Trance Forever (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17.jpgsave_picture_17.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dario Mollo projects (Crossbones, EZoo, The Cage, Twilight Road, Voodoo Hill) - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18.jpgsave_picture_18.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19.jpgsave_picture_19.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Madra - Sem Parada (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20.jpgsave_picture_20.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:52D0A93265FC496D8A91F1F60813CBD14773FEAF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21.jpgsave_picture_21.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Stan Getz & Jimmy Raney - Complete Studio Sessions (1948 - 1953) 2CD, 2003, Defi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22.jpgsave_picture_22.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:90EB3AA2D9DC5CB7ED0E7A5AD5B8C1A0D4CCC777
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23.jpgsave_picture_23.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:72DFCD2CCC3CB941C94CE3E17368F69B6EAD59BE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24.jpgsave_picture_24.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:912DEAEB9D21BA898C8B82A035A48B677A2CF053
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25.jpgsave_picture_25.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:E13C26527CBBD07E046893FEC80CB32D366CC8F2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26.jpgsave_picture_26.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Rap NNM (2022) Русский Выпуск [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239025.jpgsave_picture_239025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239025.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Galactic Beats Future: House Mixtape (2021) [MP3|320 Kbps] <House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239142.jpgsave_picture_239142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239142.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Beatport Funky House: Sound Pack #296 (2021) [MP3|320 Kbps] <Funky, Disco H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239200.jpgsave_picture_239200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239200.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Beatport Electro House: Sound Pack #295 (2021) [MP3|320 Kbps] <Club, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239214.jpgsave_picture_239214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239214.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Exclusives HGM: DnB Collection (2021) [MP3|320 Kbps] <Drum & Bass, Bassline
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239330.jpgsave_picture_239330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239330.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Favorite Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239430.jpgsave_picture_239430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239430.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Жирные Хиты Весны Remix NNM (2022) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239795.jpgsave_picture_239795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239795.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239872.jpgsave_picture_239872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239872.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - TOP Non-Stop 2010-2019 - Progressive House (2022) [MP3|192-320 Kbps] <Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239897.jpgsave_picture_239897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239897.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Alright Feelings Dances (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro Hou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239899.jpgsave_picture_239899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239899.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Motivation Mix 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239927.jpgsave_picture_239927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239927.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - The Morning Mist (2023) [MP3|320 Kbps] <Ambient, Meditation, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239943.jpgsave_picture_239943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239943.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - The Best of Dance (2022) [MP3|320 Kbps] <Europop, Dance, Deep House, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239946.jpgsave_picture_239946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239946.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Юрий Шатунов и другие... (2022) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240123.jpgsave_picture_240123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240123.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Rule Number On Dancehall Mixtape (2023) [MP3|320 Kbps] <Reggae, Dub, Danceh
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240321.jpgsave_picture_240321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240321.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Big Room 2 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240381.jpgsave_picture_240381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240381.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Native American pulse Beat (2023) [MP3|241-320 Kbps] <Native American, Rock
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240546.jpgsave_picture_240546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240546.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240837.jpgsave_picture_240837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240837.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Dynamite Disco (2023) [MP3|320 Kbps] <Disco, Instrumental>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240899.jpgsave_picture_240899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240899.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Kings of Dance (2023) [MP3|320 Kbps] <Dancehall, Afro House, R&B, Reggae>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240905.jpgsave_picture_240905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240905.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Отдыхаем душой на Шансоне. Часть № 9 (2017) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240913.jpgsave_picture_240913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240913.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Лучший русский шансон. Сборник № 7 (2017) [MP3|
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240982.jpgsave_picture_240982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240982.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Зайцев.нет Лучшие новинки Апреля (2022) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241000.jpgsave_picture_241000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241000.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Сотка популярных весенних хитов от Европ
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241001.jpgsave_picture_241001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241001.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Ресторан Кураж от радио Шансон выпуск № 1
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241018.jpgsave_picture_241018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241018.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Вечеринка на радио Шансон выпуск № 8 (2017) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241039.jpgsave_picture_241039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241039.jpg" />
 </div>
 
 

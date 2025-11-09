@@ -6,7 +6,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1.0.0.0/dlc) Repack Other s [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38249.jpgsave_picture_38249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38249.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38284.jpgsave_picture_38284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38284.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alchemist: The Potion Monger (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38293.jpgsave_picture_38293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38293.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38295.jpgsave_picture_38295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38295.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ CRUELTY (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38305.jpgsave_picture_38305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38305.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Totally Spies! - Cyber Mission (2024) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38306.jpgsave_picture_38306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38306.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Monster High Skulltimate Secrets (2024) [Multi] (1.12) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38308.jpgsave_picture_38308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38308.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack FitGirl [Complet
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38309.jpgsave_picture_38309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38309.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38311.jpgsave_picture_38311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38311.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (build 16275683) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38325.jpgsave_picture_38325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38325.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Repack Fi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38332.jpgsave_picture_38332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38332.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38336.jpgsave_picture_38336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38336.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38340.jpgsave_picture_38340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38340.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ House Builder (2021) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38348.jpgsave_picture_38348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38348.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Scene Razor1911
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38359.jpgsave_picture_38359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38359.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38379.jpgsave_picture_38379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38379.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Night is Grey (2024) [En] (1.4) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38397.jpgsave_picture_38397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38397.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38417.jpgsave_picture_38417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38417.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ No Man's Sky (2016) [Ru/Multi] (5.12/dlc) Repack seleZen [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38426.jpgsave_picture_38426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38426.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38440.jpgsave_picture_38440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38440.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Scene Razor1911 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38443.jpgsave_picture_38443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38443.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Political Machine 2024 (2024) [En] (1.16/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38447.jpgsave_picture_38447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38447.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38452.jpgsave_picture_38452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38452.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Lost Village (2024) [Multi] (1.2.8/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38457.jpgsave_picture_38457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38457.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.1.88) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38465.jpgsave_picture_38465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38465.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38466.jpgsave_picture_38466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38466.jpg" />
 </div>
 
 

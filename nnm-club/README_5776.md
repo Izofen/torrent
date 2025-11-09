@@ -6,7 +6,7 @@ The Hatters - По ходу люблю (Полная версия) (2023) [FLAC|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179544.jpgsave_picture_179544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179544.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Superior Audiophile (2022) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179548.jpgsave_picture_179548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179548.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Unheilig - Schattenland (2021) 5CD Box Set [FLAC|Lossless|image + .cue] <Industr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179550.jpgsave_picture_179550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179550.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:3717DE7C6FECCEC1B3C1EEE9A9F687CEA26DD5E3
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179554.jpgsave_picture_179554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179554.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:AF322DDBD06B90B8734F2852A4099239419F825C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179557.jpgsave_picture_179557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179557.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:AE6EB12CA883D6EFDC0C73441F793ABA7D129D5E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179558.jpgsave_picture_179558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179558.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Luxion KeyShot Pro 11.3.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179559.jpgsave_picture_179559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179559.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Skype 8.105.0.211 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179562.jpgsave_picture_179562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179562.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:7B31FDB324C659E766497280A18DD1D040E06D30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179564.jpgsave_picture_179564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179564.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Lost Language Exhibition (Mixed By Solar Stone And Ben Lost) (2003) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179566.jpgsave_picture_179566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179566.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ WimBuilder2 Full x86-x64 v2022.02.02 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179569.jpgsave_picture_179569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179569.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:8B0769BE4567B95EC63499E6B9463370F5C2C179
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179570.jpgsave_picture_179570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179570.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ CCleaner Pro: ПО для очистки 6.6.2 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179572.jpgsave_picture_179572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179572.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CBD0D0BF53422626D647CB2ABA06C22015FFAF8F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179574.jpgsave_picture_179574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179574.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:EBDF455286841F0082EFCDA0FFA7F3756F8912D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179577.jpgsave_picture_179577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179577.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E3E8EE94CEB23306E74E8F9414B8C97C838F45D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179578.jpgsave_picture_179578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179578.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:8D8B514C5933305252434FC99898C7EDA5F563D6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179580.jpgsave_picture_179580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179580.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ New Arcades - Leave Something Behind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179584.jpgsave_picture_179584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179584.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Deep Purple - Greatest Hits (2022) 3 x CD, Compilation, Japanese Edition [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179585.jpgsave_picture_179585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179585.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:E7F86787D064BB3F2590310A848B65F7C8E8BDB6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179589.jpgsave_picture_179589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179589.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.15
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179590.jpgsave_picture_179590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179590.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:30885E667CABED3025BD91F156A6EA425B14604E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179593.jpgsave_picture_179593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179593.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:7704C9188D4E358210F9375F313E9DE5B84CF29A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179594.jpgsave_picture_179594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179594.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:C87EEA000BE4D52172AAEA92F02458271BF7F69F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179598.jpgsave_picture_179598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179598.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ GeoGebra 6.0.804.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179601.jpgsave_picture_179601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179601.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Monkey Island 2: LeChuck’s Revenge (2010) [Multi] (2.0.0.10) License GOG [Spec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179602.jpgsave_picture_179602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179602.jpg" />
 </div>
 
 

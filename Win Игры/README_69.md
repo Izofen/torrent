@@ -6,7 +6,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.18.3.s.de/dlc) Repack FitGirl [Complete Th
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20293.jpgsave_picture_20293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20293.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20298.jpgsave_picture_20298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20298.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Empty Desk (2025) [Ru/Multi] (1.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20304.jpgsave_picture_20304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20304.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack seleZen [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20306.jpgsave_picture_20306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20306.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0.5/dlc) Repack Let'sРlay [Centurion Bundl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20322.jpgsave_picture_20322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20322.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack seleZen [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20324.jpgsave_picture_20324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20324.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20326.jpgsave_picture_20326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20326.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20330.jpgsave_picture_20330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20330.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ BIOMORPH (2024) [Ru/Multi] (2.0.27583) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20333.jpgsave_picture_20333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20333.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Imperator: Rome (2019) [Ru/Multi] (2.0.4.13/dlc) License GOG [Deluxe Edition] (�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20342.jpgsave_picture_20342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20342.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20351.jpgsave_picture_20351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20351.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20365.jpgsave_picture_20365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20365.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20389.jpgsave_picture_20389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20389.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20408.jpgsave_picture_20408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20408.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Sunset Motel (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20412.jpgsave_picture_20412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20412.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20416.jpgsave_picture_20416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20416.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Shivah (2013) [En] (3.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20435.jpgsave_picture_20435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20435.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20440.jpgsave_picture_20440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20440.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fort Solis (2023) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20454.jpgsave_picture_20454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20454.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20468.jpgsave_picture_20468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20468.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20478.jpgsave_picture_20478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20478.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.4/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20493.jpgsave_picture_20493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20493.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Brassheart (2025) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20495.jpgsave_picture_20495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20495.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sacre Bleu (2025) [Ru/Multi] (1.0.10) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20510.jpgsave_picture_20510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20510.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Pecker (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20511.jpgsave_picture_20511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20511.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20515.jpgsave_picture_20515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20515.jpg" />
 </div>
 
 

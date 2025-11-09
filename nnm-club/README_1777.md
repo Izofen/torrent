@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46559.jpgsave_picture_46559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) WEBRi
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46560.jpgsave_picture_46560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46560.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.2.11.45697/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46561.jpgsave_picture_46561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46561.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46562.jpgsave_picture_46562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46562.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3D67DACE3D2DE55FA8D88FF7FB2607CD84B51965
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46563.jpgsave_picture_46563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46563.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0056349C119CA3CA80549ACF6D1370AA74384DE9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46564.jpgsave_picture_46564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46564.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Next / Следующий (3 сезона) (2001-2003) DVDRip
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46565.jpgsave_picture_46565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46565.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C8B9EE4C7D53B7A11FAC2F5555F4BE5C50449C62
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46566.jpgsave_picture_46566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46566.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:B2728AE5B930048E8357E594D5896FAD62D72ACE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46567.jpgsave_picture_46567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46567.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Passpartout 2: The Lost Artist (2023) [Multi] (20240110) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46568.jpgsave_picture_46568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46568.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B83AE3775B8674C7CF1FA2C6654D7EEC665A0937
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46569.jpgsave_picture_46569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46569.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Corona Renderer 12.1 for 3ds Max 2016-2025 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46570.jpgsave_picture_46570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46570.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46571.jpgsave_picture_46571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46571.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:589FB1AB2367A9CDAFBE5E3C267DD99C8AC10124
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46572.jpgsave_picture_46572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46572.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:AC69EDBB6ABB0190D0603509E57DEA3420872734
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46573.jpgsave_picture_46573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46573.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Abelssoft SSD Fresh Plus 2024 13.02.56042 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46574.jpgsave_picture_46574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46574.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46575.jpgsave_picture_46575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46575.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:3FFEE0281B653F23C3D1895667B389148D94CBF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46576.jpgsave_picture_46576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46576.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Foxit PDF Editor Pro Subscription 2024.2.3.25184 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46577.jpgsave_picture_46577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46577.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46578.jpgsave_picture_46578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46578.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:5B4FAE9E91B9102F370B8F678903E733FA16D545
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46579.jpgsave_picture_46579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46579.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46580.jpgsave_picture_46580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46580.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:71B51F24DAC66962714BBDA748D11C7373254E77
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46581.jpgsave_picture_46581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46581.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:263764691117FAFA384E8D248FACBF2DE60FC063
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46582.jpgsave_picture_46582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46582.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remas
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46583.jpgsave_picture_46583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46583.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:7C56AF4E2804BD9FA2B404A79B64C4794489D29C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46584.jpgsave_picture_46584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46584.jpg" />
 </div>
 
 

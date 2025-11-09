@@ -6,7 +6,7 @@ Heroin and Your Veins - Collection 5 Releases (2007-2012) [FLAC|Lossless|Web-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167790.jpgsave_picture_167790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167790.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5EFB4E2CDCD20EAB542343F51FAE9CAE66D7A388
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167791.jpgsave_picture_167791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167791.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows 10 Pro 22H2 19045.2251 x64 by SanLex [Extreme Edition] [Ru/En] (2022.12.
 >>21
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167792.jpgsave_picture_167792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167792.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5E58C7986531C4F938E0E7A04A0F56A5DE6CFEC8
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167793.jpgsave_picture_167793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167793.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ ZEDGE 8.20.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167794.jpgsave_picture_167794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167794.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F6A69857ABC36ACA863D4A11FC2DFF4F67D0F2AF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167795.jpgsave_picture_167795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167795.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:30DA2710F601CC8CC826EA170222D31049F645C9
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167796.jpgsave_picture_167796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167796.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BBF779886C822E59EB6A7071895917DC731D9675
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167797.jpgsave_picture_167797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167797.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Telegram Desktop 4.11.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167798.jpgsave_picture_167798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167798.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D587670EEAE5510FDAA6D2520931C1FF8CCCE672
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167799.jpgsave_picture_167799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167799.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8407E9CA6ACBF1D5CF06E62090B02B1AF382A6D9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167800.jpgsave_picture_167800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167800.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:88E11000911F21398552E3D1BEA221C2CFDABA95
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167801.jpgsave_picture_167801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167801.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A0E53A373F33EB99F8D93CEDE434669164152FF5
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167802.jpgsave_picture_167802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167802.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:5B8C94AD8BBB238602C18783B9EE9497120C7937
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167803.jpgsave_picture_167803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167803.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167804.jpgsave_picture_167804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167804.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - Beatport Tech House: Sound Pack #381 (2021) [MP3|320 Kbps] <Tech House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167805.jpgsave_picture_167805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167805.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:5DE0214AC1906C3B2D859A7E765D9DD5602F4F66
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167806.jpgsave_picture_167806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167806.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VA - My Lyric Soul: Romantic Music Compilation (2019) [MP3|320 Kbps] <Pop, Lyric
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167807.jpgsave_picture_167807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167807.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:447DA3FAABA57174D51C28B96E84F95496152CBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167808.jpgsave_picture_167808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167808.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ The Gil Evans Orchestra - Plays The Music Of Jimi Hendrix (1988) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167809.jpgsave_picture_167809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167809.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:8785ADB954081A5759E2F8B2AE69121AF6243803
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167810.jpgsave_picture_167810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167810.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Deep Purple - In Rock (1970) Remaster, 2018, Parlophone UK [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167811.jpgsave_picture_167811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167811.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:479D1CEDC6633D138878ED1A1577BE57F4FA56E3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167812.jpgsave_picture_167812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167812.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ CamScanner 6.51.0.2310160000 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167813.jpgsave_picture_167813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167813.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167814.jpgsave_picture_167814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167814.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167815.jpgsave_picture_167815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167815.jpg" />
 </div>
 
 

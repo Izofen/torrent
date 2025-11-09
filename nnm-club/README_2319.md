@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60661.jpgsave_picture_60661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60661.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0F11780210A1A2BF160C37F2B928CAE96BA29192
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60662.jpgsave_picture_60662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60662.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:73BBF44FFE4F56E6EFEDBC8C04F96205BE1CFD19
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60663.jpgsave_picture_60663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60663.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Jetbrains WebStorm 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60664.jpgsave_picture_60664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60664.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:BA7CD53EF4B3D41DFBDCDFAA8B050C312650A827
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60665.jpgsave_picture_60665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60665.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:33496F6CC0DE85B3CFC718839E35460D15D834E5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60666.jpgsave_picture_60666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60666.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:3AB8D4C1A30929E67FFB1F9EC4B869A29887E0DC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60667.jpgsave_picture_60667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60667.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ IrfanView 4.67 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60668.jpgsave_picture_60668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60668.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ WinToHDD 6.5 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60669.jpgsave_picture_60669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60669.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:50B9930BBA2E52B83694D963BE62647F26F73759
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60670.jpgsave_picture_60670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60670.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:186AD22B49F6C05B421D6F6C8C9363B65E13E55D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60671.jpgsave_picture_60671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60671.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sante DICOM Viewer Pro 14.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60672.jpgsave_picture_60672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60672.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ EMCO UnLock IT 7.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60673.jpgsave_picture_60673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60673.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:FDBBD5FA429F6DB871ACB1EFD723FC0D9FB0B602
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60674.jpgsave_picture_60674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60674.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:8D652EF089F1A32EB874CC0DCE7348386ED9008A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60675.jpgsave_picture_60675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60675.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:37634FDA1AF4122DA9B8C63AACE05871BE930458
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60676.jpgsave_picture_60676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60676.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D66D6BB837F4C8E802C6A25479A1B091BF8B2626
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60677.jpgsave_picture_60677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60677.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Uranium Backup 9.9.0.7469 Free [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60678.jpgsave_picture_60678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60678.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:6CF0C3B1D5408D8A98CE8EAA03052735A9E98900
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60679.jpgsave_picture_60679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60679.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ IrfanView 4.67 + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60680.jpgsave_picture_60680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60680.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:A31A9ADD9D06A749B36969388426096622468073
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60681.jpgsave_picture_60681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60681.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8B5BFD35075D845FCAF98786ED1A938E91E4E41C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60682.jpgsave_picture_60682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60682.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Aquarist (2024) [Ru/Multi] (13870405) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60683.jpgsave_picture_60683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60683.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:966BD9ACA097AE60BCE2E2CC3FDB4E56318C1C3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60684.jpgsave_picture_60684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60684.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:F048106AE7CC7E9F526F3DFCF2F69558AFA5F175
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60685.jpgsave_picture_60685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60685.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Amazon закрыла в США магазины Just Walk Out, где клие�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60686.jpgsave_picture_60686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60686.jpg" />
 </div>
 
 

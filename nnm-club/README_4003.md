@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124633.jpgsave_picture_124633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124633.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0FDDAD70500CED368331FCF6C8E06CA5908A7502
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124634.jpgsave_picture_124634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124634.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D6DF50FFE3B3ECB49A267DC28182490C678F54FF
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124635.jpgsave_picture_124635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124635.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:30A8A6058220E96A518038CE1150E0C49746975B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124636.jpgsave_picture_124636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124636.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2F3D02D1AFAA733B7F6FC2EC8A0219FBF74FCF12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124637.jpgsave_picture_124637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124637.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D44BCC0F3EBF1B95C4BD42AF63589CB87A5E29D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124638.jpgsave_picture_124638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124638.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C2C22A83F623F55F4F8FFA30EF1A0CD9E924AA51
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124639.jpgsave_picture_124639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124639.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Fort Solis (2023) [Ru/Multi] (20231228) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124640.jpgsave_picture_124640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124640.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:90B3878379F93E6FCF1020A223A7FF36B5D40201
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124641.jpgsave_picture_124641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124641.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:154CCDFE268C62D7520CD566F0D7EF68C481849A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124642.jpgsave_picture_124642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124642.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Pharoah Sanders & Bill Laswell - With a Heartbeat (2003) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124643.jpgsave_picture_124643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124643.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:B58C3C0DEC2476EA9AB72BEFFCA34E8F73586063
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124644.jpgsave_picture_124644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124644.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:CA403FC40CD310E35F5EC70FA24F18D3F63F8333
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124645.jpgsave_picture_124645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124645.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Chris Thompson (ex-Mannfred Mann's Earth Band) - The Final Round - Live (2023) [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124646.jpgsave_picture_124646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124646.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Fallen Land Records - Dehamanized (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124647.jpgsave_picture_124647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124647.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Hooligans - Fekete Fekete szivarvany (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124648.jpgsave_picture_124648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124648.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ T.A.S.S. - Maniafesto (1994) [APE|Lossless|image + .cue] <Industrial>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124649.jpgsave_picture_124649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124649.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:B0BE7D16C46FC13209A449EA7066AE7D5D3D42F7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124650.jpgsave_picture_124650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124650.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ draag me - lord of the shithouse (2023) [FLAC|Lossless|WEB-DL|tracks] <alternati
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124651.jpgsave_picture_124651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124651.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Todd Grubbs - Inside Your Brain (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124652.jpgsave_picture_124652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124652.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Retaliate - IV (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124653.jpgsave_picture_124653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124653.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Valfreyja - Valfreyja (2023) Master Version [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124654.jpgsave_picture_124654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124654.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:EA5990EB75365FCCA7620B0B45BEDF4704268FD3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124655.jpgsave_picture_124655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124655.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Harbinger of Storms - All of the Stars are Dead (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124656.jpgsave_picture_124656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124656.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Marco Cusato - Untamed Souls (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124657.jpgsave_picture_124657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124657.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:0C9F16BB0194AA1D007B5C68804D0775256FC73B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124658.jpgsave_picture_124658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124658.jpg" />
 </div>
 
 

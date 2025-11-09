@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88477.jpgsave_picture_88477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88478.jpgsave_picture_88478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88478.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88480.jpgsave_picture_88480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88480.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition / Тайны ду�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88483.jpgsave_picture_88483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88483.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9A08EAEE4B58F42175DF6B7D0D145B2F110E3732
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88484.jpgsave_picture_88484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88484.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D577CF7732B81A51CE00F51B963A89E47360B274
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88488.jpgsave_picture_88488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88488.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D577CF7732B81A51CE00F51B963A89E47360B274
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88489.jpgsave_picture_88489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88489.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D577CF7732B81A51CE00F51B963A89E47360B274
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88490.jpgsave_picture_88490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88490.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:36A7631A7FA4536F147CFE05DBE787B118F65F0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88494.jpgsave_picture_88494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88494.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:36A7631A7FA4536F147CFE05DBE787B118F65F0F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88495.jpgsave_picture_88495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88495.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:CA790C9691806A75F9D76EB5365D28A3089321B5
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88496.jpgsave_picture_88496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88496.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:906220CF8D06E07E73C6B3FE802B0227040D9DA8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88498.jpgsave_picture_88498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88498.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:906220CF8D06E07E73C6B3FE802B0227040D9DA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88501.jpgsave_picture_88501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88501.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Jojo no Kimyou na Bouken: Adventure / JoJo's Bizarre Adventure / Невероя�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88505.jpgsave_picture_88505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88505.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ American McGee's Alice / Америкэн Макги: Алиса [Ru] (RePack) 2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88507.jpgsave_picture_88507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88507.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Alice - это необычный 3D-шутер от 3-го лица, основ
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88508.jpgsave_picture_88508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88508.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VideoNet 8.4 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88511.jpgsave_picture_88511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88511.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Traffic Inspector 2.0.1.721 Full [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88512.jpgsave_picture_88512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88512.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Microsoft Office for Mac 2011 Service Pack 2 [RU/EN/DE]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88514.jpgsave_picture_88514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88514.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Microsoft Office for Mac 2011 Service Pack 2 [RU/EN/DE]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88515.jpgsave_picture_88515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88515.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:8A71552AE2BAE58AD8A8F17104335A8B2F422B57
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88516.jpgsave_picture_88516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88516.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:E9E5A1B38EFD6A880C6434B9223D8CFC570D4798
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88517.jpgsave_picture_88517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88517.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ IVT BlueSoleil с поддержкой голосового звонка (VOIP) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88519.jpgsave_picture_88519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88519.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Real RocketDock by kubunes v1.3.5 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88520.jpgsave_picture_88520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88520.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Trend Micro Titanium Maximum Security 2012 5.0.0.1312 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88521.jpgsave_picture_88521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88521.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Trend Micro™ Titanium™ Maximum Security 2012
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88522.jpgsave_picture_88522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88522.jpg" />
 </div>
 
 

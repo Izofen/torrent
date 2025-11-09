@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175047.jpgsave_picture_175047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175047.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2D9C4FD24B900C459307774F1FC5073DA99AF3FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175048.jpgsave_picture_175048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175048.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:10EC26324EEB4025053C9461D4C651C55D636474
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175050.jpgsave_picture_175050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175050.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Any Second - Enemies (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175051.jpgsave_picture_175051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175051.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Simple Gallery v6.28.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175052.jpgsave_picture_175052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175052.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Exposure X6 Bundle v6.0.2.124 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175053.jpgsave_picture_175053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175053.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:86486A58928B26A3AF2950F21DEE6462F562B438
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175055.jpgsave_picture_175055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175055.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E771E05F4940EF634CB48E01EF5539EEFF78487B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175056.jpgsave_picture_175056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175056.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9CE9C01F0DB6C0110507CB39BB515D510ACBD3DF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175058.jpgsave_picture_175058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175058.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Format Factory 5.15.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175059.jpgsave_picture_175059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175059.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:5711037F6E31F8862153EF048D949ECC7A803311
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175060.jpgsave_picture_175060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175060.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Adobe XD 35.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175061.jpgsave_picture_175061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175061.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:39451DE5217A10D91FB48C98C29C90FAA47DDD2A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175063.jpgsave_picture_175063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175063.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Disturbed - Ten Thousand Fists (2005) [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175064.jpgsave_picture_175064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175064.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:7D56C35B6CCCB57A036E459E2BA8701B83E4B018
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175066.jpgsave_picture_175066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175066.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Triple Triad Trading Card Game v1.8.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175067.jpgsave_picture_175067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175067.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kaкoй oтпуcк! / Vaya vacaciones! (2023) WEB-DLRip [MVO] [AD]
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175069.jpgsave_picture_175069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175069.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:2E67C5A5E4F771AB1818AE3FFAC2297DCAAECFAA
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175070.jpgsave_picture_175070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175070.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:36F015129CB38D2EA6A8AC4343DC3D91C25C3ED5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175072.jpgsave_picture_175072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175072.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ JRiver Media Center 27.0.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175073.jpgsave_picture_175073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175073.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Psiphon 3 build 179 (09.10.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175075.jpgsave_picture_175075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175075.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Skype 8.67.0.87 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175076.jpgsave_picture_175076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175076.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:2255A514C82A16CA6BC3489CE75AA1AA0E39F7F3
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175078.jpgsave_picture_175078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175078.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:0F7AA133CD342A7F14F3C83DB12FC08F3C2ABD86
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175079.jpgsave_picture_175079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175079.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:FE149569680BD13FFEDE9191FEB9D75FE14CC0DD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175080.jpgsave_picture_175080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175080.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Globular - Untangled Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175081.jpgsave_picture_175081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175081.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Discord Web-Portable by DVLZ 1.2
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191190.jpgsave_picture_191190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191190.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EA85E98812C7CB715B65B887179ADF6C190E382B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191191.jpgsave_picture_191191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191191.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ uTorrent (AdFree) 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191192.jpgsave_picture_191192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191192.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8BDF2E446B8F6FDC4537281C4B10B8A2E0ECEB7B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191193.jpgsave_picture_191193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191193.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5FC66B834A65974DDFEDCF907E70BBD394DE7BBF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191194.jpgsave_picture_191194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191194.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Topaz Video AI 3.4.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191195.jpgsave_picture_191195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191195.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tor Browser Bundle 11.5.7 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191196.jpgsave_picture_191196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191196.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:AB47EDEA46DD84741716A3AEA62548E49237F4D8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191197.jpgsave_picture_191197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191197.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Start Menu X 7.33 SpaceX [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191198.jpgsave_picture_191198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191198.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ PotPlayer 230905 (1.7.21999) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191199.jpgsave_picture_191199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191199.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:8AB24CB84B7FABBC4289FB37E038B546DD472B78
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191200.jpgsave_picture_191200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191200.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:904B9826EEA26A87801166A619B39B0BEC0D55FA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191201.jpgsave_picture_191201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191201.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:67F57808138DC0339DB0EE40DEA00F8EB512F1A5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191202.jpgsave_picture_191202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191202.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:E0A63809B363CA36A9BCCB4821B745D1670F3CBC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191203.jpgsave_picture_191203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191203.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Air. Большой прыжок / Air (2023) BDRip [H.264/720p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191204.jpgsave_picture_191204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191204.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ XnViewMP 1.5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191205.jpgsave_picture_191205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191205.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:245C0E623331E15E479B96BC53C26768957D532E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191206.jpgsave_picture_191206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191206.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:022609F6C1E993C0ED711A22A8FDD15D847517F3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191207.jpgsave_picture_191207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191207.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:DC0A43EC050082616238F9D0C8E07B42EF99A7BD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191208.jpgsave_picture_191208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191208.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Air. Большой прыжок / Air (2023) BDRip [H.264] [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191209.jpgsave_picture_191209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191209.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ uTorrent Pro 3.5.5 Build 46552 Stable Portable by A1eksandr1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191211.jpgsave_picture_191211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191211.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:4ECC3E290FB32BBA8E2317B0C1E9481D387F16E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191212.jpgsave_picture_191212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191212.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ iTubeGo YouTube Downloader 6.5.0 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191213.jpgsave_picture_191213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191213.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.1 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191214.jpgsave_picture_191214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191214.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:6845BE67161D599A465099076A4B79B4825E111F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191215.jpgsave_picture_191215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191215.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Eguana - One Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Downte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191216.jpgsave_picture_191216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191216.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Integrity Plus 10.4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156195.jpgsave_picture_156195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156195.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:43D63B9BF37BFA322AEA4F4ED332E265A7BE7499
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156196.jpgsave_picture_156196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156196.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5630288A30D336EA993BB1525E9B501965CAA670
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156197.jpgsave_picture_156197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156197.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Anno 1503: The New World (2003) [Ru] (1.0) License Новый Диск [Колл
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156198.jpgsave_picture_156198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156198.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:09F23BCCE8A35F6A1DFA8CDEF11424E3648E982E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156199.jpgsave_picture_156199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156199.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D777D6E6C487296BF8F6058EE6B07977397746A8
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156200.jpgsave_picture_156200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156200.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Udemy, Vyara Georgieva | The Complete English Grammar Course - from A1 to C1 lev
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156202.jpgsave_picture_156202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156202.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ AnyDesk 5.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156203.jpgsave_picture_156203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156203.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:15590A25671A9EA6DDC5F5D0205186AF712C54FC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156204.jpgsave_picture_156204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156204.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BD45CC237F6B8DF40F01B3F6EE3ADBD2FDFEEDAE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156206.jpgsave_picture_156206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156206.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E095B913CC7BD8BA861DCC5576F0129C0625CB9A
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156207.jpgsave_picture_156207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156207.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/u3) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156208.jpgsave_picture_156208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156208.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CyberLink PowerDirector Ultimate 18.0.2405.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156209.jpgsave_picture_156209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156209.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156211.jpgsave_picture_156211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156211.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:E8C147C7ED9E1001C00DD3CE3721C9F1C023A0CD
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156212.jpgsave_picture_156212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156212.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:638435CDF8FA8C372F01F40C07E9B085CD68544C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156213.jpgsave_picture_156213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156213.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Geekbench 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156215.jpgsave_picture_156215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156215.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:39562A7DEECBA1D4DA64692608A44C0747265911
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156216.jpgsave_picture_156216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156216.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:E2CE3A72544C84EEAB042A5A89C4589E43E19859
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156217.jpgsave_picture_156217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156217.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:3E17D4797EB2AA9783512532D91EB0AEE4690136
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156218.jpgsave_picture_156218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156218.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Sine Mora [En/Multi6] (Steam-Rip/1.0.0.1) 2012 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156219.jpgsave_picture_156219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156219.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156220.jpgsave_picture_156220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156220.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:FD95242E17C393C1EF50FA1552E26A4AEEA4B866
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156221.jpgsave_picture_156221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156221.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Scrollow 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156222.jpgsave_picture_156222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156222.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Windows 10 Enterprise 1909 x64 Rus by OneSmiLe [18363.535] (19.12.2019)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156225.jpgsave_picture_156225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156225.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:8F61B711513276E31B356794BCAC3F22B6572BC4
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156226.jpgsave_picture_156226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156226.jpg" />
 </div>
 
 

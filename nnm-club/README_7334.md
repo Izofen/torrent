@@ -6,7 +6,7 @@ Kaya Jones - Release The Energy (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250765.jpgsave_picture_250765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250765.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chromium 20.0.1131.0 Portable x86/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250769.jpgsave_picture_250769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250769.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chromium Portable - портативная версия браузера от Go
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250771.jpgsave_picture_250771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250771.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shadows Fall - Fire From The Sky (2012) [MP3|320 кб/с]<Metalcore / Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250776.jpgsave_picture_250776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250776.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Win7codecs 3.6.2 + x64 Components[Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250779.jpgsave_picture_250779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250779.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Mozilla Firefox 13.0 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250781.jpgsave_picture_250781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250781.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ SUMo 3.0.7.152 + Portable [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250783.jpgsave_picture_250783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250783.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Mageia 2 RC [i586, x86-64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250786.jpgsave_picture_250786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250786.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:A74D077D948D0D04A15AB49CDE047C70F05422B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250787.jpgsave_picture_250787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250787.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1024DF49C3F07940D18DC51E11DC1FE73892BE95
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250791.jpgsave_picture_250791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250791.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ NG: Суперсооружения: Мегазаводы. Мини / Megafactori
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250792.jpgsave_picture_250792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250792.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:E9095E67B3058B22E226B2DB89278BE8AFC14F5B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250794.jpgsave_picture_250794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250794.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ OBS Studio 32.0.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250796.jpgsave_picture_250796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250796.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Albert Kick - Evil Girl (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250797.jpgsave_picture_250797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250797.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:B40CF78F52862668729121DB167127620C1F85A5
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250798.jpgsave_picture_250798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250798.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:6311BC7BB00B61430E985212F3DA35356EDFB5CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250799.jpgsave_picture_250799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250799.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:00DCC1D3949523F18D1D3B2810829D9ED8601A41
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250801.jpgsave_picture_250801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250801.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Duplicate Cleaner Pro 5.26.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250803.jpgsave_picture_250803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250803.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Только Хиты на Хит FM 50\50 часть 2 (2012) [MP3|256 к�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250805.jpgsave_picture_250805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250805.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:404881FF25DA769E1F0831DD5D963D957644A599
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250806.jpgsave_picture_250806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250806.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:0E49C21CC616CC398BD62FF5F212054AFD975464
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250810.jpgsave_picture_250810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250810.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.3 Build 6 RePack by KpoJIuK [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250813.jpgsave_picture_250813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250813.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ MediaInfo 25.10 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250814.jpgsave_picture_250814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250814.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Chromium 142.0.7444.135 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250815.jpgsave_picture_250815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250815.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:E3005AD51D4550C984D9503B16F4A5CB7C453345
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250816.jpgsave_picture_250816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250816.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:24E0D45D850ED0B3AA0BB3D6CD9624CCDD8EA494
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250817.jpgsave_picture_250817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250817.jpg" />
 </div>
 
 

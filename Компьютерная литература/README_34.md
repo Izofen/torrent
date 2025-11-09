@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238869.jpgsave_picture_238869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238869.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A551A65EF98EBDBDC0590EFA87CA2BB39D0F0088
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239502.jpgsave_picture_239502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239502.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6922A7855ED0396B5C80A961120C7C5B04E9D039
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239516.jpgsave_picture_239516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239516.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Mark J. Price | Apps and Services with .NET 7: Build practical projects with Bla
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239568.jpgsave_picture_239568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239568.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240016.jpgsave_picture_240016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240016.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C593E2EFE2F46B1DB9FD5CFEE5EB1B8AF19D21AC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240364.jpgsave_picture_240364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240364.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8DFB056ECE9FA6AE748F58A52BF89F9726AB69B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240457.jpgsave_picture_240457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240457.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:98B749BC7AA592EF639502570E63C262D8B8104E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240800.jpgsave_picture_240800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240800.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:D20633EAB9C7216EC8FBEAE7BFCA3C317F224617
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240909.jpgsave_picture_240909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240909.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:E650D22971D86FC33B620D6B9573C2999BF3DDF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241590.jpgsave_picture_241590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241590.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Sc
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241850.jpgsave_picture_241850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241850.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Venkata Keerti Kotaru | Building Offline Applications with Angular (2022) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241958.jpgsave_picture_241958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241958.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241969.jpgsave_picture_241969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241969.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:0941186CED970CD685676DC10488DEC84C4F7863
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242053.jpgsave_picture_242053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242053.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:351C8B41929C0CC3014ED929597F34114340FF8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242830.jpgsave_picture_242830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242830.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:6FE9A6540F6F465D461B87DA854DE3B980B9C8F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243463.jpgsave_picture_243463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243463.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243681.jpgsave_picture_243681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243681.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B4A2F7B9C73B599107AE230944C5AEE956C24D36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243918.jpgsave_picture_243918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243918.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244242.jpgsave_picture_244242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244242.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244574.jpgsave_picture_244574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244574.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244862.jpgsave_picture_244862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244862.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:20F1DCF16EBC7850FC5FAB7CFEA25B2A7364FC15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245052.jpgsave_picture_245052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245052.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:BFFF6BC49BF431E46003BE155707DB3152CAA9F9
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245303.jpgsave_picture_245303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245303.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245405.jpgsave_picture_245405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245405.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245475.jpgsave_picture_245475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245475.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245495.jpgsave_picture_245495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245495.jpg" />
 </div>
 
 

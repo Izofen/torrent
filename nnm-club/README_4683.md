@@ -6,7 +6,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146594.jpgsave_picture_146594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146594.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0DEC25865723D54F4CA4C563C6EA36AC9B770DB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146596.jpgsave_picture_146596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146596.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0DEC25865723D54F4CA4C563C6EA36AC9B770DB4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146597.jpgsave_picture_146597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146597.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:5F12D882E105FC7CB830300047091E68F851A8E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146598.jpgsave_picture_146598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146598.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:69D2FA8092F7D9FAED7A8E6F513F9274F4435009
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146599.jpgsave_picture_146599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146599.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1299F4506E67813487EB7FE6A215141237229916
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146600.jpgsave_picture_146600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146600.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:0DE94A2D9D88AE1C45173DE9AAF9C9E8A22F3969
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146601.jpgsave_picture_146601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146601.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:8563C14444E4088D6FB694BF3B64206AB99433CD
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146603.jpgsave_picture_146603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146603.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:EB649510914EA2F2926DA3CCF86B455DFCF6FA8B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146604.jpgsave_picture_146604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146604.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:F176F5B916F95AFCDAC44B94C2A0F4C4DC6F06A6
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146606.jpgsave_picture_146606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146606.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:C0EE159DD2F09793D2F8827C8EEC853B0032DDB9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146607.jpgsave_picture_146607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146607.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Cisco AnyConnect Secure Mobility Client for Mac 4.10.04071 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146608.jpgsave_picture_146608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146608.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ uDesktop NEXT - vast wallpaper collection 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146609.jpgsave_picture_146609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146609.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:CC2A96595B5286AB982D2D53B2ECC259F0E87B91
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146610.jpgsave_picture_146610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146610.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Desktop Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146612.jpgsave_picture_146612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146612.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:93C03538F176B232B7AAA4417B4C0AACCE4943AE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146614.jpgsave_picture_146614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146614.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Magnet - Snap windows into various sizes and positions 1.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146615.jpgsave_picture_146615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146615.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:9BF1E7156CC1753F42E0AB6E329888B6244D511C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146616.jpgsave_picture_146616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146616.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Oxygen Cocktail (2023) [Ru/Multi] (1.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146617.jpgsave_picture_146617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146617.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:EDD93B31EFFB029A7E4EE4EEE96BE6A7E9CC785B
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146619.jpgsave_picture_146619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146619.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:667E80202E23F5C889225A0992AFC2F799D25966
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146620.jpgsave_picture_146620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146620.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Truecaller BETA: определитель номера и запись звон�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146622.jpgsave_picture_146622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146622.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - The Beatles in Jazz (1999) Unofficial Release [APE|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146623.jpgsave_picture_146623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146623.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Fine Courses, Юлия Киселева | Воркшоп 2.0 Нейросети 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146624.jpgsave_picture_146624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146624.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:513E5FE5A335F1A30E1077346149599C68798A21
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146625.jpgsave_picture_146625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146625.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:EB832CEBB0969D984EB91BD320632AA5F4B0A5F3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146626.jpgsave_picture_146626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146626.jpg" />
 </div>
 
 

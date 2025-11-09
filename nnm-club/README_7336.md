@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250861.jpgsave_picture_250861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250861.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5AEEEDFDACD7BA64C9A57E28DFF9DA388ECF9E96
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250863.jpgsave_picture_250863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250863.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mark Cameron - Blues Factory (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250864.jpgsave_picture_250864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250864.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Citadel Arcanes (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250865.jpgsave_picture_250865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250865.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Laura Cox - Trouble Coming (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250867.jpgsave_picture_250867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250867.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ K-Lite Codec Pack Update 8.7.8 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250870.jpgsave_picture_250870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250870.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Новинки Танцевального Радио DFM (2012) [MP3|256 к
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250871.jpgsave_picture_250871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250871.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250873.jpgsave_picture_250873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250873.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250874.jpgsave_picture_250874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250874.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:E2BE324FE51A452E4A75153BFAD113FF06193FDD
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250875.jpgsave_picture_250875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250875.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250877.jpgsave_picture_250877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250877.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:2EF369930146EDDBA0B2CCA4140799E0436967C8
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250878.jpgsave_picture_250878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250878.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Need for Speed: Heat (2019) [Ru/En] (1.0.60.7040/dlc) Repack Decepticon [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250879.jpgsave_picture_250879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250879.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:B4CEBBDC6F01EA67EE364BAF99C2F0C5A8E8DCB9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250880.jpgsave_picture_250880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250880.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Trailmakers (2019) [Ru/Multi] (213.503.082.0/dlc) Repack Necros [Ultimate Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250881.jpgsave_picture_250881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250881.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Jeff McMillan - Night Games (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250883.jpgsave_picture_250883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250883.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:0A22846C21797EE2A1AC209E5480B06726B13E06
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_250884.jpgsave_picture_250884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_250884.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Teorex InPaint 4.4 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250886.jpgsave_picture_250886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250886.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ KIBORG (2025) [Ru/Multi] (2025.11.05:1:83) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250887.jpgsave_picture_250887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250887.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250889.jpgsave_picture_250889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250889.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:FE426234169D233260B8462BADD1036C7B6B8B0F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250890.jpgsave_picture_250890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250890.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ O&O Defrag Professional + Server 30.5 Build 1201 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250891.jpgsave_picture_250891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250891.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:439DB112C6C129B4B3A8732A0D135EB5B38755C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250892.jpgsave_picture_250892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250892.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:E6A7E694926DC5A14504C8F4452209A33BD24326
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250893.jpgsave_picture_250893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250893.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:35F00F0AC6E0573A0414C059D9F5434149E305CA
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250894.jpgsave_picture_250894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250894.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:C83C87B63FA47CFCFDC4B43FB1260569A41C2EE8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250896.jpgsave_picture_250896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250896.jpg" />
 </div>
 
 

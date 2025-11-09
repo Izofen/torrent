@@ -6,7 +6,7 @@ Total Video Converter Pro 4.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240369.jpgsave_picture_240369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240369.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pixea Plus for Mac 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240370.jpgsave_picture_240370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240370.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:65B36F55C235A8F9E0B36CAEA3ABE040214D12AA
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240371.jpgsave_picture_240371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240371.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1CAAAD25F9A25626387E2549B5DBB9527968044A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240372.jpgsave_picture_240372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240372.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Gary Moore - Corridors of Power (1982) Reissue, Remastered, 2023, Universal, Jap
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240373.jpgsave_picture_240373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240373.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:CB9056D48C33103BB803E91F3A38B582AEEFAB32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240374.jpgsave_picture_240374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240374.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ OCCT 12.0.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240375.jpgsave_picture_240375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240375.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:FA8F3CB5AEF0229829D84FBFF756BC7FC8A7F055
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240376.jpgsave_picture_240376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240376.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:518B1205DF5CF9324AC0B1C899D653DB6CF8C94E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240377.jpgsave_picture_240377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240377.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ JPEG Jackal PRO 2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240378.jpgsave_picture_240378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240378.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Mitti 1.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240379.jpgsave_picture_240379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240379.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ RUMOURS - Neither Innocent nor Wavering (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240380.jpgsave_picture_240380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240380.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Big Room 2 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240381.jpgsave_picture_240381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240381.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:F1BD96EE66EC93CDAB70D5B8F063B61E06EFC91A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240382.jpgsave_picture_240382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240382.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:971B2D4681EF992701F45B2ABA00F26880FC3C18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240383.jpgsave_picture_240383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240383.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Headon - Éxodo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240384.jpgsave_picture_240384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240384.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Schoolism, Scott Robertson | Rendering Reflective Surfaces (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240385.jpgsave_picture_240385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240385.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Soulver 3 v.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240386.jpgsave_picture_240386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240386.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:594BCD07088455D64478AD91A8A9DAD2AE908C38
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240388.jpgsave_picture_240388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240388.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Leiden - L'Aube Spirituelle (2021) [FLAC|Lossless|image + .cue] <Gothic, Industr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240389.jpgsave_picture_240389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240389.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DSLR Assistant 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240390.jpgsave_picture_240390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240390.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:E9E9A01C993BC6A4DB6B0C6B5BEB943B3F660FA6
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240391.jpgsave_picture_240391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240391.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:FE3C4CE720C6B4FE8507A919DBA386BAA3FB2CC6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240392.jpgsave_picture_240392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240392.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:7F9F34F9780441E31689BCF388A298BE40DAD088
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240393.jpgsave_picture_240393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240393.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Pisuika - Semilla negra (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240394.jpgsave_picture_240394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240394.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:8053FCD84296C6061084F5934F311717020CBB41
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240395.jpgsave_picture_240395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240395.jpg" />
 </div>
 
 

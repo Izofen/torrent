@@ -6,7 +6,7 @@ VA - Cookin' Jazz vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145998.jpgsave_picture_145998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145998.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blocs 5.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145999.jpgsave_picture_145999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145999.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146000.jpgsave_picture_146000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146000.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1A84292D8717A5AB5ECA98A9D16C33A817682755
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146001.jpgsave_picture_146001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146001.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146002.jpgsave_picture_146002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146002.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:192A0D2ED2311EAA43C6DFBD7E1FCC86F4E90A50
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146003.jpgsave_picture_146003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146003.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:B365CB051EBDD6F7B92A6CCBB8D8161C9F4F7216
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146005.jpgsave_picture_146005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146005.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:03DF08FB1537487F5EB81BBDFF2BE64A3881F3A4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146006.jpgsave_picture_146006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146006.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F20C3B0E96D8CF6CDE1D45D70586387A3D43D622
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146007.jpgsave_picture_146007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146007.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ TunesKit Screen Recorder 2.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146008.jpgsave_picture_146008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146008.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:AEBE0DE27C0641A988990D65846A1261DCD2CE8E
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146009.jpgsave_picture_146009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146009.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Les Cameleons - Todos (2001) Single [FLAC|Lossless|tracks + .cue] <Rock, Ska>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146010.jpgsave_picture_146010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146010.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Hassle: Volume One (2007) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146011.jpgsave_picture_146011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146011.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:90BC09D723A10D9BB4F8AB6DC174FDABDBE26615
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146012.jpgsave_picture_146012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146012.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:B0835EC9D226DF28750FB108FCAF4E5C436859C4
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146013.jpgsave_picture_146013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146013.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:105D53EAE47D5993DB7E40D91CA5E4B7C00BDBDC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146015.jpgsave_picture_146015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146015.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Tom Braxton - Comfort and Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146016.jpgsave_picture_146016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146016.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Kargol's - Invertébré (2002) Sampler [FLAC|Lossless|tracks + .cue] <Ska, Hardc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146017.jpgsave_picture_146017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146017.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:BD9D6ACD1282CC0E680A8A3C20C45B092D337B38
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146019.jpgsave_picture_146019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146019.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:A6D494C05BAEE88CA56286E2EC18ABE5B1B53C9B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146020.jpgsave_picture_146020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146020.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:49B3A3AE807E67E9AB84E83BD5F8E873EA25F1C8
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146022.jpgsave_picture_146022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146022.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:544BD8DFB8592D0AA49FD3B71B097E1BF0D1304D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146023.jpgsave_picture_146023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146023.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:6A4941A4D42C48BB6751AB3876E619E3283960D5
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146024.jpgsave_picture_146024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146024.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Radmin VPN 1.2.4457.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146025.jpgsave_picture_146025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146025.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Olathia - The Forest Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Power/Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146026.jpgsave_picture_146026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146026.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Meet Me In St Louis - Variations On Swing (2007) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146028.jpgsave_picture_146028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146028.jpg" />
 </div>
 
 

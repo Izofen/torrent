@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234902.jpgsave_picture_234902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234902.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:425B5F1E046302D0D39E3E59684EBFD0BFC4B426
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234903.jpgsave_picture_234903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234903.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MediaHuman YouTube Downloader 3.9.9.76 (1609) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234906.jpgsave_picture_234906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234906.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:48DD4016E039E1C60B14C2B97CE5BFE014C914F7
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234907.jpgsave_picture_234907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234907.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Audio Ease Snapper 3.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234908.jpgsave_picture_234908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234908.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Sam Taylor - Sam Taylor Best Selection (2013) Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234909.jpgsave_picture_234909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234909.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:3BD86B95BE6216782449C4780666256886AE9B4B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234910.jpgsave_picture_234910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234910.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:01E07BD27327A0C5269416BB555A284B653A3CFC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234911.jpgsave_picture_234911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234911.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Stoney & Meat Loaf - Stoney & Meat Loaf (1971) Remastered, Reissue, 2021, UNI - 
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234912.jpgsave_picture_234912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234912.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Prophet Collection, Vol. 8 by Manuel Defil (2021) [AAC|~323 Kbps] <Organic 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234913.jpgsave_picture_234913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234913.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:10A2918EC52F6310A0CC320C8CD01B5D48E40D14
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234914.jpgsave_picture_234914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234914.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Microsoft PowerToys 0.62.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234916.jpgsave_picture_234916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234916.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Eremit - Bearer of Many Names (2021) [MP3|320 Kbps] <Atmospheric Sludge, Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234917.jpgsave_picture_234917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234917.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Default Folder X 6.0 a6 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234918.jpgsave_picture_234918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234918.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:1E2B56B29118A56914E3E85D5D695A2730B5F73F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234919.jpgsave_picture_234919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234919.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:255964BCA87490269892EF68794E01205F74047E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234921.jpgsave_picture_234921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234921.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Manzana - Neon Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gothic,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234922.jpgsave_picture_234922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234922.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:8BB3B2816533A19A24A332E52408E5FC66509F53
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234923.jpgsave_picture_234923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234923.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Android Studio Flamingo 2022.2.1 Patch 1 Build #AI-222.4459.24.2221.9971841 + Po
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234924.jpgsave_picture_234924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234924.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ R-Studio Network 9.1 Build 191044 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234925.jpgsave_picture_234925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234925.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Firefox Browser ESR 115.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234926.jpgsave_picture_234926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234926.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Alvarez - Digitaria (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234927.jpgsave_picture_234927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234927.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:5BA3868F05CFFB9A6B3F1AB7FB452C1DABC84EB4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234928.jpgsave_picture_234928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234928.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Magic Island of Chill Out, Vol. 3 (2021) [AAC|~326 Kbps] <Lo-Fi, Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234929.jpgsave_picture_234929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234929.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:D453F0373859D0273F299AFB9FE7F44D9D8004B7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234930.jpgsave_picture_234930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234930.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:1BACB39EB8CF904F24A85BDDAFE281C2A2AB2CF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234931.jpgsave_picture_234931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234931.jpg" />
 </div>
 
 

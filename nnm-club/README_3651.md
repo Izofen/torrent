@@ -6,7 +6,7 @@ Social Disorder - Time To Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115301.jpgsave_picture_115301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115301.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kevin & JD - Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115302.jpgsave_picture_115302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115302.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Terra Atlantica - A City Once Divine (2017) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115303.jpgsave_picture_115303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115303.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Six Foot Six - The Six Foot Six Project (2018) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115304.jpgsave_picture_115304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115304.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:3C8D07804F67AD43253BF14E4754004B8B88A71C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115305.jpgsave_picture_115305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115305.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:A8DA3C34B12D7D3667A9D9DB66BA0CC87580311E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115306.jpgsave_picture_115306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115306.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Terra Atlantica - Age Of Steam (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115307.jpgsave_picture_115307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115307.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:E44CB6487700C4D02131DD1EB13B9CD584726961
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115308.jpgsave_picture_115308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115308.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Wojtek Stanisz Quartet - Szuflandia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115309.jpgsave_picture_115309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115309.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Twilight Tapirs - Great Lake Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115310.jpgsave_picture_115310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115310.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:8C4105BAFB632C7C64A32955F009E4BA45F59934
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115311.jpgsave_picture_115311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115311.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Einar Haavik Kvartett - On A Sentimental Journey (1999) Bjarne Recordings [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115312.jpgsave_picture_115312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115312.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:DB1E39F5D1047ECC961EBBF26A109958E616464E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115313.jpgsave_picture_115313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115313.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Theragon - Where The Stories Begin (2020) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115314.jpgsave_picture_115314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115314.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Vircolac - Veneration (2024) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115315.jpgsave_picture_115315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115315.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:D3BA8E5B6CA886C02C05C38562670CE3B41F5B2A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115316.jpgsave_picture_115316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115316.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Accept - Humanoid (2024) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115317.jpgsave_picture_115317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115317.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ YT Downloader 9.6.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115318.jpgsave_picture_115318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115318.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:4EEEDBAB8D4925E3C89375DF81E63994BC050970
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115319.jpgsave_picture_115319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115319.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:21A68ABD4F1BDE3B70C21ACA69AC0D21D10516FE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115320.jpgsave_picture_115320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115320.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ The Samurai Of Prog Featuring Marco Grieco - A Quiet Town (2024) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115321.jpgsave_picture_115321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115321.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Accept - Humanoid (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115322.jpgsave_picture_115322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115322.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F280275C2205B0895F03FAD506EEB72DD0945D3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115323.jpgsave_picture_115323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115323.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Brave Browser 1.63.162 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115324.jpgsave_picture_115324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115324.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:DB0A13B5450333C301CC32971E0641B12095433F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115325.jpgsave_picture_115325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115325.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115326.jpgsave_picture_115326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115326.jpg" />
 </div>
 
 

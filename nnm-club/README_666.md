@@ -6,7 +6,7 @@ N/A | WIFI антенна за 15 минут своими руками PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17635.jpgsave_picture_17635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17635.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1C42C6835FC50B895AB2A41716BEA1316E174383
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17636.jpgsave_picture_17636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17636.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 11 [10.0.26100.4061], Version 24H2 (Updated May 2025) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17637.jpgsave_picture_17637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17637.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B3F3D95A376C05CA00CB4503C0F6185164D891DE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17638.jpgsave_picture_17638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17638.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5BF2EF42B583C8FB2704AAEA0F2BFA1ACA2992DA
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17639.jpgsave_picture_17639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17639.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17640.jpgsave_picture_17640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17640.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nvidia запретила сравнивать GeForce RTX 5060 с RTX 4060
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17641.jpgsave_picture_17641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17641.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Nvidia запретила сравнивать GeForce RTX 5060 с RTX 4060
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17642.jpgsave_picture_17642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17642.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:AA241057653A486038752DF6D342BA767F0A664D
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17643.jpgsave_picture_17643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17643.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:FAA3D7B50903EFDB26788477491C1E00BA53D9CB
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17644.jpgsave_picture_17644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17644.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:E77A22A710C4A034A24EAA26C7C5F3B4DADFB061
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17645.jpgsave_picture_17645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17645.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:251D43170D53AF561B2BBEFC7A0534FAE6C5CA12
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17646.jpgsave_picture_17646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17646.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:C49A34C9B6D98ABA086AE80284F4FB07E579126C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17647.jpgsave_picture_17647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17647.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:00D8BD0E24299D3FE42D24C7069C6515B976F784
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17648.jpgsave_picture_17648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17648.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.4.1) License GOG [Patc
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17649.jpgsave_picture_17649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17649.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:ADEEC46B1725337CE81BDB13451EEA709D1B4450
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17650.jpgsave_picture_17650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17650.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:9C46098A4F271DF037C041561A148978B675BF25
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17651.jpgsave_picture_17651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17651.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:B75B29F41814318D48213F8B683E45EF97151ED0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17652.jpgsave_picture_17652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17652.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:86DD1E7688BD721244B2A5348C66FA876878CF7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17653.jpgsave_picture_17653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17653.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let's�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17654.jpgsave_picture_17654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17654.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:22C0C08BBB95BBE55E0DC6BE9D42D2EA358EBEA7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17655.jpgsave_picture_17655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17655.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:F1A195C35F10D2D3853F70FF088CC403C7AC98FD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17656.jpgsave_picture_17656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17656.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Professor Emeritus - A Land Long Gone (2025) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17657.jpgsave_picture_17657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17657.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:9949538A6EB63E47C820EE40C21BF79AA4B93EF4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17658.jpgsave_picture_17658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17658.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:E40561EE1C9B5205EC4E65216F2A062678F3A49A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17659.jpgsave_picture_17659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17659.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Brutalt - Reason with Death (2025) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17660.jpgsave_picture_17660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17660.jpg" />
 </div>
 
 

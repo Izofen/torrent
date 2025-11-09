@@ -6,7 +6,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.00/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14911.jpgsave_picture_14911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14911.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Strangeland (2021) [Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14912.jpgsave_picture_14912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14912.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Good Pizza, Great Pizza / Хорошая пицца, Отличная пицца
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14987.jpgsave_picture_14987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14987.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15016.jpgsave_picture_15016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15016.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15020.jpgsave_picture_15020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15020.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15021.jpgsave_picture_15021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15021.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.4.1)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15088.jpgsave_picture_15088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15088.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Zoeti (2023) [Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15106.jpgsave_picture_15106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15106.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Sinking City (2019) [Ru/Multi] (58246/dlc) License GOG [Remastered Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15108.jpgsave_picture_15108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15108.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15113.jpgsave_picture_15113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15113.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15168.jpgsave_picture_15168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15168.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tormented Souls (2021) [Ru/Multi] (0.94.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15198.jpgsave_picture_15198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15198.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15199.jpgsave_picture_15199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15199.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Morbid Metal (2025) [En] (10619) Repack Let'sРlay [Demo]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15203.jpgsave_picture_15203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15203.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hellish Quart (2021) [Multi] (0.4391) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15210.jpgsave_picture_15210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15210.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Death Roads: Tournament (2023) [Multi] (1.0.7.123) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15212.jpgsave_picture_15212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15212.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack FitGirl [Overture Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15216.jpgsave_picture_15216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15216.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15221.jpgsave_picture_15221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15221.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15223.jpgsave_picture_15223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15223.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15232.jpgsave_picture_15232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15232.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ QBoard (2025) [En] (0.9.9.3) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15242.jpgsave_picture_15242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15242.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.36) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15256.jpgsave_picture_15256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15256.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Synchro (2025) [Ru/En] (0.1.6 Beta) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15271.jpgsave_picture_15271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15271.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ ICBM: Escalation (2024) [Ru/Multi] (1.0.9/dlc) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15276.jpgsave_picture_15276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15276.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15277.jpgsave_picture_15277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15277.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lethal Company (2023) [Ru/En] (72) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15280.jpgsave_picture_15280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15280.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65984.jpgsave_picture_65984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65984.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:264BC5C72A2B2535587E5F182FD57A9C17DDB326
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65985.jpgsave_picture_65985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65985.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C5EB86DCCF210BA8C7E3F090F16B8F41B0967BE3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65986.jpgsave_picture_65986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65986.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B073398D4D09ECE7D00767CB268C72631F72C1E7
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65987.jpgsave_picture_65987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65987.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2F99EEAD8F65CEC05E63BB1083695E654AD3EB32
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65988.jpgsave_picture_65988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65988.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:51B764DE60EDD5626D8FD6EBD00750CBF2124B75
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65989.jpgsave_picture_65989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65989.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E152B06B915D99B4376D62DF4F5C39521DCA004A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65990.jpgsave_picture_65990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65990.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:9F48B01D63E843C8BA8C4B96C1C1E3BF4E0A408F
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65991.jpgsave_picture_65991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65991.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:C8257504C37F39FE38BA032989CF669B122A819D
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65992.jpgsave_picture_65992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65992.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:013A19FAE946ECBD01E723C67AFCCDA2EB5947BD
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65993.jpgsave_picture_65993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65993.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:CA87C9384BCDEFAC775FC36D9504CF5CB460ACE7
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65994.jpgsave_picture_65994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65994.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:AAFEF5591A5B414FB21E7D10EE95C490798722DA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65995.jpgsave_picture_65995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65995.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:9C5760A1F5527DFD46E24A9280EA7BF01CA66DA1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65996.jpgsave_picture_65996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65996.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Alestorm - The Thunderfist Chronicles (2025) [MP3|320 Kbps] <Power Metal, Folk M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65997.jpgsave_picture_65997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65997.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65998.jpgsave_picture_65998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65998.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Nick Carter - LOVE LIFE TRAGEDY (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65999.jpgsave_picture_65999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65999.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Catfish - SAME THING EVERY DAY (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66000.jpgsave_picture_66000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66000.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Larry Kurtz & The Lawbreakers - Take Ride (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66001.jpgsave_picture_66001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66001.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:694C3C5E185EA5C3EBE9B8CCDF712CD850B80E5E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66002.jpgsave_picture_66002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66002.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Clay Bottom Jug Busters - Too Tight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66003.jpgsave_picture_66003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66003.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Crosscut - No Easy Way to Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66004.jpgsave_picture_66004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66004.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Bubbles Brown - Colombian Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66005.jpgsave_picture_66005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66005.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ AJ Tracey - Don't Die Before You're Dead (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66006.jpgsave_picture_66006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66006.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:07CF67A4A4BCD5FD9391F34B456D20A38DCE1947
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66007.jpgsave_picture_66007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66007.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66008.jpgsave_picture_66008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66008.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66009.jpgsave_picture_66009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66009.jpg" />
 </div>
 
 

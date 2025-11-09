@@ -6,7 +6,7 @@ AR Ruler App: Линейка Рулетка v2.8.8.1 Mod by srajawwal09 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39798.jpgsave_picture_39798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39798.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Yars Rising (2024) [Multi] (1.1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39799.jpgsave_picture_39799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39799.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:75A05319EECCB32E2E7C4E5C28873421094CC5B9
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39800.jpgsave_picture_39800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39800.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:38DE26C7AB4DE9D111C38316D47F1B81E4D7B218
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39801.jpgsave_picture_39801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39801.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6C04652048C36E237ABA5E70D93194DE866F5D54
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39802.jpgsave_picture_39802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39802.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ GTA: Vice City — Definitive Edition v1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39803.jpgsave_picture_39803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39803.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Guitar Pro 8.1.3 Build 121 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39804.jpgsave_picture_39804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39804.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Vanced Tube v5.1.83.147 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39805.jpgsave_picture_39805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39805.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Pneumata (2024) [Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39806.jpgsave_picture_39806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39806.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:316E1D7B3FF5491CAB3730A772C90627DE126491
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39807.jpgsave_picture_39807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39807.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:D65CF8E62F06C859DF6CAB3B780224FA507BBF85
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39808.jpgsave_picture_39808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39808.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:763F6CB92AFD01D9BCEA65EEC7F2BB0AB4AA306D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39809.jpgsave_picture_39809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39809.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39810.jpgsave_picture_39810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39810.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ RuStore для Android v1.53.0.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39811.jpgsave_picture_39811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39811.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.3 Build 5 (x64) Portable by 7997 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39812.jpgsave_picture_39812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39812.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ GTA: Vice City – NETFLIX 1.83.44255649 Mod by Apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39813.jpgsave_picture_39813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39813.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:B12041CDF0C84884D4E352F6C26B9839A98253E2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39814.jpgsave_picture_39814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39814.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ HCL Lotus 14 [x86_64] (.tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39815.jpgsave_picture_39815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39815.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E634CBDCF17509E149ED2A94931D63B1D49F7EF2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39816.jpgsave_picture_39816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39816.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Supermoves (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39817.jpgsave_picture_39817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39817.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Microsoft Visual Studio 2022 Community 17.11.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39818.jpgsave_picture_39818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39818.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ MKVToolNix 88.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39819.jpgsave_picture_39819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39819.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:FDCCF9C61E6C4086962D4A9EF065A2447670D03F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39820.jpgsave_picture_39820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39820.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:F8B1663C3AD4FDE0A189C7728DF6C5FFA2F706A7
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39821.jpgsave_picture_39821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39821.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Within Temptation - 9 Albums + 6 Live + 1 Demo + 11 EP'S + 28 Singles + 1 Compil
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39822.jpgsave_picture_39822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39822.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:0A6777C5A972BC807C19A81839A76CF92B7F89A5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39823.jpgsave_picture_39823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39823.jpg" />
 </div>
 
 

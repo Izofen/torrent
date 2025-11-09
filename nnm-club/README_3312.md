@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106473.jpgsave_picture_106473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106473.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zoner Photo Studio X 19.2403.2.556 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106474.jpgsave_picture_106474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106474.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C763F2595236E5F833D05493CDC03652DF242457
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106475.jpgsave_picture_106475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106475.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:55107CFC942CA2BC868BC3730D88151CCA30FEE3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106476.jpgsave_picture_106476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106476.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:18509CD79C1DF700C9B8F3453CC02398B073A194
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106477.jpgsave_picture_106477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106477.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AD458E0EA1119A94FCE632D0F21D2BAE2938BFD4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106478.jpgsave_picture_106478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106478.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Lorne Lofsky, Guido Basso, Joey DeFrancesco, Vito Rezza - Alma Records Presents 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106479.jpgsave_picture_106479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106479.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Spahn Ranch - The Coiled One (1995) Deluxe Edition, 2024, Cleopatra Records [FLA
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106480.jpgsave_picture_106480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106480.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:395D5C79747F795273E1ABFB13C45BB074D73180
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106481.jpgsave_picture_106481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106481.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Nothing But Thieves - Dead Club City (2023) Extended Deluxe, 2024, RCA Records L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106482.jpgsave_picture_106482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106482.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5BE8BA518DF71ED891B3162DBFBDC9AF21270816
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106483.jpgsave_picture_106483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106483.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:5BE8BA518DF71ED891B3162DBFBDC9AF21270816
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106484.jpgsave_picture_106484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106484.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Exx Boundless Summer Hits 2024 (2024) [MP3|320 Kbps] <Progressive House, Me
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106485.jpgsave_picture_106485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106485.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:22C008BF633F579445FCAE34271B44BABBA20A6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106486.jpgsave_picture_106486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106486.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bugatti And Musker - 2 Albums (1981, 1982) [MP3|320 Kbps] <Electronic, Funk/Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106487.jpgsave_picture_106487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106487.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Crypt Sermon - The Stygian Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106488.jpgsave_picture_106488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106488.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Highly Suspect - As Above, So Below (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106489.jpgsave_picture_106489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106489.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:9EA14C4521099F5B679345D76AACF675195AD768
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106490.jpgsave_picture_106490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106490.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:9EA14C4521099F5B679345D76AACF675195AD768
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106491.jpgsave_picture_106491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106491.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Worshipper - One Way Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106492.jpgsave_picture_106492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106492.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ T.S. Monk - Changing Of The Guard (1993) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106493.jpgsave_picture_106493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106493.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Junior Mance - Holy Mama (1976) 2008, Test Of Time Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106494.jpgsave_picture_106494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106494.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Trousdale - Out Of My Mind (2023) Deluxe Edition, 2024, Independent [FLAC 16,24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106495.jpgsave_picture_106495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106495.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Cloven Hoof - Dominator (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106496.jpgsave_picture_106496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106496.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Pete Malinverni - An American In London (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106497.jpgsave_picture_106497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106497.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ John Patton - Soul Connection (1983) 2008, Just A Memory [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106498.jpgsave_picture_106498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106498.jpg" />
 </div>
 
 

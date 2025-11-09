@@ -6,7 +6,7 @@ IObit Driver Booster Pro 12.4.0.571 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21997.jpgsave_picture_21997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:57CACE4698A97F2EC55DF4A99AAA7906AE8479E8
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21998.jpgsave_picture_21998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Old Market Simulator (2024) [Ru/Multi] (1.5.5) Pepack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21999.jpgsave_picture_21999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21999.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D486B86A368CAF35127F30039005D2B134277D5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22000.jpgsave_picture_22000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22000.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IObit Driver Booster Pro 12.4.0.571 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22001.jpgsave_picture_22001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22001.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:91F994878C7107F5B011601234FC12A3B947A732
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22002.jpgsave_picture_22002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D66FAC50802AE7B221F885CEE8456788A13A5661
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22003.jpgsave_picture_22003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22003.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22004.jpgsave_picture_22004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22004.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:4EBADE11EC5988E81A8A89DCB49D49763E3CC551
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22005.jpgsave_picture_22005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22005.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:DB63B4F86EC6703E728C800FD418602EF7B8F8A9
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22006.jpgsave_picture_22006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22006.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:D219CC6952D6BBE2242DD0385FDBC2BBEC6D77D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22007.jpgsave_picture_22007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22007.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.65.7400 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22008.jpgsave_picture_22008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22008.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Eden Crafters (2024) [Ru/Multi] (0.60d) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22009.jpgsave_picture_22009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22009.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:BB476244CE534F86CF43DC271B512926F11DCA35
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22010.jpgsave_picture_22010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22010.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:8A3650A231429C746E0ABEDF79CE0557174C93AC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22011.jpgsave_picture_22011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22011.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:5B12DB91BF53CC7C359A0014F0DCD5275848802D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22012.jpgsave_picture_22012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22012.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:C7E77F4C68E3704DA4D37D1906253D14E480BF56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22013.jpgsave_picture_22013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22013.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:9961FFDEE8939FDF009F33DAD0CA166F20296FE2
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22014.jpgsave_picture_22014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22014.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:B3EF5DA3F4BE049ABAC14C53057F64635D1C167F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22015.jpgsave_picture_22015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22015.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ iDownerGo Video Downloader 10.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22016.jpgsave_picture_22016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22016.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ The Last of Us: Part I / Одни из нас: Часть I (2023) [Ru/Multi] (1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22017.jpgsave_picture_22017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22017.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Last of Us Part I – игра для ПК от 3-го лица, предс�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22018.jpgsave_picture_22018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22018.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Imagine Earth (2021) [Ru/Multi] (1.19.0.6676/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22019.jpgsave_picture_22019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22019.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:D545EFA7D00DF54E3CADC253FE11E6816D20E1C1
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22020.jpgsave_picture_22020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22020.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:C178125671E108F1D5854EB7523A9BF4738799AC
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22021.jpgsave_picture_22021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22021.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22022.jpgsave_picture_22022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22022.jpg" />
 </div>
 
 

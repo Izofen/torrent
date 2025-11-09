@@ -6,7 +6,7 @@ Blitz - Kicking Up A Storm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107986.jpgsave_picture_107986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107986.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Dead Daisies - Resurrected, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107988.jpgsave_picture_107988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107988.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ron Jameson Project - CrossRoad Blues: Rock'n'Roll for the King of Kings (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107989.jpgsave_picture_107989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107989.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Velvet Meadow - Never Want To Leave My Head (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107991.jpgsave_picture_107991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107991.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nestor (Néstor) - Teenage Rebel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107992.jpgsave_picture_107992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107992.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Velvet Meadow - Velvet Meadow (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psyc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107993.jpgsave_picture_107993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107993.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Olshanoe - Как Велик И Печален Мир (2023) [FLAC|24/192|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107994.jpgsave_picture_107994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107994.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gustaf Westin featuring AGFF - Piece by Piece (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107995.jpgsave_picture_107995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107995.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kickhunter - Greatest Kicks (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107996.jpgsave_picture_107996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107996.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ensiferum - Iron (2004) Remastered, 2014, Blood Music[FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107997.jpgsave_picture_107997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107997.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Shred - What They Say (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107998.jpgsave_picture_107998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107998.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ When Nothing Remains - Studio Albums (3 releases) (2012-2016) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107999.jpgsave_picture_107999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107999.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Libra - Follow The Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108000.jpgsave_picture_108000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108000.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Xaon - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108001.jpgsave_picture_108001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108001.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mortician (Austrian) - Studio Albums (4 releases) (2011-2023) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108003.jpgsave_picture_108003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108003.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hilltop Howlers - Alright, Alright! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108004.jpgsave_picture_108004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108004.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fjaak - Fjaak The System (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108005.jpgsave_picture_108005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108005.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Amon Acid - Submerging (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108008.jpgsave_picture_108008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108008.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kelsley Grant & Andrew Scott - Horizon Song (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108009.jpgsave_picture_108009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108009.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rarity - Lower Feeling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108011.jpgsave_picture_108011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108011.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Delta Voices - America Sings the 4th of July (2024) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108018.jpgsave_picture_108018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108018.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Nox Aurea - Studio Albums (2 releases) (2009-2010) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108035.jpgsave_picture_108035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108035.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Tales Of Dark... - Studio Albums (2 releases) (2006-2009) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108036.jpgsave_picture_108036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108036.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:1F5AF8EC310A4A4A0D210E3E5BF3B79F0A24BF09
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108038.jpgsave_picture_108038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108038.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Borne of Ash - From the Dark, They Came (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108051.jpgsave_picture_108051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108051.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Margo Guryan - Words And Music (3CD Boxset) (2024) [FLAC 16,24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108093.jpgsave_picture_108093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108093.jpg" />
 </div>
 
 

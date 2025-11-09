@@ -6,7 +6,7 @@ Lessaria: Fantasy Kingdom Sim (2025) [Ru/Multi] (1.0.1034/dlc) Repack FitGirl [D
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246236.jpgsave_picture_246236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246236.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246246.jpgsave_picture_246246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246246.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246247.jpgsave_picture_246247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246247.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Resident Evil 0 / biohazard 0 HD Remaster (2016) [Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246249.jpgsave_picture_246249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246249.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246250.jpgsave_picture_246250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246250.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246251.jpgsave_picture_246251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246251.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bleak Haven (2025) [Ru/Multi] (1.2.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246252.jpgsave_picture_246252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246252.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Avernum 4: Greed and Glory (2025) [En] (1.0.0a) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246253.jpgsave_picture_246253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246253.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mars First Logistics (2025) [Ru/Multi] (Build 20566341) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246260.jpgsave_picture_246260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246260.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246262.jpgsave_picture_246262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246262.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nocturnal (2023) [Ru/Multi] (1.2.1.747) Repack Let'sРlay [Enhanced Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246318.jpgsave_picture_246318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246318.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246321.jpgsave_picture_246321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246321.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fallout: New Vegas: Fate of Wanderer - Tale of Two Wastelands Edition (2025) [Ru
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246323.jpgsave_picture_246323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246323.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Secrets of the Dark 2: Eclipse Mountain Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246568.jpgsave_picture_246568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246568.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Abandoned: Chestnut Lodge Asylum / Позабытая дурка. Каштанк
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246604.jpgsave_picture_246604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246604.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ S.T.A.L.K.E.R. A.P.T. Mod | Epsilion Group
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246666.jpgsave_picture_246666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246666.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246714.jpgsave_picture_246714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246714.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246723.jpgsave_picture_246723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246723.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Radiolight (2025) [Ru/Multi] (0.9) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246724.jpgsave_picture_246724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246724.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246737.jpgsave_picture_246737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246737.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246740.jpgsave_picture_246740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246740.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Homeseek (2023) [Ru/Multi] (1.0) Scene Fairlight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246746.jpgsave_picture_246746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246746.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246786.jpgsave_picture_246786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246786.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ God of War (2022) [Ru/Multi] (1.0.13) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246956.jpgsave_picture_246956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246956.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246990.jpgsave_picture_246990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246990.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warhammer 40,000: Dawn of War II (2010-2011) [Ru/En] (2.6.0.62/3.19.1.49/dlc) Li
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247007.jpgsave_picture_247007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247007.jpg" />
 </div>
 
 

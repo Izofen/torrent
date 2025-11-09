@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114833.jpgsave_picture_114833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114833.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4D87BA26492DB2D5859D74FB31252C7836E37B53
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114834.jpgsave_picture_114834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114834.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114835.jpgsave_picture_114835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114835.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E12858237BB9964ACC8017741E3EEE09B53C42B7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114836.jpgsave_picture_114836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114836.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Mike Oldfield - Opus Revisited (Live 1973) (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114837.jpgsave_picture_114837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114837.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Ashampoo UnInstaller 14.00.12 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114838.jpgsave_picture_114838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114838.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:7434484E961083E5D8C40989AF0F11A67A3D9030
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114839.jpgsave_picture_114839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114839.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:07B7F21A29E1C3378C340176EF567FCCF5B497B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114840.jpgsave_picture_114840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114840.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Brave Browser 1.63.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114841.jpgsave_picture_114841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114841.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:65E690516A8644A345B9CC713320B3DC6E332D16
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114842.jpgsave_picture_114842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114842.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ K-Lite Codec Pack Update 18.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114843.jpgsave_picture_114843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114843.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ XYplorer 25.60.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114844.jpgsave_picture_114844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114844.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:9CAAEAD1401D81C90962CB4DD2F3C50AED7B56CD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114845.jpgsave_picture_114845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114845.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ AutoHideDesktopIcons 6.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114846.jpgsave_picture_114846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114846.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:CA4ADFFF7C13496504D10F30ECCF996F11137024
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114847.jpgsave_picture_114847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114847.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ TikTok 33.6.3 Lite-Mod by Dmitry Nechiporenko + Plugin 1.28 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114848.jpgsave_picture_114848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114848.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114849.jpgsave_picture_114849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114849.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ TreeSize Professional 9.1.2.1873 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114850.jpgsave_picture_114850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114850.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:198351D029B341E763E30525A08DC8B80FF4B51B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114851.jpgsave_picture_114851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114851.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Ashampoo UnInstaller 14.00.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114852.jpgsave_picture_114852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114852.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:43F12C3B3F315FC7A28076BF36EE4A7F313A9266
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114853.jpgsave_picture_114853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114853.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:A7B6268EBDE3D165DDC2D0AC858F1DFF4AD4007B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114854.jpgsave_picture_114854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114854.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Photoshop Express 12.8.317 (ARM64) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114855.jpgsave_picture_114855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114855.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Shotcut 24.02.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114856.jpgsave_picture_114856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114856.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0225) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114857.jpgsave_picture_114857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114857.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:FBEB8F3E614C8750826538FE8C533CE554264FF4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114858.jpgsave_picture_114858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114858.jpg" />
 </div>
 
 

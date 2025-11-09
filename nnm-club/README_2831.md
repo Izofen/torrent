@@ -6,7 +6,7 @@ Kaspersky World 1.3.2.96 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82036.jpgsave_picture_82036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82036.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kaspersky World – это комплексное решение для рабо
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82037.jpgsave_picture_82037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82037.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82038.jpgsave_picture_82038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82038.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6D884753E3BFBB9329D63B1D5EE0ED964277646D
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82040.jpgsave_picture_82040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82040.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7F630D9136CC911051A79E25C5A6991D791E95A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82041.jpgsave_picture_82041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82041.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:CEBFAB4D79DFCEF97696AAE04F445083237620AB
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82042.jpgsave_picture_82042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82042.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CEBFAB4D79DFCEF97696AAE04F445083237620AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82043.jpgsave_picture_82043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82043.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ SUPER © v2012.build.50 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82047.jpgsave_picture_82047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82047.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82049.jpgsave_picture_82049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82049.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ DJ JIM - Spring Colors (2012) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82054.jpgsave_picture_82054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82054.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:05B2346876707875E86D7E55BFB0674AE2A32572
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82056.jpgsave_picture_82056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82056.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:2E49E31E84FA293659AF23DA86AD04F812F199F2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82057.jpgsave_picture_82057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82057.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:13E257CF870B3E829D23691A6B3DD8EF8516943F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82061.jpgsave_picture_82061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82061.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:42DF231A1B8A95E5B6273EEEB55D3DEE019C9E03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82062.jpgsave_picture_82062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82062.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:42DF231A1B8A95E5B6273EEEB55D3DEE019C9E03
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82063.jpgsave_picture_82063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82063.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Warp [En] (RePack) 2012 | a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82067.jpgsave_picture_82067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82067.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:640FE41B717E3495610555435208F90251C9D907
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82071.jpgsave_picture_82071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82071.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:19D8F86911F38588514E44780C02A1DD3E44C37D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82072.jpgsave_picture_82072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82072.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82073.jpgsave_picture_82073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82073.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82075.jpgsave_picture_82075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82075.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - The All Time Greatest Rock Songs Of The 60s, 70s, 80s And 90s (1997) [FLAC|
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82076.jpgsave_picture_82076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82076.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:5E1C20E01EC2AC4B9C851765532DBAA2D321201E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82077.jpgsave_picture_82077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82077.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:5E1C20E01EC2AC4B9C851765532DBAA2D321201E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82078.jpgsave_picture_82078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82078.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:5E1C20E01EC2AC4B9C851765532DBAA2D321201E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82079.jpgsave_picture_82079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82079.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:5E1C20E01EC2AC4B9C851765532DBAA2D321201E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82081.jpgsave_picture_82081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82081.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:9B023E1809EE81899BE1945C9AFBCCD91C778F3A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82083.jpgsave_picture_82083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82083.jpg" />
 </div>
 
 

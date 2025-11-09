@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171051.jpgsave_picture_171051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171051.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4FFBF43FAD3B25C6FC15229790F50942474F86BB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171052.jpgsave_picture_171052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171052.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dynamic Wallpaper Engine 16.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171053.jpgsave_picture_171053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171053.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EB548F416F6FDAE8A79AC2FFC3181C5B0F547F15
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171054.jpgsave_picture_171054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171054.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D60235DD6174A11C883ECC901E233A40861A712A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171055.jpgsave_picture_171055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171055.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:50ECC8D88DF0247E2D61441FB184B32356405340
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171056.jpgsave_picture_171056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171056.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Totally Enormous Extinct Dinosaurs - When the Lights Go (2022) Deluxe Edition, 2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171057.jpgsave_picture_171057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171057.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dokken - Heaven Comes Down (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171058.jpgsave_picture_171058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171058.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:393EC4CC4FE3860A61A86BC0877E97A86B9B82E1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171059.jpgsave_picture_171059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171059.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:6763725D31E6F67CAB424124F0DFB36866FC4A71
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171060.jpgsave_picture_171060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171060.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Black Heaven - History (2009) 2CD [FLAC|Lossless|image + .cue] <Darkwave, Gothic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171061.jpgsave_picture_171061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171061.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ OmniGraffle Pro 7.22.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171062.jpgsave_picture_171062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171062.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Dokken - Heaven Comes Down (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171063.jpgsave_picture_171063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171063.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:9B376233B608CD2D06AAE030A3912BFA97C4255F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171064.jpgsave_picture_171064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171064.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Nosferatu - Anthology (2006) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171065.jpgsave_picture_171065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171065.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Screenium 3 v.3.3.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171066.jpgsave_picture_171066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171066.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ In This Moment - Godmode (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171067.jpgsave_picture_171067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171067.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Lasso 1.5.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171068.jpgsave_picture_171068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171068.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Retrobatch Pro 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171069.jpgsave_picture_171069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171069.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:0822198AA0F54254B11302ECA2FD37DE10C8DE60
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171070.jpgsave_picture_171070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171070.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:2FA1B2096E35ACB40F22DA4C604F85F6AE3D4D3C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171071.jpgsave_picture_171071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171071.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171072.jpgsave_picture_171072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171072.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Howard Alden, Jimmy Bruno, Herb Ellis, Joe Pass - Full Circle & Jazz-Concord (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171073.jpgsave_picture_171073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171073.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171074.jpgsave_picture_171074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171074.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Gabriel Agudo - New Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171075.jpgsave_picture_171075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171075.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Nervosa - Jailbreak (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171076.jpgsave_picture_171076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171076.jpg" />
 </div>
 
 

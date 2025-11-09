@@ -6,7 +6,7 @@
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34649.jpgsave_picture_34649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34649.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE570EC12915E6D7F9BBDFB5AA28A2340EA0C364
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34650.jpgsave_picture_34650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34650.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34651.jpgsave_picture_34651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34651.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PotPlayer 241209 (1.7.22387) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34652.jpgsave_picture_34652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34652.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0A6083F912EEC15D215E35273A0CBEEC05DE5C59
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34653.jpgsave_picture_34653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34653.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0FF46D9FD90C085DB6A8ECBC581CAFA4399B763F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34654.jpgsave_picture_34654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34654.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:92AFA8B6881A35281BA244BC9E7A996C0AD0F27C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34655.jpgsave_picture_34655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34655.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.0.2038.0 RePack by KpoJIuK [
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34656.jpgsave_picture_34656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34656.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:BA0948A677D0D44BBAC3352D94DDF4A7A92DAC23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34657.jpgsave_picture_34657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34657.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:D3624EC2236F9DFC460B6B7A0A04B6F46FDFFBC0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34658.jpgsave_picture_34658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34658.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:698B78C84FE65B2FA3B11772FDE9E814CBD86982
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34659.jpgsave_picture_34659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34659.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:698B78C84FE65B2FA3B11772FDE9E814CBD86982
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34660.jpgsave_picture_34660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34660.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:407595502787A92405E38A45B4246D75AD1C577F
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34661.jpgsave_picture_34661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34661.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:88C3C13BA0D74CBF110055EBB0A6E7313C39E4A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34662.jpgsave_picture_34662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34662.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:CDE42B58E3A212F233E0653466F9E58966EEB7EB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34663.jpgsave_picture_34663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34663.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Movavi Video Editor 25.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34664.jpgsave_picture_34664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34664.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:323B0AEDEA87B616E5BDF2465772E7305D1086E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34665.jpgsave_picture_34665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34665.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Karate Survivor (2024) [Ru/Multi] (1.2.0.277/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34666.jpgsave_picture_34666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34666.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Internet Download Manager 6.42 Build 26 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34667.jpgsave_picture_34667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34667.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:FA5B4CEC9371DEE4D84E351C0172787F350C2A21
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34668.jpgsave_picture_34668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34668.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:FA5B4CEC9371DEE4D84E351C0172787F350C2A21
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34669.jpgsave_picture_34669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34669.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:FA5B4CEC9371DEE4D84E351C0172787F350C2A21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34670.jpgsave_picture_34670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34670.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:FA5B4CEC9371DEE4D84E351C0172787F350C2A21
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34671.jpgsave_picture_34671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34671.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 7.50.7200 + Portable [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34672.jpgsave_picture_34672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34672.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:3C765499CB89268B7FCFF0E8C2D25C246B499506
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34673.jpgsave_picture_34673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34673.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:3C765499CB89268B7FCFF0E8C2D25C246B499506
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34674.jpgsave_picture_34674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34674.jpg" />
 </div>
 
 

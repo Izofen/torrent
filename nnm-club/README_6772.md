@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233111.jpgsave_picture_233111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233111.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0BF75E2320AF6FAA27DDE6BE298A3D76F1384F5A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233112.jpgsave_picture_233112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233112.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EE14C6D8FEBD9A970191BB3A7FB75E8FFF8E25A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233115.jpgsave_picture_233115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233115.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kikimora - For A Broken Dime (2023) [MP3|320 Kbps] <Hard-Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233116.jpgsave_picture_233116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233116.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Bill McGee - The Tree of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233118.jpgsave_picture_233118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233118.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:311F99A669595CDB4EA539AED0FD81C88007C661
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233119.jpgsave_picture_233119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233119.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:C8E815D288509F13DF5561449B36A3320D1EA550
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233121.jpgsave_picture_233121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233121.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Perfectly Clear WorkBench 4.5.0.2548 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233123.jpgsave_picture_233123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233123.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Reader for Mac 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233124.jpgsave_picture_233124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233124.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:397A069A3CD3455AB83994ACD637E987B3E9264D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233126.jpgsave_picture_233126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233126.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Carlos Yebenes (Yébenes) & Dr. Blues Band - Las cosas de la vida (2023) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233130.jpgsave_picture_233130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233130.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Majesty - Back to Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233131.jpgsave_picture_233131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233131.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Aeffect - Theory Of Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233133.jpgsave_picture_233133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233133.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:8B8343DAF42F15F0581E8AA117089FD8EE85A53C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233134.jpgsave_picture_233134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233134.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:419E41F04F062D18EF8C2D4AB93D7EC40A1DD52C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233136.jpgsave_picture_233136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233136.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Vomitory - All Heads Are Gonna Roll (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233138.jpgsave_picture_233138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233138.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:0FBC1A603E552760EC10B13AC84E743D5039D4A4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233140.jpgsave_picture_233140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233140.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|24/48|tracks|WEB-DL] <Instrumen
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233141.jpgsave_picture_233141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233141.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Charlie Byrd - Four Classic Albums (1957 - 1960) 2CD, 2014, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233142.jpgsave_picture_233142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233142.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rhegia - The Battle of Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233145.jpgsave_picture_233145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233145.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lotan - Lotan (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233147.jpgsave_picture_233147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233147.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7F5E6416E38B366A24FFFDDCD46086D3CBE04673
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233149.jpgsave_picture_233149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233149.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:2D6723F324F7D99F6D5B72711BCE37BFBFDA1BC3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233151.jpgsave_picture_233151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233151.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Lamp of Murmuur - Saturnian Bloodstorm (2023) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233153.jpgsave_picture_233153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233153.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:ED9C984452D1BF21F2081469547563A7AF200699
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233154.jpgsave_picture_233154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233154.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:08F4D3CF5E68DA4B630925F31BA940E2B00C9758
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233155.jpgsave_picture_233155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233155.jpg" />
 </div>
 
 

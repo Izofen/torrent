@@ -6,7 +6,7 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Scene Rune [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17889.jpgsave_picture_17889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17889.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Omega Crafter (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17893.jpgsave_picture_17893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17893.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.3/dlc) Scene Rune [Gold Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17930.jpgsave_picture_17930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17930.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Repack seleZen [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18064.jpgsave_picture_18064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18064.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.3/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18070.jpgsave_picture_18070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18070.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+559/dlc) Repack FitGirl [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18080.jpgsave_picture_18080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18080.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31934/dlc) Repack FitGirl [B
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18088.jpgsave_picture_18088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18088.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18175.jpgsave_picture_18175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18175.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18246.jpgsave_picture_18246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18246.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Magicraft (2024) [Ru/Multi] (1.1.16) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18269.jpgsave_picture_18269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18269.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Crystal Project (2023) [En] (1.6.6.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18352.jpgsave_picture_18352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18352.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Wildermyth (2021) [Ru/Multi] (1.16plus559/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18370.jpgsave_picture_18370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18370.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56442/dlc) Repack Decepticon [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18479.jpgsave_picture_18479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18479.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 18404146) Repack Let'sРlay [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18487.jpgsave_picture_18487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18487.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Empyreal (2025) [Ru/Multi] (1.0.1.29392) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18490.jpgsave_picture_18490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18490.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Scene Rune [En
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18568.jpgsave_picture_18568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18568.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18735.jpgsave_picture_18735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18735.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Dark Envoy (2023) [Ru/Multi] (1.6.1.73592) Repack seleZen [Director's Cut - Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18751.jpgsave_picture_18751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18751.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18811.jpgsave_picture_18811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18811.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Baldur's Gate (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18893.jpgsave_picture_18893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18893.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Baldur's Gate II: Enhanced Edition (2013) [Ru/Multi] (2.6.6.0-p/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18894.jpgsave_picture_18894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18894.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18945.jpgsave_picture_18945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18945.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19007.jpgsave_picture_19007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19007.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [Ru/En] (1.0.171) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19074.jpgsave_picture_19074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19074.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Reignbreaker (2025) [Ru/Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19098.jpgsave_picture_19098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19098.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Redemption Reapers (2023) [Ru/Multi] (1.4.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19196.jpgsave_picture_19196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19196.jpg" />
 </div>
 
 

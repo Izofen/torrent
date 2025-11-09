@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122479.jpgsave_picture_122479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122479.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C5F2B74D99DF04A17B176B9D04340A57429E2AAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122480.jpgsave_picture_122480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122480.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DEA954D6CD50681751AD386C41B8576D2E736E12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122481.jpgsave_picture_122481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122481.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9573B96350E33C95D3A8FA462F50BEC543A54F71
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122482.jpgsave_picture_122482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122482.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E15A602A68015CE654525E00C51F9E44B823829A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122483.jpgsave_picture_122483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122483.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C930931BF9A2C9CE166D75E8F7EC5A0865204F83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122484.jpgsave_picture_122484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122484.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ IObit Driver Booster Pro 11.2.0.46 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122485.jpgsave_picture_122485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122485.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ CCleaner 6.20.10897 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122486.jpgsave_picture_122486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122486.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B35A758A2B27543618445C122F5AB03A703A7013
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122487.jpgsave_picture_122487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122487.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Hannah Wicklund - The Prize (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122489.jpgsave_picture_122489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122489.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122490.jpgsave_picture_122490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122490.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ MouseBoost pro for Mac 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122491.jpgsave_picture_122491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122491.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Mildred Bailey - 1938 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122492.jpgsave_picture_122492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122492.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Elegy - Graveflowers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122493.jpgsave_picture_122493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122493.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Lair - The Hidden Shiv (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122494.jpgsave_picture_122494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122494.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:28509FAFDCC92B057D5BEF6A94B4BF8F7E6E0188
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122495.jpgsave_picture_122495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122495.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Stats 2.9.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122496.jpgsave_picture_122496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122496.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Boxy SVG 4.21.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122497.jpgsave_picture_122497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122497.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Keep It 2.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122498.jpgsave_picture_122498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122498.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Bike Outliner for Mac 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122499.jpgsave_picture_122499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122499.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:D4EDA33A22D7318F330A5478B2E75873EE2850A7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122500.jpgsave_picture_122500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122500.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Deluxe Edition [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122501.jpgsave_picture_122501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122501.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ ForkLift 4 v.4.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122502.jpgsave_picture_122502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122502.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Nu Urban Jazz Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122503.jpgsave_picture_122503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122503.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2024-01-03) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122504.jpgsave_picture_122504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122504.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Caro Emerald - Live In Glasgow (2015) Remaster, 2024, MVKA/Grandmono Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122505.jpgsave_picture_122505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122505.jpg" />
 </div>
 
 

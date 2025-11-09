@@ -6,7 +6,7 @@ ES File Explorer File Manager v4.4.2.19 Mod Lite by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27533.jpgsave_picture_27533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Onvier - Монитор IP-камеры v19.55 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27561.jpgsave_picture_27561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27561.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MiHome v10.2.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27644.jpgsave_picture_27644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27644.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mr. Pillster / Напоминания о приеме таблеток v3.1.2 Mo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27730.jpgsave_picture_27730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27730.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EE3999D3FED3B234649A2B3A1E9DFB5CC6471A15
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27750.jpgsave_picture_27750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27750.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Flud v1.11.6.5 Mod by derrin [Ru/En/Ua]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28245.jpgsave_picture_28245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28245.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.5 Mod by v
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28247.jpgsave_picture_28247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28247.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:090F386C301BCCC3A60AD19830DB4436514B2CAD
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28258.jpgsave_picture_28258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28258.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ BZ Напоминания и Дни Рождения PRO v3.6.3 Mod by vadj [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28263.jpgsave_picture_28263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28263.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Ocean Match / Рыбки: Три в ряд v3.0.7 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28276.jpgsave_picture_28276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28276.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ MIUI Hidden Settings Activity v1.6.6 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28280.jpgsave_picture_28280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28280.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B118588C33145591EE36B856222EFF4641A7426C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28447.jpgsave_picture_28447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28447.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:033F0F464FC6F525A6BC1C66A446B8E412115EE7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28486.jpgsave_picture_28486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28486.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ DRM-Play v1.56.2 Lite Mod by ajrys (обновление)  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28512.jpgsave_picture_28512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28512.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:E827EEB78C233E70363A9586FF7C74D6B050A0F1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29018.jpgsave_picture_29018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29018.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ DtcFix v3.51 Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29029.jpgsave_picture_29029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29029.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VideoShow - AI Видео Редактор v10.2.5.2 Mod by AppZombie [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29500.jpgsave_picture_29500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29500.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:2609DACD8E6798B35DDCAC2773486F5CC641D9DE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29520.jpgsave_picture_29520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29520.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ GPS АнтиРадар v48.0 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29521.jpgsave_picture_29521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29521.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Textra SMS v4.79 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29682.jpgsave_picture_29682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29682.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:921C5914C310D7DB7E81E21A8D4C3D9D5A75C097
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29698.jpgsave_picture_29698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29698.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ PlayerPro Music Player 5.37 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29731.jpgsave_picture_29731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29731.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ ES File Explorer File Manager v4.4.2.18 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29736.jpgsave_picture_29736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29736.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:1E3A2B8D5E75097719BA8F4EBF736C9772796E75
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29801.jpgsave_picture_29801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29801.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ DailyRoads Voyager v8.1.1 (62) Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29819.jpgsave_picture_29819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29819.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ HD Music Player v3.4.1.164 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29836.jpgsave_picture_29836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29836.jpg" />
 </div>
 
 

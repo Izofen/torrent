@@ -6,7 +6,7 @@ O&O DiskImage Professional 18.3 Build 286 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242243.jpgsave_picture_242243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pride Of Lions - Fearless (2017) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242244.jpgsave_picture_242244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242244.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D2DF6A5B5CE656BEA0DEA92523F82FCD334D093F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242245.jpgsave_picture_242245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242245.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8257B177E966EFC599EB079E74CEF28044247F03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242246.jpgsave_picture_242246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242246.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Pioneer DJ Rekordbox 6 Professional 6.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242247.jpgsave_picture_242247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242247.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ WinNTSetup 5.2.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242248.jpgsave_picture_242248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242248.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PotPlayer 230405 (1.7.21900) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242250.jpgsave_picture_242250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242250.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8AEE2767897425CD0A8AF7F2E4D5F865DD9BF801
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242251.jpgsave_picture_242251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242251.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Mosaic Pro - Professional-level window management 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242252.jpgsave_picture_242252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242252.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Hang Em High - Trailerpark Symphony (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242253.jpgsave_picture_242253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242253.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ MiPony Pro 3.2.2 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242254.jpgsave_picture_242254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242254.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242255.jpgsave_picture_242255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242255.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242256.jpgsave_picture_242256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242256.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D050D8FC1EC8087BE3DEF7FBE79F8D9C53C20BFD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242258.jpgsave_picture_242258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242258.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:079BCB604EC6AFF30794BDC09A4420CBA0191D78
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242259.jpgsave_picture_242259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242259.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:CAB6B2376963200F771CD4F200943544C0555487
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242260.jpgsave_picture_242260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242260.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Happy Days - En enfer, J'ai Regne (2023) [FLAC|Lossless|WEB-DL|tracks] <Depressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242261.jpgsave_picture_242261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242261.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Dawn Of Ashes + Kristof Bathory: solo album  + URILIA: side project - Discograph
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242262.jpgsave_picture_242262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242262.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:BF5D31A3412CCA2CAEC9685451E52B85A04D3E52
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242264.jpgsave_picture_242264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242264.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ XYplorer 24.30.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242265.jpgsave_picture_242265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242265.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:4D181EA2E423048501BCA99F4B6C2CA93C36029F
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242266.jpgsave_picture_242266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242266.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Wondershare PDFelement 9.5.1.2174 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242267.jpgsave_picture_242267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242267.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:FD7BA3B26593A6EF37717703FE38AC77ECFB9F49
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242268.jpgsave_picture_242268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242268.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Phantomass - Phantomass (2014) [FLAC|Lossless|WEB-DL|tracks] <occult stoner doom
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242269.jpgsave_picture_242269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242269.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:0D7A71AFAB8A0757F02216FE5CBB75F96BE8B5D9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242270.jpgsave_picture_242270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242270.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Deep House Resort (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242271.jpgsave_picture_242271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242271.jpg" />
 </div>
 
 

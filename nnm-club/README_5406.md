@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167445.jpgsave_picture_167445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SQL Dynamite 2.5.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167446.jpgsave_picture_167446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167446.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ OGWhatsApp v9.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167447.jpgsave_picture_167447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167447.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FanControl V140 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167448.jpgsave_picture_167448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167448.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PrivaZer 3.0.84 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167449.jpgsave_picture_167449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167449.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:24E056F1870CF699962A1D022564AA5C5DD9C9C5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167450.jpgsave_picture_167450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167450.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 10 Manager 3.5.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167451.jpgsave_picture_167451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167451.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A6AEBFB86B6FACAF15750F1F01A3A5F486F652BB
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167452.jpgsave_picture_167452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167452.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ The Bee Gees - Brilliant From Birth (1998) 2 CD, Compilation, Remastered, Spin [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167453.jpgsave_picture_167453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167453.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Sphinx: Synth Electronica (2019) [MP3|320 Kbps] <Electronic, Syntheti>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167454.jpgsave_picture_167454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167454.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E1ABFC0D02D32496F02462B611A753D21A6B14AC
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167455.jpgsave_picture_167455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167455.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:690C7B60976879B0FA0A25FB86AE950312809A8F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167456.jpgsave_picture_167456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167456.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Adguard for Mac 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167457.jpgsave_picture_167457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167457.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:9E4FF52F087E2EE55C9B9A7C0E2BF6A6E5A9CC8F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167458.jpgsave_picture_167458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167458.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:E13F1A1A40616041C750A172B93076245F8A7C77
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167459.jpgsave_picture_167459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167459.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:49115B40D44D188164918F0EA2B93A47D4E48E8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167460.jpgsave_picture_167460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167460.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0A17D32F3FD7896510E0095853A57076CA6B0959
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167461.jpgsave_picture_167461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167461.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:C6B0ADC9BF51601934C8A55B332B96F7EF1D8BC1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167463.jpgsave_picture_167463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167463.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Prism - 8 Studio Albums (1977-2008) Collection [MP3|320 Kbps] <Pop Rock, Classic
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167464.jpgsave_picture_167464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167464.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ AIMP 5.10 Build 2417 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167465.jpgsave_picture_167465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167465.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:4F2669AA9905A8DC68601ABCC9CB401231BA539D
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167466.jpgsave_picture_167466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167466.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:5FE430D9D3DD47C827C5C9DBCC057A20F672713F
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167467.jpgsave_picture_167467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167467.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ GeoGebra 6.0.749.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167469.jpgsave_picture_167469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167469.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ JRiver Media Center 25 v25.0.123 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167470.jpgsave_picture_167470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167470.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:AB31508E05CF4AF3301A9A6ED5976389CAC2E927
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167471.jpgsave_picture_167471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167471.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ BBC. Становление континентов / Rise of the Continents (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167472.jpgsave_picture_167472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167472.jpg" />
 </div>
 
 

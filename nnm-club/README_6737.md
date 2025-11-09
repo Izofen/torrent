@@ -6,7 +6,7 @@ SynopsiS - Pontifex Maximus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231689.jpgsave_picture_231689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231689.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Martial Solal & Joachim Kuhn - Duo In Paris (1975) 1991, Dreyfus Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231690.jpgsave_picture_231690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231690.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Thomas Carlsen's Transmission - A Brave Horizon (2023) [Mp3|320 kbps] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231692.jpgsave_picture_231692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231692.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ David Forbes - Tales Of The Past (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231693.jpgsave_picture_231693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231693.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Thelonious Monk, John Coltrane - Thelonious Monk With John Coltrane (2023) [FLAC
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231694.jpgsave_picture_231694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231694.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:5EDCFA62441B4C7E1E84E25108E8EEA40B64832A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231695.jpgsave_picture_231695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231695.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Protector - Excessive Outburst Of Depravity (2022) [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231696.jpgsave_picture_231696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231696.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Fifth Angel - When Angels Kill (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231697.jpgsave_picture_231697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231697.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Veonity - Gladiator's Tale (2015) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231699.jpgsave_picture_231699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231699.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:626D79F52CE458DAFC61EF60CB1C7DF93CD22D30
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231700.jpgsave_picture_231700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231700.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Perfectly Clear WorkBench 4.5.0.2511 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231701.jpgsave_picture_231701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231701.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:0296A5C2B43F7F1EBA5BB1B8700E7FFB0D6F018B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231703.jpgsave_picture_231703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231703.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Best of Soundgarden (Redux) (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231704.jpgsave_picture_231704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231704.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:FEECE644513AD9293908BA783A2EE833B0C1D085
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231705.jpgsave_picture_231705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231705.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F3631E0F1994FD44BE8A12DFAA7870BF00E5F812
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231706.jpgsave_picture_231706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231706.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Eria d'Or - Trinity (2017) 3CD, compilation [MP3|320 Kbps] <Atmospheric Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231707.jpgsave_picture_231707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231707.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Yard Art - Yard Art (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Fema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231709.jpgsave_picture_231709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231709.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Voice Of Baceprot - Retas (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231710.jpgsave_picture_231710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231710.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Project Office X Pro 1.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231711.jpgsave_picture_231711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231711.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ The Billy Taylor Trio - with Candido (1954) 1991, Original Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231712.jpgsave_picture_231712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231712.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:EC160523009309FD4A88256BC2D548BD918516A1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231713.jpgsave_picture_231713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231713.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:047F07D29F9E3A373FFE3EBA1455D9B29E34FE66
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231714.jpgsave_picture_231714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231714.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Thrashit - Kaiser Of Evil (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231715.jpgsave_picture_231715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231715.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Sam Austins - Boy Toy (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231717.jpgsave_picture_231717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231717.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:4C6E65571BF1A20ADA5A6DA1E0914D0CE72C4919
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231718.jpgsave_picture_231718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231718.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Trance 2023 Vol. 6 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231719.jpgsave_picture_231719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231719.jpg" />
 </div>
 
 

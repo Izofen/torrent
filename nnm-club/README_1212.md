@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31867.jpgsave_picture_31867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31867.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2BD7BF0DABB11F1664AF0939905101B4D650F27E
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31868.jpgsave_picture_31868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31868.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EECD21E9CBFB7766C627B081B376D8932852B126
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31869.jpgsave_picture_31869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31869.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7B853DF0EC2C76AABE2BA917F388F594F83008D3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31870.jpgsave_picture_31870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31870.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Udemy, Vassilyi Gudomarov | JavaScript с нуля: Уверенный стар�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31871.jpgsave_picture_31871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31871.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3E8E20AACD55D1D820A8C34A6781BAEAD26A13F5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31872.jpgsave_picture_31872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31872.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Samsung и Google выпустят бесплатный заменитель Dol
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31873.jpgsave_picture_31873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31873.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Samsung и Google выпустят бесплатный заменитель Dol
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31874.jpgsave_picture_31874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31874.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0FF91E8801B52C0E53FDD3190E75C9B970214157
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31875.jpgsave_picture_31875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31875.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:DE01066ECB7A6ADE10516889091086F54B0B73A0
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31876.jpgsave_picture_31876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31876.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:21794CDE56BC6283DBAD06784E4DCEA8A4574B3F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31877.jpgsave_picture_31877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31877.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4CA5AB1BC9CA4EB17DE93207A948801BEDC88F43
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31878.jpgsave_picture_31878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31878.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Hello, 2025 (The Ultimate Party Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31879.jpgsave_picture_31879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31879.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:A00E9C349DF11E7D7526C987A44E7863A2854BBD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31880.jpgsave_picture_31880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31880.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Black - Wonderful Life (1987) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31881.jpgsave_picture_31881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31881.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:D253BCA3B932D181A937DC69F532ACF155068405
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31882.jpgsave_picture_31882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31882.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Pink Floyd - Live At Théâtre de Plein Air (Colmar, France, 22 June 1974) (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31883.jpgsave_picture_31883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31883.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 4 November 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31884.jpgsave_picture_31884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31884.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:71E2CB56E232EC17BCEF5EA14533351ED19FFF6A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31885.jpgsave_picture_31885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31885.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Pink Floyd - Eclipsed By The Moon - Studio Outtakes 1972 (2022) EP (Live)[FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31886.jpgsave_picture_31886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31886.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31887.jpgsave_picture_31887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31887.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - The Best Of Italo Disco Vol. 13 (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31888.jpgsave_picture_31888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31888.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Pink Floyd - Live at Trentham Gardens (Stoke-On-Trent, UK, 19 Nov 1974) (2024) L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31889.jpgsave_picture_31889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31889.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:FE671097BE01DD17475FF5ACB9DDEA6CEE48E8B5
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31890.jpgsave_picture_31890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31890.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31891.jpgsave_picture_31891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31891.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31892.jpgsave_picture_31892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31892.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Brooklyn Bounce - 4 альбома (1997-2002) [FLAC|Lossless]<Progressive House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248244.jpgsave_picture_248244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248244.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Brooklyn Bounce - 4 альбома (1997-2002) [FLAC|Lossless]<Progressive House
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248246.jpgsave_picture_248246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248246.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ magnet:?xt=urn:btih:861DADBBB850D72A9E4EAFF44B403EA0EA9937A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248250.jpgsave_picture_248250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248250.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Moonbase (RePack) [En] 1990 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248256.jpgsave_picture_248256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248256.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bram Stoker's Dracula [En] (RePack) 1993 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248257.jpgsave_picture_248257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248257.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dracula на PC – это то, о чём мы с вами втайне все�
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248258.jpgsave_picture_248258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248258.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:011FF1AE8CB756EE773E73D078E43256E1DD8B4E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248259.jpgsave_picture_248259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248259.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Gothic Romance vol.1-4 (The Best Goth Love Songs) (2009-2011) [MP3|151-320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248260.jpgsave_picture_248260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248260.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:914C6429604B070DEA675B007C19E8D2C83F6BB5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248264.jpgsave_picture_248264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248264.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Новые Хиты Дискотек (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248267.jpgsave_picture_248267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248267.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ RERemix Linux Desktop 6.2 [i386 + x86-64] (2xDVD, 2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248270.jpgsave_picture_248270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248270.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Atmel Corp | ATMEL AVR/AVR32 Technical Library May 2012 [2012] [ISO]
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248271.jpgsave_picture_248271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248271.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:F25407D5552D33C0AA8406479AAA0586A10346E5
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248272.jpgsave_picture_248272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248272.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:AA0BBBF098F46CA9BA3AA52766CFEB1415A9B3E8
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248274.jpgsave_picture_248274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248274.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248278.jpgsave_picture_248278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248278.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:4CFA59AE61B3CF14585CA204F43254706EE09E07
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248283.jpgsave_picture_248283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248283.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:4CFA59AE61B3CF14585CA204F43254706EE09E07
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248285.jpgsave_picture_248285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248285.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:4CFA59AE61B3CF14585CA204F43254706EE09E07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248287.jpgsave_picture_248287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248287.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D3A6A5E0369AAABF00D16159AC43062C37C4C917
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248288.jpgsave_picture_248288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248288.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:DB36365C41E21428A6EEBD3E0D958EAA51AEEDE3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248289.jpgsave_picture_248289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248289.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:96316092AE5F4D9F2840E8F6CEBB7E4EF9FBDDC3
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248291.jpgsave_picture_248291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248291.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Novation - Bass Station v.1.7[VSTi][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248292.jpgsave_picture_248292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248292.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Novation - Bass Station v.1.7[VSTi][английский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248294.jpgsave_picture_248294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248294.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:B4CF3D2B8EF8C9FED98748A70561BB1B20D40FD7
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248295.jpgsave_picture_248295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248295.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Visions 1.4.2.1774
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248296.jpgsave_picture_248296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248296.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Visions 1.4.2.1774
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248301.jpgsave_picture_248301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248301.jpg" />
 </div>
 
 

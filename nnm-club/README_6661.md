@@ -6,7 +6,7 @@ Fix My iPhone 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227645.jpgsave_picture_227645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227645.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4BDE5C5624E6A2E9260A1BE6654664F09848F24A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227656.jpgsave_picture_227656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227656.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Richard Wright - Wet Dream Remix (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227661.jpgsave_picture_227661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227661.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Richard Wright - Wet Dream (1978) Remix by Steven Wilson, 2023, Rhino [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227668.jpgsave_picture_227668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227668.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E4D5890A0F9E9EF766F0A4C6888BD9718156BEC3
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227673.jpgsave_picture_227673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227673.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Art Nation - Inception (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227679.jpgsave_picture_227679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227679.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:7E1AE5F1EE62EBF92145C35DA6A1718E98D8DA87
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227687.jpgsave_picture_227687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227687.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:4338E4AA4F590A44EFFBE775A5C1558F93BDFC82
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227694.jpgsave_picture_227694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227694.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ The Firebirds - Dance All Night Long (2023) [FLAC|Lossless|WEB-DL|tracks] <Rocka
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227702.jpgsave_picture_227702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227702.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Red Baron Band - Last Chance (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Prog Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227708.jpgsave_picture_227708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227708.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Arch Blade - Kill The Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227716.jpgsave_picture_227716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227716.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ian Moss - Rivers Run Dry (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227722.jpgsave_picture_227722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227722.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Flight - Echoes Of Journeys Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227729.jpgsave_picture_227729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227729.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Redhaze - Time 2 Ride (2023) 2 x CD [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227738.jpgsave_picture_227738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227738.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Gator, The Alligator - Laminar Flow (2023) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227752.jpgsave_picture_227752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227752.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Zhaba - Brave New Trip (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227762.jpgsave_picture_227762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227762.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Not A Toy - Prblms (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Punk, I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227806.jpgsave_picture_227806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227806.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Anzhela Vopit - Атрибуты Восторга (2023) [MP3|320 Kbps] <Pop Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227814.jpgsave_picture_227814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227814.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Turkish Delight - Khalil Turk & Friends Vol.2 (2023) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227823.jpgsave_picture_227823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227823.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Gunn - Truscinski - Nace - Glass Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227831.jpgsave_picture_227831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227831.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Omni Downloader 1.4.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227840.jpgsave_picture_227840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227840.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Fish - Clutching At Stars Live in The USA 2008 (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227846.jpgsave_picture_227846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227846.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Omni Remover 4.0.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227854.jpgsave_picture_227854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227854.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Uncle Acid and the Deadbeats - Slaughter On First Avenue (Live) (2023) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227861.jpgsave_picture_227861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227861.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Nightmare Screen - The Slumber (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227868.jpgsave_picture_227868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227868.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Dogs Of Neptune - Zero (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227875.jpgsave_picture_227875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227875.jpg" />
 </div>
 
 

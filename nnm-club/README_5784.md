@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179995.jpgsave_picture_179995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179995.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0973F042C8A9DC39F7D9FDFE550CBAE51E0A97B6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179996.jpgsave_picture_179996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179996.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Steve Holliday - Stark Raving Mad (1997) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179997.jpgsave_picture_179997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179997.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:340E3414A7660D8E1B4275045DD1522A63176588
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179999.jpgsave_picture_179999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179999.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Bad Baron - Ace Of Hearts (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180003.jpgsave_picture_180003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180003.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:01396BFE365754A27AD806739F7AE8D1515FB2CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180004.jpgsave_picture_180004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180004.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Pursuit - Loose Lips (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180005.jpgsave_picture_180005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180005.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:B58938C0C9871F3537B36B4489FF5F98022594A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180008.jpgsave_picture_180008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180008.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - The Best Rock Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180010.jpgsave_picture_180010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180010.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Cowboys & Aliens - Burn! (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180011.jpgsave_picture_180011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180011.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpgsave_picture_180013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180013.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Alpha Blender PRO for Mac 1.1.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180015.jpgsave_picture_180015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180015.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Unsolved Case 4: Above the Law / Нераскрытое дело 4: Вне за�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180017.jpgsave_picture_180017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180017.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:2DDFC07069B3FEC63E9C53746857850317E31244
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180019.jpgsave_picture_180019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180019.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Opera One 103.0.4928.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180021.jpgsave_picture_180021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180021.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ WinTools.net Premium 23.10.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180024.jpgsave_picture_180024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180024.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Oceans Turn Red - MOIRAE (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore / Death
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180026.jpgsave_picture_180026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180026.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:78FA8F1E8C6FF78526432D5229D41936A055C71C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180028.jpgsave_picture_180028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180028.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Molllust - Mother Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Classical, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180030.jpgsave_picture_180030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180030.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Erik's Iridescent Tent - Peter Piper Pepperidge Farm at the Gates of Dawn Deterg
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180032.jpgsave_picture_180032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180032.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Blues Roots Of Music (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180033.jpgsave_picture_180033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180033.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:4AA4CA36090A22D0E4DA6AADA06E4707414F32A8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180036.jpgsave_picture_180036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180036.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Rocket Boy - Resolute (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180038.jpgsave_picture_180038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180038.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:F78D0DC4013F68DAB0A6D2365A8ECF3E5198E713
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180041.jpgsave_picture_180041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180041.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Eddie Daniels & Roger Kellaway - A Duet Of One (2005) 2008, IPO Recordings [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180042.jpgsave_picture_180042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180042.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Manthus - Sentenced to Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180045.jpgsave_picture_180045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180045.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Udemy, Michael Pogrebinsky | Software Architecture & System Design Practical Cas
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195607.jpgsave_picture_195607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195607.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4A1E4829907BA43BB9DC478CE677A564ACF64669
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196107.jpgsave_picture_196107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196107.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Udemy, David Makowski | Modern Unity UI with UI Toolkit (2023) WEB-DL [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196246.jpgsave_picture_196246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196246.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Foxford (Фоксфорд), Валерия Савина | Практически
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196313.jpgsave_picture_196313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196313.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:E0BC6EC425D43B2BFA22AA672BC27CE08BFDC034
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196342.jpgsave_picture_196342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196342.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Udemy, Denis Panjuta | Complete C# Masterclass (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196589.jpgsave_picture_196589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196589.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:994E49786C99EF358002723E448E51DE2B1A31FF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196957.jpgsave_picture_196957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196957.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:86D9B08DAD7F1AE61A9E3DBF3013524B66D5B869
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197586.jpgsave_picture_197586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197586.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:5B1A866844B11042AE213550CFF03D4A31C15735
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197718.jpgsave_picture_197718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197718.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Slurm (Слёрм), Марсель Ибраев, Павел Селиванов, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197733.jpgsave_picture_197733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197733.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Udemy | Библиотека курсов по Ansys (2018-2023) WEB-DLRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197757.jpgsave_picture_197757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197757.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Skillbox, М. Овчинников, С. Корниенко и др. | Веб-в�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197953.jpgsave_picture_197953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197953.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Udemy, Nathan House | The Complete Nmap Ethical Hacking Course : Network Securit
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198050.jpgsave_picture_198050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198050.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Udemy | Библиотека курсов по Matlab (2022) [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198167.jpgsave_picture_198167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198167.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ pixel.one | Создание 2D игр в Unity (2019) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198173.jpgsave_picture_198173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198173.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Heisenbug | Конференция по тестированию не тольк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198214.jpgsave_picture_198214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198214.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ FrontendMasters, Lydia Hallie | Advanced Front-End & JavaScript Questions (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198259.jpgsave_picture_198259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198259.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ FrontendMasters, Ben Callahan | Enterprise Design Systems Thinking (2023) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198332.jpgsave_picture_198332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198332.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Productuniversity, Яна Чаруйская и др. | ИИ и для гене�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198533.jpgsave_picture_198533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198533.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Udemy, Web Oral | ChatGPT: Earning Money With ChatGPT - Easy Way For Beginners (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198678.jpgsave_picture_198678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198678.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Udemy, Serge Lansiquot | Game Dev Math Ultimate guide to polishing your game! (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198749.jpgsave_picture_198749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198749.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Udemy, John Thompson | Spring Framework 6: Beginner to Guru (2023) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200987.jpgsave_picture_200987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200987.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Udemy, Peter A | Password Cracking: Brute Forcing (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201014.jpgsave_picture_201014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_201014.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:55BC5FA4E7AB1C3652454392968F39DFE3B258F8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201799.jpgsave_picture_201799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201799.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:7D860281256DE5F7D264D4F8201083C0F23C5439
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202127.jpgsave_picture_202127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202127.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Udemy, Jose Portilla | Python for Machine Learning & Data Science Masterclass (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202173.jpgsave_picture_202173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202173.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FigrCollage 2 Home Edition v2.5.18[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241574.jpgsave_picture_241574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241574.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Native Instruments - Guitar Rig 6 Pro 6.2.3 STANDALONE, VST, VST3, AAX (x64) [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241575.jpgsave_picture_241575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241575.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ P!nk (Pink) - TRUSTFALL (2023) Japan [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241576.jpgsave_picture_241576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241576.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Aríht (Ariht)  - As the Leaves Settle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241578.jpgsave_picture_241578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241578.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0452BFD8BF3CA1BF595E8B3C80BEC1E3E7982770
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241579.jpgsave_picture_241579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241579.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:1122C34296DAEB73E1F28089A1EA0D2BCCB15C85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241580.jpgsave_picture_241580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241580.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Raveonettes - Chain Gang Of Love (2003) [FLAC|Lossless|image + .cue] <Indie 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241581.jpgsave_picture_241581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241581.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F47273D9E1DE0F48EB229F207558CF77C565F840
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241582.jpgsave_picture_241582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241582.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Maverick - Ethereality (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241583.jpgsave_picture_241583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241583.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:A666A107C5AAD9D618331B64D6782B1826EE9CAD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241584.jpgsave_picture_241584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241584.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:3254FB3ADCEE12854A3DB46A133ADC9A371CF80C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241585.jpgsave_picture_241585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241585.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) 2CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241586.jpgsave_picture_241586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241586.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Marauder - Metal Constructions VII (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241588.jpgsave_picture_241588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241588.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Aschmicrosa - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241589.jpgsave_picture_241589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241589.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:D4CEC39E0FE8F7A1816C4BC9D3ADD15E7A8CE902
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241590.jpgsave_picture_241590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241590.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:A27FE9D1A6E289D74A491A88DDE730F5E4DAC021
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241591.jpgsave_picture_241591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241591.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:F79992A07438398315A68547A6EC2905F7C09A58
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241592.jpgsave_picture_241592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241592.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Proactive Criteria (2000) Underconstructing Records [FLAC|Lossless|tracks+.
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241593.jpgsave_picture_241593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241593.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ AIMP 5.11 Build 2429 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241594.jpgsave_picture_241594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241594.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ PrivaZer Pro 4.0.70 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241595.jpgsave_picture_241595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241595.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Bad Ends - The Power And The Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241597.jpgsave_picture_241597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241597.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Aphotic - Abyssgazer (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241598.jpgsave_picture_241598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241598.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Cookie 6.0.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241599.jpgsave_picture_241599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241599.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:265BFCE4072BA414E90ED3CB32A6770E77CB4DC8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241600.jpgsave_picture_241600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241600.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:AA3F8FB3421049FA5A61DD0F68CB9487B1763FB3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241601.jpgsave_picture_241601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241601.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Conifer Beard - 3 Albums (2019-2022) [MP3|320 Kbps] <Stoner Rock, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241602.jpgsave_picture_241602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241602.jpg" />
 </div>
 
 

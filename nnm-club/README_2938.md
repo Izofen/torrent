@@ -6,7 +6,7 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86874.jpgsave_picture_86874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86874.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Top Gun: Hard Lock [Multi5\-] (RePack) 2012 | R.G. Origami
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86875.jpgsave_picture_86875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86875.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Top Gun: Hard Lock [Multi5\-] (RePack) 2012 | R.G. Origami
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86876.jpgsave_picture_86876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86876.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DriverPack KDFX DRV v2.0 (2012 год) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86877.jpgsave_picture_86877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86877.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Top Gun: Hard Lock [Multi5\-] (L) 2012
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86878.jpgsave_picture_86878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86878.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Top Gun: Hard Lock [Multi5\-] (L) 2012
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86879.jpgsave_picture_86879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86879.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Alone in the Dark: The New Nightmare / Alone in The Dark 4: По Ту Сторо
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86881.jpgsave_picture_86881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86881.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Advanced Woman Calendar 4.2 (2011) [Многоязычный (русский п�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86882.jpgsave_picture_86882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86882.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Advanced Woman Calendar – универсальный и простой в ис
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86884.jpgsave_picture_86884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86884.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Advanced Woman Calendar – универсальный и простой в ис
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86885.jpgsave_picture_86885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86885.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:6BAD55CE19C2175D335B841B953AE01F63663E6F
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86886.jpgsave_picture_86886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86886.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ SinclairOS Linux Build v.20120224 [x86] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86889.jpgsave_picture_86889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86889.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Adobe Flash Player 11.3.300.214 Beta 1 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86890.jpgsave_picture_86890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86890.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Adobe Flash Player — это межплатформенная среда вып
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86891.jpgsave_picture_86891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86891.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Adobe Flash Player — это межплатформенная среда вып
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86893.jpgsave_picture_86893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86893.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Young Dolph - A Time 2 Kill (2012) [MP3|320 кб/с]<Dirty South>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86895.jpgsave_picture_86895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86895.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86899.jpgsave_picture_86899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86899.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:5EAC9FC51D40B07A45C93B655B94050A711A8D84
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86904.jpgsave_picture_86904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86904.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:52259F42EFC0F0A79D0884478A4EC187F342C3D4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86906.jpgsave_picture_86906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86906.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:B68398080C2A6D2E350D28AAFD155B454930D7DD
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86911.jpgsave_picture_86911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86911.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:E1D41073091D5BA49AD4154B31B2BEA910A53E43
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86915.jpgsave_picture_86915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86915.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:E1D41073091D5BA49AD4154B31B2BEA910A53E43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86917.jpgsave_picture_86917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86917.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86918.jpgsave_picture_86918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86918.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86922.jpgsave_picture_86922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86922.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:F023D01587937688F49F700AF5A8D4B19C3775D9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86924.jpgsave_picture_86924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86924.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:F023D01587937688F49F700AF5A8D4B19C3775D9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86926.jpgsave_picture_86926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86926.jpg" />
 </div>
 
 

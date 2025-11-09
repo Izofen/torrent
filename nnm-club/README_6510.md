@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206687.jpgsave_picture_206687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206687.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Video AI 3.3.9 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206688.jpgsave_picture_206688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206688.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7E8B96C07A2A3A5111CDE4566859947AAA39AABA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206689.jpgsave_picture_206689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206689.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Song
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206693.jpgsave_picture_206693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206693.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:80EF1A2A5EEB6DACA553345BB10DC2C2A004DACB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206697.jpgsave_picture_206697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206697.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C43902521105AA274E7EC6D91C65349EA69F3052
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206698.jpgsave_picture_206698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206698.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6EC83B519DD094B1D0438B3CB1AFBC759A7AB1E9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206700.jpgsave_picture_206700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206700.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Sufyan bin Uzayr | Mastering Python for Web (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206705.jpgsave_picture_206705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206705.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Notepad++ 8.5.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206706.jpgsave_picture_206706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206706.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:260DB306803A23BDC0FC13E30BF56E388A661822
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206709.jpgsave_picture_206709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206709.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Serato DJ Pro Suite for Mac 3.0.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206710.jpgsave_picture_206710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206710.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Microsoft .NET 6.0.21 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206712.jpgsave_picture_206712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206712.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:E4AEC56DFB73A324FD0863EC8BB9A433159CF85F
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206713.jpgsave_picture_206713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206713.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:2BDF2DE84020D243B9984C718F829DBA5B60E39D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206716.jpgsave_picture_206716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206716.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2242525B52A8F10871C24E21FAA1A6253770DB06
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206717.jpgsave_picture_206717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206717.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Beatles в Индии / The Beatles and India (2021) WEB-DL [H.264/1080p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206721.jpgsave_picture_206721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206721.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:19913AA4463638B04B0B266B8D753C1144E97CAB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206722.jpgsave_picture_206722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206722.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:F0E25103C84B1A07B0111165306EB7D816292EDA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206726.jpgsave_picture_206726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206726.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Emurasoft EmEditor Professional 22.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206727.jpgsave_picture_206727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206727.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ QuickTextPaste 8.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206730.jpgsave_picture_206730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206730.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Music News vol.288 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206731.jpgsave_picture_206731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206731.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ E-Type - Loud Pipes Save Lives (2004) [OGG Vorbis|480 Kbps] <Electronic, Hi NRG,
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206732.jpgsave_picture_206732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206732.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ OCCT 12.0.11 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206734.jpgsave_picture_206734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206734.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:A4C34110D871B6EA4200E5377587FE0EB4F3B650
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206737.jpgsave_picture_206737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206737.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:660FDBC3DF740F4DE7DF2162E76925D901930F63
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206741.jpgsave_picture_206741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206741.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:C6D98E33DF599F9D7F5BA0A87C5975F0093C689A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206743.jpgsave_picture_206743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206743.jpg" />
 </div>
 
 

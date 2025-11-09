@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203430.jpgsave_picture_203430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203430.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1EF772B190A023B4B430C8A4AF4D648B7321E36F
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203738.jpgsave_picture_203738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203738.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7E3439168106D861BEE0E9BF303482CE1F493FD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203779.jpgsave_picture_203779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203779.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mark J. Price | C# 11 and .NET 7 – Modern Cross-Platform Development Fundament
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203802.jpgsave_picture_203802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203802.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9502F4E946EF1683348C4CA582F76E031923E088
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203985.jpgsave_picture_203985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203985.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:722BBA4FFB5BD5BB2BB82D986F59380439E3759C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204132.jpgsave_picture_204132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204132.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Shantanu Baruah, Shaurya Baruah | App Development Using iOS iCloud (2023) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204135.jpgsave_picture_204135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204135.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E720D6F984D16FC4E835FF334E50ED7B7C16EB08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204244.jpgsave_picture_204244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204244.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C84508A284ECFB7523757E788405BB5F81D2A96C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204271.jpgsave_picture_204271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204271.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:2D15AD4B6C18A6A5B98BEC7C99AAF51518B4009D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204401.jpgsave_picture_204401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204401.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:C60F96BAFE31EAEEECAFA028B6EC7A1171E4563C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204600.jpgsave_picture_204600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204600.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:9FE29BB7F2F0F1594F826BC0434D20527D6DD592
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204784.jpgsave_picture_204784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204784.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:D95C998C7E2AC335595FBCA24333AE610C1CC508
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204792.jpgsave_picture_204792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204792.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:F9975CAB086310BD2B04F45DEE7F4D0C89B5ECFF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205132.jpgsave_picture_205132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205132.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Marius Iulian Mihailescu, Stefania Loredana Nita | Pro Cryptography and Cryptana
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205899.jpgsave_picture_205899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205899.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Wallace Wang | Beginning iPhone Development with SwiftUI: Exploring the iOS SDK,
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205903.jpgsave_picture_205903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205903.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Martine Dowden, Michael Gearon | Tiny CSS Projects (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205930.jpgsave_picture_205930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205930.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Sumit Jaiswal | Git Repository Management in 30 Days (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205966.jpgsave_picture_205966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205966.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dan Wellman | Ultimate Typescript Handbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205969.jpgsave_picture_205969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205969.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Natale Vinto, Alex Soto Bueno | GitOps Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206587.jpgsave_picture_206587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206587.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Primoz Gabrijelcic | Delphi High Performance, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206590.jpgsave_picture_206590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206590.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Sufyan bin Uzayr | Mastering Python for Web (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206705.jpgsave_picture_206705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206705.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:4661FE4FE085664EDFD48C822B34D9755C88F182
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206778.jpgsave_picture_206778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206778.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Prabhu Eshwarla | Rust Servers, Services, and Apps (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206976.jpgsave_picture_206976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206976.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:4ACA58333C62681C24D4B96AE4C05F64092DEADC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206988.jpgsave_picture_206988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206988.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Joel Holmes | Shipping Go (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207002.jpgsave_picture_207002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207002.jpg" />
 </div>
 
 

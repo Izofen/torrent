@@ -6,7 +6,7 @@ Steve Hackett - The Circus and the Nightwhale (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117199.jpgsave_picture_117199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117199.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Peter Gabriel - Shaking The Tree: Sixteen Golden Greats (1990) 1st German Press 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117200.jpgsave_picture_117200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117200.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Driving Songs The Ultimate Collection (2014) 5 CD [OGG Vorbis|480 Kbps] <Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117201.jpgsave_picture_117201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117201.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:DFDE6D7AF5279491FF611D2A0A7C36058F480506
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117202.jpgsave_picture_117202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117202.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ RJ TextEd 16.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117203.jpgsave_picture_117203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117203.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Steve Hackett - The Circus and the Nightwhale (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117204.jpgsave_picture_117204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117204.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Pet Shop Boys - Introspective (1988) 1st German Press / Holland Press [APE|Lossl
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117205.jpgsave_picture_117205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117205.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Black Hole House Music 02-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117206.jpgsave_picture_117206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117206.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Brave Browser 1.62.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117207.jpgsave_picture_117207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117207.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Leah - The Glory and the Fallen (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117208.jpgsave_picture_117208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117208.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ SecuritySpy 5.5.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117209.jpgsave_picture_117209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117209.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Black Hole Trance Music 02-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117210.jpgsave_picture_117210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117210.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:9CB06BA9CF13F7903F7A8DDF1A418B0CC2FE44A9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117211.jpgsave_picture_117211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117211.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Opera Crypto Browser 107.0.5045.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117212.jpgsave_picture_117212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117212.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Opera One 107.0.5045.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117213.jpgsave_picture_117213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117213.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Trance In Motion Vol.371 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117214.jpgsave_picture_117214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117214.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Love Romance Music Zone, Music to Relax in Free Time - Sexy Massage for Valentin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117215.jpgsave_picture_117215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117215.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Opera One 107.0.5045.21 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117216.jpgsave_picture_117216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117216.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117217.jpgsave_picture_117217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117217.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117218.jpgsave_picture_117218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117218.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ AC/DC - AC/DC A Touch Too Music Live In Maryland 1979 (Live) (2021) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117219.jpgsave_picture_117219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117219.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Google Chrome 121.0.6167.185 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117220.jpgsave_picture_117220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117220.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Pet Shop Boys - Actually (1987) Holland Press [APE|Lossless|image + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117221.jpgsave_picture_117221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117221.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Idol Densetsu Eriko | Легендарный айдол Эрико [1989-1990, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117222.jpgsave_picture_117222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117222.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:81070605896E69B1A91D0E90F7953944658CEC6F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117223.jpgsave_picture_117223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117223.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117224.jpgsave_picture_117224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117224.jpg" />
 </div>
 
 

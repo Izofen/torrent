@@ -6,7 +6,7 @@ Mitsuko Maeda-nye, Shizuro Okada | 15-Minute Japanese. Learn in just 12 weeks (2
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107721.jpgsave_picture_107721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107721.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:67C988787514623B1C1B80DA029EC07E5924FAA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107722.jpgsave_picture_107722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107722.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107723.jpgsave_picture_107723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107723.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9BC85A90834731F87453E6E8B6111058325979FA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107724.jpgsave_picture_107724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107724.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:8CAA71093D6CA5C5045125A7B4CCD6A673B40F34
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107725.jpgsave_picture_107725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107725.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:8CAA71093D6CA5C5045125A7B4CCD6A673B40F34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107726.jpgsave_picture_107726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107726.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:44A2A902295C888D30E62D4E02D4B0EE435C8AA5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107727.jpgsave_picture_107727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107727.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2C70B5A4BAD0A907385BC61FD027E72007045A2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107728.jpgsave_picture_107728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107728.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Music News vol.391 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107729.jpgsave_picture_107729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107729.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Icecream PDF Editor Pro 3.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107730.jpgsave_picture_107730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107730.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:8CCD224624A4E0362062C00504B67E374B034CB2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107731.jpgsave_picture_107731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107731.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:697FB1D9C030D607AECC6DB4E2A4AF45930767EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107732.jpgsave_picture_107732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107732.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6F7C8F22C2F7F3F0BCCA6F2D8AC43D323826A258
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107733.jpgsave_picture_107733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107733.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:56F1CEAD0122A76C5F341082A0E6FF2C751C9504
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107734.jpgsave_picture_107734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107734.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Cream & Sugar - Cream & Sugar (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107735.jpgsave_picture_107735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107735.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Magma Rise - Neither Land nor Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107736.jpgsave_picture_107736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107736.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Johnny Griffin - Masters Of Jazz (1964 - 1989) 2006, Storyville Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107737.jpgsave_picture_107737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107737.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Magma Rise - Lazy Stream of Steel (2010) [FLAC|Lossless|image + .cue] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107738.jpgsave_picture_107738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107738.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Magma Rise - To Earth to Ashes to Dust (2021) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107739.jpgsave_picture_107739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107739.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:E102B88C4EC51C368B6E6A5943202512C4B56867
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107740.jpgsave_picture_107740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107740.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ KineMaster - Video Editor & Maker v7.4.15.33304.GP Mod by Shadow_Patcher [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107741.jpgsave_picture_107741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107741.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - DJ Hits Vol. 82 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107742.jpgsave_picture_107742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107742.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - DJ Hits Vol. 80 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107743.jpgsave_picture_107743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107743.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Fedde Le Grand - Something Real (2016) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107744.jpgsave_picture_107744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107744.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:7B24961499DAE923EC884DC21C666CC729DAAF66
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107745.jpgsave_picture_107745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107745.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Ozric Tentacles - Strangeitude & Pungent Effulgent (1989-1991) Compilation, Reis
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107746.jpgsave_picture_107746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107746.jpg" />
 </div>
 
 

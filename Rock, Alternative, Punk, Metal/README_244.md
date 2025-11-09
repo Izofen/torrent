@@ -6,7 +6,7 @@ Arrogant Destruktor - Written In Blood From The Blade (2023) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157529.jpgsave_picture_157529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157529.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Foghat - Sonic Mojo (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157541.jpgsave_picture_157541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157541.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rainbow - Rising (1976) Reissue, Remastered, 2014, Polydor [OGG Vorbis|480 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157558.jpgsave_picture_157558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157558.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ In This Moment - Godmode (2023) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157604.jpgsave_picture_157604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157604.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Unheilig - Moderne Zeiten (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157667.jpgsave_picture_157667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157667.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ignescent - Fight In Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157674.jpgsave_picture_157674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157674.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Unheilig - Zelluloid (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157735.jpgsave_picture_157735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157735.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cosmitorium - Broken Archetypes (2023) [MP3|320 Kbps] <Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157745.jpgsave_picture_157745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157745.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Unheilig - Phosphor (2001) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157753.jpgsave_picture_157753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157753.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rick Wakeman - Journey To The Centre Of The Earth (1974) Japanese Edition, Reiss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157754.jpgsave_picture_157754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157754.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:0914061BCF644E698DB6CE95AA3F8069264C06B2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpgsave_picture_157759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Unheilig - Frohes Fest (2002) [FLAC|Lossless|image + .cue] <Industrial Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157762.jpgsave_picture_157762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157762.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dies Irae - Ethereal (1998) Remastered-2019 [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157767.jpgsave_picture_157767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157767.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157782.jpgsave_picture_157782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157782.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Bethzaida - LXXVIII (1998) [FLAC|Lossless|image + .cue] <Deathб Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157788.jpgsave_picture_157788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157788.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Bethzaida - War Vol. II (1999) Split [FLAC|Lossless|image + .cue] <Death, Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157792.jpgsave_picture_157792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157792.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Kampf - Nothing But Wrath (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157803.jpgsave_picture_157803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157803.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157804.jpgsave_picture_157804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157804.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157808.jpgsave_picture_157808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157808.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157809.jpgsave_picture_157809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157809.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:92C693885BBE4004E821750F8FABEE987AF4ECFD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157821.jpgsave_picture_157821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157821.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Bon Jovi - Slippery When Wet (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Sof
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157828.jpgsave_picture_157828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157828.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ ZveroБой (Зверобой) - Чистое небо (2014) ЕР [MP3|320 Kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157834.jpgsave_picture_157834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157834.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Platinum Overdose - Murder In High Heels (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157840.jpgsave_picture_157840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157840.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:9BFF40943C240B1E5F55FF20E45520ED82276BE7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157843.jpgsave_picture_157843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157843.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ ZveroБой (Зверобой) - Жив (2008) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157846.jpgsave_picture_157846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157846.jpg" />
 </div>
 
 

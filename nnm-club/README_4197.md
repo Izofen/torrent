@@ -6,7 +6,7 @@ James Gough, Daniel Bryant, Matthew Auburn | Mastering API Architecture (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129989.jpgsave_picture_129989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129989.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129991.jpgsave_picture_129991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129991.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Steampunk Hotel (2023) [MP3|320 Kbps] <Electro, Swing, Cabare>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129992.jpgsave_picture_129992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129992.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C324B9506136EF4017D04D233619D070660B313B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129993.jpgsave_picture_129993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129993.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Heretic Soul - Born Into This Plague (2010) [MP3|~212 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129994.jpgsave_picture_129994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129994.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:5B26D568A0CBE1F6015F6B6B202FD01082D39B55
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129995.jpgsave_picture_129995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129995.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Guitar Chillout Lounge 4 (2015) [AAC|~339 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129997.jpgsave_picture_129997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129997.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:BC949E83F1F98F1E2AF602B3D4CF611192328E80
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129998.jpgsave_picture_129998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129998.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Voodoma - Hellbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129999.jpgsave_picture_129999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129999.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:4759DA006F26534925DA65F80644483DBB543556
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130001.jpgsave_picture_130001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130001.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:B488E40685B9B46E65677BDDB6F1CD54772A5D26
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130002.jpgsave_picture_130002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130002.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Guitar Chillout Lounge 2 (2015) [AAC|~348 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130003.jpgsave_picture_130003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130003.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Ableton - Live 12 12.0b.21 (x64) Beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130005.jpgsave_picture_130005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130005.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:CF5B17C25D751DE6A4DE00357A1D4DBADA4448DC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130006.jpgsave_picture_130006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130006.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Clipboard Action 1.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130007.jpgsave_picture_130007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130007.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:E5AF7E79FF5136032C3418A1D66FB34D4AF969FA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130008.jpgsave_picture_130008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130008.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Guitar Chillout Lounge 3 (2013) [AAC|~316 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130010.jpgsave_picture_130010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130010.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:B53D91A5ED2CCAB5436C7D4279828537D5207208
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130011.jpgsave_picture_130011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130011.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Donemax DMmenu 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130012.jpgsave_picture_130012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130012.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:6107217A09A68AF01632AAF028A6FF4C3C1AFA4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130013.jpgsave_picture_130013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130013.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - A 40 Track Compilation: New York (2022) [AAC|~332 Kbps] <Progressive House,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130014.jpgsave_picture_130014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130014.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - The Best of Transensations 2021 (2022) [AAC|~332 Kbps] <Progressive House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130015.jpgsave_picture_130015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130015.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - 5 Years of Nazca compilation (2022) [AAC|~335 Kbps] <Organic House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130016.jpgsave_picture_130016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130016.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Lionel Hampton - The Complete Lionel Hampton Quartets And Quintets With Oscar Pe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130017.jpgsave_picture_130017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130017.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130018.jpgsave_picture_130018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130018.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ iStatistica Pro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130024.jpgsave_picture_130024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130024.jpg" />
 </div>
 
 

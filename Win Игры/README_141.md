@@ -6,7 +6,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.2.1.12/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40756.jpgsave_picture_40756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40756.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack FitGirl [Ultimate Editio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40819.jpgsave_picture_40819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40819.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Espresso Tycoon (2023) [Ru/Multi] (Update 14) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40831.jpgsave_picture_40831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40831.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.004) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40849.jpgsave_picture_40849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40849.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windowed Borderless Gaming (2012) [En] (2.1.0.1) Portable
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40851.jpgsave_picture_40851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40851.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40877.jpgsave_picture_40877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40877.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Quilts and Cats of Calico (2024) [Ru/Multi] (1.0.96.0927.1622) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40879.jpgsave_picture_40879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40879.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Thyria (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40902.jpgsave_picture_40902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40902.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Decepticon [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40906.jpgsave_picture_40906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40906.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack Wanterlude [Ultimate Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40909.jpgsave_picture_40909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40909.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kill Knight / Рыцарь Бездны (2024) [Ru/Multi] (1.0.0.108) Repack Fit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40918.jpgsave_picture_40918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40918.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Zoochosis (2024) [Ru/Multi] (1.2.8) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40925.jpgsave_picture_40925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40925.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40934.jpgsave_picture_40934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40934.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ HUNTDOWN (2020) [Ru/Multi] (1.278) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40945.jpgsave_picture_40945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_40945.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41003.jpgsave_picture_41003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41003.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11458/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41012.jpgsave_picture_41012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41012.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42b/dlc) Repack FitGirl [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41015.jpgsave_picture_41015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41015.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (Build 9575745/dlc) Repack Other s [20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41021.jpgsave_picture_41021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41021.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41040.jpgsave_picture_41040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41040.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41045.jpgsave_picture_41045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41045.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Espresso Tycoon (2023) [Ru/Multi] (Update 14) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41088.jpgsave_picture_41088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41088.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.7) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41091.jpgsave_picture_41091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41091.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Exophobia (2024) [En] (1.1.0.1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41100.jpgsave_picture_41100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41100.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Elmarion: the Lost Temple (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41121.jpgsave_picture_41121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41121.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41135.jpgsave_picture_41135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41135.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Stretcher Men (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41190.jpgsave_picture_41190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41190.jpg" />
 </div>
 
 

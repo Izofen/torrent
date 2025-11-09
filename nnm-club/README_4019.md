@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125053.jpgsave_picture_125053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125053.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:80F00A0B9FDB1E86CE8B09EB88F3CD7CE56AA928
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125054.jpgsave_picture_125054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125054.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Dance 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125055.jpgsave_picture_125055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125055.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6E661E68303D0DFA2FB8A24C69F993D72DF4A338
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125056.jpgsave_picture_125056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125056.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Christmas in Paris: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125057.jpgsave_picture_125057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125057.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9DCEE77FC4EB45055455D1AB28C74C6C9621DE6B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125058.jpgsave_picture_125058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125058.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Dire Straits - San Antonio Live 1985 (2023) Leftfield Media [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125059.jpgsave_picture_125059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125059.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2BE2DEFA0B6A1DE2D55B585E9F2EA3BFC5B49D86
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125060.jpgsave_picture_125060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125060.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:533F920505DD6F91AC7ACA517CD7BB0A231E4861
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125061.jpgsave_picture_125061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125061.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:FB9B5E2BF561B6E40042D3E3CCC3696A98CB32FC
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125062.jpgsave_picture_125062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125062.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:51B4E643D4FB8F8770EF9A852D145709971786F4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125063.jpgsave_picture_125063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125063.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:00A47DBEF7E2A1E0A208CF380DB7961887C0BE31
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125064.jpgsave_picture_125064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125064.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:1E777285C6A4B86B63FB1798A9BD1E973E036DCC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125065.jpgsave_picture_125065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125065.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:D08F68067B22778A8FFEE005EF544D0038A49100
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125066.jpgsave_picture_125066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125066.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:E9065545FA7F2AEE8162D8B65EB4A7DEEF668111
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125067.jpgsave_picture_125067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125067.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:27870FEE07C28FF984ED2FD04EA0CCDD7F6FC02A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125068.jpgsave_picture_125068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125068.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:ED5E2EE445A2469FA26CCC984B2C3B1C7B70E54E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125069.jpgsave_picture_125069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125069.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:DDDBF86CB095D13BC60E1CE7B5BBD8EC172E56A5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125070.jpgsave_picture_125070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125070.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B83774820715B749AF19EBEC26D868FE0954B4F0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125071.jpgsave_picture_125071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125071.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:336AFF2309C72EBEC1B4F30C7DB5DEFC04A8FB78
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125072.jpgsave_picture_125072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125072.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:1FD442AFA601BD781D185B0EF55A8FEF159BA3C7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125074.jpgsave_picture_125074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125074.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:69637EB260AEF5CBF889D79EE0F1BE311AB221C6
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125075.jpgsave_picture_125075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125075.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:D3D1083E38DA7EB51D98263D1B67D045652EB593
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125076.jpgsave_picture_125076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125076.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Udemy, Gregory Warner | Fundamentals of Affinity Designer (2018) WEB-DL [EN, RU 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125077.jpgsave_picture_125077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125077.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ jetAudio HD Music Player Plus v12.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125078.jpgsave_picture_125078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125078.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A6B4C62DA846E639E7E13E092D1485A34F40BF64
 >>Украинские шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125079.jpgsave_picture_125079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125079.jpg" />
 </div>
 
 

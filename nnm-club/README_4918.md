@@ -6,7 +6,7 @@ Bubble Screen Translate 2.0.9 [Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153874.jpgsave_picture_153874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153874.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:BCC8978FE248167C9AC3F6AF86C17C68FB2FF993
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153875.jpgsave_picture_153875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153875.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Office Tool Plus 10.4.2.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153876.jpgsave_picture_153876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153876.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Gilead - Medieval Groove (2017) [FLAC|Lossless|image + .cue] <Medieval folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153877.jpgsave_picture_153877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153877.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Paul Haslinger - Resident Evil: The Final Chapter / Обитель зла: По�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153878.jpgsave_picture_153878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153878.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:56D9DB4A6F6CB3133C5437B1EC467CD562C5826F
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153879.jpgsave_picture_153879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153879.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:79BE998A2F14C6A7987664764EF70A44CBFAFE5C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153880.jpgsave_picture_153880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153880.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Plexim Plecs 4.5.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153881.jpgsave_picture_153881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153881.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:299B2CD52C28B2A078CDB4F11992689B0DA7E318
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153882.jpgsave_picture_153882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153882.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Red Faction: Guerrilla v1.0 (2008) [Ru] [macOS Cider]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153883.jpgsave_picture_153883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153883.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:811CFC69707F4AF2E48C4AEFB74DAC982A5A6120
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153884.jpgsave_picture_153884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153884.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:9C732625331E386BCCB87F3AAAF30DF63E6A17C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153885.jpgsave_picture_153885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153885.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:32A8330AFDAE31123BABD475749BC7304932ECB5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153886.jpgsave_picture_153886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153886.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Maxthon Cloud Browser 5.0.2.1000 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153887.jpgsave_picture_153887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153887.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Bandicam 7.0.1.2132 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153888.jpgsave_picture_153888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153888.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:0D2A0F50204D0B2B05F3CFC1490F69F07412F837
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153889.jpgsave_picture_153889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153889.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:041E41A0973EBBBB194FFF9F2BC530616430E9DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153890.jpgsave_picture_153890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153890.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:B5094D17C9AFCBDE8203C367C94092DC8B48A3D9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153891.jpgsave_picture_153891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153891.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:6E5589B3C5B932CC12B004BE452224176C4F6C00
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153892.jpgsave_picture_153892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153892.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:82FBCF934E171105278E94B1B74DE911D81BB80D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153893.jpgsave_picture_153893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153893.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The Bat! Professional 7.4.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153894.jpgsave_picture_153894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153894.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:F5F4BDAEA9129626ED143F577E48D75677B4A189
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153895.jpgsave_picture_153895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153895.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:57D7B84B1EB736682A5851D0098F2AA17140BEF2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153896.jpgsave_picture_153896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153896.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:1891330A46349DA6F1F9EE58882ABF7730D41254
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153897.jpgsave_picture_153897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153897.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ The Christmas Spirit 2: Mother Goose's Untold Tales / Дух Рождества 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153898.jpgsave_picture_153898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153898.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ MiniTube 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153899.jpgsave_picture_153899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153899.jpg" />
 </div>
 
 

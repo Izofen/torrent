@@ -6,7 +6,7 @@ Amberian Dawn - 10 Releases (2008-2022) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174378.jpgsave_picture_174378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174378.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Miyagi & Andy Panda - YAMAKASI (2020) [FLAC 2.0|44; 48/24|tracks|WEB-DL] <Rap, H
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174380.jpgsave_picture_174380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174380.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:92F0FC2152FE5DF059524B995725197FC9815C66
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174381.jpgsave_picture_174381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174381.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2FE5A245C5D6BF1B77C7F40FEF1A837CA09D877D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174383.jpgsave_picture_174383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174383.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2FE5A245C5D6BF1B77C7F40FEF1A837CA09D877D
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174384.jpgsave_picture_174384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174384.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ EF Commander 2022.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174385.jpgsave_picture_174385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174385.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Audacity 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174386.jpgsave_picture_174386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174386.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:09CB6F1CE5358852D7831969E5087592F28C19D6
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174387.jpgsave_picture_174387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174387.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:2183307561048010FC1C9E08C92A703C8D8FB2E6
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174388.jpgsave_picture_174388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174388.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ HWiNFO 7.34 Build 4930 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174389.jpgsave_picture_174389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174389.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:7CA08A72332E2AA598EB91B4D1AF48333C017F2F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174390.jpgsave_picture_174390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174390.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:A686CAE35C0689240ADA88E7CFD1AA889454EB30
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174391.jpgsave_picture_174391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174391.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:B1BAF95C95BACBF884B1D3A9FE69FF523292A108
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174392.jpgsave_picture_174392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174392.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Telegram Desktop 4.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174394.jpgsave_picture_174394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174394.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ao no Orchestra | Blue Orchestra | Синий оркестр [2023, TV, 24] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174395.jpgsave_picture_174395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174395.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:B0D47CD486188DC7A86D4129DC7618E2BFD5669C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174396.jpgsave_picture_174396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174396.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Aeon Zen - A Mind's Portrait (2009) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174398.jpgsave_picture_174398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174398.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Auslogics Driver Updater 1.26.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174399.jpgsave_picture_174399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174399.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:61CB5FED1695E1EE9FC85424F8AFFCCFD5F961BF
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174400.jpgsave_picture_174400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174400.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ MemTest86 10.6 Build 3000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174402.jpgsave_picture_174402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174402.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C99D0210B175DBEB3422EF5976E4503A6A4A3367
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174403.jpgsave_picture_174403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174403.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Group 1850 - 3 Albums, 1 Box-set, 11CD (1969-2019) [FLAC|Lossless|image + .cue |
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174404.jpgsave_picture_174404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174404.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:0CC043E7D3C2328051502EBE68FC5D36119EA059
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174406.jpgsave_picture_174406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174406.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:2966AF7E9F3909DACC10BCB22BD88B7D830BB506
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174407.jpgsave_picture_174407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174407.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:E534E75671B1401683E58DA13C3B1D8CACB4D00E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174408.jpgsave_picture_174408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174408.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:C1D1813A719E5288E8DDF844FA7AA718667D284E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174410.jpgsave_picture_174410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174410.jpg" />
 </div>
 
 

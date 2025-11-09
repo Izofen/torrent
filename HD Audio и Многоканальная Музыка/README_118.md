@@ -6,7 +6,7 @@ King Gizzard & The Lizard Wizard - Flight b741 (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105618.jpgsave_picture_105618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105618.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jay Lang - Blues, Vol. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105619.jpgsave_picture_105619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105619.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cher - Closer to the Truth (2013) Super Deluxe Edition, Reissue, 2024 [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105633.jpgsave_picture_105633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105633.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cher - Living Proof (2001) Deluxe Edition, Reissue, 2024 [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105661.jpgsave_picture_105661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105661.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105666.jpgsave_picture_105666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105666.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tony Grey - Infinity Glitch (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105673.jpgsave_picture_105673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105673.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Sofia Goodman Group - Receptive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105675.jpgsave_picture_105675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105675.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Michael Wolff - Memoir (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105676.jpgsave_picture_105676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105676.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tibor Burai - War horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105678.jpgsave_picture_105678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105678.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Helloween - Keeper of the Seven Keys, Pt. 2 (1988) Remaster 2024 [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105681.jpgsave_picture_105681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105681.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Helloween - Keeper of the Seven Keys, Pt. 1 (1987) Remaster 2024 [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105683.jpgsave_picture_105683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105683.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Suspenders - Funkypedia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105686.jpgsave_picture_105686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105686.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Helloween - Walls of Jericho (1985) Remaster 2024 [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105691.jpgsave_picture_105691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105691.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Chickens - Drink My Wine: The Smooth Soul Sessions (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105699.jpgsave_picture_105699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105699.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Karla Leal - Can't Deny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105724.jpgsave_picture_105724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105724.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Flat Black - Dark Side Of The Brain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105728.jpgsave_picture_105728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105728.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Slowly Rolling Camera - Silver Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105729.jpgsave_picture_105729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105729.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nils Landgren Funk Unit - Raw (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105730.jpgsave_picture_105730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105730.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Soren (Søren) Lee, Jakob Dinesen, Victor Jones - Hope (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105731.jpgsave_picture_105731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105731.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mai-Liis - Kaleidoscope (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105732.jpgsave_picture_105732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105732.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Joseph Marcus - Beyond The Dome: The Remixes (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105733.jpgsave_picture_105733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105733.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Roberto Giaquinto - Ground Floor (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Con
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105734.jpgsave_picture_105734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105734.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Papa Roach - Leave a Light On (Talk Away The Dark) (2024) EP [FLAC 16/44.1, 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105739.jpgsave_picture_105739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105739.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Jive Aces - Keeping the Show on the Road (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105748.jpgsave_picture_105748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105748.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Home Team - The Crucible Of Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105749.jpgsave_picture_105749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105749.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Marilyn Manson - As Sick As The Secrets Within (2024) Single [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105787.jpgsave_picture_105787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105787.jpg" />
 </div>
 
 

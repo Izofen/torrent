@@ -6,7 +6,7 @@ Atlantic - Another World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107475.jpgsave_picture_107475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107475.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Riviera Paradise - Ready for More (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107476.jpgsave_picture_107476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107476.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Katarina Kochetova - Beyond Motion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107479.jpgsave_picture_107479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107479.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ WDR Big Band & John Goldsby - WDR Big Band — Small Group Sessions — Incentiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107481.jpgsave_picture_107481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107481.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Babbba - Cabaret Conversation (Vol.4) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107485.jpgsave_picture_107485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107485.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Steven Nichols - From Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107489.jpgsave_picture_107489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107489.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Babbba - Cabaret Conversation (Vol.3) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107491.jpgsave_picture_107491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107491.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ M.O.D. (Method of Destruction) - Studio Albums (9 releases) (1987-2017) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107492.jpgsave_picture_107492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107492.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Carpe - Choose to Stylish (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107499.jpgsave_picture_107499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107499.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bruno Hubert Trio - Fire Waltz (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107502.jpgsave_picture_107502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107502.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ INK - African Roots (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107504.jpgsave_picture_107504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107504.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kittie - Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107505.jpgsave_picture_107505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107505.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wasaya Feat. Aram Kalousdian - Curtain Falls (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107507.jpgsave_picture_107507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107507.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Mysterines - Afraid of Tomorrows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107508.jpgsave_picture_107508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107508.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Darcy Stamp - It Doesn't Have To, But It Might (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107509.jpgsave_picture_107509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107509.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Trut - T.S.Q: Method & Madness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107510.jpgsave_picture_107510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107510.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sound Momentum - Blue Groove (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107513.jpgsave_picture_107513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107513.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Max Esquivel - Formas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107515.jpgsave_picture_107515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107515.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Sheppard - Zora (Zopa) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Australian 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107516.jpgsave_picture_107516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107516.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Rondelle55 - Qualitative Dissertation Methodology (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107518.jpgsave_picture_107518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107518.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kinkfolk - Kinkfolk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107520.jpgsave_picture_107520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107520.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Snowy White - Unfinished Business (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107522.jpgsave_picture_107522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107522.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Seven Spires - A Fortress Called Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107525.jpgsave_picture_107525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107525.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cavalera Conspiracy - Schizophrenia (1987) Re-Recorded, 2024, Nuclear Blast[FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107526.jpgsave_picture_107526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107526.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ S.O.D. - Stormtroopers of Death (Anthrax) - Studio Albums (2 releases) (1985-199
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107528.jpgsave_picture_107528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107528.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Kat Hawley - X•IX•VIII (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107530.jpgsave_picture_107530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107530.jpg" />
 </div>
 
 

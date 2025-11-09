@@ -6,7 +6,7 @@ Colorize Images v4.0.27 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245815.jpgsave_picture_245815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245815.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scalp - Black Tar (2023) [MP3|320 Kbps] <Death Metal, Grindcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245816.jpgsave_picture_245816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245816.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245817.jpgsave_picture_245817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245817.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Topaz Video AI 3.1.10 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245818.jpgsave_picture_245818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245818.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:1EB7A4D215E82D4894E844A1FB750E73C892F0EF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245819.jpgsave_picture_245819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245819.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D1E801EFD1086B20A664346D2F9F9EC432276929
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245820.jpgsave_picture_245820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245820.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ OmniOutliner Pro 5 v5.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245821.jpgsave_picture_245821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245821.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ PrivaZer Pro 4.0.69 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245822.jpgsave_picture_245822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245822.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ FXPHD, Jeronimo Maggi | HOU221 – USD and LOPs for Houdini Artists (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245823.jpgsave_picture_245823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245823.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Mac Backup Guru 6.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245824.jpgsave_picture_245824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245824.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:A12A507428246C6B41A7E230096DD9F84D9630F1
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245825.jpgsave_picture_245825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245825.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Italo Dance Classics Volume 4 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245826.jpgsave_picture_245826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245826.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:02BC84AC414282C5E93C233F94DA0356AC5D60F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245827.jpgsave_picture_245827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245827.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dash 6.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245828.jpgsave_picture_245828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245828.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:8BB4B166A1D88A7B57D1CD25C0E81E7B0A7EC091
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245829.jpgsave_picture_245829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245829.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:C428BECA1B8CF523FDA164E71B09E1D2456A2A50
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245830.jpgsave_picture_245830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245830.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Now Yearbook Extra '79 (67 More Essential Hits From 1979) (2022) 3 CD [OGG 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245831.jpgsave_picture_245831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245831.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:6C873EB9CBB79A04C1F27769E882215ABEF94085
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245832.jpgsave_picture_245832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245832.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:3A6FB37FE0F95F8C1A873D540FD913416C6FCF91
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245833.jpgsave_picture_245833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245833.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:FE1642F6369823207CABCCC568DE7F9CB1C7A850
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245834.jpgsave_picture_245834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245834.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:CF087F779E36B43E42A366F776B4B24BC1EEE15B
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245835.jpgsave_picture_245835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245835.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Steve Lacy - The Window (1988) Soul Note[FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245836.jpgsave_picture_245836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245836.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Fontography - Text on Picture‪s‬ 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245837.jpgsave_picture_245837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245837.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Mylene Farmer - Libertine (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245838.jpgsave_picture_245838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245838.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Exposure X7 Bundle v7.1.0.78 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245839.jpgsave_picture_245839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245839.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:2915AC42F8240FE3E0C69723973040B0E570F210
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245840.jpgsave_picture_245840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245840.jpg" />
 </div>
 
 

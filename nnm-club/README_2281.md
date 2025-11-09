@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59673.jpgsave_picture_59673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59673.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E864658406E315F249793CB2A5448D946F56C2A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59674.jpgsave_picture_59674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59674.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:90DEC36D80A446924865D41BB1EB7C3AFC4155E3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59675.jpgsave_picture_59675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59675.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:84903F676494818734E81585FA7BEE87261E3140
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59676.jpgsave_picture_59676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59676.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D1947D9BC56ACED60C4DC99D37F25128F21E4720
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59677.jpgsave_picture_59677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59677.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7CC6F866595149DE96DAD57F566AD1481F6837E3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59678.jpgsave_picture_59678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59678.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CE867271E0E08BB0C838FDC72F5731018DCB3CE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59679.jpgsave_picture_59679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59679.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows 95 Beta Collection 4.00.56-4.00.501 [Английский]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59680.jpgsave_picture_59680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59680.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:94EB1B263C1FAB4DA04E0EE20CD70736D44554E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59681.jpgsave_picture_59681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59681.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:CD3D5448A8D22CD6806EC316C4742034EE450D03
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59682.jpgsave_picture_59682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59682.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:5EF1461522B909F825CE478DD7ECCFDCFDDD52D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59683.jpgsave_picture_59683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59683.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:E06DF2B5A3B32CC6EB641257F9F52220C6782FEF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59684.jpgsave_picture_59684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59684.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AC/DC / No Bull (1996/2008) BDRip [H.264/1080p] [Director's Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59685.jpgsave_picture_59685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59685.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Windows 11 PRO 23H2 22631.3447 Update 8 by Ghost Spectre x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59686.jpgsave_picture_59686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59686.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:72E76EE4AF22141E7F1E1AD6D60E529B113801A3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59687.jpgsave_picture_59687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59687.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sniper: Ghost Warrior 3 (2017) [Ru/En] (3.8.6/dlc) Repack Decepticon [Gold Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59688.jpgsave_picture_59688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59688.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:2673CFB8E22E53C3A36609A411C5D926F5E69CA4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59689.jpgsave_picture_59689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59689.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:1AD98036D421E217354EDD22E35C52B02CE26993
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59690.jpgsave_picture_59690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59690.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:2142D1E84DB099BCB06C98665C70C1352690217D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59691.jpgsave_picture_59691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59691.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F620536E3DE57365966B013A82F63EDC9D71D6C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59692.jpgsave_picture_59692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59692.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:6F5B9FEF6494CD7E0F7E0DE8EC2F1529431C9E43
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59693.jpgsave_picture_59693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59693.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:854206390D18A1E3E75D8BC5A78EAF9F041701A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59694.jpgsave_picture_59694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59694.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Foobar2000 2.1.4 Final include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59695.jpgsave_picture_59695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59695.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:2D5BB829228B2DC519046EF37EE4A7FABCAE36FB
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59696.jpgsave_picture_59696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59696.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:2B004DB8DE91D62F40D285FD3384E20D25AB17E8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59697.jpgsave_picture_59697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59697.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ A La Carte - 6 Albums (1982-2016) Remastered, 2024, Coconut Music [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59698.jpgsave_picture_59698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59698.jpg" />
 </div>
 
 

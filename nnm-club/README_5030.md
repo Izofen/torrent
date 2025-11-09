@@ -6,7 +6,7 @@ Age of Empires II HD (2013) [Ru/Multi] (5.0.1/dlc) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157244.jpgsave_picture_157244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157244.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:239FA7914221E2514606FC6C7A86C9CEE90D7EBC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157245.jpgsave_picture_157245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157245.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7A0B79AA4370D11AFBE6317B16C22AFA0AB88D7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157247.jpgsave_picture_157247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157247.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AF1489913638CCD56C0BD0A614D46F5EE24DFB49
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157248.jpgsave_picture_157248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157248.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C3A34261C0F3F8F58289EC97EB25526A4A29AB70
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157249.jpgsave_picture_157249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157249.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:11F05CAD2ED51530ACB2A7E9169B0C56EFF1781F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157250.jpgsave_picture_157250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157250.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Electric Mob - Discharge (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157251.jpgsave_picture_157251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157251.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7202403549B44BCEB0F1417AC0E20A2CD679E9B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157252.jpgsave_picture_157252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157252.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:60BE7A4F757CE28332E51CCB9483152DCEB3BD40
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157253.jpgsave_picture_157253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157253.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.60.5900 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157255.jpgsave_picture_157255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157255.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:6B0EF1B92CFE4F32E6A7B2E0B9A2AEEA0C34A06F
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157256.jpgsave_picture_157256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157256.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:53ED9D7F9156D837ECF8D7A0B3258E940F4FA0BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157257.jpgsave_picture_157257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157257.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E4A88F3D3B64A0627C83FE61DEF1E8106CFB09FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157258.jpgsave_picture_157258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157258.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Wondershare UniConverter 14.1.7.118 (x64) Repack by OctaneS [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157259.jpgsave_picture_157259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157259.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Group | Stand Up Сезон 3 (2015) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157262.jpgsave_picture_157262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157262.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:58995FD15DC5ABBCE3A75B9AADF0D2C3FD3B482C
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157263.jpgsave_picture_157263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157263.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:F745026B76ABE4FF1984A3D0D8A39B26E7133BB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157264.jpgsave_picture_157264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157264.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:BAE0E3DEDC6797F598A849066EFA2B4227F615D9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157265.jpgsave_picture_157265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157265.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:FA58F64F02F3D22ED47E3E30A7F499799BD7AB34
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157266.jpgsave_picture_157266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157266.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:597DD831F9A1AD3AB9EB5FD2BC6DCBFC0CC0F86A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157268.jpgsave_picture_157268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157268.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Guitar Collection 15 (The End) (2017) [MP3|320 Kbps] <Instrumental>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157269.jpgsave_picture_157269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157269.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:E31DC4BB903002ADC371F4B6B070CEB2F2DD6EFC
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157270.jpgsave_picture_157270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157270.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0CCF41C8ED9990CF18F8AF3919CD2FCEA5047DF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157271.jpgsave_picture_157271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157271.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:558F727156D2A20D5CC8691089BFF6E116F7C6D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157272.jpgsave_picture_157272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157272.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:6A931A9C3F2BFE203A5902488C648E8A722E363B
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157274.jpgsave_picture_157274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157274.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:704A8C1EADB0525DC623495273B8C0631F71551D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157275.jpgsave_picture_157275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157275.jpg" />
 </div>
 
 

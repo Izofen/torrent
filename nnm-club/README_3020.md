@@ -6,7 +6,7 @@ Saltillo - Monocyte (2012) [MP3|320 kbps]<Trip-Hop, Downtempo, Experimental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93107.jpgsave_picture_93107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93107.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:1F26F6BD0D20CF86871D7EA012E8E959FDACA0C2
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93138.jpgsave_picture_93138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93138.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ WinMend System Doctor 1.6.0.0 [Eng + Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93145.jpgsave_picture_93145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93145.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Le Salon de Sophie (Selected by RoseMary) (2011) [MP3|192-320 kbps]<Vocal J
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93207.jpgsave_picture_93207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93207.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ DVDFab Passkey 8.0.5.2 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93208.jpgsave_picture_93208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93208.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Opera IX - Maledictae In Aeternum (2012) [FLAC|Lossless]<Black Metal,Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93228.jpgsave_picture_93228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93228.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ PH Electro - Stereo Mexico (2011) [MP3|320 kbps]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93239.jpgsave_picture_93239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93239.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:AF5D02629A3B05058AC00398E6FC9941879543CA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93272.jpgsave_picture_93272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93272.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C461E129AB7B9F46BFC0303DEBD0115F5C0CB0DA
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93291.jpgsave_picture_93291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93291.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kingtone - Law of the Jungle (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93299.jpgsave_picture_93299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93299.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Ascoil Sun - Emergence (2012) [MP3|192-320 kbps]<Psychedelic / Psybient, Dub, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93304.jpgsave_picture_93304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93304.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Colors of Sounds (2012) [MP3|320 kbps]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93317.jpgsave_picture_93317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93317.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Jimmy Witherspoon - The Very Best Of (2004) [FLAC|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93319.jpgsave_picture_93319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93319.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Cyklones - Paris By Night (2011) [MP3|320 kbps]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93320.jpgsave_picture_93320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93320.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ MC L.E. - Illegal (2006) [FLAC|Lossless]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93342.jpgsave_picture_93342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93342.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - 538 Dance Smash 2012 Vol.1 (2012) [MP3|320 kbps]<Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93361.jpgsave_picture_93361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93361.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Ndidi Onukwulu - Move Together (2009) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93363.jpgsave_picture_93363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93363.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Broken Mirrors - The Universal Disease (2012) [MP3|260-320 kbps]<Melodic Death M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93385.jpgsave_picture_93385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93385.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F41790036C370571AE865C80AFD0AE66629460D7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93407.jpgsave_picture_93407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93407.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93408.jpgsave_picture_93408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93408.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93421.jpgsave_picture_93421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93421.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:580CAF1FF873EDF1164CBA5221F637C0330BE30D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93422.jpgsave_picture_93422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93422.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Doctor Butcher -  (1994-2005/2006) [MP3|320 kbps]<Progressive Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93425.jpgsave_picture_93425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93425.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ magnet:?xt=urn:btih:B5F87EA0ECC839949768CCFD710DDEB2E3DFAEB0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93427.jpgsave_picture_93427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93427.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ The Groundhogs - Muddy Waters Songbook (1999) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93428.jpgsave_picture_93428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93428.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Ulf Wakenius - Vagabond (2011) [FLAC|Lossless]<Contemporary Jazz, Post-Bop, Ethn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93434.jpgsave_picture_93434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93434.jpg" />
 </div>
 
 

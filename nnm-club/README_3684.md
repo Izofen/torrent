@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116159.jpgsave_picture_116159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116159.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:971DAF4117A22767DA2D4FB4DBF9B65D1F39723D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116160.jpgsave_picture_116160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116160.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dust Bolt - Sound & Fury (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116161.jpgsave_picture_116161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116161.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:655514BA0DEAE3A421792408E2FAC23BDE84DB74
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116162.jpgsave_picture_116162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116162.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Stefan Karlsson - Below Zero (1993) Justice Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116163.jpgsave_picture_116163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116163.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Joe Pass - Resonance (1974) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116164.jpgsave_picture_116164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116164.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Hipshack - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116165.jpgsave_picture_116165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116165.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Blue Mitchell - Blue's Moods (1958 - 1960) 2011, Essential Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116166.jpgsave_picture_116166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116166.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Drew Davidsen - Power Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116167.jpgsave_picture_116167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116167.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116168.jpgsave_picture_116168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116168.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ataraxy - The Last Mirror (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116169.jpgsave_picture_116169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116169.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Donald Byrd Sextet - Getting Down To Business (1990) Landmark Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116170.jpgsave_picture_116170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116170.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116171.jpgsave_picture_116171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116171.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Donald James Duncan - The Great Mystery (2024) [FLAC|Lossless|WEB-DL|tracks] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116172.jpgsave_picture_116172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116172.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Marian McPartland - Plays The Music of Mary Lou Williams (1994) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116173.jpgsave_picture_116173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116173.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Keep It 2.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116174.jpgsave_picture_116174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116174.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ The Marian McPartland Trio - Personal Choice (1983) 1992, Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116175.jpgsave_picture_116175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116175.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:72CC1E8C7B99FAC125FFB11292C6A37FFAB0A30F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116176.jpgsave_picture_116176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116176.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Secret Rule - 10 Releases (2015-2023) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116177.jpgsave_picture_116177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116177.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:01BFB2589A0C1FE360727FB28DC835AC08F7A21D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116178.jpgsave_picture_116178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116178.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Acorn 7 v.7.4.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116179.jpgsave_picture_116179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116179.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:F0CEAEB7D81D17FA0C50BE39595D9AAF85CD901C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116180.jpgsave_picture_116180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116180.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116181.jpgsave_picture_116181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116181.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ My Darkest Time - My Darkest Time (2024) [MP3|320 Kbps] <Gothic, Doom, Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116182.jpgsave_picture_116182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116182.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Chromeo - Adult Contemporary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116183.jpgsave_picture_116183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116183.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ FxFactory Pro 8.0.13 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116184.jpgsave_picture_116184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116184.jpg" />
 </div>
 
 

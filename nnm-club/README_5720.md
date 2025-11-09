@@ -6,7 +6,7 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176368.jpgsave_picture_176368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176368.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LEX LIVE 10 2022 v.22.10.25 RC FIX 16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176369.jpgsave_picture_176369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176369.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E3568C384E3B87B2D4110D352C01C298AF689ED0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176370.jpgsave_picture_176370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176370.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176371.jpgsave_picture_176371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176371.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BD5FFF0E2B328B6C6F834A1F148FE0513C003C2C
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176372.jpgsave_picture_176372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176372.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Matthew Justice | How Computers Really Work / Как на самом деле р
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176374.jpgsave_picture_176374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176374.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:420CE85424351989996DD51DB90B8D5264599715
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176375.jpgsave_picture_176375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176375.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4B7F0CFAB847249022713D184D0303B6524EC007
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176376.jpgsave_picture_176376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176376.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:149AA2B76B821B5A0CFA1D8FBAE38146B1AA81E1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176378.jpgsave_picture_176378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176378.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Slurm (Слёрм), Пётр Щербаков | Микросервисы: про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176379.jpgsave_picture_176379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176379.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ R-Studio Network Edition 8.15 Build 180015 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176380.jpgsave_picture_176380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176380.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:B743629E727C70867FB905D46D99F0120A6DE846
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176382.jpgsave_picture_176382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176382.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Caramba Switcher Corporate 2023.07.13 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176383.jpgsave_picture_176383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176383.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Arrimus | Arrimus Ultimate 3D Modeling Course (2022) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176384.jpgsave_picture_176384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176384.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ MiniTool Partition Wizard Technician 12.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176386.jpgsave_picture_176386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176386.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:3F505245E30AB27A41694A927228B0420334B5C1
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176387.jpgsave_picture_176387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176387.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:8F5D3A02378B0B69B6512545A74E54D451EBBA5C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176388.jpgsave_picture_176388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176388.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:F1BC7456A824BF850DC341843EAA6C3E8BA98C8D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176390.jpgsave_picture_176390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176390.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:413CEF08132F04F71C3E16434BDA9E71F40C0B17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176391.jpgsave_picture_176391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176391.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176392.jpgsave_picture_176392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176392.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:0AC682EA939740C002EDB6FF2E123F786FEBFAFD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176394.jpgsave_picture_176394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176394.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6B585B0695DFF1494EF47521602BCC56FB0B0CE0
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176395.jpgsave_picture_176395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176395.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:6B585B0695DFF1494EF47521602BCC56FB0B0CE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176396.jpgsave_picture_176396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176396.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Udemy, Creativity Unleashed | Blender Environments Megacourse: Create 3D Environ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176398.jpgsave_picture_176398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176398.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wondershare Filmora 10.0.6.8 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176399.jpgsave_picture_176399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176399.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:C3CCF9EC477AC7C306B793D269CF10A1F6A05095
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176400.jpgsave_picture_176400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176400.jpg" />
 </div>
 
 

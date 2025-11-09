@@ -6,7 +6,7 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167222.jpgsave_picture_167222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167222.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Unsolved Case: Fatal Clue / Нераскрытое дело: Роковая ул
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167229.jpgsave_picture_167229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167229.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Train Sim World 6 (2025) [Ru/Multi] (Build 487/dlc) Repack FitGirl [Special Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167366.jpgsave_picture_167366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167366.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Spirit Legends 3: Time for Change (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167367.jpgsave_picture_167367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167367.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Fermi Paradox (2021) [En] (0.70.v.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167487.jpgsave_picture_167487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167487.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167497.jpgsave_picture_167497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167497.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Citizens: On Mars (2023) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167519.jpgsave_picture_167519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167519.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Vengeance of Mr. Peppermint (2023) [En] (226) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167584.jpgsave_picture_167584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167584.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Christmas Spirit 5: Golden Ticket (2021) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167651.jpgsave_picture_167651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167651.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Phoenix Point (2019) [Ru/Multi] (1.0.54518) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167677.jpgsave_picture_167677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167677.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8109/dlc) Repack R.G. М�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167731.jpgsave_picture_167731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167731.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167804.jpgsave_picture_167804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167804.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Titan Station (2022) [Ru/Multi] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167833.jpgsave_picture_167833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167833.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168061.jpgsave_picture_168061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168061.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cursed Fables 2: Twisted Tower (2022) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168147.jpgsave_picture_168147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168147.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Conqueror's Blade (2019) [Ru] (2.12.19) License (обновляемая)
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168527.jpgsave_picture_168527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168527.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mini Metro (2014) [Ru/Multi] (202211171226) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168531.jpgsave_picture_168531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168531.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Urbek City Builder (2022) [Ru/Multi] (1.0.22.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168570.jpgsave_picture_168570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168570.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Unliving - Founder's Pack (2023) [Ru/Multi] (1.0.2892023_1631) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168607.jpgsave_picture_168607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168607.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ DCOP (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168628.jpgsave_picture_168628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168628.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Chimeras 12: Inhuman Nature (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168637.jpgsave_picture_168637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168637.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168647.jpgsave_picture_168647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168647.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168649.jpgsave_picture_168649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168649.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bridge To Another World 10: Cursed Clouds / Мост в другой мир 10: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168762.jpgsave_picture_168762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168762.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.f
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168838.jpgsave_picture_168838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168838.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ This Is the President (2021) [Ru/En] (1.0c) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168855.jpgsave_picture_168855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168855.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Layla Zoe - Back to the Spirit of 66 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123387.jpgsave_picture_123387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123387.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1F0C267B4FA610312F788D15FD085838F3CCABBA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123389.jpgsave_picture_123389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123389.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:A79AC1AEC5C35D44FD04EC25B8DD97FCA761929B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123390.jpgsave_picture_123390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123390.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Best of Phoenix Recordings 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123391.jpgsave_picture_123391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123391.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - 10 Years Of Suanda Music - Mixed by Aimoon (2024) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123392.jpgsave_picture_123392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123392.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:FD00040675A2F87EBCDE71A290D69ACF616E8EFF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123393.jpgsave_picture_123393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123393.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Bonfire - Fistful of Fire (2020) [FLAC|Lossless|image + .cue] <Melodic Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123394.jpgsave_picture_123394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123394.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Grandmaster - Black Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123395.jpgsave_picture_123395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123395.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C780D879FAA231BF2F2D8EC57C7A8C7442EC4787
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123396.jpgsave_picture_123396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123396.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:833CB006C64F915BD8F1636382E83DCB81333D9F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123397.jpgsave_picture_123397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123397.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ First Draw - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123398.jpgsave_picture_123398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123398.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Primordial Serpent - Ancient Myths and Legends (2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123399.jpgsave_picture_123399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123399.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Louis Bellson & Walfredo De Los Reyes - Ecue Ritmos Cubanos (1977) 1991, Origina
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123400.jpgsave_picture_123400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123400.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sad Whisperings - Return to Autumn (2023) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123401.jpgsave_picture_123401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123401.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Sad Whisperings - Sensitive to Autumn (1993) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123402.jpgsave_picture_123402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123402.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Regime - Demo 1991 + 3 (2013) Compilation [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123403.jpgsave_picture_123403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123403.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:848FC88A18E643D89FF7A8D1457D9CC4ADC28960
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123404.jpgsave_picture_123404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123404.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FB45B89F30102287F824835EE24DC4B9EC048636
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123405.jpgsave_picture_123405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123405.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Sandboxie plus 1.12.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123406.jpgsave_picture_123406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123406.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ PDFCreator 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123407.jpgsave_picture_123407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123407.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.33 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123408.jpgsave_picture_123408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123408.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Exit Eden - Femmes Fatales (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123409.jpgsave_picture_123409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123409.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:C7B234991445430FF4C6818BF8AF1F8EFAE60B1B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123410.jpgsave_picture_123410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123410.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ QOwnNotes 24.1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123411.jpgsave_picture_123411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123411.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Sensual Frequencies: Sexiest Saxx Lounge Jazz (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123412.jpgsave_picture_123412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123412.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:22E47EE10CBBE4AAA3730F30F9FA6FF3F2B4322C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123413.jpgsave_picture_123413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123413.jpg" />
 </div>
 
 

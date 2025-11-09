@@ -6,7 +6,7 @@ Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172592.jpgsave_picture_172592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172592.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Italove - Chasing Ghosts I-II Albums(2023) [MP3|320 Kbps] <Italo-Disco, Euro-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172593.jpgsave_picture_172593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172593.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:186C39BDCD020524CC8D49B8C3536B7327CE6A52
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172594.jpgsave_picture_172594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172594.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Video Grabber 1.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172595.jpgsave_picture_172595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172595.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ KMPlayer 4.2.3.5 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172596.jpgsave_picture_172596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172596.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:C5446B93813062FF6F2314FAAA7A16FD4F392E5B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172597.jpgsave_picture_172597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172597.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Adobe Media Encoder 2024 v.24.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172598.jpgsave_picture_172598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172598.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:58B15C4E99F448518E461DF1F8E20B153AC78544
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172599.jpgsave_picture_172599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172599.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:BF1B37F3A8E05C67EFCBE329AA2783DFD2C716BD
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172600.jpgsave_picture_172600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172600.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:D372BCC9DA1A9E85AD779F18553F24C640198843
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172601.jpgsave_picture_172601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172601.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172602.jpgsave_picture_172602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172602.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:7D67D9705AEE695FE8DEBAE596892AD2401AAE73
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172603.jpgsave_picture_172603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172603.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Opera One 103.0.4928.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172604.jpgsave_picture_172604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172604.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Adobe DNG Converter 16.0.0.1677 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172605.jpgsave_picture_172605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172605.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Internet Download Manager 6.41 Build 21 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172606.jpgsave_picture_172606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172606.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ IObit Smart Defrag Pro 9.1.0.319 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172607.jpgsave_picture_172607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172607.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - 100 Greatest Workout Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172608.jpgsave_picture_172608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172608.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AnyTrans for iOS 8.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172609.jpgsave_picture_172609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172609.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Josh Goldberg | Learning TypeScript (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172610.jpgsave_picture_172610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172610.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:29D23088D8AE588DA4EF1B52533894573522DA49
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172611.jpgsave_picture_172611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172611.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:A77B1DB0BB6986A46EA6C5CE2E0BF836610DC5DE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172612.jpgsave_picture_172612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172612.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:90827BA4606DD65E53988890BAAE49411CFCFD67
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172613.jpgsave_picture_172613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172613.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - 60 minutes. Old School Dance Music vol.20 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172614.jpgsave_picture_172614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172614.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Internet Download Manager 6.41 Build 21 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172615.jpgsave_picture_172615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172615.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ IceCream Ebook Reader Pro 6.39 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172616.jpgsave_picture_172616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172616.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ IceCream Ebook Reader Pro 6.39 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172617.jpgsave_picture_172617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172617.jpg" />
 </div>
 
 

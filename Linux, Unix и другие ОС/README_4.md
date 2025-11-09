@@ -6,7 +6,7 @@ Linux Mint Debian Edition 7 Gigi (LMDE 7) [64-bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128866.jpgsave_picture_128866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128866.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ctlos Linux Xfce 2.2.1 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129040.jpgsave_picture_129040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129040.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ DaVinci Resolve Studio for Linux 17.4.2 Build 9 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129770.jpgsave_picture_129770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129770.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ IDA Pro 7.7 + IDA Pro 8.3 [x86_64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133579.jpgsave_picture_133579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133579.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [En] [x64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136798.jpgsave_picture_136798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136798.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Network Security Toolkit (NST) 30-11210 [x86_64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137430.jpgsave_picture_137430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137430.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:65293F81A700857712493BB845F75DCB02EF3132
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137494.jpgsave_picture_137494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137494.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Sabayon 15.01 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138644.jpgsave_picture_138644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138644.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Calculate Linux 17 [x86-64] 2xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140033.jpgsave_picture_140033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140033.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140146.jpgsave_picture_140146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140146.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140316.jpgsave_picture_140316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140316.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Calculate Linux 17 [i686] 2xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140357.jpgsave_picture_140357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140357.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ BlackArch Linux 2020.01.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140811.jpgsave_picture_140811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140811.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:C1EB86A6F6C51C28B5AD9561C3C277F952B179A9
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141066.jpgsave_picture_141066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141066.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:21AE6B77668AC98895A1192B91F7DD1D6F2D26A9
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141312.jpgsave_picture_141312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141312.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.2 [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142051.jpgsave_picture_142051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142051.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145189.jpgsave_picture_145189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145189.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146478.jpgsave_picture_146478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146478.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AV Linux 6.0.4 (Мультимедийная рабочая станция на 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148299.jpgsave_picture_148299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148299.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ KX Studio 14.04.2 (Мультимедийная рабочая станция) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148677.jpgsave_picture_148677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148677.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:B3D4AC820812E1A26153AD830CFE9148EF65B92D
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148972.jpgsave_picture_148972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148972.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ CentOS 7.6 (1810) [x86-64] 5xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149194.jpgsave_picture_149194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149194.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151072.jpgsave_picture_151072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151072.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ elementary OS 6.1 Jolnir [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151959.jpgsave_picture_151959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151959.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153629.jpgsave_picture_153629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153629.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Wowza Streaming Engine (linux) 4.7.8 [x64] (run)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154734.jpgsave_picture_154734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154734.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Queen - Rock N Roll (2025) Remastered, 2011, UME - Global Clearing House [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4656.jpgsave_picture_4656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4656.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ King Diamond - Remember The Block (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4657.jpgsave_picture_4657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4657.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Insania (a.k.a. Insania Stockholm) - Studio Albums (6 releases) (1999-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4658.jpgsave_picture_4658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4658.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:2AF6314E9FBF56CA51565DADA0AD66551004F5FA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4659.jpgsave_picture_4659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4659.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:7832E6FF4DA770E40C6AF459DE5CB75283C23022
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4660.jpgsave_picture_4660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4660.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:3608D3347BB4F7B38D557B9A101BF6A0C9F94940
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4661.jpgsave_picture_4661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4661.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:92ADFD600B59C90FF9104D01C5CE2C4D1FC698A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4662.jpgsave_picture_4662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4662.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:70D4A7612A3259B1B9646075C60DC85C863852E7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4663.jpgsave_picture_4663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4663.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:0917A79A05445C7D304F1ADCE8F5E5E02EB8C4A1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4664.jpgsave_picture_4664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4664.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Graham Bonnet - Voice Of Rock - Compilation (1969-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4665.jpgsave_picture_4665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4665.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Linkin Park - From Zero (Expanded Deluxe Edition) (2024) U.S., 093624833468, 202
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4666.jpgsave_picture_4666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4666.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:C444DE8BE922D8D46DD3B9D3EA2CDE35E7D4F243
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4667.jpgsave_picture_4667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4667.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:0BE92806E8FD204F9ACDAC039593C28028D88759
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4668.jpgsave_picture_4668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4668.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Fast Video Cutter Joiner 6.9.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4669.jpgsave_picture_4669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4669.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:1E6606887B8ABADEB91ACD6C4987754B5CB66C46
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4670.jpgsave_picture_4670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4670.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:B50171C37324AF8CFEF8E4BEB644F0AAE208235E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4671.jpgsave_picture_4671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4671.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Fast Video Cutter Joiner 6.9.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4672.jpgsave_picture_4672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4672.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Mock Locations (fake GPS path) v1.35.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4673.jpgsave_picture_4673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4673.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:3241405251CBB91F5C44CC85B36D7DB190104DF7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4674.jpgsave_picture_4674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4674.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:A715D629018092B59C57DA60EA3198998CD371E1
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4675.jpgsave_picture_4675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4675.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:0561DDA6E8D98428766BABC8F63C5E1202783ABA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4676.jpgsave_picture_4676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4676.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:182FA5A3FE48CFCD08EA16490CAC5BB9329172A0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4677.jpgsave_picture_4677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4677.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Sardø - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4678.jpgsave_picture_4678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4678.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Telegram Desktop 6.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4679.jpgsave_picture_4679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4679.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:8402CE11BD18EB24342635A03F488938D2D0BBE8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4680.jpgsave_picture_4680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4680.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ V.A. - ZYX Italo Disco History 1983 Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4681.jpgsave_picture_4681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4681.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Free To Dance, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103993.jpgsave_picture_103993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103993.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Van Morrison - New Arrangements And Duets (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103994.jpgsave_picture_103994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103994.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103995.jpgsave_picture_103995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103995.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:78D80331D39C286292C6D5754E137676E48667D8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103996.jpgsave_picture_103996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103996.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:876395213A83F03DB862241E79B0BAE85A0DD21A
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103997.jpgsave_picture_103997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103997.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Frank Sinatra - Frank Sinatra: Legend (1998) Hey Presto! [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103998.jpgsave_picture_103998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103998.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Redux Selection Vol. 10 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103999.jpgsave_picture_103999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103999.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Спринт (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104000.jpgsave_picture_104000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104000.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:FE68E9088B4DE94DB212A22C74FE0430BFA98DCB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104001.jpgsave_picture_104001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104001.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Antigua Jazz Band - Swing City Sessions #10 (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104002.jpgsave_picture_104002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104002.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:A2BFFAD1E331839527EB614388CE820E8C952B2D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104003.jpgsave_picture_104003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104003.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104004.jpgsave_picture_104004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104004.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:9EC55DBC459E0D1B85A3DADC7B9E908149A9B367
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104005.jpgsave_picture_104005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104005.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A170E2077740D751A49D7150F5F49C97FF5F36B1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104006.jpgsave_picture_104006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104006.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Vintage Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104007.jpgsave_picture_104007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104007.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:5B2606E9F882FC06043BEE6CD2406CC209AD9087
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104008.jpgsave_picture_104008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104008.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104009.jpgsave_picture_104009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104009.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104010.jpgsave_picture_104010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104010.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:34FD653E1CDC773B0D53D051AA8C7075096FFBAD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104011.jpgsave_picture_104011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104011.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:47738DD0482338DDCADE1A751CD265DFD428FC80
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104012.jpgsave_picture_104012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104012.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:A420CBDF9463B6BEE24C2802CD605E8549834513
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104013.jpgsave_picture_104013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104013.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Moon+ Reader Pro v9.6 (b906001) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104014.jpgsave_picture_104014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104014.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:C77A6D920EA9AF9E7152DDA15CF70F78BD5C0931
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104015.jpgsave_picture_104015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104015.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Find Me - Nightbound (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104016.jpgsave_picture_104016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104016.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Babbba - Perfect moment (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Fusion, Swin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104017.jpgsave_picture_104017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104017.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Michael Buble - The Best of Buble (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104018.jpgsave_picture_104018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104018.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146903.jpgsave_picture_146903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146903.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:26EA5B5E2071734AF3DE238F94E1F5B2D30E359F
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146904.jpgsave_picture_146904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146904.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:60F676AE6BEE45BCD20C4F274591D2AE65DF2717
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146905.jpgsave_picture_146905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146905.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Steinberg Nuendo 13.0.10.123 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146906.jpgsave_picture_146906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146906.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Новогодний танцпол NRJ (2015) [MP3|192-320 кб/с] <Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146907.jpgsave_picture_146907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146907.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:522170601222504935F58DB9502F606BB31EE0FB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146908.jpgsave_picture_146908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146908.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D1359C517DFD83591D885B7A5991CA90DD706BE4
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146909.jpgsave_picture_146909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146909.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6DDCE1438DED51B0B0C77F0E896D0B5D55D43C87
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146911.jpgsave_picture_146911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146911.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Soft Organizer Pro 7.40 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146913.jpgsave_picture_146913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146913.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:AB5BC33901F87C3C521216765ACF455C2D37792D
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146914.jpgsave_picture_146914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146914.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:B574EB3851A2CDDB211B6FBC6B563792B07C754E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146915.jpgsave_picture_146915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146915.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:BB6B6D709C7FFB3F0CAE8EDC75AC27A15B7AD062
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146916.jpgsave_picture_146916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146916.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Greatest Ever! Heavy Metal - The Definitive Collection (2012) 3CD, Box Set,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146918.jpgsave_picture_146918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146918.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ All language translate app v1.14 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146919.jpgsave_picture_146919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146919.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:6652EF65B4B4E3882A41FB53AD6625CE9809364C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146920.jpgsave_picture_146920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146920.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:00794DFE9C081F1AC60A21499F0AF52890F1F408
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146921.jpgsave_picture_146921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146921.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:2465B6E40E42B5BF5316017262F2F922D239DCFA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146922.jpgsave_picture_146922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146922.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ System Partition for ASUS EeePC X101CH / Windows 7 Starter (х86) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146923.jpgsave_picture_146923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146923.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Windows 7 Starter 32-bit, в состоянии "после первого вк�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146924.jpgsave_picture_146924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146924.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:622F1F71981030BB066C0A331A435042B2EAE198
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146926.jpgsave_picture_146926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146926.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:8886A76B35FEAC0DD6D802CF039C2156BB62DB43
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146927.jpgsave_picture_146927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146927.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:091B06661979ECEBDE4A491F8FDDE2753B3BC930
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146928.jpgsave_picture_146928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146928.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:E42BF53BD3CDBD902F865F7C125CE08A23826177
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146929.jpgsave_picture_146929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146929.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:C7A817265B9C6175B0DD4A2233414BBAACE530AE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146930.jpgsave_picture_146930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146930.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Skillbox, Глеб Ульянов | Ableton Live c нуля до PRO (2020) PCRe
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146931.jpgsave_picture_146931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146931.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:56F5A3EB275358AABFA52612B69C2FB398D416BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146932.jpgsave_picture_146932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146932.jpg" />
 </div>
 
 

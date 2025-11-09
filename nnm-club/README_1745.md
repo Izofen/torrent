@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45727.jpgsave_picture_45727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45727.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GOM Player Plus 2.3.95.5366 (x64) Portable by 7997 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45728.jpgsave_picture_45728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45728.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Harvest Island (2023) [Multi] (20240512/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45729.jpgsave_picture_45729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45729.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1-b5421/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45730.jpgsave_picture_45730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45730.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.3 [Ru/En] (Разблокировка YouTube)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45731.jpgsave_picture_45731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45731.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0C0571E6F54FE34347A2ADDADFDB351FC97C18ED
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45732.jpgsave_picture_45732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45732.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45733.jpgsave_picture_45733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45733.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:05AA619521E12988627D57ECD3C10BA3AEE91CAF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45734.jpgsave_picture_45734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45734.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B5BBA698CDC9EEEE95BEF56C7068F70A7E3C7D1B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45735.jpgsave_picture_45735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45735.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:14892400676EC749AE8B38041E487882348C4D50
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45736.jpgsave_picture_45736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45736.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:579B68C743BD05AC44E12D8B840137C863E2AB22
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45737.jpgsave_picture_45737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45737.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:579B68C743BD05AC44E12D8B840137C863E2AB22
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45738.jpgsave_picture_45738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45738.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:F6FD03968687FE9129B119F3A33AAF6ED3C37EB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45739.jpgsave_picture_45739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45739.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:8CB54ADEDCF3C134EADA7ABD2658D2B37CEAA03C
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45740.jpgsave_picture_45740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45740.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:398AF5DA24A629C1B71B2C9602C5D959C9845827
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45741.jpgsave_picture_45741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45741.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:772E01021B993A700834206649CD9719D59F478E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45742.jpgsave_picture_45742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45742.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:6F9108F25F48AF549CBEE0A87B29E31CA3EFC619
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45743.jpgsave_picture_45743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45743.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:0D7E726B639CB793766CB7F44DA4FCE871344DCA
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45744.jpgsave_picture_45744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45744.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:6BDCCBBDA450CCBEBAD0CBF7763237FF97F1D620
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45745.jpgsave_picture_45745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45745.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Hellcard (2024) [Ru/Multi] (1.1.240821/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45746.jpgsave_picture_45746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45746.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45747.jpgsave_picture_45747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45747.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v20 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45748.jpgsave_picture_45748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45748.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:883A9743F43E6E6E93A9852D3EDECF62B75E7267
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45749.jpgsave_picture_45749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45749.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:30D3219DA1121877ED003011CB9240FAD5F98496
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45750.jpgsave_picture_45750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45750.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Compilation  part 114 New Eurodisco (2024) [MP3|320 Kbps] <New Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45751.jpgsave_picture_45751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45751.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:57102198055920FCE87B14196DF266F95956E9F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45752.jpgsave_picture_45752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45752.jpg" />
 </div>
 
 

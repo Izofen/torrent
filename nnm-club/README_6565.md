@@ -6,7 +6,7 @@ Retouch - удаление объектов 2.1.6.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209825.jpgsave_picture_209825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209825.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B4290400D722A82C85BB0477C0E79AAC34D79AFF
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209826.jpgsave_picture_209826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209826.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6903830E1F59751CF1D86C57020F12BD2BD83733
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209829.jpgsave_picture_209829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209829.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C82C6948EBBEB0A1B0752BAB6B85CC382A9EA150
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209830.jpgsave_picture_209830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209830.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:96A5C98FF569110F5AE46B5925AAC9A8385F675F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209833.jpgsave_picture_209833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209833.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ SophiApp 1.0.95 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209836.jpgsave_picture_209836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209836.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:3C653C18D197959BC24667947E4615B17FFA1851
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209837.jpgsave_picture_209837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209837.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:33B080B3B83881349BAC271D1E844D73A57C271D
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209838.jpgsave_picture_209838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209838.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5DB8334337FEE126E096AF575204DABB2B44B8F6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209839.jpgsave_picture_209839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209839.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MKVToolNix 78.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209842.jpgsave_picture_209842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209842.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ ZZ Top - Degüello (1979) Remastered, 2013, Rhino - Warner Records [FLAC 2.0|24/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209844.jpgsave_picture_209844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209844.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Firefox Browser ESR 102.13.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209847.jpgsave_picture_209847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209847.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Root Explorer / Root Проводник 4.11.5 Mod by Number one', lloydyy [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209848.jpgsave_picture_209848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209848.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Waterfox Current G5.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209851.jpgsave_picture_209851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209851.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:CD7F630BE29B37CF39D5DBD6CFA48CA2B987AB08
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209852.jpgsave_picture_209852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209852.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:EEE6AE729D924BF928B4FE77D90E0EDD024D7983
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209854.jpgsave_picture_209854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209854.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ R-Studio Network 9.2 Build 191161 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209856.jpgsave_picture_209856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209856.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Revo Uninstaller Pro 5.1.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209859.jpgsave_picture_209859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209859.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:864B036B2EEBCB8574F61C4142C844C99906A1DF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209861.jpgsave_picture_209861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209861.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Revo Uninstaller Pro 5.1.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209862.jpgsave_picture_209862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209862.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Music News vol.277 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209865.jpgsave_picture_209865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209865.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dynamic Island - dynamicSpot 1.68 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209866.jpgsave_picture_209866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209866.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:A26020A94AEC5EF90203D94B6E5FA72695C35132
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209870.jpgsave_picture_209870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209870.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:F3BA0E76CBE8643F995FBBF50400CB1F77996B1A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209872.jpgsave_picture_209872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209872.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Guy Belanger - Voyages & Autres Histoires & Other Stories (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209874.jpgsave_picture_209874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209874.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:07E314ADED123FC3F95B6CC89B75CAEF2EF7B03F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209876.jpgsave_picture_209876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209876.jpg" />
 </div>
 
 

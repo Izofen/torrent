@@ -6,7 +6,7 @@ Inklet 2.2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159924.jpgsave_picture_159924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159924.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 11 Корпоративная x64 22Н2 (build 22621.963) by ivandubskoj
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159925.jpgsave_picture_159925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159925.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4C428DBF6859C1F8E7461BBFB4CB940358FB4642
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159926.jpgsave_picture_159926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159926.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Levitated - Emotional Trance Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159927.jpgsave_picture_159927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159927.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Linux Mint 21.1 Vera (XFCE, Mate, Cinnamon) [64bit] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159928.jpgsave_picture_159928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159928.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F6FED864C35923A8ED72E887C1674F1BAA64C889
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159929.jpgsave_picture_159929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159929.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3B98B94B436B444AADF5E06406F8F39138048F2A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159930.jpgsave_picture_159930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159930.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Video Converter X2 for Mac 1.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159931.jpgsave_picture_159931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159931.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Fates Warning - Inside Out (1994) 2CD [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159932.jpgsave_picture_159932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159932.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.2 Build 6 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159933.jpgsave_picture_159933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159933.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:395EF8D89E008C617DBD0B77956821C7BBF5661F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159934.jpgsave_picture_159934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159934.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Recipe finder 1.0.1 [Ru/Multi] (авторская)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159936.jpgsave_picture_159936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159936.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:77C1F2859231C9793779AA54C172AF347DD918BA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159937.jpgsave_picture_159937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159937.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Winamp 5.9.1 Build 10029 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159938.jpgsave_picture_159938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159938.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:0232D770A86A0B45E7C87B9A792CCCF5DC174545
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159939.jpgsave_picture_159939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159939.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Valentina Studio Pro 13.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159940.jpgsave_picture_159940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159940.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack dixen18
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159941.jpgsave_picture_159941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159941.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:FD09215DDD7F2E119C7EB4D6B448CB33F0F3FBA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159942.jpgsave_picture_159942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159942.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:CC85FD24744C26529535285C7A75ED9EAA3FD9DB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159943.jpgsave_picture_159943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159943.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:517A2E629A36DEFC9937666EEF6C623550162EB7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159944.jpgsave_picture_159944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159944.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ QLab 5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159945.jpgsave_picture_159945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159945.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:8382ED85841C43C19EE8E05D4AAD0B6F21BDE80A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159946.jpgsave_picture_159946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159946.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0BCBDE0DB3C3D50EA860506A9D9DCAED3AC0DB46
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159947.jpgsave_picture_159947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159947.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Moonlight Agony - Silent Waters (2007) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159948.jpgsave_picture_159948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159948.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:A960739BD3E262A881D50D2BF035667432202457
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159949.jpgsave_picture_159949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159949.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Seven Witches - Year Of The Witch (2004) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159950.jpgsave_picture_159950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159950.jpg" />
 </div>
 
 

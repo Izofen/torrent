@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152530.jpgsave_picture_152530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152530.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:78BE290F87AC501417391F37EDB648A0DCB681C4
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153567.jpgsave_picture_153567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153567.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:92F8157093146CB6513956BD5D78DBEFE8926DA6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153859.jpgsave_picture_153859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153859.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ David Both | Using and Administering Linux: Volume 3, 2nd Edition (2023) [PDF][E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154004.jpgsave_picture_154004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154004.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Andres Colubri | Processing for Android, 2nd Edition (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154357.jpgsave_picture_154357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154357.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:53425F49BCB6E828ED4745C43463AEFCC139AC3A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154932.jpgsave_picture_154932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154932.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:DAB583B8C8F2CA697BE2F07D8D6A078351CC0AB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154942.jpgsave_picture_154942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154942.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A064F7BFBBDF7DF0C1E0FC455FCCC51DE4647A12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154994.jpgsave_picture_154994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154994.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:52BE729D285311BA35EC7F3B7EA6EDF5D6B89F7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155014.jpgsave_picture_155014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155014.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9410C2E9B4AFB73B672DCE1DCCB0BA23F3A0C32F
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155439.jpgsave_picture_155439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155439.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:463BF19CA9BD741A877C04742C53ABE4C1BE3762
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156411.jpgsave_picture_156411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156411.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:C088342D50007CAA42E76524A5BB7F7CDC467FAC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156597.jpgsave_picture_156597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156597.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Steven F. Lott | Python Real-World Projects (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156715.jpgsave_picture_156715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156715.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:39B2677B4F54FDC0AE4AF846E18709844695AF4E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156741.jpgsave_picture_156741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156741.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (10.2021) [PDF, 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156820.jpgsave_picture_156820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156820.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Thomas Valentine | Database-Driven Web Development, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157161.jpgsave_picture_157161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157161.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:147946F1A48C3F2E73C0A957006E7B4FBF52A1F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157272.jpgsave_picture_157272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157272.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:6A931A9C3F2BFE203A5902488C648E8A722E363B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158316.jpgsave_picture_158316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158316.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:86748D0B28BC10E0B4C3FC6E6E5BAEBF08B7BC7F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158722.jpgsave_picture_158722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158722.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:3E1F581FAAEEB56FA5FD67345A91A56E608687FC
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158736.jpgsave_picture_158736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158736.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:917D2AA1B8385CD3CFAEC585941D40871C1C0A83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158772.jpgsave_picture_158772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158772.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:4B89CF69E6ED74BE43C36013132CCBDC878EE492
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158811.jpgsave_picture_158811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158811.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:438B6B53B38DADC2F9BB649C7F232E9A6C257CEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158823.jpgsave_picture_158823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158823.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Python (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158874.jpgsave_picture_158874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158874.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Nabendu Biswas | TypeScript Basics (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158903.jpgsave_picture_158903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158903.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Java (2021) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158930.jpgsave_picture_158930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158930.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Chris Boudreaux - Who Made Who (2024) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106915.jpgsave_picture_106915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106915.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Triddana - Breaking From The Fold (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106916.jpgsave_picture_106916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106916.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Isle of the Cross - Faustus The Musical (2024) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106917.jpgsave_picture_106917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106917.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:CA7401AAC3FD5A9E19C30A6D2E30650BDD943E68
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106918.jpgsave_picture_106918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106918.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:017B791E0BF5167884DA3A7FF3F8C1E85CDA1523
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106919.jpgsave_picture_106919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106919.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:ADD29213564D1CEB45BD160BF7247C08356ECCF2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106920.jpgsave_picture_106920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106920.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Big Sun - Rite De Passage (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106921.jpgsave_picture_106921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106921.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:59DA5F1A0693AFA756036E53C204CAE05B74015D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106922.jpgsave_picture_106922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106922.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:EF4A4B1B1222A8E1CB20F2CA770C64EA4FF6626A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106923.jpgsave_picture_106923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106923.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ DJ Piligrim - Ты Меня... (2009) [WavPack|Lossless|image + .cue] <Europop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106924.jpgsave_picture_106924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106924.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106925.jpgsave_picture_106925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106925.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Madison Galloway - Madison Galloway (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106926.jpgsave_picture_106926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106926.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DJ Kiriloff - In The Mix(2008) [WavPack|Lossless|image + .cue] <House, Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106927.jpgsave_picture_106927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106927.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [MP3|320 Kbps] <Progr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106928.jpgsave_picture_106928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106928.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Photo Lab PRO v3.13.15 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106929.jpgsave_picture_106929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106929.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ HDCleaner 2.076 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106930.jpgsave_picture_106930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106930.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.92 (0704) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106931.jpgsave_picture_106931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106931.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:18ECBB7815720BA315420D6AB4D9A81FE2E07C56
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106932.jpgsave_picture_106932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106932.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:452B3184EEDB8A60EBABBE368A5F99D957D74680
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106933.jpgsave_picture_106933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106933.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ EF Commander 24.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106934.jpgsave_picture_106934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106934.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:833F577E2AE2A9B4457D1336238BDF5E21CF25C8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106935.jpgsave_picture_106935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106935.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:2F690D5064C7E3846755B26F4CA4BC15D6498E97
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106936.jpgsave_picture_106936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106936.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:EE637035BBF6DD25E18265A53A585D7BFECFAC71
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106937.jpgsave_picture_106937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106937.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.92 (0704) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106938.jpgsave_picture_106938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106938.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ D.I.P Project & Черное И Белое - Раз И Навсегда (2008) [
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106939.jpgsave_picture_106939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106939.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:3BD944D7036530D300C7986F95973E1AEF088B2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106940.jpgsave_picture_106940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106940.jpg" />
 </div>
 
 

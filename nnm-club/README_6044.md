@@ -6,7 +6,7 @@ Windows 10 Manager 3.7.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190159.jpgsave_picture_190159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190159.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RJ TextEd 15.94.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190161.jpgsave_picture_190161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190161.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eclipse - Megalomanium (2023) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190163.jpgsave_picture_190163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190163.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1DDD44A392B4195B42B69BA1AA48B1CA4FDFC307
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190164.jpgsave_picture_190164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190164.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Super Furry Animals - Phantom Power (2003) (2023 Remaster) BMG Rights Management
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190165.jpgsave_picture_190165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190165.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:49074308C1ECEA2FD3F4790859E66D2C3837F4BA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190166.jpgsave_picture_190166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190166.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Rickie Lee Jones - Pieces of Treasure (2023) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190167.jpgsave_picture_190167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190167.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Serial Box & SerialSeeker 09-2023 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190168.jpgsave_picture_190168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190168.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Folder Tidy 2.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190170.jpgsave_picture_190170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190170.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nenufar - Take the Pain Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190172.jpgsave_picture_190172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190172.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Upscayl for Mac 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190175.jpgsave_picture_190175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190175.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:4FBB953CDE56CC10EDCFB95D8C8431D371A9098F
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190176.jpgsave_picture_190176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190176.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ The Quireboys - Amazing Disgrace (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190177.jpgsave_picture_190177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190177.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:0F454F4CF954167604DEF0F3F17024C6D3AFE358
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190178.jpgsave_picture_190178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190178.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:70C6AF09A359D59F97BE58376CF6FEE5E083FB1A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190179.jpgsave_picture_190179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190179.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F7C21E7C881AAA64C5433122BB4002493648C469
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190180.jpgsave_picture_190180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190180.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:D786DD834321BB261DC39E1EAF839D020E41AE49
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190183.jpgsave_picture_190183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190183.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Allison Russell - The Returner (2023) [FLAC 24/48|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190186.jpgsave_picture_190186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190186.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Limbs - Everything Under Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Mathcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190188.jpgsave_picture_190188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190188.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ NoMachine 8.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190189.jpgsave_picture_190189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190189.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ The Sound That Ends Creation - Exactly What You Thought, But Worse Than You Imag
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190190.jpgsave_picture_190190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190190.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ NCH ClickCharts Diagram Pro 8.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190191.jpgsave_picture_190191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190191.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Captain Planet - Come On, Cat (2023) [FLAC|Lossless|WEB-DL|tracks] <Verschiedene
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190193.jpgsave_picture_190193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190193.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Danicide - Broken (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Melodic Death>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190194.jpgsave_picture_190194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190194.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Morokh - Insomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190195.jpgsave_picture_190195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190195.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ CHM Viewer Star 6.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190196.jpgsave_picture_190196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190196.jpg" />
 </div>
 
 

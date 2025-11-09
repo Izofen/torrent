@@ -6,7 +6,7 @@ Sandboxie plus 1.14.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106525.jpgsave_picture_106525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106525.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CudaText 1.215.5.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106526.jpgsave_picture_106526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106526.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:687D852A82B662917333178A8D4CA5A31889A565
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106527.jpgsave_picture_106527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106527.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FB87D68A4B561D4B0BEA1EA9E4736C5CD8746A43
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106528.jpgsave_picture_106528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106528.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Bad Boys - Turn On The Radio (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106529.jpgsave_picture_106529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106529.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:6EB7A76B65DA2BD52CADD17E7263B2BB80ED5F78
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106530.jpgsave_picture_106530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106530.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E2111C508790DF5EFD8127D81A7D3573C25F3D96
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106531.jpgsave_picture_106531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106531.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Nouvelle Vague - 3 Albums (2004-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106532.jpgsave_picture_106532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106532.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Remi Wolf - Big Ideas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106533.jpgsave_picture_106533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106533.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sandboxie 5.69.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106534.jpgsave_picture_106534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106534.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Alex Morning.Vibes - Acoustic Blues To Ease Your Soul (2024) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106535.jpgsave_picture_106535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106535.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106536.jpgsave_picture_106536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106536.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:8B4A4B0072D46E2BED9E476265E27A2702861E33
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106537.jpgsave_picture_106537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106537.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:3DBEF8F4795A2FC4EAFA9E480B8AC230E593D10F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106538.jpgsave_picture_106538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106538.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Catfish John Tisdell - Ain't That the Blues (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106539.jpgsave_picture_106539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106539.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:888A1DC9004B3B56183F7E142C36C1115C7DD827
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106540.jpgsave_picture_106540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106540.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Diana Braithwaite & Chris Whiteley - Forever Blues (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106541.jpgsave_picture_106541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106541.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Charles Fauna - L I M B O (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106542.jpgsave_picture_106542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106542.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dennis Jones - About Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106543.jpgsave_picture_106543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106543.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Anthony Q - Rebirth of Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106544.jpgsave_picture_106544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106544.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Bluesnake - New Chapter (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106545.jpgsave_picture_106545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106545.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Dwayne Dopsie, Zydeco Hillraisers - Now Is The Time (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106546.jpgsave_picture_106546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106546.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dave Alvin & Jimmie Dale Gilmore feat. The Guilty Ones - TexiCali (2024) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106547.jpgsave_picture_106547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106547.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Denise La Grassa - Sundown Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106548.jpgsave_picture_106548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106548.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Blues Corner - Lonely Mile (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106549.jpgsave_picture_106549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106549.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Craig Pilo & Jeff Pescetto - Comfort in the Night (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106550.jpgsave_picture_106550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106550.jpg" />
 </div>
 
 

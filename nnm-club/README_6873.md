@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235984.jpgsave_picture_235984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235984.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7D03E2B5D6B97EFF89F4DD2D5BA75BDC048C8FE0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235985.jpgsave_picture_235985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235985.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DEEFCEC2AC6668873DEBE6F3AD08F11A79A77218
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235986.jpgsave_picture_235986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235986.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235988.jpgsave_picture_235988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235988.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235989.jpgsave_picture_235989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235989.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:8B2E276FD8E96B59F8073918EBA5E12EA4F57C85
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235990.jpgsave_picture_235990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235990.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:4A04878EF25A23D951705234F394C474915017A3
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235991.jpgsave_picture_235991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235991.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:75AFC08E652DAABE0B1E07ACC3E763587AE900B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235992.jpgsave_picture_235992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235992.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Udemy, Maria Brodskaya | Тестирование ПО для начинающи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235994.jpgsave_picture_235994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235994.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AnyGo 5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235996.jpgsave_picture_235996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235996.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:5A9F586D3D5507F178372626142C33E63BCCDC76
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235998.jpgsave_picture_235998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235998.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235999.jpgsave_picture_235999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235999.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:EF76CD91FC1840BDDD41D54DC21AD4216E772CE0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236000.jpgsave_picture_236000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236000.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Pulsar Modular - P440 Sweet Spot 1.0.0 VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236001.jpgsave_picture_236001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236001.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Host - IX (2023) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock, Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236002.jpgsave_picture_236002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236002.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:6B94D894610E0F866EADF865759FFBB1FD7A71EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236004.jpgsave_picture_236004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236004.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Gnomon Workshop, Guilherme Rambelli | Creating Assets for Games using Photog
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236005.jpgsave_picture_236005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236005.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:FDF3146EB267C05F9C859E89B20533661B74B063
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236006.jpgsave_picture_236006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236006.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:FDF3146EB267C05F9C859E89B20533661B74B063
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236007.jpgsave_picture_236007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236007.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Cisdem PDF Converter OCR 8.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236008.jpgsave_picture_236008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236008.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:6F8DD638450FF17418C7A4226618E09E1395789E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236009.jpgsave_picture_236009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236009.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Udemy, Andrii Polishchuk | React Hooks в Деталях (2021) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236011.jpgsave_picture_236011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236011.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:6B26FEC67687E3FA24EACC6CA5104147EFD944A8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236012.jpgsave_picture_236012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236012.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:31B49A1AA5DE85DFF0EB7865A7B4C6A0B02A70FE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236013.jpgsave_picture_236013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236013.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:C17A8EC461CB0B0EE750D205D5F3C82A2750F4B3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236014.jpgsave_picture_236014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236014.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Exposure Software Snap Art 4 v4.1.3.386 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236015.jpgsave_picture_236015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236015.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Jon Lord - Before I Forget (1982) Remastered /2012, EMI Records /[APE|Lossless]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148561.jpgsave_picture_148561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148561.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Snufmumriko - Discography 10 Releases (2012-2019) Spiritech, Lagerstätte, Drona
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148562.jpgsave_picture_148562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148562.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:079372046C061F3C857500292CBAFC9807EBCE29
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148563.jpgsave_picture_148563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148563.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148564.jpgsave_picture_148564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148564.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lungo 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148565.jpgsave_picture_148565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148565.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Neoton Familia - Marathon (1980) 1998, Remastered, Gong [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148566.jpgsave_picture_148566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148566.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ PostNecrum - De Nocte Vento (2020) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148567.jpgsave_picture_148567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148567.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:603A16916EE7CA06AF3A8F226BE989656399107B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148570.jpgsave_picture_148570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148570.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Aiseesoft Screen Recorder 2.1.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148571.jpgsave_picture_148571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148571.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:457DBCF6E3CF94EDEB88BADCCF0FB7A9E30D1342
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148572.jpgsave_picture_148572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148572.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Tweak and Tuneup 4.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148573.jpgsave_picture_148573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148573.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Le Orme - Collage (1971) 1990,  Philips [WavPack|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148574.jpgsave_picture_148574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148574.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:A2456E2FDFF0B0583ABB9EAEF11F49ED2F6D23A6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148576.jpgsave_picture_148576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148576.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ IP Scanner Pro 3.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148578.jpgsave_picture_148578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148578.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:45F1AB24A01D5E1DE91BA56000CBFE14CAEB8CB7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148579.jpgsave_picture_148579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148579.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Urban Dance Party: Clubbing Electro House (2021) [MP3|320 Kbps] <Club, Danc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148580.jpgsave_picture_148580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148580.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:813755258AFFB72EEB31CD6406B78EA93922FD85
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148581.jpgsave_picture_148581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148581.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:FAC1EF37B982CDC6947F4781EB1C0CE3F4AD1DC8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148582.jpgsave_picture_148582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148582.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:369A3C7436917DCF5B15E62FEF375A126343576F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148584.jpgsave_picture_148584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148584.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:369A3C7436917DCF5B15E62FEF375A126343576F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148585.jpgsave_picture_148585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148585.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Microsoft Visual Studio 2019 Enterprise 16.4.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148586.jpgsave_picture_148586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148586.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ iToolab SIMUnlocker 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148587.jpgsave_picture_148587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148587.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:B0A687390627C34C4D3049A38DA977795BF6EFE1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148588.jpgsave_picture_148588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148588.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A9AC73B6EE2B0FF5643A827F055980D518F9E3B1
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148589.jpgsave_picture_148589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148589.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Asphyxia Perception - Invalid Shape (2020) [MP3|320 Kbps] <Melodic Death, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148591.jpgsave_picture_148591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148591.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ NETGATE Spy Emergency 11.0.505.0 [Мульти\Рус.]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148592.jpgsave_picture_148592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148592.jpg" />
 </div>
 
 

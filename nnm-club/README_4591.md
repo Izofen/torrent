@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143713.jpgsave_picture_143713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143713.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vetcalculators v2.9.91 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143714.jpgsave_picture_143714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143714.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ foobar2000 1.3.14 Stable Portable by LUR (28.12.16) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143715.jpgsave_picture_143715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143715.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Grim Facade 10: The Message / За гранью жестокости 10: Пис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143718.jpgsave_picture_143718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143718.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Vibrant Euphoria (2023) [MP3|320 Kbps] <Trance, Electro, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143719.jpgsave_picture_143719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143719.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:F74587D89EC75BA511CE623E4C5797CF032519E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143720.jpgsave_picture_143720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143720.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Graceful House (2015) [MP3|320 кб/с] <House, Electro, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143721.jpgsave_picture_143721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143721.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes | Как госпо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143724.jpgsave_picture_143724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143724.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - Beatport Chill Electronic: Sound Pack #389 (2021) [MP3|320 Kbps] <Soft Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143725.jpgsave_picture_143725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143725.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:391E9F456F142815A719FE9662E4AAE9E5DFCBA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143726.jpgsave_picture_143726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143726.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Folder-Factory 5.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143728.jpgsave_picture_143728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143728.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Smooth Moods Chill Out, Vol. 1 (2022) [MP3|320 Kbps] <Lounge, Chill-Out, Do
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143729.jpgsave_picture_143729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143729.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Coolmuster Android Assistant 4.1.24 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143730.jpgsave_picture_143730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143730.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Jef Gilson - Malagasy (1972) Reissue, 2014, Jazzman [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143731.jpgsave_picture_143731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143731.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:FF8C83FA6F649A014937519D0B8F678A292CBD9F
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143732.jpgsave_picture_143732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143732.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:9BE48F968B0A8CFCD18F685B34081158907CB96D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143735.jpgsave_picture_143735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143735.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Infrasonic The Best Of 2015 (Mixed by Ultimate & Moonsouls) (2015) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143738.jpgsave_picture_143738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143738.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:D326D105019E81CE24CFD0D8B4792C556E5DDDD5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143739.jpgsave_picture_143739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143739.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:04250860FDBA9698DBCEEADBCBFF9ECBF2536730
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143740.jpgsave_picture_143740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143740.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Greatest Ever! Rock Ballads (2017) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143741.jpgsave_picture_143741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143741.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:917A0B1E4D1AA4BF4397140AB71A51F979772CBD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143742.jpgsave_picture_143742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143742.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:8604335E8D02BA28789D9CA3BE404ED3B348F4F7
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143743.jpgsave_picture_143743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143743.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:E8599B6A1B13E2D3F28616E53E70EB32BBAC768C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143744.jpgsave_picture_143744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143744.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - The Best Of Pulsar (2015) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143746.jpgsave_picture_143746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143746.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Diagrams 2.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143747.jpgsave_picture_143747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143747.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:156426C2BE5480AF8D9F6FFCA846AE4D5F77EECC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143748.jpgsave_picture_143748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143748.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149492.jpgsave_picture_149492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149492.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3B3155EBDD2B7524C4ABF4DD3B48614561C9BC21
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149493.jpgsave_picture_149493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149493.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8B12900930EEF938307F86E687D0DF2A1FD52BE1
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149494.jpgsave_picture_149494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149494.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:03DC6E11A8112DB265BEF45BA0F5F74850AB8EBF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149496.jpgsave_picture_149496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149496.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D46AE76598A4F57707A1D0A1C1229E8A14AAF145
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149497.jpgsave_picture_149497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149497.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D7456013F9DC25BAB27BE844208FAEA4FEC131F0
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149498.jpgsave_picture_149498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149498.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8E7E04581C720EBA7315D5915D8542A510FF36B8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149500.jpgsave_picture_149500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149500.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6D381F5746821C46E824B6A85DAE5DDA4868B90B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149501.jpgsave_picture_149501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149501.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Pink Floyd Tribute (2021) 2xSet [MP3|320 Kbps] <Psychedelic Rock, Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149502.jpgsave_picture_149502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149502.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ DirPrintOK 4.71 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149503.jpgsave_picture_149503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149503.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:423A53404CFA255894DE23C95D06D18DC89E50A3
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149504.jpgsave_picture_149504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149504.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149506.jpgsave_picture_149506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149506.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149508.jpgsave_picture_149508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149508.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149509.jpgsave_picture_149509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149509.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:36F84201BA473CB374EFCA18D2B5D40021299AED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149510.jpgsave_picture_149510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149510.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Союз 3 альбома (1995 - 1997) [FLAC|Lossless|image + .cue]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149511.jpgsave_picture_149511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149511.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Союз 3 альбома (1995 - 1997) [FLAC|Lossless|image + .cue]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149512.jpgsave_picture_149512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149512.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Союз 3 альбома (1995 - 1997) [FLAC|Lossless|image + .cue]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149513.jpgsave_picture_149513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149513.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Stellarium 0.18.3 + classic [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149514.jpgsave_picture_149514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149514.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Stellarium это бесплатный планетарий для вашего 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149515.jpgsave_picture_149515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149515.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ MAGIX SOUND FORGE Audio Studio 15.0.0.121 (x86/x64) [Multi]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149516.jpgsave_picture_149516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149516.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Dizzy Reece - Five Classic Albums Plus Bonus Tracks (1955 - 1960) 4CD, 2012, Rea
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149517.jpgsave_picture_149517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149517.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dizzy Reece - Five Classic Albums Plus Bonus Tracks (1955 - 1960) 4CD, 2012, Rea
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149518.jpgsave_picture_149518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149518.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Graven Sin - Veil of the Gods (2023) [MP3|320 Kbps] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149519.jpgsave_picture_149519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149519.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Graven Sin - Veil of the Gods (2023) [MP3|320 Kbps] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149520.jpgsave_picture_149520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149520.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Graven Sin - Veil of the Gods (2023) [MP3|320 Kbps] <Heavy Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149521.jpgsave_picture_149521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149521.jpg" />
 </div>
 
 

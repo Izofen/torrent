@@ -6,7 +6,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45471.jpgsave_picture_45471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45471.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45509.jpgsave_picture_45509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45509.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45609.jpgsave_picture_45609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45609.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45622.jpgsave_picture_45622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45622.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Finding Mosey (2024) [Multi] (2.81) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45667.jpgsave_picture_45667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45667.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Can't Revert (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45683.jpgsave_picture_45683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45683.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AD8C5445DCC3B28106665F709987F8621C40CDD1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45706.jpgsave_picture_45706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45706.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Selene's Unbearable Night (2023) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45719.jpgsave_picture_45719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45719.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45733.jpgsave_picture_45733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45733.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45747.jpgsave_picture_45747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45747.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Homeless (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45832.jpgsave_picture_45832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45832.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Escape From Warehouse / Побег со склада (2024) [En] (1.0) Scene Ten
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45888.jpgsave_picture_45888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45888.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Who is Abby (2023) [En] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45905.jpgsave_picture_45905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45905.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nightmare Side: The Game (2023) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45988.jpgsave_picture_45988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45988.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Delearnia: Fractions of Hope (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46000.jpgsave_picture_46000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46000.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46022.jpgsave_picture_46022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46022.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ PARANOID (2023) [Ru/Multi] (10138) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46137.jpgsave_picture_46137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46137.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Voidness - Lidar Horror Survival Game (2023) [En] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46207.jpgsave_picture_46207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46207.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Bathhouse (2024) [Multi] (1.03) Scene Tenoke [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46208.jpgsave_picture_46208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46208.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Among the Sleep (2017) [Ru/Multi] (3.1.0.41) Repack Other s [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46217.jpgsave_picture_46217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46217.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Lifeless Planet (2014) [Ru/Multi] (4.6.7.12281826) Repack Other s [Premier Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46236.jpgsave_picture_46236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46236.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Nancy Drew: Danger on Deception Island / Нэнси Дрю. Туманы ост�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46311.jpgsave_picture_46311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46311.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46428.jpgsave_picture_46428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46428.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Welcome to Elk (2020) [Multi] (1.22.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46478.jpgsave_picture_46478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46478.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46514.jpgsave_picture_46514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46514.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46527.jpgsave_picture_46527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46527.jpg" />
 </div>
 
 

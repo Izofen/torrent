@@ -6,7 +6,7 @@ Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1380.jpgsave_picture_1380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1380.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1384.jpgsave_picture_1384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1384.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Go
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1395.jpgsave_picture_1395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1395.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FATE: Reawakened (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1512.jpgsave_picture_1512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1512.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1690.jpgsave_picture_1690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1690.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1705.jpgsave_picture_1705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1705.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Last Epoch (2024) [Ru/Multi] (1.3.3.1/dlc) Repack Other s [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1743.jpgsave_picture_1743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1743.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1765.jpgsave_picture_1765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1765.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack Wanterlude [Gold
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1927.jpgsave_picture_1927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1927.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack seleZen [Gold Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1930.jpgsave_picture_1930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1930.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2097.jpgsave_picture_2097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2097.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.2.0.1/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2116.jpgsave_picture_2116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2116.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2119.jpgsave_picture_2119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2119.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Darkest Dungeon II (2) (2023) [Ru/Multi] (2.03.79909/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2120.jpgsave_picture_2120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2120.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2355.jpgsave_picture_2355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2355.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2430.jpgsave_picture_2430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2430.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.7.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2438.jpgsave_picture_2438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2438.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2510.jpgsave_picture_2510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2510.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) Repack Wanterlude [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2583.jpgsave_picture_2583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2583.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.231/dlc) Repack Wanterlu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2590.jpgsave_picture_2590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2590.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Lost Eidolons (2022) [Ru/Multi] (1.5.4/dlc) Repack Let'sРlay [Digital Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2674.jpgsave_picture_2674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2674.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2695.jpgsave_picture_2695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2695.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ KeeperRL (2024) [En] (1.2.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2721.jpgsave_picture_2721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2721.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Elder Scrolls IV: Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2725.jpgsave_picture_2725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2725.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2891.jpgsave_picture_2891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2891.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Heads Will Roll: Reforged (2023) [Ru/Multi] (2.6/dlc) Repack FitGirl [Complete E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3046.jpgsave_picture_3046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3046.jpg" />
 </div>
 
 

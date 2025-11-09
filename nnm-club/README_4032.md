@@ -6,7 +6,7 @@ StartAllBack 3.7.3 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125400.jpgsave_picture_125400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125400.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:95C90D60284D8E360B8A929211D3BF95D84E8F19
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125401.jpgsave_picture_125401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125401.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FDDE33AC5B35D5739C53C15B793FBF997EBE4893
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125402.jpgsave_picture_125402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125402.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DC0C92ADEC4A9D65CA9535D4F8AF1036A67B4FB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125403.jpgsave_picture_125403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125403.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ WANDERER: Broken Bed (2021) [Ru/En] (0.9) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125404.jpgsave_picture_125404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125404.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F9E18E9883145ADB7816C9A3A290642488DB44D8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125405.jpgsave_picture_125405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125405.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Strayed Lights (2023) [Ru/Multi] (Build 11697504) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125406.jpgsave_picture_125406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125406.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D1264D38A0BF128BAD81FB6F253B11911F3A64E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125407.jpgsave_picture_125407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125407.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:742E69D1F67F18D424CBEB6DE3FBC75B8A15F21C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125408.jpgsave_picture_125408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125408.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:48E1562E551CF8D773B012EFA095E592E455327A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125409.jpgsave_picture_125409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125409.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Never Elected - Turbulent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125410.jpgsave_picture_125410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125410.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:0BFEA7FF28EAD975BB1CB5167F37D1AF21F99361
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125411.jpgsave_picture_125411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125411.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Night's Edge - Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125412.jpgsave_picture_125412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125412.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Borgne - Titania (2012) Compilation [FLAC|Lossless|image + .cue] <Industrial Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125413.jpgsave_picture_125413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125413.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Horace Silver Quintet / Sextet - The Jody Grind (1966) 1991, Blue Note [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125414.jpgsave_picture_125414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125414.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Demolish - Remembering the Cabalisticae Laments (2005) Compilation [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125415.jpgsave_picture_125415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125415.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ John Hicks - Inc. 1 (1985) 2008, DIW Records [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125416.jpgsave_picture_125416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125416.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Borgne - Royaume des Ombres (2012) [FLAC|Lossless|image + .cue] <Industrial Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125417.jpgsave_picture_125417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125417.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Prematory - Corrupting Influence (2014) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125418.jpgsave_picture_125418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125418.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Borgne - Entraves de l'Ame (2010) [FLAC|Lossless|image + .cue] <Industrial Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125419.jpgsave_picture_125419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125419.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Borgne - IV (2009) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125420.jpgsave_picture_125420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125420.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:9D6D0323158A91AACD12007C6BD43A3041DBB2A8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125421.jpgsave_picture_125421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125421.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - ARMADA - Trance Year Mix 2023 (2023-12-25) [MP3|320 Kbps] <Trance, Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125422.jpgsave_picture_125422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125422.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:542FCB543FB6B725C936C60370E380F3FE11FDFA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125423.jpgsave_picture_125423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125423.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125424.jpgsave_picture_125424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125424.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Frank Sinatra - Under The Mistletoe (2001) Direct Source Special Products [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125425.jpgsave_picture_125425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125425.jpg" />
 </div>
 
 

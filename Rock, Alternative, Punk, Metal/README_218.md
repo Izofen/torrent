@@ -6,7 +6,7 @@ Stangala - Boued Tousek Hag Traou Mat All (2011) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138339.jpgsave_picture_138339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138339.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stangala - Klañv (Klanv) (2016) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138351.jpgsave_picture_138351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138351.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Peter Hammill - In A Foreign Town / Out Of Water (1988-1990) Remaster, 2023, Eso
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138409.jpgsave_picture_138409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138409.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Emil Sigfridsson - Back To Yesterday (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138478.jpgsave_picture_138478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138478.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Nail Within - Sound Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138545.jpgsave_picture_138545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138545.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:7A58D3003B5CE5BA576876924341D00E24BEF5B3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138588.jpgsave_picture_138588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138588.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Chris Rea - The Road To Hell (1989) Geffen Records [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138677.jpgsave_picture_138677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138677.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Bon Jovi - This Left Feels Right (2003) SACD [FLAC|Lossless|tracks + .cue] <Aren
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138760.jpgsave_picture_138760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138760.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Dante Fox - Six String Revolver (2017) [FLAC|Lossless|tracks + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138811.jpgsave_picture_138811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138811.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Kreator - Violence Unleashed (2016) EP [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138926.jpgsave_picture_138926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138926.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Jon Lord - Beyond The Notes (2004) SACD [FLAC|Lossless|tracks + .cue] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138993.jpgsave_picture_138993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138993.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F706679A2F6C2A9DD7E3E603DB05129E9B28AC78
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139011.jpgsave_picture_139011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139011.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Nicolette Larson - Nicolette (1978) Remastered, 2013, Warner Bros. Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139026.jpgsave_picture_139026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139026.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Grotto - Circle of Magi (2017) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139070.jpgsave_picture_139070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139070.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Grotto - Smokonomicon (2016) [MP3|320 Kbps] <Stoner Metal, Psychedelic Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139096.jpgsave_picture_139096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139096.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Rocka Rollas - The Road To Destruction (2014) [MP3|320 кб/с]<Speed Metal, Hea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139121.jpgsave_picture_139121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139121.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:A940AA9D1875BB3F10595EDDB823E2D02A218467
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139140.jpgsave_picture_139140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139140.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Grace and Fire - Elysium (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139172.jpgsave_picture_139172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139172.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Neil Young - Songs for Judy (2018) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Country Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139228.jpgsave_picture_139228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139228.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E85B7E15EA09D59ADCA4A4656B38CF6AA1932D16
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139295.jpgsave_picture_139295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139295.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Alex Harvey - The Last Of The Teenage Idols (2016) 14 CD Box Set, Limited Editio
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139344.jpgsave_picture_139344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139344.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Clepsydra - The Gap (2019) 2xCD, Remastered, 2021, Oskar [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139503.jpgsave_picture_139503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139503.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Destruction - Born To Thrash: Live In Germany (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139573.jpgsave_picture_139573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139573.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Glass Hammer - Chronomonaut (2018) [FLAC|Lossless|tracks + .cue] <Symphonic Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139610.jpgsave_picture_139610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139610.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Chrome Division - One Last Ride (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139624.jpgsave_picture_139624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139624.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ George Lynch & Jeff Pilson - Heavy Hitters (2020) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139627.jpgsave_picture_139627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139627.jpg" />
 </div>
 
 

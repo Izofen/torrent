@@ -6,7 +6,7 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28892.jpgsave_picture_28892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28892.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28897.jpgsave_picture_28897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28897.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28914.jpgsave_picture_28914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28914.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deliver Us Mars (2023) [Ru/Multi] (2.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28917.jpgsave_picture_28917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28917.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28976.jpgsave_picture_28976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28976.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ NEEDY STREAMER OVERLOAD / NEEDY GIRL OVERDOSE: Internet Angel Pack (2022) [Ru/Mu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28983.jpgsave_picture_28983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28983.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Deliver Us Mars (2023) [Ru/Multi] (build 17157569) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29013.jpgsave_picture_29013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29013.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29031.jpgsave_picture_29031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29031.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29065.jpgsave_picture_29065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29065.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29066.jpgsave_picture_29066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29066.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29224.jpgsave_picture_29224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29224.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29316.jpgsave_picture_29316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29316.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Gift Collector (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29383.jpgsave_picture_29383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29383.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 17168908) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29452.jpgsave_picture_29452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29452.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (Build 15058792) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29511.jpgsave_picture_29511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29511.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29646.jpgsave_picture_29646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29646.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Matsuro Palette / Палитра Смерти (2020) [Ru/Multi] (1.0.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29683.jpgsave_picture_29683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29683.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29714.jpgsave_picture_29714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29714.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29825.jpgsave_picture_29825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29825.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Sable (2021) [Ru/Multi] (4.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29910.jpgsave_picture_29910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29910.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.325) Repack Let'sРlay [Premium E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29937.jpgsave_picture_29937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29937.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30167.jpgsave_picture_30167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30167.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30236.jpgsave_picture_30236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30236.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30272.jpgsave_picture_30272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30272.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30376.jpgsave_picture_30376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30376.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30401.jpgsave_picture_30401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30401.jpg" />
 </div>
 
 

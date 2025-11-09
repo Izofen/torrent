@@ -6,7 +6,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146157.jpgsave_picture_146157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146157.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rise of the Argonauts / Rise of the Argonauts. В поисках золотог�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146158.jpgsave_picture_146158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146158.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ King - Fury and Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146159.jpgsave_picture_146159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146159.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Technical Itch - The Failed Evolution EP (2012) [MP3|320 кб/с]<Drum and Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146160.jpgsave_picture_146160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146160.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:DF32D08DC4074CFEEB2044E817987FBBEB15B294
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146161.jpgsave_picture_146161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146161.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:CB3D6B13F8EF5B6F5E9D985A2B5AAF3347BABD6B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146162.jpgsave_picture_146162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146162.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E5A61570FEA5BB0831DF84FEA4F6E7B115D41E99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146163.jpgsave_picture_146163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146163.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:D8AC4778409AB48F1CD0208399E5C8F55C19A972
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146164.jpgsave_picture_146164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146164.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:E78C3F9F4B67908348ED6FE7CC8DD3F3C5227FBC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146165.jpgsave_picture_146165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146165.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:C8A422BF70E96138F47B8BC373EAF0BA2F3574F5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146166.jpgsave_picture_146166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146166.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:488FEE7484B78FDB6ECB41A2538CA2EA6FE0051F
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146167.jpgsave_picture_146167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146167.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Icecream PDF Editor PRO 2.06 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146169.jpgsave_picture_146169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146169.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ XMind 7 Pro 3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146170.jpgsave_picture_146170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146170.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:0B9428627D15380FEE04921D70DD2A1705DEB58B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146171.jpgsave_picture_146171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146171.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Mizmor - 8 Albums (2012-2023) [MP3|320 Kbps] <Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146172.jpgsave_picture_146172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146172.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Alfred 3 Powerpack 3.7.1(948)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146173.jpgsave_picture_146173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146173.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C9416EB4E6E3821276582081AF7378252586315F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146175.jpgsave_picture_146175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146175.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - SoSexy - Deep House Selection Vol.1-2 (2012) [MP3|320 кб/с]<House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146176.jpgsave_picture_146176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146176.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:13F9DDAFA046960BB915A38AB0C29C83BE70530A
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146177.jpgsave_picture_146177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146177.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Adguard Премиум 5.10.2051.6368 DC 28.10.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146178.jpgsave_picture_146178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146178.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:01C6FCBA5AFBEC16CA2809868CEEA38AB32B0BEC
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146179.jpgsave_picture_146179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146179.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Soars - Repeater (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146180.jpgsave_picture_146180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146180.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B5736D7A6F31CA2A9BBF966C852BB979C3364EF1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146181.jpgsave_picture_146181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146181.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:9E4BF459B9C48D90597565EEE467B081BA67D0B9
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146182.jpgsave_picture_146182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146182.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Песни из телефильма ''Тайна Снежной Корол
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146183.jpgsave_picture_146183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146183.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:24A0FBCB5E793F3264906C901880BEE5661A2C23
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146184.jpgsave_picture_146184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146184.jpg" />
 </div>
 
 

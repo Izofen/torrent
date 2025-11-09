@@ -6,7 +6,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_263.jpgsave_picture_263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_263.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - National Pop Dance Music Vol.121 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_264.jpgsave_picture_264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_264.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:3AD23FA9536C3AC1A967CBBA41A4759AADD40B98
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_265.jpgsave_picture_265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_265.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:CFE4DDB9577CEC25EC491E4E15A9CA53ECAE6463
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_266.jpgsave_picture_266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_266.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:3B4425BF61E490F475A9D005B1E83766C6E669D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_267.jpgsave_picture_267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_267.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:C72F48F254559D3E4D888DF3C318CC499E358301
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_268.jpgsave_picture_268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_268.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:8AB38531AECA95A2925F0E3DE7AAC0DF9DD0FA00
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_269.jpgsave_picture_269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_269.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Native Instruments - Kontakt 8.7.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_270.jpgsave_picture_270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_270.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:1BA57A0FE0BC7301980DD00532C09D2B8752ADDE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_271.jpgsave_picture_271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_271.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:6CB2AB43AC94A241ABB1EC25858D5BA2EF2B2176
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_272.jpgsave_picture_272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_272.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_273.jpgsave_picture_273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_273.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:4EA102FFAC85AC50E0B13405322A4654F58FA5D8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_274.jpgsave_picture_274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_274.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:5B00E541813044B84C16771403582692DDF2992C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_275.jpgsave_picture_275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_275.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:95237A21A00925EEA792F36453DF62CF3E4D2B8A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_276.jpgsave_picture_276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_276.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ iZotope - Trash 1.3.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_277.jpgsave_picture_277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_277.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:A7EA2CB7347DEB24468F9F1CFA120AE42631D03A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_278.jpgsave_picture_278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_278.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ iZotope - VEA 1.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_279.jpgsave_picture_279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_279.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:16D90C4246A621B3535D6D6F9824476A3C6B70E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_280.jpgsave_picture_280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_280.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:BBE9351AA237F2074A0C327C1927CB6805A17ACC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_281.jpgsave_picture_281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_281.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Mariah Carey - Here For It All (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_282.jpgsave_picture_282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_282.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:D9AA6512C2B6A862989155E5FAD8D9EB3F8E3606
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_283.jpgsave_picture_283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_283.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:C1FCFF014C3F58BC7467AAEDC7D4D3BDC1B5D485
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_284.jpgsave_picture_284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_284.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ FireAlpaca 2.13.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_285.jpgsave_picture_285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_285.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шальной �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_286.jpgsave_picture_286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_286.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:3C02F67FDEBAB5648F105A77B2315A9CE01F0556
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_287.jpgsave_picture_287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_287.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Kate Bush - Best Of The Other Sides (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_288.jpgsave_picture_288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_288.jpg" />
 </div>
 
 

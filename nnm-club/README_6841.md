@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235106.jpgsave_picture_235106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235106.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Photo AI 1.3.11 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235107.jpgsave_picture_235107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235107.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CrystalDiskInfo 8.17.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235109.jpgsave_picture_235109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235109.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:01AAF889F9DF7D6B2A4A06A1DFFEFC573A0D52A5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235110.jpgsave_picture_235110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235110.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Iridient Developer 3.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235111.jpgsave_picture_235111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235111.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Aftermath - No Time To Waste (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235113.jpgsave_picture_235113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235113.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Underking - At Hell's Gate (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235114.jpgsave_picture_235114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235114.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ JUG Ru Group | DotNext 2022 Spring. Конференция для .NET‑раз�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235115.jpgsave_picture_235115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235115.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Process Monitor 3.95 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235118.jpgsave_picture_235118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235118.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ The Animation Box, Yuri Lementy | Cartoon Mechanics Masterclass (2020) PCRec [RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235119.jpgsave_picture_235119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235119.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional M
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235120.jpgsave_picture_235120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235120.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Darknet - trashworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235121.jpgsave_picture_235121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235121.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235122.jpgsave_picture_235122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235122.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:F984734EAF19BD414570F1FA2BFBF471879B6CA8
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235123.jpgsave_picture_235123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235123.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:20694E3F15FE2F940C661F618D481BF14B3A73FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235124.jpgsave_picture_235124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235124.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ System Toolkit 3.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235128.jpgsave_picture_235128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235128.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Convoy - Some Gave All for Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235129.jpgsave_picture_235129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235129.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Walk With Titans - Olympian Dystopia (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235130.jpgsave_picture_235130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235130.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ IconFly 3.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235132.jpgsave_picture_235132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235132.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Papik - Papik Presents Cocktail Mina, Vol. 2 (2022) [AAC|~319 Kbps] <Nu Jazz, So
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235133.jpgsave_picture_235133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235133.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ MiniTool Partition Wizard Pro 12.6 (акция Comss) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235135.jpgsave_picture_235135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235135.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Luis Maldonalle - Furia (2023) [FLAC|Lossless|WEB-DL|tracks] <Shred, Neoclassica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235136.jpgsave_picture_235136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235136.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:CB905D304234CA5E10000613C35F74B8908AB2D9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235137.jpgsave_picture_235137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235137.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PowerDirector – Video Editor 12.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235138.jpgsave_picture_235138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235138.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Debookee v8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235139.jpgsave_picture_235139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235139.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:CBD21BAEA5736E332F9BE3D67F80CD2B15E3ADE2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235142.jpgsave_picture_235142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235142.jpg" />
 </div>
 
 

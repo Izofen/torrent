@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1701.jpgsave_picture_1701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1701.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4315D10C4D61E4EBCDDD26B8C2C524F222582D78
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1702.jpgsave_picture_1702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1702.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Greedland (2025) [Ru/Multi] (1.0.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1703.jpgsave_picture_1703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1703.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1704.jpgsave_picture_1704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1704.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1705.jpgsave_picture_1705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1705.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1706.jpgsave_picture_1706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1706.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1C1C5E445640537D89D255A1D737567EBB332287
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1707.jpgsave_picture_1707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1707.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B735F298325A784B5F46883E87CE5F8F5A857806
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1708.jpgsave_picture_1708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1708.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1709.jpgsave_picture_1709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1709.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Kaoru Hana wa Rin to Saku | The Fragrant Flower Blooms with Dignity | Благо
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1710.jpgsave_picture_1710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1710.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:C09DDF42155DDEDD0CC9811858131350484FE35A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1711.jpgsave_picture_1711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1711.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7A4AF9EF25FCA841087BC218347203FEF744B950
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1712.jpgsave_picture_1712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1712.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:D6C69850317AB74659690CCF9B39610503650D5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1713.jpgsave_picture_1713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1713.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ESET NOD32 Internet Security 18.2.18.0 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1714.jpgsave_picture_1714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1714.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E4C7BADA0799539A71881EDBD0FF5A2C8F84069F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1715.jpgsave_picture_1715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1715.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Koujo Denka no Kateikyoushi / Private Tutor to the Duke's Daughter / Чacтны�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1716.jpgsave_picture_1716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1716.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack seleZen [Digi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1717.jpgsave_picture_1717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1717.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:40E638C842B01ACA8AB2E523C8D1C687E53EDD22
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1718.jpgsave_picture_1718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1718.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:F3EB6262D71EF3378E093A9BF8C6DFF95E647FF3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1719.jpgsave_picture_1719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1719.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Bloons TD 6 (2018) [Ru/Multi] (50.2.9835) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1720.jpgsave_picture_1720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1720.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:2EB0FA4460D1FD14997E13E38EF937DFA0C22893
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1721.jpgsave_picture_1721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1721.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:2EB0FA4460D1FD14997E13E38EF937DFA0C22893
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1722.jpgsave_picture_1722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1722.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:413B960D847B880B5BCE72BED47F0B9C816B2081
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1723.jpgsave_picture_1723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1723.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Bad Cheese (2025) [Ru/Multi] (1.00.035) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1724.jpgsave_picture_1724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1724.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:24709F32BE877C3E7F5854524E9AB98131AF5139
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1725.jpgsave_picture_1725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1725.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:A205A25E81747D09E774A2180C5CFC0EB85DCE44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1726.jpgsave_picture_1726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1726.jpg" />
 </div>
 
 

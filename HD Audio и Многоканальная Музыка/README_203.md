@@ -6,7 +6,7 @@ Taylor Acorn - Certified Depressant (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186238.jpgsave_picture_186238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186238.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sirenia - Studio Albums (12 releases) (2002-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186425.jpgsave_picture_186425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186425.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ A Golden Hour From Winchester Cathedral, soloist Timothy Wilson - Hear My Prayer
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpgsave_picture_186428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186428.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ yeule - softscars (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, cyber go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186437.jpgsave_picture_186437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186437.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpgsave_picture_186440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186440.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpgsave_picture_186451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186451.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186457.jpgsave_picture_186457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186457.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Spe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186485.jpgsave_picture_186485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186485.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ CHI - I've Seen The Lizard People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186584.jpgsave_picture_186584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186584.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ SDH (Semiotics Department of Heteronyms) - Fake Is Real (2023) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186588.jpgsave_picture_186588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186588.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Turn Me On Dead Man - Cassiopeia (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186591.jpgsave_picture_186591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186591.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Dayshell - Pegasus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186597.jpgsave_picture_186597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186597.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Queen - The Miracle (Collectors Edition) (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186714.jpgsave_picture_186714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186714.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186748.jpgsave_picture_186748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186748.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186828.jpgsave_picture_186828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186828.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpgsave_picture_186830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186830.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186836.jpgsave_picture_186836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186836.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpgsave_picture_187128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Sundayman - Melodyssey (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <New Age>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187149.jpgsave_picture_187149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187149.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Neuromancer - Hardwired (2023) [FLAC 24/44.1|WEB-DL|tracks] <Darksynth, Synthwav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187160.jpgsave_picture_187160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187160.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpgsave_picture_187193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187195.jpgsave_picture_187195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187195.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Coldstream Guards - Changing The Guard At Buckingham Palace (1983) [FLAC 2.0|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187201.jpgsave_picture_187201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187201.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187205.jpgsave_picture_187205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187205.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187437.jpgsave_picture_187437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187437.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Pucc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpgsave_picture_187452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpg" />
 </div>
 
 

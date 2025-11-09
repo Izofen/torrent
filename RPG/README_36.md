@@ -6,7 +6,7 @@ Svarog's Dream (2023) [En] (2.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61110.jpgsave_picture_61110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61110.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MANIAC (2024) [Ru/Multi] (0.9.12B) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61142.jpgsave_picture_61142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61142.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Metal Unit (2021) [Ru/Multi] (010309) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61202.jpgsave_picture_61202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61202.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61214.jpgsave_picture_61214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61214.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Three Kingdoms Zhao Yun (2024) [Multi] (1.1.5/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61263.jpgsave_picture_61263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61263.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F25E6900875B7FA1FBED614668A49E5E4AC2B3FC
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61303.jpgsave_picture_61303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61303.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61442.jpgsave_picture_61442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61442.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61560.jpgsave_picture_61560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61560.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Phantom Tides (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61744.jpgsave_picture_61744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61744.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.0.12/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61769.jpgsave_picture_61769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61769.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.240321) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61881.jpgsave_picture_61881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61881.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sands of Aura (2021) [Ru/Multi] (1.01.25) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61884.jpgsave_picture_61884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61884.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61972.jpgsave_picture_61972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61972.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ EMPYRE: Earls of the Deep Earth (2024) [En] (Build #16) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62054.jpgsave_picture_62054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62054.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Grand Soul Saga (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62058.jpgsave_picture_62058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62058.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Blade Prince Academy (2024) [Multi] (1.0) Repaclk FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62265.jpgsave_picture_62265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62265.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ God of War (2022) [Ru/Multi] (1.0.13) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62305.jpgsave_picture_62305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62305.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Goblin Stone (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62397.jpgsave_picture_62397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62397.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Solasta - Crown of the Magister (2021) [Ru/Multi] (1.5.97/dlc) License GOG [Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62615.jpgsave_picture_62615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62615.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62732.jpgsave_picture_62732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62732.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Welcome to ParadiZe (2024) [Ru/Multi] (Build Feb 26 2024/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62834.jpgsave_picture_62834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62834.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Microcosmum 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62838.jpgsave_picture_62838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62838.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Thaumaturge (2024) [Ru/Multi] (70.100/dlc) Repack FitGirl [Digital Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62939.jpgsave_picture_62939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62939.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.0/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62943.jpgsave_picture_62943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62943.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Questron II (1988) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65796.jpgsave_picture_65796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65796.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65804.jpgsave_picture_65804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65804.jpg" />
 </div>
 
 

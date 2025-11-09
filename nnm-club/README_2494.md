@@ -6,7 +6,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65594.jpgsave_picture_65594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65594.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:16CADBDC7737156FAED156919AB47B8DB18162EB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65595.jpgsave_picture_65595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65595.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B4E63F0F7BBE6B70782309E3F8D873387656D9D0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65596.jpgsave_picture_65596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65596.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8D2DF45159BF7D23C3C4173F52CFCF21C0C51A2F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65597.jpgsave_picture_65597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65597.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:712DF167BCDF506516C57C9312CF1624B28810F7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65598.jpgsave_picture_65598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65598.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:863A30C55BD0430F649D12FC2C11186D5B101285
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65599.jpgsave_picture_65599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65599.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:364D2E8B03BFB228B66E56793376403AFD4EC0BA
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65600.jpgsave_picture_65600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65600.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:958BEC1A03AC68AAD09EF75ECEED0FEF80332F39
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65601.jpgsave_picture_65601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65601.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Гонка 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65602.jpgsave_picture_65602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65602.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DII Minores - March Of The Fallen (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65603.jpgsave_picture_65603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65603.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Awaken I Am - The Only Way Out Is Through (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65604.jpgsave_picture_65604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65604.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Hot Milk - Corporation P.O.P. (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65605.jpgsave_picture_65605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65605.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Metropolit - 3 Albums (2024-2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Post-
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65606.jpgsave_picture_65606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65606.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Enemy Ac130 Above - Cosmic Apotheosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65607.jpgsave_picture_65607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65607.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Wanted - Cutting Edge (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65608.jpgsave_picture_65608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65608.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65609.jpgsave_picture_65609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65609.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Heaven Shall Burn - Heimat (2025) [MP3|320 Kbps] <Melodic Death Metal, Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65610.jpgsave_picture_65610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65610.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Biscuit Merchant - Tempora (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65611.jpgsave_picture_65611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65611.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Broken Fate - Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65612.jpgsave_picture_65612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65612.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Сприн�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65613.jpgsave_picture_65613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65613.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Grupo Bryndis - Tu Amor Secreto (1995) [FLAC|Lossless|WEB-DL|tracks] <Latin, Cum
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65614.jpgsave_picture_65614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65614.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Avkrvst - Waving At The Sky (2025) [FLAC|Lossless|image + .cue] <Prog Rock, Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65615.jpgsave_picture_65615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65615.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Creeping Fear - Realm Of The Impaled (2025) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65616.jpgsave_picture_65616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65616.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ HateSphere - Hatred Reborn (2023) [FLAC|Lossless|image + .cue] <Death Metal, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65617.jpgsave_picture_65617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65617.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ MotoGP. Этап 10 из 22. Гран-при Нидерландов. Квали�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65618.jpgsave_picture_65618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65618.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Bennie Green - with Art Farmer (1956) 1992, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65619.jpgsave_picture_65619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65619.jpg" />
 </div>
 
 

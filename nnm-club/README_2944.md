@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87129.jpgsave_picture_87129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87129.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ magnet:?xt=urn:btih:65E97FF6F634A8DE11F6FB8D3BA53C8156191F69
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87133.jpgsave_picture_87133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87133.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Little Feat - Waiting For Columbus (1978) Remastered /2010, MFSL/ [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87136.jpgsave_picture_87136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87136.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Little Feat - Waiting For Columbus (1978) Remastered /2010, MFSL/ [FLAC|Lossless
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87137.jpgsave_picture_87137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87137.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Dear Hunter - The Color Spectrum (2011) [FLAC|Lossless]<Indie rock,Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87139.jpgsave_picture_87139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87139.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ The Dear Hunter - The Color Spectrum (2011) [FLAC|Lossless]<Indie rock,Progressi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87141.jpgsave_picture_87141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87141.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:E239D665E9F44B7786FD11FD221EB66C54427A37
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87143.jpgsave_picture_87143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87143.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:1596D8FFDCF2F99CE1FBF988FC1BAE9E69B2D8AE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87144.jpgsave_picture_87144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87144.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87146.jpgsave_picture_87146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87146.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87147.jpgsave_picture_87147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87147.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87148.jpgsave_picture_87148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87148.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:082629DF665E80332272BDD1D0D442671F3D505C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87149.jpgsave_picture_87149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87149.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Dr.WEB CureIt! 6.00.16 (07-04-2012) [русский / английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87151.jpgsave_picture_87151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87151.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Dr.Web CureIt! определяет и удаляет: почтовые и се�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87152.jpgsave_picture_87152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87152.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Johann Friedrich Fasch - Johann Friedrich Fasch Oboe Sonatas: Burkhard Glaetzner
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87153.jpgsave_picture_87153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87153.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Androcell - Efflorescence (2006) [FLAC|Lossless]<New Age, Ambient, Electronic, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87156.jpgsave_picture_87156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87156.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Androcell - Efflorescence (2006)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87157.jpgsave_picture_87157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87157.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8EEF0B15070445BB83EBC881D50EF13AA81AD8E3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87159.jpgsave_picture_87159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87159.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:0977BB029F93B6950736751D709F424907DBDEC8
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87161.jpgsave_picture_87161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87161.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:339A14393DEF96F353ACA9547FF5824E7BFF1455
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87162.jpgsave_picture_87162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87162.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Antonio Vivaldi - 5 Concerti for Bassoon, Strings & Continuo: Milan Turkovic & I
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87163.jpgsave_picture_87163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87163.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87167.jpgsave_picture_87167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87167.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87168.jpgsave_picture_87168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87168.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:C4D153CB4D79F8D92C13F6B8AFECB03F1ACDEC72
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87172.jpgsave_picture_87172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87172.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:6086E3B0B4B44E5DF1AEBBEAF0F86656E06E3186
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87175.jpgsave_picture_87175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87175.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:6086E3B0B4B44E5DF1AEBBEAF0F86656E06E3186
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87176.jpgsave_picture_87176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87176.jpg" />
 </div>
 
 

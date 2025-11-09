@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96938.jpgsave_picture_96938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96938.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Avto Club March (2012) [MP3|320 кб/с]<Dance, House, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96939.jpgsave_picture_96939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96939.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:FF5B03F1EC97B869AD073237D6BB734532574817
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96944.jpgsave_picture_96944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96944.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Mortad - The Myth Of Purity (2012) [MP3|320 кб/с]<Melodic Death Metal / Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96945.jpgsave_picture_96945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96945.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:9DBAFBFE10FF283E3F2DDC7822C035A57AB117A6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96946.jpgsave_picture_96946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96946.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:D208573A179BA95C1FEE07C4CE2C34A6FA89AFD3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96948.jpgsave_picture_96948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96948.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Trance World Vol. 14 (Mixed by Shogun) (2012)  [MP3|320 кб/с]<Uplifting 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96949.jpgsave_picture_96949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96949.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96950.jpgsave_picture_96950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96950.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:3A2079B9D4C29D04540E0A2FCEC922A3501B7568
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96951.jpgsave_picture_96951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96951.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:A1D9703F84F032A006E614CA87C3B33172FFBE1D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96952.jpgsave_picture_96952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96952.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:D763B3B719AED8C9108C884F318269170B1F35DA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96953.jpgsave_picture_96953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96953.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - 50 Miami Tunes 2012 (2012) [MP3|320 кб/с]<Trance, House, Progressive Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96956.jpgsave_picture_96956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96956.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:5654D84DF8E3F8D30B051AFAB021526B9936A8C5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96957.jpgsave_picture_96957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96957.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:478F899330CCBBE2E1D36C5E334C3D5ACB997FDB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96958.jpgsave_picture_96958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96958.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D8443D69EA3460205ACC796405819217753BF161
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96961.jpgsave_picture_96961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96961.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:DE46606572A039E4461FA3D2CEC3B9EF8149C594
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96963.jpgsave_picture_96963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96963.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B2031969398310A3DFFED9F9075DAB69F0C99A74
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96965.jpgsave_picture_96965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96965.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:123C74433C210EA4EC96D1E9C95CF22FBD0DA7E6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96966.jpgsave_picture_96966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96966.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:CD0E89C93CA15BCC9216C6B6E731BAF8B8AD9C34
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96967.jpgsave_picture_96967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96967.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:AACC8EFAC9BD51EC37C4F571DF1ADFCDE1A941C8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96973.jpgsave_picture_96973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96973.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:84CFD337846151603C856D021571A02B7F2B86CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96975.jpgsave_picture_96975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96975.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Peter White - Here We Go (2012) [MP3|~245 кб/с (V0)]<Smooth Jazz, Jazz-Guitar
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96976.jpgsave_picture_96976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96976.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:265F64228529D9179A70FAD1B8E3950161C3FCD7
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96979.jpgsave_picture_96979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96979.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ H.e.a.t. - Address The Nation (2012) [MP3|320 кб/с]<AOR , Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96980.jpgsave_picture_96980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96980.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ magnet:?xt=urn:btih:59ADF42A21667B2C69E141D1B35F28A958224CA8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96982.jpgsave_picture_96982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96982.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ magnet:?xt=urn:btih:9306E9DAE831D08A846194EA43C8817EB07BAF58
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96984.jpgsave_picture_96984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96984.jpg" />
 </div>
 
 

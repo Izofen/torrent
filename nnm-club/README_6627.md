@@ -6,7 +6,7 @@ OmniReader Pro for Mac 2.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215525.jpgsave_picture_215525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215525.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Richard Soucy - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215530.jpgsave_picture_215530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215530.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Magic Battery 7.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215539.jpgsave_picture_215539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215539.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:CA899CEB2BB515F187AEF76196D9BD74FE69DF03
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215547.jpgsave_picture_215547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215547.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Iridient Developer for Mac 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215554.jpgsave_picture_215554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215554.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Legion Of The Damned - The Poison Chalice (2023) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215563.jpgsave_picture_215563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215563.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Permute 3 v.3.10.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215572.jpgsave_picture_215572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215572.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ J.J. Johnson & Kai Winding - Jay & Kai (1947 - 1954) 1992, Savoy Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215579.jpgsave_picture_215579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215579.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ RAW Power 3.4.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215588.jpgsave_picture_215588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215588.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Default Folder X 6.0 b2 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215600.jpgsave_picture_215600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215600.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ EdgeView 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215618.jpgsave_picture_215618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215618.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Eliminator - And the Brokenhearted Balladeers (2011) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215629.jpgsave_picture_215629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215629.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Eliminator - The One They Were Waiting For (2011) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215635.jpgsave_picture_215635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215635.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Geist - Kainsmal (2006) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215642.jpgsave_picture_215642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215642.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:0EACB47E8A3AA0A7EC519A5CAE755CBD709E9723
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215777.jpgsave_picture_215777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215777.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:4BDF0E0C0027D445B1379D0396018C16697CD072
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215786.jpgsave_picture_215786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215786.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:733739182787E7C85CC7E2707D2A767C8AE25EA8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215793.jpgsave_picture_215793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215793.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:BD353628219F7226395BC84B61631D7F2085B4C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215814.jpgsave_picture_215814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215814.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:2708E89171CCB8E87ED20CB32D03D7623AA93F81
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215854.jpgsave_picture_215854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215854.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:52F60F5F6E6712C835A2382D9D411F406B209878
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215870.jpgsave_picture_215870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215870.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:BB7069945240940BB61556155FA12CF9325A6364
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215889.jpgsave_picture_215889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215889.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:347C269B829705424245EFE6B78263EF74052E1B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215895.jpgsave_picture_215895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215895.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:347C269B829705424245EFE6B78263EF74052E1B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215958.jpgsave_picture_215958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215958.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:7FAAB598B184B9E1C8158819361A66A437F7521D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215971.jpgsave_picture_215971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215971.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:B4E01DD1BEF6AC976C02D8CBEB0AB4A731BE0807
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215983.jpgsave_picture_215983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215983.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:75D6EC2FC90523D77D18719C215A0E9DF4473ECE
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215994.jpgsave_picture_215994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215994.jpg" />
 </div>
 
 

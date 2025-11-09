@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147909.jpgsave_picture_147909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147909.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Дискотека 2022 Dance Club Vol. 210 Новогодний выпус
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147910.jpgsave_picture_147910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147910.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F976231D1459E07FB7A483BF106F68A3D1A6813F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147911.jpgsave_picture_147911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147911.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:81ACC6E8F91F8A90527F8680E70DFE2BD00C9BEF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147912.jpgsave_picture_147912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147912.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Lee Morgan - Tom Cat (1964) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147914.jpgsave_picture_147914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147914.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pid [En/Multi5] (L/1.01) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147915.jpgsave_picture_147915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147915.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:799400E646F2628CA8F6CEB8E7E24AE77D06D526
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147916.jpgsave_picture_147916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147916.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D6878479D02BDB46F1B34527AFFC1842D74E2328
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147917.jpgsave_picture_147917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147917.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:B7BCE3648CEF0A5C502235BCF99AA53D3F6084FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147918.jpgsave_picture_147918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147918.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:BE22BFD3EC384271DC17FD828411673977C51B9A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147919.jpgsave_picture_147919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147919.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:B6406D927D4AADA3BD507CBDBE0B3064589A21FC
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147920.jpgsave_picture_147920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147920.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ CtranNik | Мама - это Ты (2020) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147921.jpgsave_picture_147921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147921.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147922.jpgsave_picture_147922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147922.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Kurt Vile - Back to Moon Beach (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147923.jpgsave_picture_147923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147923.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:6EA2A58B360E39BC182DAE8C1DCD9FC248B392AE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147924.jpgsave_picture_147924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147924.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:4523064577AD0193FDF229CF2DCA1576595D1E06
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147926.jpgsave_picture_147926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147926.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:97231BF2AB4ED0C696BE0DF03C0964FDD1822174
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147927.jpgsave_picture_147927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147927.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Дискотека "Белые розы" В Обработке DJ (2010) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147929.jpgsave_picture_147929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147929.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Classic Shell 3.6.3 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147930.jpgsave_picture_147930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147930.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Classic Shell - эта программа предназначена для вк
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147931.jpgsave_picture_147931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147931.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:3061A775BC5849D8A57E9F5CC30F1744F35CD02A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147932.jpgsave_picture_147932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147932.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Terence Blanchard & Donald Harrison - New York Second Line (1985) Concord Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147933.jpgsave_picture_147933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147933.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:94865D61ADC980CD1AC86F6534C3E7CBE0F01309
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147934.jpgsave_picture_147934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147934.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:98E0688D283CB3984175BA582BDCA90E6772AC5F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147935.jpgsave_picture_147935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147935.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electr
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147936.jpgsave_picture_147936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147936.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:01368BEDB1A4F423EDE877457101D809FCF800A5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147937.jpgsave_picture_147937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147937.jpg" />
 </div>
 
 

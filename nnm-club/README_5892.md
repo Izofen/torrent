@@ -6,7 +6,7 @@ Wondershare AllMyMusic 3.0.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185449.jpgsave_picture_185449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185449.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:3F6D78753C31CF6B7DF64CCD71FBE62B460A92FE
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185452.jpgsave_picture_185452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185452.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Skype 8.105.0.208 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185453.jpgsave_picture_185453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185453.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:8A3DD2048F25B733F33A0E656E10CF6F40A087A1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185454.jpgsave_picture_185454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185454.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Moonlight Haze - De Rerum Natura (2019) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185455.jpgsave_picture_185455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185455.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Color Folder Master 1.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185458.jpgsave_picture_185458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185458.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A2FDAFBAD1E506D3683442499B98A98632B1AF16
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185459.jpgsave_picture_185459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185459.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwrit
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185460.jpgsave_picture_185460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185460.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Things 3 v3.13.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185462.jpgsave_picture_185462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185462.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Akiko Grace - New York Style (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185464.jpgsave_picture_185464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185464.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:65C9B0C2544A059EF684701C7982369EB0811825
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185466.jpgsave_picture_185466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185466.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ PullTube 1.8.4.14 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185467.jpgsave_picture_185467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185467.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:C560D8721D2D5EE3060DEDCCEB0E52F26B881923
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185469.jpgsave_picture_185469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185469.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Antimatter - A Profusion Of Thought (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmosh
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185472.jpgsave_picture_185472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185472.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:63C86B78D5EA19D3EE211E9537BED67136D27B5F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185473.jpgsave_picture_185473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185473.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:B371647BC9CC900F4FD98032F2F820B4296C27C6
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185474.jpgsave_picture_185474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185474.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Thorium - Empires In The Sun (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185477.jpgsave_picture_185477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185477.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shygirl - ALIAS (2020) [AAC|~312 Kbps] <Electronic, Grime, Experimental>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185478.jpgsave_picture_185478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185478.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:3EC42C887050A03F79BD64AED348613768136C6E
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185479.jpgsave_picture_185479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185479.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Wind Rose - Wintersaga (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185481.jpgsave_picture_185481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185481.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Downie 4 v4.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185482.jpgsave_picture_185482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185482.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Movist Pro 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185484.jpgsave_picture_185484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185484.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:9C2B73CC1138459E3ABA1A280931F5F6389198AA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185485.jpgsave_picture_185485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185485.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ NetWorker Pro 8.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185486.jpgsave_picture_185486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185486.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:29B18E732BA4B519BADD04605562EC556C37C00D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185488.jpgsave_picture_185488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185488.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:9DB79CB86F2486C71A8ABC30D33BA700FC34D2A7
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185490.jpgsave_picture_185490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185490.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Toolroom Knights (Mixed By Forza) (26.11.2012) [MP3|320 кб/с]<Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142959.jpgsave_picture_142959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142959.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Neptune Project - A Question Of Reality (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143037.jpgsave_picture_143037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143037.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ VA - Sexy Funky House Annual 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143075.jpgsave_picture_143075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143075.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Degenerate 2018 Yearmix (Mixed by Sean Tyas) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143087.jpgsave_picture_143087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143087.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Afternova - For All Mankind (2015) [MP3|320 кб/с] <ChillOut>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143107.jpgsave_picture_143107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143107.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ VA - Moulton Music Presents Best Of 2018 (2018) [MP3|320 Kbps] <House, Soulful, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143115.jpgsave_picture_143115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143115.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Top 40 New Year Chillout Gift (2016) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143172.jpgsave_picture_143172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143172.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Christmas Chill Album (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143215.jpgsave_picture_143215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143215.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - After Shopping Lounge (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143244.jpgsave_picture_143244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143244.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Chill Your Soul (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143327.jpgsave_picture_143327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143327.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Ivan Torrent - Immortalys (2017) [MP3|320 Kbps] <Instrumental, New Age,Electroni
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143500.jpgsave_picture_143500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143500.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Smooth Moods Chill Out, Vol. 2 (2023) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143639.jpgsave_picture_143639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143639.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Smooth Moods Chill Out, Vol. 1 (2022) [MP3|320 Kbps] <Lounge, Chill-Out, Do
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143729.jpgsave_picture_143729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143729.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Space Odyssey. New Year's Voyage 2018 2CD (2017) [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143751.jpgsave_picture_143751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143751.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Deejay Dance Compilation Mixed By DJ Neil (2004) [FLAC|Lossless|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143775.jpgsave_picture_143775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143775.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Chill Out And Mellow, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downt
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143809.jpgsave_picture_143809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143809.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Chill Out And Mellow, Vol. 1 (2023) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143817.jpgsave_picture_143817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143817.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Global Trance 2023 - 2024 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143912.jpgsave_picture_143912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143912.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Daylight - 30 (2021) [MP3|320 Kbps] <Spacesynth, Dance-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143926.jpgsave_picture_143926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143926.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Randal Collier-Ford + Side Projects (The Temple Of Algolagnia, Black Sun) - Disc
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143945.jpgsave_picture_143945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143945.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Aly & Fila - Future Sound Of Egypt 528 (Top 30) (2017) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144109.jpgsave_picture_144109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144109.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Animatronix - Echotone (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144240.jpgsave_picture_144240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144240.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Hed Kandi - Twisted Disco (2010) [FLAC|Lossless|tracks] <House, Electronica
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144266.jpgsave_picture_144266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144266.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Di
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144334.jpgsave_picture_144334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144334.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Miika Kuisma, Luminescent, DJ Tab - Ambient Selection (2017) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144341.jpgsave_picture_144341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144341.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Suanda Music Radio Top 20 2017 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144387.jpgsave_picture_144387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144387.jpg" />
 </div>
 
 

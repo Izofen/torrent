@@ -6,7 +6,7 @@ AlgoExpert | Become an Algorithms Expert (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115246.jpgsave_picture_115246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115246.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115292.jpgsave_picture_115292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115292.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alex Klimov | Основы Python для алготрейдинга (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115293.jpgsave_picture_115293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115293.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Udemy, Alexey Belov | Как пройти Junior Python собеседовани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115416.jpgsave_picture_115416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115416.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Product University, Сергей Туманов, Алексей Шаграев, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115419.jpgsave_picture_115419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115419.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Ai-Centr, Роман Кумар Виас, Кирилл Макушкин | ChatGP
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115447.jpgsave_picture_115447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115447.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Stepik, Сергей Балакирев | Добрый, добрый Django с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115452.jpgsave_picture_115452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115452.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:19A76F7EE52E192602A05B1779B6DD3EE94C934E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115625.jpgsave_picture_115625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115625.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:161EE761C10E953C43D682A49D50DEEBC2BB261A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115662.jpgsave_picture_115662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115662.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ CyberYozh Academy, LastByte, Евгений Ивченков | Анонимно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116457.jpgsave_picture_116457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116457.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:97425BBE2C2F08FB2A502D35EF65EEB9674ACABF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116458.jpgsave_picture_116458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116458.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-742) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116786.jpgsave_picture_116786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116786.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Liveclasses, Павел Лебедев | PowerPoint: быстрый старт (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116939.jpgsave_picture_116939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116939.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Stepik, Глеб Михайлов | А/Б-тесты с Глебом Михай�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116964.jpgsave_picture_116964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116964.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Mishkie, Артём Морозов | PowerPoint (2021) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116971.jpgsave_picture_116971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116971.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Gromov-PLC, Дмитрий Громов | HMI Язык C++ в среде Qt Crea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116984.jpgsave_picture_116984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116984.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-741) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116988.jpgsave_picture_116988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116988.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:00E571D40DD396A4ACCB5AE95943D27684C0A916
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119042.jpgsave_picture_119042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119042.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Thinknetica PRO, Дмитрий Титов | Cовременная разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119057.jpgsave_picture_119057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119057.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:4E68882AF6C94F9EAD5F0467B8A38DFF82C6E009
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119256.jpgsave_picture_119256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119256.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:724E3F1D1C1D114E410BD9BA42D8A710C2436D74
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119262.jpgsave_picture_119262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119262.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:F10203A7AAD49E51F6165ABF29D61E38819254E3
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119277.jpgsave_picture_119277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119277.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ardan Labs, Bill Kennedy | Ultimate Go: Software Design with Kubernetes (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120724.jpgsave_picture_120724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120724.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Udemy, David Nixon | Unreal Engine 5: The Intermediate Course (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120884.jpgsave_picture_120884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120884.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Udemy, Alexandr Sochirca | Руководство по GitHub Actions (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120887.jpgsave_picture_120887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120887.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:12E249DE76EC0B6D2E434A520342812570F6A9EC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120888.jpgsave_picture_120888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120888.jpg" />
 </div>
 
 

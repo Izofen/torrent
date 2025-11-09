@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176914.jpgsave_picture_176914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176914.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Skype 8.105.0.214 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176916.jpgsave_picture_176916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176916.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Skype предназначен для личного и делового общ�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176918.jpgsave_picture_176918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176918.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wynter Kills - The Hand of the Wicked One (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176920.jpgsave_picture_176920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176920.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wynter Kills - The Hand of the Wicked One (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176933.jpgsave_picture_176933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176933.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wynter Kills - The Hand of the Wicked One (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176936.jpgsave_picture_176936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176936.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Wynter Kills - The Hand of the Wicked One (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176941.jpgsave_picture_176941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176941.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Kikimora - For A Broken Dime (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176944.jpgsave_picture_176944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176944.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Werner Muller And His Orchestra - The Latin Splendor Of Werner Muller (1970) [FL
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176950.jpgsave_picture_176950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176950.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ A4 Perfidia(   Читать дальше...   )Жанр: Jazz, Latin, Easy Liste
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176956.jpgsave_picture_176956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176956.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ A4 Perfidia(   Читать дальше...   )Жанр: Jazz, Latin, Easy Liste
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176962.jpgsave_picture_176962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176962.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ A4 Perfidia(   Читать дальше...   )Жанр: Jazz, Latin, Easy Liste
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176964.jpgsave_picture_176964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176964.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Mod X - Secrets (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Ro
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176968.jpgsave_picture_176968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176968.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Mod X - Secrets (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Ro
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176978.jpgsave_picture_176978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176978.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Mod X - Secrets (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Ro
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176980.jpgsave_picture_176980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176980.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Mod X - Secrets (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Ro
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176986.jpgsave_picture_176986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176986.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Poisonblack - Of Rust And Bones (2010) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176989.jpgsave_picture_176989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176989.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Deserta - Don't Dare Stop (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176994.jpgsave_picture_176994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176994.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Poisonblack - Escapexstacy (2003) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176996.jpgsave_picture_176996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176996.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Poisonblack - Escapexstacy (2003) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177002.jpgsave_picture_177002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177002.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Kate Smith - Today (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop, Ballad>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177006.jpgsave_picture_177006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177006.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Magic Dance - Vanishings (2016) Reissue, 2023, Special Edition [FLAC|Lossless|im
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177008.jpgsave_picture_177008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177008.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Claptone - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177014.jpgsave_picture_177014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177014.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Court of Beasts - 4 Albums (2019-2023) [FLAC|Lossless|WEB-DL|tracks] <Sludgy Doo
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177017.jpgsave_picture_177017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177017.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Saltatio Mortis - Sturm Aufs Paradies (2011) [FLAC|Lossless|image + .cue] <Folk 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177021.jpgsave_picture_177021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177021.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Heads For The Dead - In The Absence Of Faith (2023) [FLAC|Lossless|WEB-DL|tracks
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177025.jpgsave_picture_177025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177025.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Scooter - Greatest Hits (2011) [MP3|320 kbps] <Progressive, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247304.jpgsave_picture_247304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247304.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7C81FB568080DF2E87A71DD05F5442D369820A13
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247305.jpgsave_picture_247305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247305.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0E78FBA3069AF7AB2181E78D4562E8C7B984E1B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247306.jpgsave_picture_247306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247306.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Simulacrum (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247307.jpgsave_picture_247307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247307.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ uTorrent Pro 3.6.0 Build 46828 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247308.jpgsave_picture_247308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247308.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Start11 Version 1.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247309.jpgsave_picture_247309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247309.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7D8092432174ABD3B5A5AB4F1A2E3796E926742B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247310.jpgsave_picture_247310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247310.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:D2EB962DE04D7D10DAB82FB2802653F6FFE3102C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247312.jpgsave_picture_247312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247312.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B5ACC2B5DEB020EBFBAF991BDD28C312D0260CBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247313.jpgsave_picture_247313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247313.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The Marginal Service | Отдел «Рубеж» [2023, TV, 12 эп.] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247314.jpgsave_picture_247314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247314.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:3B8ECB3B8AD3CFAB0373FD4A26B0AD13395C3BB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247315.jpgsave_picture_247315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247315.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:176612097E113A571327795388E6F63ECDE26BC6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247316.jpgsave_picture_247316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247316.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Windows 11 22H2 (x64) 16in1 +/- Office 2021 by Eagle123 (06.2023) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247317.jpgsave_picture_247317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247317.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:0FB9EFDFE1D120AC118A341518836126242E8DD5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247318.jpgsave_picture_247318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247318.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Lightroom Classic for Mac v.11.5 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247319.jpgsave_picture_247319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247319.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:8AEE2B20A41CE3603E797AF074035AF0E2A4F476
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247320.jpgsave_picture_247320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247320.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:B21FB1EE3819A70F6B8210AF43C6B7254590F312
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247321.jpgsave_picture_247321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247321.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:6EF20BEB4654B5C405D329D4AEFA11332AD8DF98
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247322.jpgsave_picture_247322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247322.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:256D151E873C601AFCDE52DB83B598F1A65E9DE4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247323.jpgsave_picture_247323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247323.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ ABViewer Enterprise 15.1.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247324.jpgsave_picture_247324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247324.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:8F269CD8C0D01987417F70510B93E846F02D614D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247326.jpgsave_picture_247326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247326.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Torrent File Editor 0.3.18 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247327.jpgsave_picture_247327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247327.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ AOMEI Partition Assistant Technician Edition 10.0.0 (27.06.2023) RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247328.jpgsave_picture_247328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247328.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:AD7A7F0D734CE520EE4CB7555BA645C896A6CEBF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247329.jpgsave_picture_247329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247329.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:434999D588464FEC8D72D608AA7A7142B6BAC0B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247330.jpgsave_picture_247330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247330.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:6DBF00D44B966FFF5D44089CC1A7457623E1281F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247331.jpgsave_picture_247331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247331.jpg" />
 </div>
 
 

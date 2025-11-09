@@ -6,7 +6,7 @@ Mad Parish - The Dust Of Forever (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70811.jpgsave_picture_70811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70811.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bad Omens - Сollection (2016-2022) [FLAC|Lossless|tracks + .cue] <Metalcore, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70825.jpgsave_picture_70825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70825.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stud - Under Silver Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70882.jpgsave_picture_70882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70882.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dream Theater - Parasomnia (2025) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70902.jpgsave_picture_70902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70902.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pentagram - Lightning In A Bottle (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70943.jpgsave_picture_70943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70943.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Majestica - Power Train (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70954.jpgsave_picture_70954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70954.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sellout - Все, во что я верю, Сторона А (2025) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70955.jpgsave_picture_70955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70955.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dream Theater - Parasomnia (2025) [FLAC|Lossless|tracks + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70971.jpgsave_picture_70971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70971.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Marko Hietala - Roses From The Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70980.jpgsave_picture_70980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70980.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Drohkaal - Divinity Within (2024) [MP3|320 Kbps] <Thrash, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70984.jpgsave_picture_70984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70984.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Days of Jupiter - The World Was Never Enough (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71003.jpgsave_picture_71003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71003.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sharks - Live In Providence / The Car Crash Tapes (2025) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71006.jpgsave_picture_71006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71006.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Thy Row - Unchained (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71008.jpgsave_picture_71008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71008.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Shannon Ames - Bohemian Dreams (2004) [FLAC|Lossless|image + .cue] <Folk-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71011.jpgsave_picture_71011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71011.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Leaf Hound - Once Bitten (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71053.jpgsave_picture_71053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71053.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kolossos - Game Law Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71057.jpgsave_picture_71057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71057.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Wrath Project - The Cure Is the Disease (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71060.jpgsave_picture_71060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71060.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Whipstriker - Seven Inches Of Hell (Part II) (2018) Compilation, Limited Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71061.jpgsave_picture_71061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71061.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Master Spy - Maze Runner (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71105.jpgsave_picture_71105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71105.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Terrain! - Богемные лица (2025) [FLAC|Lossless|WEB-DL|tracks] <Rapco
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71108.jpgsave_picture_71108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71108.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ryder - Menagerie (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71127.jpgsave_picture_71127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71127.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Deviated Instinct - Terminal Filth Stench-Core... the 86 Demo (2022) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71133.jpgsave_picture_71133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71133.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Zivatar - Apocalypse Campaign (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71137.jpgsave_picture_71137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71137.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Riverside - Live ID. (2025) 2 x CD, Limited Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71158.jpgsave_picture_71158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71158.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Make Them Suffer - Сollection (2010-2024) 6CD [FLAC|Lossless|tracks + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71173.jpgsave_picture_71173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71173.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ My Silent Wake - Lost In Memories, Lost In Grief (2024) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71179.jpgsave_picture_71179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71179.jpg" />
 </div>
 
 

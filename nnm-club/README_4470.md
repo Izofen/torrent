@@ -6,7 +6,7 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139775.jpgsave_picture_139775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139775.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Super Mario Maker for Nintendo 3DS (2016) [3DS] [EUR] 10.7 [CIA] [License / 1.02
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139776.jpgsave_picture_139776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139776.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Zoner Photo Studio X 19.2309.2.507 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139778.jpgsave_picture_139778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139778.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BFD54FF8370D69DC304CB453EAFF43C4FFACB4FF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139779.jpgsave_picture_139779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139779.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:47647C6151698F648350BE51087BA117F20AA3B7
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139780.jpgsave_picture_139780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139780.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:32D67D9EE4114011D05C59CF00443B18AB87CFEB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139782.jpgsave_picture_139782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139782.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139783.jpgsave_picture_139783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139783.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A4EF86568C49BCAF6DA1ED839974A54D9B30F31A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139785.jpgsave_picture_139785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139785.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A0B9F06C91DAF8B3127F6A0CC378CBC39B50ACDC
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139786.jpgsave_picture_139786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139786.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Tor Browser Bundle 11.0.3 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139787.jpgsave_picture_139787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139787.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3F14B9B284BC8984A00415F370E1BB0F13B47930
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139788.jpgsave_picture_139788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139788.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:A4B68523173A234DA5A7F33A48509FB03AFDEB18
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139789.jpgsave_picture_139789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139789.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:F16F6008FAC1DA352DA8C9D47676EF01E7AE3319
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139790.jpgsave_picture_139790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139790.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:B75328554C400FE9BE91A8B598CC8BA3D63F32D1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139792.jpgsave_picture_139792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139792.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:8D96FB4B80FFE61513325EBD864BAA81E455D00D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139793.jpgsave_picture_139793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139793.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:2A2980C0B2942A4D603CD24A94B31C512AA2DCAA
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139794.jpgsave_picture_139794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139794.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Catherine Russell - Harlem On My Mind (2016) Jazz Village [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139795.jpgsave_picture_139795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139795.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:7CCD89F51A1D022B07526D78252FFF0CBC5794C5
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139796.jpgsave_picture_139796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139796.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:4BC9D30FB8A09E62EA733BF91EE9BC9CBDD79F32
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139797.jpgsave_picture_139797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139797.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:9566FC5330FAF2779FC872F4252D667097D4C9FD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139798.jpgsave_picture_139798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139798.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139799.jpgsave_picture_139799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139799.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:4FBFBED6C99163935D5188FD2BC128547F2D13A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139800.jpgsave_picture_139800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139800.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ The Noble Manes - Hysteria Of Being (2020) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139802.jpgsave_picture_139802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139802.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:D63EF88FCF028CC6DD28BBC2D6BB482CE5E4BBC6
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139803.jpgsave_picture_139803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139803.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:7BE02A95A07B768EC40D9343A24BABE825DB7CF0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139804.jpgsave_picture_139804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139804.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:6C0C6A7147E34FE72373DD624114D8A30FD10C1D
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139805.jpgsave_picture_139805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139805.jpg" />
 </div>
 
 

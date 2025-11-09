@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36709.jpgsave_picture_36709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36709.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7B1A66AFCE1F6C1C24AB3C0C2218BDC4CFFF9E0C
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37268.jpgsave_picture_37268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FED530F1BC5054152D9C8ED1D792AA04F99475C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37622.jpgsave_picture_37622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37622.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ADC8D9C13514828FA319F4B38585D09986DB4072
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37623.jpgsave_picture_37623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37623.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Morten Barklund | React in Depth (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37813.jpgsave_picture_37813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37813.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Kameron Hussain, Frahaan Hussain | Mastering JavaScript for Game Development (20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37940.jpgsave_picture_37940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37940.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F26A3417AF43FAB85EBBFEDFAA9954512E5275DF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38456.jpgsave_picture_38456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38456.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:0F443A32A2A08D006A378A7BBFBDF1E06E3E06B5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38563.jpgsave_picture_38563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38563.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:86C66203303377182FD0C18648AED2DD81ED1096
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38932.jpgsave_picture_38932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38932.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:DA7FEFF6F15412812DAFE2BA0E6B22A12BFB27DD
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39102.jpgsave_picture_39102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39102.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:191D57454222FC9499A349C5F7A4FD934B2B53FF
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39138.jpgsave_picture_39138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39138.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:C56D8142182A142E651B3C2EA6C6E1E5A0137E4B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39233.jpgsave_picture_39233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39233.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:C5F04380AC9ABC3B6D6FF9647379AB4D90496BE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39417.jpgsave_picture_39417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39417.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:FBDF76E4D7C149BB9E31B707DC58EFCBA53BB534
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39944.jpgsave_picture_39944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39944.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:74AD952A087173D8D0B648E57056D33934BF8C21
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40631.jpgsave_picture_40631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40631.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Stepik, Александр Чумилин | Основы этичного хак
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40634.jpgsave_picture_40634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40634.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Kodeco Team, Shai Mishali, Florent Pillet, Marin Todorov | Combine: Asynchronous
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41056.jpgsave_picture_41056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41056.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Matt Neuburg | iOS 15 Programming Fundamentals with Swift (2021) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41060.jpgsave_picture_41060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41060.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:645F812A674867689329E60584232BBC5828C992
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41292.jpgsave_picture_41292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41292.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:3354CBEA77B02A60F5DEFD6E398DD162E166FB44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41333.jpgsave_picture_41333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41333.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E29D4C745CA2F1387E2FE575F3B00EC88F4F40F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42044.jpgsave_picture_42044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42044.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ SolidWorks 2010: Основные элементы SolidWorks [2009] [DJVU]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42062.jpgsave_picture_42062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42062.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ SolidWorks | Оформление чертежей по ЕСКД [2005] [DJVU]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42064.jpgsave_picture_42064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42064.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:AC2DA2B6FDC5D93B843C5BB7E971978EE0D57BD7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42141.jpgsave_picture_42141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42141.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:BFF014144F7349B3D5B3306B12CEB150425DBAF3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42144.jpgsave_picture_42144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42144.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Huseyin Babal | gRPC Microservices in Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42764.jpgsave_picture_42764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42764.jpg" />
 </div>
 
 

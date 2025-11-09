@@ -6,7 +6,7 @@ SeaMonkey 2.53.18.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122042.jpgsave_picture_122042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122042.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Whale Browser (NAVER Whale) 3.24.223.21 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122055.jpgsave_picture_122055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122055.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DU Meter 8.05 Build 4838 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122273.jpgsave_picture_122273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122273.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Stardock Fences 5.0.4.1 (x64) RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122283.jpgsave_picture_122283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122283.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DU Meter 8.05 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122409.jpgsave_picture_122409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122409.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Memtest86+ 7.00 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122633.jpgsave_picture_122633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122633.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ SanDisk (Western Digital) SSD Dashboard 4.1.2.4 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122825.jpgsave_picture_122825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122825.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ OnionFruit Connect 2023.1223 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123210.jpgsave_picture_123210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123210.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Celestia 1.6.4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123309.jpgsave_picture_123309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123309.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ oCam 550.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123584.jpgsave_picture_123584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123584.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ TeraCopy 3.17.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123612.jpgsave_picture_123612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123612.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PortScan & Stuff 1.97 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124280.jpgsave_picture_124280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124280.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VueScan Pro 9.8.48.03 RePack (& Portable) by elchupacabra (DC 07.10.2025) [Multi
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124438.jpgsave_picture_124438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124438.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ ColorControl 9.8.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124711.jpgsave_picture_124711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124711.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Ant Download Manager Pro 2.11.0 Build (86784 x32/86783 x64) RePack (& Portable) 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125387.jpgsave_picture_125387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125387.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ MyLanViewer 6.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125820.jpgsave_picture_125820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125820.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ AOMEI Partition Assistant Technician Edition 10.9.1 RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125821.jpgsave_picture_125821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125821.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ AOMEI Partition Assistant Technician Edition 10.9.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125832.jpgsave_picture_125832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125832.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ W10 Digital Activation v1.5.5.5 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125862.jpgsave_picture_125862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125862.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ AOMEI Partition Assistant Technician Edition 10.9.1 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125908.jpgsave_picture_125908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125908.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ OneCommander Pro 3.102.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125942.jpgsave_picture_125942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125942.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Fast Video Downloader 4.0.0.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126031.jpgsave_picture_126031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126031.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Telegram Desktop 6.2.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126109.jpgsave_picture_126109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126109.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Download Master 7.2.2.1739 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126117.jpgsave_picture_126117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126117.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ GoodSync Enterprise 12.9.9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126118.jpgsave_picture_126118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126118.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Process Lasso Pro 16.0.3.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126127.jpgsave_picture_126127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126127.jpg" />
 </div>
 
 

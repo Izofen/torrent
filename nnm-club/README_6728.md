@@ -6,7 +6,7 @@ The Residents - 13th Anniversary Show - Live In The USA (1986) Reissue, Remaster
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231379.jpgsave_picture_231379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231379.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3EE6A9824CF32C36975777D27EEDD3C5AEF7F924
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231380.jpgsave_picture_231380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231380.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Enslaved - Heimdal (2023) [FLAC|Lossless|image + .cue] <Progressive Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231381.jpgsave_picture_231381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231381.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Painkiller - Pain and Destruction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231382.jpgsave_picture_231382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231382.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Cruxvae - Birth Of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231384.jpgsave_picture_231384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231384.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ WinToHDD 6.0 Release 2 Free / Pro / Enterprise / Technician RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231385.jpgsave_picture_231385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231385.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (3005) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231387.jpgsave_picture_231387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231387.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Words of Farewell - A Quiet World (2016) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231388.jpgsave_picture_231388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231388.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ King Crimson - Mister Stormy's Monday Selection, Vol. 10 (2023) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231389.jpgsave_picture_231389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231389.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Midnite City - In At The Deep End (2023) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231391.jpgsave_picture_231391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231391.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bosparans Fall - Gotterspiel - Dunkle Zeiten (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231392.jpgsave_picture_231392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231392.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ursular - Preta (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Doom, Saxodoom, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231393.jpgsave_picture_231393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231393.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6A1BB4B6653F5B187C6DEB27F2832BBA092F37E5
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231394.jpgsave_picture_231394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231394.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Yskelgroth - Bleeding of the Hideous (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231396.jpgsave_picture_231396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231396.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CrystalDiskInfo 9.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231397.jpgsave_picture_231397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231397.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Tony Mitchell - Radio Heartbeat (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231398.jpgsave_picture_231398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231398.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Supernova Plasmajets - Supernova Plasmajets (2017) Reissue, 2023, Bug Valley Rec
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231399.jpgsave_picture_231399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231399.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Elmedia Player Pro 8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231401.jpgsave_picture_231401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231401.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:7B09F5D618B635943C438FE13DE54F5B960BD79A
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231402.jpgsave_picture_231402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231402.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Google Chrome 114.0.5735.91 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231403.jpgsave_picture_231403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231403.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Critical Defiance - Misconception (2019) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231404.jpgsave_picture_231404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231404.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:7B8D680543E12A16D9E1A5FF76FF3C911B73330E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231405.jpgsave_picture_231405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231405.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Lionel Hampton And His Orchestra - Jazz Flamenco (1957) 1996, RCA [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231407.jpgsave_picture_231407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231407.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Crowd+Ctrl - Smoke & Mirrors (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231409.jpgsave_picture_231409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231409.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:BE457258509AE6B2FE19DB80DBC66ACA9943149C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231410.jpgsave_picture_231410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231410.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ MotorTrinken - Cyborgmotorcycle (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231411.jpgsave_picture_231411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231411.jpg" />
 </div>
 
 

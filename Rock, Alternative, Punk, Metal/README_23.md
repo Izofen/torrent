@@ -6,7 +6,7 @@ Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33997.jpgsave_picture_33997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33997.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eloy - Hidden Treasures (2024) Compilation, Remixed, Remastered, 2024, MIG [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34081.jpgsave_picture_34081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34081.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nazareth - Razamanaz (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34286.jpgsave_picture_34286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34286.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Todd Michael Hall - Off the Rails (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34375.jpgsave_picture_34375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34375.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Texas TNT - Crossroads Are Burning (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34379.jpgsave_picture_34379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34379.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cole Havoc - My Former Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34380.jpgsave_picture_34380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34380.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Erika - United States Of Erika (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34382.jpgsave_picture_34382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34382.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lee Abraham - Origin Of The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34388.jpgsave_picture_34388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34388.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wolverine Leipzig - Machine Messiah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34390.jpgsave_picture_34390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34390.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Illogica - Underdogs in the Limelight (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34391.jpgsave_picture_34391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34391.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Caitlin Krisko & The Broadcast - Blueprints EP (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34395.jpgsave_picture_34395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34395.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wizard Tattoo - Living Just For Knife Fighting (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34397.jpgsave_picture_34397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34397.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gary Rand - No Secrets (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34398.jpgsave_picture_34398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34398.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Latter Reign - Order to Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34415.jpgsave_picture_34415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34415.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Stevie DeAcutis - Torn from the Pages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34418.jpgsave_picture_34418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34418.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:4D558826798C7196C1CBE5F91593906B141280BE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34455.jpgsave_picture_34455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34455.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gospod - 5 Albums (2021-2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34529.jpgsave_picture_34529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34529.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Iotunn - Kinship (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34606.jpgsave_picture_34606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34606.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024) 4
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34796.jpgsave_picture_34796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34796.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ House Of Lords - Full Tilt Overdrive (2024) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34803.jpgsave_picture_34803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34803.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Leaves' Eyes - Myths Of Fate (2024) 2 x CD, Limited Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35003.jpgsave_picture_35003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35003.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Australian Pink Floyd Show - Exposed In The Light (2012) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35008.jpgsave_picture_35008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35008.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ FM - Old Habits Die Hard (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35210.jpgsave_picture_35210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35210.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Green Pajamas - Just To This (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35211.jpgsave_picture_35211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35211.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Посередине века. Трибьют Константину Арб
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35321.jpgsave_picture_35321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35321.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Deep Purple - The Boys From Brazil (2020) Remaster, 2024, Leftfield Media [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35345.jpgsave_picture_35345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35345.jpg" />
 </div>
 
 

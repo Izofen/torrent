@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114781.jpgsave_picture_114781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114781.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CG Cookie, Kent Trammell | Creating a Stylized 3D Forest Environment with Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114782.jpgsave_picture_114782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114782.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114783.jpgsave_picture_114783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114783.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F2666CB588CB5DDCDA0E6DD7DE3C7EBB2CCE1A8D
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114784.jpgsave_picture_114784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114784.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6DD2E6208D33F5AB6077BD096C8D7703240CE2F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114785.jpgsave_picture_114785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114785.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ ProShot v8.24.0 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114786.jpgsave_picture_114786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114786.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sahib Shihab - Sentiments (1965, 1971) 2005, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114787.jpgsave_picture_114787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114787.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0C663069DD7D34BADC914A5CC4F42B091E4AE2A4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114788.jpgsave_picture_114788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114788.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Simon Stanley Ward and The Shadows of Doubt - Rocket in the Desert (2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114789.jpgsave_picture_114789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114789.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:2D98B8F4801334AD5A508EE51475A34B6EB2F804
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114790.jpgsave_picture_114790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114790.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114791.jpgsave_picture_114791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114791.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114792.jpgsave_picture_114792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114792.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114793.jpgsave_picture_114793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114793.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:5E8DFB22826DAB89DD0E57E3A80F3847F9BF7EFE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114794.jpgsave_picture_114794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114794.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Ledisi - Good Life (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114795.jpgsave_picture_114795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114795.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:8AB1C4CA6C24839E3F793561872720B53B26D11F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114796.jpgsave_picture_114796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114796.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:424730064026302BADE5E222B4C63FE1811CA74D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114797.jpgsave_picture_114797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114797.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ David Reece - Baptized By Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114798.jpgsave_picture_114798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114798.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114799.jpgsave_picture_114799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114799.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:2DD106D39D278275E74BF9ED1556FA1403B55EC6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114800.jpgsave_picture_114800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114800.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:1A5A48D0777C63D587DEA52F79E53C4E3D4422A1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114801.jpgsave_picture_114801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114801.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Rhonda Burchmore - Cry Me a River: The World Of Julie London (2013) ABC Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114802.jpgsave_picture_114802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114802.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114803.jpgsave_picture_114803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114803.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6DB484FB4F9F2A40DFE24100F6CF4FFF459EA09C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114804.jpgsave_picture_114804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114804.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Averoth - Burden of My Life (2010) EP [FLAC|Lossless|tracks] <Melodic Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114805.jpgsave_picture_114805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114805.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Marian McPartland & Friends - 85 Candles: Live In New York (2005) 2CD, Concord J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114806.jpgsave_picture_114806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114806.jpg" />
 </div>
 
 

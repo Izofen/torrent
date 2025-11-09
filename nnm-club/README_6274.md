@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196694.jpgsave_picture_196694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196694.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9DE32976773111CB014E888FF764A1059C775074
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196695.jpgsave_picture_196695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196695.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Photoshop 2023 24.6.0.573 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196696.jpgsave_picture_196696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196696.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A1CF4ED0517529DCF3CBC2D8C11394C39558DECB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196697.jpgsave_picture_196697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196697.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Carista OBD2 v7.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196698.jpgsave_picture_196698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196698.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Песни Виктора Резникова (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196699.jpgsave_picture_196699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196699.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:FB03EA920E96BC36779878466554CED422DEFC36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196700.jpgsave_picture_196700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196700.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8BCDDF2A5C70624FC4687EBE3B27DEC6C22319CC
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196701.jpgsave_picture_196701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196701.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:8257EF57FFC347CF10A24C9DF2619D968EB090FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196702.jpgsave_picture_196702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196702.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Crossroads 3: What Was Lost (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196703.jpgsave_picture_196703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196703.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196704.jpgsave_picture_196704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196704.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ OneCommander Pro 3.46.1.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196705.jpgsave_picture_196705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196705.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F82CE40B46E55E2393865B906492BDBC3FA3F967
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196706.jpgsave_picture_196706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196706.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Native Instruments Traktor Pro Plus 3 v.3.9.0.90 Rev2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196707.jpgsave_picture_196707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196707.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F92392B23B4D51BE30FFF4DB6AD826C77C6984C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196708.jpgsave_picture_196708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196708.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Topaz Photo AI 1.3.10 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196709.jpgsave_picture_196709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196709.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Martin Scorsese Presents: The Blues - A Musical Journey (5 CD set) (2003) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196710.jpgsave_picture_196710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196710.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14079 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196711.jpgsave_picture_196711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196711.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:E3A9546F87C4E79F66CE1F535D6ED92DFECEA743
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196712.jpgsave_picture_196712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196712.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:5B25E13773491D65652B37E9B7EC355E560EB93E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196713.jpgsave_picture_196713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196713.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Konosuba: An Explosion on this Wonderful World! | Kono Subarashii Sekai ni Bakue
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196714.jpgsave_picture_196714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196714.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ NG. Акула против тунца / Shark vs Tuna (2018) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196715.jpgsave_picture_196715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196715.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:FD90625F9D2F9842A7F60975AD153E9D0BD2B5EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196716.jpgsave_picture_196716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196716.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ GOM Player Plus 2.3.88.5358 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196717.jpgsave_picture_196717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196717.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:D3A4C8193D9C4C499A4B4EBFE64839A438A328AB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196718.jpgsave_picture_196718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196718.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:2BF7D37E3FAF85F034434609B5A541AC20DD2B2F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196719.jpgsave_picture_196719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196719.jpg" />
 </div>
 
 

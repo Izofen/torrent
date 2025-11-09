@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51655.jpgsave_picture_51655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51655.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:D90584BFDC72CD0D323E5FD92956C1A52014161D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51656.jpgsave_picture_51656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51656.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D90584BFDC72CD0D323E5FD92956C1A52014161D
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51657.jpgsave_picture_51657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51657.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9752AA910B47891DAC90C17055162A9005C88C6A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51658.jpgsave_picture_51658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51658.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:ED3928DC1F2AEB33F4FD3813A304F504B2E72378
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51659.jpgsave_picture_51659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51659.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:72AC99D95430C3466B24A9A5484BFF3810310DEC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51660.jpgsave_picture_51660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51660.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Лето на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51661.jpgsave_picture_51661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51661.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:312CF619304D16F52A70D5BF615388CA83F35288
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51662.jpgsave_picture_51662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51662.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:34D42B0F602A8EBDAB395EAF966F76BBB655B06F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51663.jpgsave_picture_51663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51663.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ My Museum: Treasure Hunter (2024) [Ru/Multi] (1.3.1B) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51664.jpgsave_picture_51664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51664.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:1C3699B25B3BEC510B705815AAAFC89EE0DE20D3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51665.jpgsave_picture_51665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51665.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D6BBA6757B40E40D7BCB11A3C3E3397FF3301C72
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51666.jpgsave_picture_51666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51666.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51667.jpgsave_picture_51667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51667.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:B5A8347133ACBAB95057E43DB840253E281A7F4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51668.jpgsave_picture_51668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51668.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Crackdown 3 (2019) [Multi] (1.0.2918.2) Scene CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51669.jpgsave_picture_51669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51669.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Horizon: Forbidden West (2024) [Ru/Multi] (1.5.80.0/dlc) Repack Decepticon [Comp
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51670.jpgsave_picture_51670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51670.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Sunless Skies (2017) [En] (2.0.5.6e8c8ff) License GOG [Sovereign Edition] (об�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51671.jpgsave_picture_51671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51671.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:F63858D2E55CB7A64D7ADBA9868747F335C5A638
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51672.jpgsave_picture_51672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51672.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:355508E1B0D74177BC41E7CB0CEB0C80833B8661
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51673.jpgsave_picture_51673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51673.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:2CD31070D430447097FF40345C9168947F34B743
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51674.jpgsave_picture_51674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51674.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A989E31E84C550155E3FB4F256D74C3CE67853CF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51675.jpgsave_picture_51675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51675.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51676.jpgsave_picture_51676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51676.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:0100D26290ED67F1AB7D97B6944FE2CB099D4A95
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51677.jpgsave_picture_51677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51677.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:C368121ACAD7A17CDFBCBF6645995EB911635F60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51678.jpgsave_picture_51678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51678.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:E5EE66C18A93C2C2DD8BD83831A79F76023647BB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51679.jpgsave_picture_51679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51679.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:BCF07B8ED4F094B7FD0A6E2235B80D53EB9A5AFD
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51680.jpgsave_picture_51680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51680.jpg" />
 </div>
 
 

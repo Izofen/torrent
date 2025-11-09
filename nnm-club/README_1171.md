@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30801.jpgsave_picture_30801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30801.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B7E3875F44A51ACF9378FA4C3CADEFBDB207F41
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30802.jpgsave_picture_30802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30802.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ qBittorrent 5.0.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30803.jpgsave_picture_30803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30803.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:BEBE50D8FB66D2A56BDEC787901EC6DA16C19C6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30804.jpgsave_picture_30804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30804.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:48A8307A2AD1A7D2EEF7AF771C8819781B00B879
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30805.jpgsave_picture_30805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30805.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ System USB-Flash 10 v.17.0.0.8383 [Multi/Ru]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30806.jpgsave_picture_30806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30806.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2894 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30807.jpgsave_picture_30807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30807.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2ED426F2001A7FFC96E60747041EDE67E145A6AE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30808.jpgsave_picture_30808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30808.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C6E619DAB891680B42F9007541643EF162CF7268
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30809.jpgsave_picture_30809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30809.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:FF3FE37C1DB028BB85B0DAE173EAE390E174CC63
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30810.jpgsave_picture_30810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30810.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:2333695BC2E78C2B68AF2DA67591D3C4BF33B04F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30811.jpgsave_picture_30811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30811.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30812.jpgsave_picture_30812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30812.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F7A99B740E3F488E615F0A2E7E8A8BA67D827FC2
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30813.jpgsave_picture_30813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30813.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30814.jpgsave_picture_30814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30814.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ WWE 2K24 (2024) [Multi] (1.24/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30815.jpgsave_picture_30815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30815.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:433E7AA526445657B5501DE5FE870AA4937976DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30816.jpgsave_picture_30816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30816.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Auslogics BoostSpeed 14.0.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30817.jpgsave_picture_30817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30817.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Tor Browser Bundle 14.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30818.jpgsave_picture_30818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30818.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:AFAA6083A70994400A09647DD2CBF6155CBE9969
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30819.jpgsave_picture_30819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30819.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:12F9414C1CF7FEB96ED697543DD7413C0BCE0A9D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30820.jpgsave_picture_30820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30820.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ FastStone Capture 11.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30821.jpgsave_picture_30821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30821.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30822.jpgsave_picture_30822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30822.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:DAA013DAC428E1B07F8A6812900851F8C3132D4B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30823.jpgsave_picture_30823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30823.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ David Rose - The Night Is Ours - David Rose - The Night Is Ours (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30824.jpgsave_picture_30824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30824.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:BB1E401E2FD43153C0DD9733474FC38AEB36C6B8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30825.jpgsave_picture_30825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30825.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Top 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30826.jpgsave_picture_30826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30826.jpg" />
 </div>
 
 

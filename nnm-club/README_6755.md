@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232388.jpgsave_picture_232388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232388.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IObit Smart Defrag Pro 8.5.0.281 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232389.jpgsave_picture_232389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232389.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Nothing But... Trancetopia, Vol. 05 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232392.jpgsave_picture_232392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232392.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:043D09D91CDEDF0C9F2B66956E742C652F69542E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232394.jpgsave_picture_232394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232394.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D81FAAB14B58FFAF478E317F79D29AEFE176AE51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232395.jpgsave_picture_232395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232395.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0784DD59504019D357BF1E7DEB903B4EE054824A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232396.jpgsave_picture_232396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232396.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ djay - DJ App & AI Mixer 4.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232397.jpgsave_picture_232397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232397.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Autorun Organizer 5.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232398.jpgsave_picture_232398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232398.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ AnyMP4 Blu-ray Ripper for Mac 9.0.36 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232399.jpgsave_picture_232399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232399.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Brian May - Star Fleet Sessions [2CD, Deluxe] (2023) [MP3|320 Kbps] <Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232402.jpgsave_picture_232402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232402.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:976A7221471174C3BA94A1118F84AC1D6A492F7C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232403.jpgsave_picture_232403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232403.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mega Bog - End of Everything (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232404.jpgsave_picture_232404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232404.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Above & Beyond - Tranquility Base Vol. 1 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232405.jpgsave_picture_232405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232405.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tipard Blu-ray Converter for Mac 10.0.56 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232406.jpgsave_picture_232406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232406.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ CloudMounter 4.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232407.jpgsave_picture_232407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232407.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:886EA412F85621D7810A7717316B0E0C12D3186C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232409.jpgsave_picture_232409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232409.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ YT Downloader 9.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232410.jpgsave_picture_232410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232410.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Calibre 6.18.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232411.jpgsave_picture_232411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232411.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Monster Mike Welch - Nothing But Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232412.jpgsave_picture_232412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232412.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Last Giant - Monuments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232413.jpgsave_picture_232413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232413.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:E79DDDE3CEA138A4839DAAD9B560F654ACAB59AC
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232414.jpgsave_picture_232414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232414.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:CA55D3F369C4C25020EEADFD5658F541011EBBF9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232416.jpgsave_picture_232416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232416.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Workout 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232417.jpgsave_picture_232417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232417.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Mike Ross - Third Eye Open (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232418.jpgsave_picture_232418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232418.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Olivia Dean - Messy (2023) [FLAC 24/96|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232419.jpgsave_picture_232419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232419.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Stephane Grappelli - Live At The Blue Note (1996) Telarc [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232421.jpgsave_picture_232421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232421.jpg" />
 </div>
 
 

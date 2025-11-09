@@ -6,7 +6,7 @@ Fighter - The Waiting (1991) Reissue, Remastered, 2019, Girder Records [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205133.jpgsave_picture_205133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205133.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sacro ordine - Until the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205135.jpgsave_picture_205135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205135.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Morito Ergo Sum - A Mournful Foreboding (2016) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205139.jpgsave_picture_205139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205139.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205141.jpgsave_picture_205141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205141.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Offspring - Rise And Fall, Rage And Grace (2008) 15th Anniversary Deluxe Edi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205150.jpgsave_picture_205150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205150.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Anoxia - Relinquish The Quiet (2023) [FLAC|24/96|tracks|WEB-DL] <Melodic Dark Go
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205176.jpgsave_picture_205176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205176.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lords of Atlantis - Lords of Atlantis (2023) [FLAC|Lossless|image + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205177.jpgsave_picture_205177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205177.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:6D7BA7D61B3D3924397546E7A5F506FD0FD0CDA9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205179.jpgsave_picture_205179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205179.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jamie West-Oram - Skeleton Key (2023) [FLAC|24/44.1|tracks|WEB-DL] <Progressive 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205181.jpgsave_picture_205181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205181.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jamie West-Oram - Skeleton Key (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205187.jpgsave_picture_205187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205187.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jag Panzer - Shadow Thief (1986) Reissue, 1992, Reborn Classics [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205189.jpgsave_picture_205189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205189.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Defiants - Drive (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205199.jpgsave_picture_205199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205199.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Percival - The Seventh Seal (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205201.jpgsave_picture_205201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205201.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Atreyu - The Moment You Find Your Flame (2023) [FLAC|24/48|tracks|WEB-DL] <Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205218.jpgsave_picture_205218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205218.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mitch Malloy - The Last Song (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205220.jpgsave_picture_205220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205220.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Van Stephenson - China Girl (1981) 2xCD, Reissue, 2022, MelodicRock Classics [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205221.jpgsave_picture_205221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205221.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:08706B16F3C4D7FC75BDF01827E24EF3AF6F0B89
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205223.jpgsave_picture_205223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205223.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Gueppardo - Power Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal, Hard-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205225.jpgsave_picture_205225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205225.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Krisiun - Mortem Solis (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205287.jpgsave_picture_205287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205287.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bulletsize - Respawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205293.jpgsave_picture_205293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205293.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mantic Ritual - Executioner (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205295.jpgsave_picture_205295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205295.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Tsjuder - Helvegr (2023) 2 x CD [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205322.jpgsave_picture_205322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205322.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Defiants - Zokusho (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205325.jpgsave_picture_205325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205325.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kairi - My Light, My Flesh (2011) [FLAC|Lossless|image + .cue] <Funeral Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205398.jpgsave_picture_205398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205398.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Kaos Vortex - Seeds of Decay (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205402.jpgsave_picture_205402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205402.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hyperdontia - A Vessel Forlorn (2019) Compilation [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205417.jpgsave_picture_205417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205417.jpg" />
 </div>
 
 

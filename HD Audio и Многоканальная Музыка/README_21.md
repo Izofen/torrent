@@ -6,7 +6,7 @@ Atlantic Behind - Delusion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17453.jpgsave_picture_17453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17453.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The British Bluescasting Corporation - Saints & Sinners (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17514.jpgsave_picture_17514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17514.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ruzz Guitar's Blues Revue - Between Two Worlds (2025) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17530.jpgsave_picture_17530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17530.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Resurrection Blues Band - GENESIS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17531.jpgsave_picture_17531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17531.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Djrum - Under Tangled Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mode
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17532.jpgsave_picture_17532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17532.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17533.jpgsave_picture_17533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17533.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Carolyn Wonderland - Truth Is (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17534.jpgsave_picture_17534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17534.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Omegaman - Pillow Talk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17535.jpgsave_picture_17535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17535.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mississippi Shakedown - Play You Now, Dig You Later (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17536.jpgsave_picture_17536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17536.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Orchestral Manoeuvres in the dark - Bauhaus Staircase (2023) The Complete Editio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17558.jpgsave_picture_17558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17558.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Professor Emeritus - A Land Long Gone (2025) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17657.jpgsave_picture_17657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17657.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17669.jpgsave_picture_17669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17669.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Morgenshtern (Моргенштерн) - Alisher (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17794.jpgsave_picture_17794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17794.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:8F0BC02385965D4DAAA077FCA76B14EBBEC12CD8
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18083.jpgsave_picture_18083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18083.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dire Straits - Brothers In Arms (40th Anniversary) (1985) 2 x CD, Reissue, 2025,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18108.jpgsave_picture_18108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18108.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Waltari - Nations' Neurosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18200.jpgsave_picture_18200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18200.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Linkin Park - From Zero (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18236.jpgsave_picture_18236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18236.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:748D0BF2DD36F63403D26342BCB4531561D1702C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18300.jpgsave_picture_18300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18300.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:9C25E8FA7CFB40B6F550B304759B97904124627B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18393.jpgsave_picture_18393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18393.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ INXS - Listen Like Thieves (1985) 40th Anniversary Deluxe, 2025, Petrol Records 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18402.jpgsave_picture_18402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18402.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:3BCF54274A910747B0E530D37F556BEABCA5D956
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18573.jpgsave_picture_18573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18573.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18737.jpgsave_picture_18737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18737.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Sleep Token - Studio Albums (6 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18739.jpgsave_picture_18739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18739.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Bad Boys Blue - The Fifth (1989) 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18767.jpgsave_picture_18767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18767.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18829.jpgsave_picture_18829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18829.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Laibach - Alamut (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial, Neo-Cla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18928.jpgsave_picture_18928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18928.jpg" />
 </div>
 
 

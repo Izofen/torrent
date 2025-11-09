@@ -6,7 +6,7 @@ VA - Deep Blue Sea, Vol. 5: Deep Chill Mood (2021) [AAC|~321 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142119.jpgsave_picture_142119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142119.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142120.jpgsave_picture_142120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142120.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:3DC2F54D78BBE8488ED5A392023312BFECD16781
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142122.jpgsave_picture_142122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142122.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:155C132C159DB70041536C4A72988698431DEECE
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142123.jpgsave_picture_142123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142123.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Brett Hoebel | 20 Minute Body (2014) HDTVRip [720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142124.jpgsave_picture_142124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142124.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Comedy Woman. 10 лет (2017.12.29) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142125.jpgsave_picture_142125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142125.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F4449FB077EA41E9FDA065FBA50A2C7ED078096F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142126.jpgsave_picture_142126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142126.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ PDF24 Creator 11.15.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142127.jpgsave_picture_142127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142127.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7D7EC38A557287CE3E7A41069C68C7EA6097EFE8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142128.jpgsave_picture_142128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142128.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Deep Blue Sea, Vol. 2: Deep Chill Mood (2018) [AAC|~329 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142129.jpgsave_picture_142129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142129.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Overloud TH3 v3.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142131.jpgsave_picture_142131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142131.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:2E66C45CCD659DDFACF80811128E4EE417CE342B
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142132.jpgsave_picture_142132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142132.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) HDRip
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142133.jpgsave_picture_142133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142133.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:8545B3DFB1B5B2F4B70FA89A71B2427FB28AF02E
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142134.jpgsave_picture_142134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142134.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:EA8654B5B2A0C8DDECA004BB602605DBD007808D
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142135.jpgsave_picture_142135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142135.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ WiFiSpoof 3.8.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142136.jpgsave_picture_142136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142136.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:21A44678C476A4FBB98BB529EAA3966C15BCFABC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142138.jpgsave_picture_142138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142138.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ DriverPack Solution 17.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142139.jpgsave_picture_142139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142139.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:14A88261BB8DE5507CCEBFEFCEF38C5C1BAA6FAF
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142141.jpgsave_picture_142141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142141.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:A158799B3D56C8EB39843164DB058CA18C0FFE6A
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142142.jpgsave_picture_142142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142142.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip (1
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142144.jpgsave_picture_142144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142144.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:AD6AD97441FE95E41F48AEB9E9D501BC76E31404
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142146.jpgsave_picture_142146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142146.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:F2645F0EC75561681156B5E5C35481887F9C3E9C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142147.jpgsave_picture_142147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142147.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:C501C66723ADBE437B12FD92E114E80ECE430C81
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142148.jpgsave_picture_142148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142148.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:06EBEDA37A7BCBADB10C67158C518EEE99C917E3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142149.jpgsave_picture_142149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142149.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:58CAA098AE6F69FEBAEAC56FAEB174ACC44E68EE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142150.jpgsave_picture_142150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142150.jpg" />
 </div>
 
 

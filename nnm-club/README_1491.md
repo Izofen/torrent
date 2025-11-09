@@ -6,7 +6,7 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39121.jpgsave_picture_39121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39121.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LazyMedia Deluxe v3.338 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39122.jpgsave_picture_39122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39122.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39123.jpgsave_picture_39123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39123.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:02324A628CDB8077734BAC4C529A14435BDC301D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39124.jpgsave_picture_39124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39124.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Хіти Дня в Україні (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39125.jpgsave_picture_39125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39125.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:55A0C882B587D9CFDCA966CB3AF6A2BACA5FD004
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39126.jpgsave_picture_39126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39126.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Coursera, Dr. Tim Chamillard | C# Programming for Unity Game Development Special
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39127.jpgsave_picture_39127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39127.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Udemy, Code Monkey | Ultimate Unity Overview (70+ Tools and Features Explained!)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39128.jpgsave_picture_39128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39128.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Coursera, Dr. Tim Chamillard | C++ Programming for Unreal Game Development Speci
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39129.jpgsave_picture_39129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39129.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:422CAA62B9FBEDFCBC103BCA6148CAB86089777F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39130.jpgsave_picture_39130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39130.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39131.jpgsave_picture_39131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39131.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Photo Editor v10.9 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39132.jpgsave_picture_39132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39132.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2B2374A06A97D356009BED9AE7EE0002AABA0E47
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39133.jpgsave_picture_39133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39133.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Love Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39134.jpgsave_picture_39134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39134.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack seleZen
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39135.jpgsave_picture_39135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39135.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:D8E4CBC1017FE277E11BCE5472E74E7B067C7552
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39136.jpgsave_picture_39136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39136.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:5DDC4A7F58A54A3FC78AA611070CD989F74BD74F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39137.jpgsave_picture_39137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39137.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:6A389A5DBE838C307B0E03A57EBD2DA204189FEB
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39138.jpgsave_picture_39138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39138.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C56D8142182A142E651B3C2EA6C6E1E5A0137E4B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39139.jpgsave_picture_39139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39139.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Windows 10 Pro 22H2 19045.5011 x64 by SanLex [Lightweight] [Ru/En] (2024.10.23)
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39140.jpgsave_picture_39140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39140.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Windows 11 24H2 + LTSC (x64) 28in1 +/- Office 2024 by Eagle123 (10.2024) [Ru/En]
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39141.jpgsave_picture_39141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39141.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:D57CFB166B1E1FE69DE465F70BDAA1E13FEB541B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39142.jpgsave_picture_39142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39142.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Launcher for zapret 1.3 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39143.jpgsave_picture_39143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39143.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Manowar - 13 Albums + 20 Singles & EP + 8 Live + 1 Compilation (1982-2022) [MP3|
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39144.jpgsave_picture_39144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39144.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39145.jpgsave_picture_39145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39145.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:361FF4ABD4612063A56C8D0CF142EF9297119320
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39146.jpgsave_picture_39146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39146.jpg" />
 </div>
 
 

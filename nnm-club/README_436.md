@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11562.jpgsave_picture_11562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11562.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aiseesoft Video Converter Ultimate 10.9.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11563.jpgsave_picture_11563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11563.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:38AF4A8AF3B6062BD85DA6BEB855B47CFE530339
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11564.jpgsave_picture_11564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11564.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.5.1/dlc) Scene Rune [U
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11565.jpgsave_picture_11565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11565.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:01DF4AEBD742E6C06B7D55BB607662819CA28E98
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11566.jpgsave_picture_11566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11566.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Windows 11 Pro 24H2 26100.4351 x64 by SanLex [Lightweight] [Ru-En] (2025.07.05)
 >>14
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11567.jpgsave_picture_11567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11567.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Dr.Web CureIt! (2025.07.13) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11568.jpgsave_picture_11568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11568.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:435FC05203184EAE124B991A1FCB104BEE4B59DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11569.jpgsave_picture_11569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11569.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Windows 11 PRO 24H2 26100.4652 Update 17 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11572.jpgsave_picture_11572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11572.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Below the Stone (2023) [En] (Alpha 0.9.1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11573.jpgsave_picture_11573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11573.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ PurpleSchool, Udemy, Антон Ларичев | Golang - Templ Fiber HTMX. Ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11574.jpgsave_picture_11574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11574.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11575.jpgsave_picture_11575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11575.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:68F0B2F0F753E98090F1572E1208628820007B58
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11577.jpgsave_picture_11577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11577.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ YouTube отключает рекламу в русскоязычных виде
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11578.jpgsave_picture_11578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11578.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ YouTube внес изменения в механизм работы рекла�
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11580.jpgsave_picture_11580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11580.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:4DC6265C9B12FBF9E146240F5CAC14A3C797AC9B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11581.jpgsave_picture_11581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11581.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:6AC4017A9393BA9E7B26087947983EF5BFE114C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11582.jpgsave_picture_11582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11582.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:5B2F9C2C221D624DA5FC95740A9FD3282E74686E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11583.jpgsave_picture_11583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11583.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:DBEFC43F9BA4AD1F9F195334A75697BE630E6F95
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11584.jpgsave_picture_11584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11584.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:9AF628D088CB6E05067612C306CA23F64502EE19
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11585.jpgsave_picture_11585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11585.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:4130B28C5702474CD23674422B6D32ACF279AB98
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11586.jpgsave_picture_11586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11586.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:7CC70EE9BCA53306E4E23C2524D58C7D36E1C547
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11587.jpgsave_picture_11587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11587.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:4CC484406F89A18A41E7FE5685AD2882D891FD5F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11588.jpgsave_picture_11588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11588.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:2EE1F27A59A4F336D28F8D9F4E46C6F397CE850F
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11589.jpgsave_picture_11589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11589.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Chris Rea - New Light Through Old Windows (1988) 2CD, Reissue, Remastered, 2025,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11590.jpgsave_picture_11590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11590.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:693D2C92F065DA188E9FF4B2C839325003716912
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11591.jpgsave_picture_11591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11591.jpg" />
 </div>
 
 

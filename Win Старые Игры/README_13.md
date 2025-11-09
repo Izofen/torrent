@@ -6,7 +6,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199944.jpgsave_picture_199944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199944.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200011.jpgsave_picture_200011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200011.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201859.jpgsave_picture_201859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201859.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201860.jpgsave_picture_201860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201860.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202484.jpgsave_picture_202484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202484.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9DD4390CABAFF1E25727B824F3BED26D4369C0C7
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202524.jpgsave_picture_202524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202524.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202746.jpgsave_picture_202746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202746.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203228.jpgsave_picture_203228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203228.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203267.jpgsave_picture_203267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203267.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ El Matador (2006) [Ru/Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204692.jpgsave_picture_204692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204692.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204709.jpgsave_picture_204709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204709.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204741.jpgsave_picture_204741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204741.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205214.jpgsave_picture_205214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205214.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205681.jpgsave_picture_205681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205681.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206016.jpgsave_picture_206016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206016.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206956.jpgsave_picture_206956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206956.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207047.jpgsave_picture_207047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207047.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207598.jpgsave_picture_207598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207598.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Star General (1996) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207750.jpgsave_picture_207750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207750.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207895.jpgsave_picture_207895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207895.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207954.jpgsave_picture_207954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207954.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Arsenal of Democracy: A Hearts of Iron Game (2010) [Ru/Multi] (1.12) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208248.jpgsave_picture_208248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208248.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208506.jpgsave_picture_208506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208506.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Strike Commander (1993) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208889.jpgsave_picture_208889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208889.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209502.jpgsave_picture_209502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209502.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ CyClones (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210041.jpgsave_picture_210041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210041.jpg" />
 </div>
 
 

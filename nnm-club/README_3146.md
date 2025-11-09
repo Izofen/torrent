@@ -6,7 +6,7 @@ Snoop Dogg & Dr. Dre - Missionary (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101373.jpgsave_picture_101373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101373.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Duck Detective: Secret Salami v1.0.36 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101374.jpgsave_picture_101374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101374.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Best Gym & Fitness Music 2024 [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101375.jpgsave_picture_101375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101375.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:BDA5155279D4E697917F128FBCBB884559530612
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101376.jpgsave_picture_101376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101376.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Beach Grooves Maretimo, Vol.5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Beach H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101377.jpgsave_picture_101377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101377.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101378.jpgsave_picture_101378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101378.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101379.jpgsave_picture_101379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101379.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:A84E9A17C9C8DA2499E703FF50EA5DF4F063EB63
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101380.jpgsave_picture_101380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101380.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:D59CD7E48FED88DE82FEACE91D0E1C983066CC65
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101381.jpgsave_picture_101381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101381.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:86B6B8A5D6C7850E7BB8DC929EBA89CF69A1091C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101382.jpgsave_picture_101382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101382.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:9C996A5DA3BEB92AF68513084D124D09FB86F9C1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101383.jpgsave_picture_101383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101383.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:2A37141D19EEEE865859F8AD7B12CA2D53FF7ECF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101384.jpgsave_picture_101384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101384.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Battery Guru: Monitor & Health v2.3.13 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101385.jpgsave_picture_101385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101385.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C69ADF8DB35BC2A85EDC5D1D5B5C6806D9E6DEBB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101386.jpgsave_picture_101386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101386.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:2A581B7B76057BC2FC8BF84701BEB6025A971F24
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101387.jpgsave_picture_101387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101387.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:BE83DD17BFE62A78EC4BAADF80E338D521F77899
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101388.jpgsave_picture_101388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101388.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:BE83DD17BFE62A78EC4BAADF80E338D521F77899
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101389.jpgsave_picture_101389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101389.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:267DE270540EDBCDE06541800F086E51EEBC6DB5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101390.jpgsave_picture_101390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101390.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:478D610230BF04035F862BBF7F31AD42FCBCAEE0
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101391.jpgsave_picture_101391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101391.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Ба
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101392.jpgsave_picture_101392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101392.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101393.jpgsave_picture_101393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101393.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Violet - Mysteria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101394.jpgsave_picture_101394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101394.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Nine Days - The Madding Crowd (2000) CD, Album [FLAC|Lossless|tracks + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101395.jpgsave_picture_101395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101395.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Blue Oyster Cult - 50th Anniversary Live - Third Night (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101396.jpgsave_picture_101396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101396.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101397.jpgsave_picture_101397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101397.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Reviver - Carnival of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101398.jpgsave_picture_101398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101398.jpg" />
 </div>
 
 

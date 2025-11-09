@@ -6,7 +6,7 @@ Thomas Anders - Songs Forever (2006) Remastered, 2023, Craft Recordings [FLAC 24
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129958.jpgsave_picture_129958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129958.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Moss - Ornaments (2012) [MP3|320 кб/с]<Indie, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129959.jpgsave_picture_129959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129959.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Dropzone 4 Pro v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129960.jpgsave_picture_129960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129960.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Шоферской 16 (2004) [MP3|320 Kbps] <Шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129961.jpgsave_picture_129961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129961.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ VA - Gold Disco 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129962.jpgsave_picture_129962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129962.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Keep It 1.11.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129963.jpgsave_picture_129963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129963.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C600C81753400FC486EE94488BB1BDFF420F618B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129964.jpgsave_picture_129964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129964.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Showtek - 360 Yellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle, Hard Tranc
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129966.jpgsave_picture_129966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129966.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A65B485FC15A28F5338CEC39A0662005CADA1149
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129967.jpgsave_picture_129967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129967.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ aText 2.40.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129968.jpgsave_picture_129968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129968.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Thomas Anders - Songs Forever (2006) Remastered 2023 [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129969.jpgsave_picture_129969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129969.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:843072E649CCFC11DED9D272439D2967DC52D2BA
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129970.jpgsave_picture_129970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129970.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:983B45558B5D8D53245088FC63A3C4EF9DD056E0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129971.jpgsave_picture_129971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129971.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Arc Of Ascent - The Higher Key (2012) [MP3|256 кб/с]<Stoner Doom>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129972.jpgsave_picture_129972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129972.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:5D8ABD82F89DD03F44BB2A5EA3FDDB7A07B6B7A0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129973.jpgsave_picture_129973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129973.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Guitar Chillout Lounge 1 (2007) [AAC|~323 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129975.jpgsave_picture_129975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129975.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Disfiguring The Goddess - Sleeper (2012) [MP3|320 кб/с]<Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129976.jpgsave_picture_129976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129976.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ PerfectTUNES for Mac 3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129977.jpgsave_picture_129977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129977.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Birds ov Paradise - Memorial (2022) [AAC|~343 Kbps] <Atmospheric Techno, Deep Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129979.jpgsave_picture_129979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129979.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:E406DE4C794B435D94453FE080571AECD2270C78
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129980.jpgsave_picture_129980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129980.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Byword 2 v2.9.5 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129981.jpgsave_picture_129981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129981.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Зарубежные Новинки Vol.46 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129982.jpgsave_picture_129982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129982.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129984.jpgsave_picture_129984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129984.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129985.jpgsave_picture_129985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129985.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:E17A25DB1553B425AA89E6B7E3B4CF23083CAF37
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129986.jpgsave_picture_129986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129986.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ SnippetsLab 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129987.jpgsave_picture_129987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129987.jpg" />
 </div>
 
 

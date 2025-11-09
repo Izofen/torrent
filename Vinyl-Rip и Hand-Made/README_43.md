@@ -6,7 +6,7 @@ System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128097.jpgsave_picture_128097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128097.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128215.jpgsave_picture_128215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128215.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ayreon - 01011001 (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128220.jpgsave_picture_128220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128220.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128247.jpgsave_picture_128247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128247.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128544.jpgsave_picture_128544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128544.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128547.jpgsave_picture_128547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128547.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128583.jpgsave_picture_128583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128583.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128807.jpgsave_picture_128807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128807.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Bloodywood - Studio Albums (2 releases) (2022-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128870.jpgsave_picture_128870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128870.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Ihsahn - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128871.jpgsave_picture_128871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128871.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Балкантон – Танцова Музика (1965) [FLAC|Lossless|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128872.jpgsave_picture_128872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128872.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129209.jpgsave_picture_129209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129209.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129862.jpgsave_picture_129862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129862.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130690.jpgsave_picture_130690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130690.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131165.jpgsave_picture_131165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131165.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131167.jpgsave_picture_131167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131167.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131186.jpgsave_picture_131186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131186.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131508.jpgsave_picture_131508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131508.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132568.jpgsave_picture_132568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132568.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132720.jpgsave_picture_132720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132720.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132742.jpgsave_picture_132742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132742.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133116.jpgsave_picture_133116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133116.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133897.jpgsave_picture_133897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133897.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133939.jpgsave_picture_133939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133939.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133951.jpgsave_picture_133951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133951.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Opeth - Sorceress (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133972.jpgsave_picture_133972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133972.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160560.jpgsave_picture_160560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160560.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ProfiCAD 12.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160561.jpgsave_picture_160561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160561.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SILKYPIX Developer Studio Pro 11.0.12.1 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160562.jpgsave_picture_160562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160562.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Apple MainStage 3.6.5[Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160563.jpgsave_picture_160563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160563.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Ashampoo UnInstaller 14.00.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160564.jpgsave_picture_160564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160564.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VPN Russia - VPN сервера в России 1.181 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160565.jpgsave_picture_160565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160565.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Total Commander 11.02 RC6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160566.jpgsave_picture_160566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160566.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Ashampoo WinOptimizer 26.0.0.19 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160567.jpgsave_picture_160567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160567.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Meitantei Holmes: Aoi Ruby no Maki / Kaitei no Zaihou no Maki | Sherlock Hound: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160568.jpgsave_picture_160568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160568.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ NoMachine 8.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160569.jpgsave_picture_160569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160569.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Tiny Scan: PDF Document Scanner 6.0.3 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160570.jpgsave_picture_160570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160570.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:3B3633F0E5A2D7F2B97BBC46FD2E26A7039BF58C
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160571.jpgsave_picture_160571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160571.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:C4D5322CDE67C87D7FECEEEE0B463FB73F808CCF
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160572.jpgsave_picture_160572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160572.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Firefox Browser 119.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160573.jpgsave_picture_160573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160573.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Topaz Photo AI 2.1.0 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160574.jpgsave_picture_160574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160574.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ TweakPower 2.046 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160575.jpgsave_picture_160575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160575.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Meitantei Holmes | Sherlock Hound | Великий детектив Холмс [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160576.jpgsave_picture_160576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160576.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - The Very Best of Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160577.jpgsave_picture_160577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160577.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:7DF68F9A07EA2A44B5ED2A1CDCAECA351A429F1E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160578.jpgsave_picture_160578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160578.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:B07507F2684250D345A77820D0B640CBEAD89FC7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160579.jpgsave_picture_160579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160579.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Viber 21.3.0.2 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160580.jpgsave_picture_160580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160580.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Ashampoo UnInstaller 14.00.11 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160581.jpgsave_picture_160581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160581.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ MAGIX Samplitude Music Studio X8 19.0.3.23131 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160582.jpgsave_picture_160582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160582.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ XYplorer 25.10.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160583.jpgsave_picture_160583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160583.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:6FDA03BE2C9301048BA689BC56EE60A43AE2565C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160584.jpgsave_picture_160584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160584.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Maximum Rock The 1970s (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160585.jpgsave_picture_160585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160585.jpg" />
 </div>
 
 

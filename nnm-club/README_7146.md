@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244744.jpgsave_picture_244744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244744.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sanguisugabogg - Homicidal Ecstasy (2023) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244745.jpgsave_picture_244745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244745.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:34CBD9D05BF77F1981046B0D0D2E9E128EEFB672
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244746.jpgsave_picture_244746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244746.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:CEC4A954025AA91B51F22A13B3145016BAB956E9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244747.jpgsave_picture_244747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244747.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Disturbed - The Lost Children (2011) Compilation [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244748.jpgsave_picture_244748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244748.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Winter Lounge, Vol. 1 (2020) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244749.jpgsave_picture_244749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244749.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:0791523FDE63B9A5BF50335EC5F27E5C97970A17
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244750.jpgsave_picture_244750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244750.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Pantheon - Empire In Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244751.jpgsave_picture_244751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244751.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Velvet Dreamer + Tim Gelo - Discography 38 Releases (2013-2022) [MP3|320 Kbps] <
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244752.jpgsave_picture_244752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244752.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Revo Uninstaller Mobile 3.0.250G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244753.jpgsave_picture_244753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244753.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ MAGIX Sound Forge Pro Suite 17.0.0 Build 81 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244754.jpgsave_picture_244754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244754.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 2 (2022) [AAC|~275 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244755.jpgsave_picture_244755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244755.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:1A03D49959F9D5B171D59714ED6D23B35151FEE1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244756.jpgsave_picture_244756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244756.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:6922EF5C5E57799B1CF2C132CE43015CD11E02AA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244757.jpgsave_picture_244757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244757.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:59871248F126C890C2E046FA09EEB4A6AADEA607
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244759.jpgsave_picture_244759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244759.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:E116A000996F267E2A18254BE5F0A5E20BC2B00F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244760.jpgsave_picture_244760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244760.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Poslanie - Котлован (2023) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244761.jpgsave_picture_244761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244761.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:3BEB4629C75DEF70ED6A56ED9151C6BE1CB2B567
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244762.jpgsave_picture_244762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244762.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Chill Out Lovers, Vol. 1 (2022) [AAC|~317 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244763.jpgsave_picture_244763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244763.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Cradle Of Filth - Trouble and Their Double Lives (2023) [FLAC 2.0|44/24|WEB-DL|t
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244764.jpgsave_picture_244764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244764.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:95C01A832E1472FB021034EC42D4110BD4DC13B4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244765.jpgsave_picture_244765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244765.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244766.jpgsave_picture_244766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244766.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:404E3CC3310891425A77B1E9BDD08BCAC3A6E0CA
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244767.jpgsave_picture_244767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244767.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:EEE2E260BEBB42F601E3868B89287BDE1903005B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244768.jpgsave_picture_244768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244768.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ O&O DiskImage Professional 18.4 Build 292 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244769.jpgsave_picture_244769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244769.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:B50834E3276682BF0D57B921A4C02FC9ACDC4C7F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244770.jpgsave_picture_244770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244770.jpg" />
 </div>
 
 

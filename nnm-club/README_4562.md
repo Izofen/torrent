@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142778.jpgsave_picture_142778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142778.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AE67E25505E3CCAF31DAFAB7439677CFA152B17E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142779.jpgsave_picture_142779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142779.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E395CC2F915E557051E51BD23D96094788E93E3E
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142780.jpgsave_picture_142780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142780.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Moby - Everything Was Beautiful, and Nothing Hurt (Remixes) (2018) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142781.jpgsave_picture_142781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142781.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:3BFAEF1FD4AEAF78267287B4B78CA3B1A342DC84
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142782.jpgsave_picture_142782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142782.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2CF3FBCEA4C589718F4836366F90CDBE793A33C0
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142784.jpgsave_picture_142784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142784.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5708AB329C44302B48E524CD024BA0BAA66C9B20
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142785.jpgsave_picture_142785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142785.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:BA52F58D6D18CA34F5BFB3739B3A1BF4C4227424
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142786.jpgsave_picture_142786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142786.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Q-Dir 6.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142787.jpgsave_picture_142787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142787.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:C0F141A80D417B31A1112A659204D3E9FF8B7AB0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142788.jpgsave_picture_142788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142788.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:F01552E665B08B6143D9A82811547AC366AE218F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142790.jpgsave_picture_142790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142790.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Deep Purple - Machine Head (1972) SACD, 2003 EMI [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142791.jpgsave_picture_142791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142791.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:CB19FF5ED5A2363325919737D9409CD930A0A275
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142792.jpgsave_picture_142792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142792.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:2AEE7A6F9250B3AA78F5EC4905D4BE950F51E5FB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142793.jpgsave_picture_142793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142793.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ SteerMouse 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142794.jpgsave_picture_142794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142794.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Graphic Inspector 2 v2.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142795.jpgsave_picture_142795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142795.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F6290AFF386B7408A98427D600952E03405B7A64
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142797.jpgsave_picture_142797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142797.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Gabe Gurnsey - Physical (2018) [FLAC|Lossless|tracks + .cue] <Disco House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142798.jpgsave_picture_142798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142798.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Air Explorer Pro 2.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142799.jpgsave_picture_142799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142799.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:0CE15CCEF5F8AF8E1A66AA05E35A81DF50F351A3
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142800.jpgsave_picture_142800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142800.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Net Worth Pro 2 v3.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142801.jpgsave_picture_142801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142801.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:B3772E8843D1C41844EFBDC02EF38DA9E0D629DF
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142803.jpgsave_picture_142803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142803.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:88BFD7F0F5532AD8F202074A20D7D93501C84065
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142804.jpgsave_picture_142804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142804.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Movavi Video Editor Plus 22.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142805.jpgsave_picture_142805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142805.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:290A78C00CF55BAF9E63E6EAF9CEB297FA30C638
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142806.jpgsave_picture_142806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142806.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Permute 3 v3.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142807.jpgsave_picture_142807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142807.jpg" />
 </div>
 
 

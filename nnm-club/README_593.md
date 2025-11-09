@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15729.jpgsave_picture_15729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15729.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Ibiza Summer 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15730.jpgsave_picture_15730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15730.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - 25 Years Of Anjuna Mixed By ANUQRAM (2025) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15731.jpgsave_picture_15731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15731.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:F58B577118BFF35A2C77823C629A9FCC6DFC6790
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15732.jpgsave_picture_15732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15732.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:A28FD5A034F986AC42E0718C36C29C8053A5B978
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15733.jpgsave_picture_15733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15733.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Photo Studio PRO v2.8.2.4344 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15734.jpgsave_picture_15734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15734.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:94CAD073D35D350B55782DA4866327E518C7FFFF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15735.jpgsave_picture_15735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15735.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Aedon - The Quietest Shade (2025) [FLAC|Lossless|Web-DL|tracks] <Experimental, B
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15736.jpgsave_picture_15736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15736.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Ninth Circle - Anthem Of The Immortal (2025) [MP3|320 Kbps] <Heavy Metal, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15737.jpgsave_picture_15737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15737.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Calibre - Little Foot (2025) [FLAC|Lossless|Web-DL|tracks] <Ambient, Dubstep, Te
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15738.jpgsave_picture_15738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15738.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Michael Bloomfield - The Best Of Michael Bloomfield (1997) Compilation [FLAC|Los
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15739.jpgsave_picture_15739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15739.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F7373CF5D540127B3F7E36C952A05E41F7316458
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15740.jpgsave_picture_15740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15740.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:D23DD84CCCA1005DDB14028B8774439493B15173
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15741.jpgsave_picture_15741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15741.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Gruesome - Silent Echoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15742.jpgsave_picture_15742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15742.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Susannah McCorkle - Dream (1987) 2002, The Jazz Alliance [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15743.jpgsave_picture_15743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15743.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Vanced Tube v5.3.81.317 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15744.jpgsave_picture_15744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15744.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ AR Ruler App: Линейка Рулетка v3.0.9 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15745.jpgsave_picture_15745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15745.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ ZZ Top - Live compilation (2025) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15746.jpgsave_picture_15746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15746.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:9F7DF09787995E55FD0B6289B39B3C9A8C44DD22
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15747.jpgsave_picture_15747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15747.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:E8464FB028BAD1B8CAB2F81E499154AD1E0907AE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15748.jpgsave_picture_15748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15748.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:0BAE6ACBC1953197147E6B3C08FDE8D977D2B3C8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15749.jpgsave_picture_15749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15749.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15750.jpgsave_picture_15750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15750.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15751.jpgsave_picture_15751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15751.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:E3B0A5C631567764E60C10D1B95C2897F418464E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15752.jpgsave_picture_15752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15752.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:9200995616D0B800DFA9BC98E92005D8BB68A2E2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15753.jpgsave_picture_15753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15753.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Music News For Forum vol.098 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15754.jpgsave_picture_15754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15754.jpg" />
 </div>
 
 

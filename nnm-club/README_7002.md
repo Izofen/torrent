@@ -6,7 +6,7 @@ Hannah Jadagu - Aperture (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240213.jpgsave_picture_240213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240213.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - All Out Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240214.jpgsave_picture_240214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240214.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vesuvian - Emergence (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240215.jpgsave_picture_240215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240215.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:B8AAC554AB8B414E2B8D66CECDB286A69FBD91F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240216.jpgsave_picture_240216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240216.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ EtreCheck Pro 6.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240217.jpgsave_picture_240217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240217.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:FAC10966043718E2FBFEA03AE462AF9F84C6A7C2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240218.jpgsave_picture_240218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240218.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:6ECCC268CE05268E2782A57CAA76E794EB91088B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240219.jpgsave_picture_240219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240219.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:90742BE3944EA3FF192DBD78A9472CB93DC4822E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240220.jpgsave_picture_240220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240220.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Pistol Pete Wearn - Blues, Ballads & Barnstormers (2023) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240221.jpgsave_picture_240221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240221.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Mitti 2.2.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240222.jpgsave_picture_240222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240222.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:409E294498C9BA6E39AC5834E71BDB4D3CF2776E
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240223.jpgsave_picture_240223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240223.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:94FADE9B35038F5C4FC093C66D77CD38065AB10D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240224.jpgsave_picture_240224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240224.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Bugsnax (2020) [PS4] [USA] 5.05 [HEN] [License / 2.08] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240225.jpgsave_picture_240225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240225.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Chernobylite (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.09] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240226.jpgsave_picture_240226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240226.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Book Track - Library Manager 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240227.jpgsave_picture_240227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240227.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240228.jpgsave_picture_240228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240228.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - 00s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240229.jpgsave_picture_240229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240229.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Joe Henderson - Page One (2017) [FLAC|192/24|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240230.jpgsave_picture_240230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240230.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Duke Ellington - Top Jazz (1959) 1990, Valentine Records [APE|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240231.jpgsave_picture_240231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240231.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Glary Disk Cleaner 5.0.1.290 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240232.jpgsave_picture_240232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240232.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ EazyDraw 10.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240233.jpgsave_picture_240233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240233.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:94BA9E75F49541CFEB0571DCBFDA9FA35D5E9195
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240234.jpgsave_picture_240234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240234.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:3F40C204712D11EF46AFCA8D07DF3E3F0948734D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240235.jpgsave_picture_240235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240235.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:05B43353ADF539493C5630728193764116DB367F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240236.jpgsave_picture_240236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240236.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ NIUBI Partition Editor 9.4.0 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240237.jpgsave_picture_240237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240237.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - Союз 17. 2 Альбома (1996) 3 CD [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240238.jpgsave_picture_240238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240238.jpg" />
 </div>
 
 

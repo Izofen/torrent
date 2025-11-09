@@ -6,7 +6,7 @@ Path Finder 10.0b12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174584.jpgsave_picture_174584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174584.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinSnap 6.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174586.jpgsave_picture_174586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174586.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Receipts 1.9.11b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174587.jpgsave_picture_174587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174587.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Velvet Two Stripes - No Spell for Moving Water (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174589.jpgsave_picture_174589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174589.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ AYBO 1.17.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174590.jpgsave_picture_174590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174590.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:E039EBBD5799A7321C1AAF9A0B8C0EE8179AC264
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174592.jpgsave_picture_174592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174592.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Smultron 12.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174594.jpgsave_picture_174594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174594.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9F8E65F231E8C9102EFDDF1E409736AD4CA4F4E2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174595.jpgsave_picture_174595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174595.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Xliff Editor 2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174596.jpgsave_picture_174596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174596.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Viber 21.1.0.11 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174598.jpgsave_picture_174598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174598.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ MarsEdit 4 v4.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174599.jpgsave_picture_174599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174599.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Highlord - When The Aurora Falls... (2000) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174601.jpgsave_picture_174601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174601.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:964B7A69B2A8EEEC91078B5E478645043DF8DB59
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174602.jpgsave_picture_174602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174602.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Deserted Fear - Doomsday (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174604.jpgsave_picture_174604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174604.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:DEDC34122F2DDBD293A1E76C7A9067A1F50ABE67
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174605.jpgsave_picture_174605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174605.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:F4E08F27DA4B63600C15909F0E1A75557EC03356
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174607.jpgsave_picture_174607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174607.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:DE2B9640C18E55E5FE70443DD5D3CE3992223138
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174608.jpgsave_picture_174608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174608.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Highlord - Breath Of Eternity (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174609.jpgsave_picture_174609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174609.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Microsoft .NET 6.0.23 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174611.jpgsave_picture_174611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174611.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:DC4C7EFA8CBDD5D5356B50F2CEB5596CC153C98F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174613.jpgsave_picture_174613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174613.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Music Collection 3.6.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174614.jpgsave_picture_174614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174614.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Adobe Photoshop 2021 22.1.0.94 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174615.jpgsave_picture_174615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174615.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Highlord - Heir Of Power (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174617.jpgsave_picture_174617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174617.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sumatra PDF 3.5.15706 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174618.jpgsave_picture_174618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174618.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Firefox Browser 118.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174621.jpgsave_picture_174621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174621.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Classless Act - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174622.jpgsave_picture_174622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174622.jpg" />
 </div>
 
 

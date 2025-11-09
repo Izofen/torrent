@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159951.jpgsave_picture_159951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159951.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Moonlight Agony - Echoes Of A Nightmare (2004) [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159952.jpgsave_picture_159952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159952.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Seven Witches - Passage To The Other Side (2003) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159954.jpgsave_picture_159954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159954.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Merion Academy, Олег Филиппов | Курс по NoSQL (2022) WEB-DL [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159956.jpgsave_picture_159956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159956.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dropshare 5 v.5.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159957.jpgsave_picture_159957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159957.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Seven Witches - Amped (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159958.jpgsave_picture_159958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159958.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:6127513F193497896666E4CBAB4476852B801105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159959.jpgsave_picture_159959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159959.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Yate 6.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159960.jpgsave_picture_159960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159960.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:9FAA566B5B7D2C07BBF70A549E611D47A89C3050
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159961.jpgsave_picture_159961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159961.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Seven Witches - Xiled To Infinity And One (2002) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159962.jpgsave_picture_159962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159962.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:CB973FC330BB80EC35CA6BDCE3F46BAD392245EE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159963.jpgsave_picture_159963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159963.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ PicoTorrent 0.25.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159964.jpgsave_picture_159964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159964.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Artery Eruption - Artery Eruption & Mangled Atrocity (2004) Split [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159965.jpgsave_picture_159965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159965.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:1E15A58D8098967744917650D9F3B8473A5A1003
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159966.jpgsave_picture_159966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159966.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Jeremy Pelt - Live In Paris: Noir en Rouge (2018) HighNote Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159967.jpgsave_picture_159967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159967.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Belial - Wisdom of Darkness (1992) Reissue 2010, Galgenstrang Productions [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159968.jpgsave_picture_159968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159968.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ AIDA64 Extreme Edition  6.85.6305 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159969.jpgsave_picture_159969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159969.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:64F49B933986CE5AD6A345D110468E16F266B5CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159970.jpgsave_picture_159970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159970.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Belial - Wisdom of Darkness (1992) EP [APE|Lossless|image + .cue] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159971.jpgsave_picture_159971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159971.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Artery Eruption - Gouging Out Eyes of Mutilated Infants (2005) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159972.jpgsave_picture_159972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159972.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:4D54F72B19B485EA5798DF6B1AA28FE2BDB26189
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159973.jpgsave_picture_159973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159973.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ AOMEI Backupper Technician Plus 7.1.2 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159974.jpgsave_picture_159974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159974.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F97318626C016150608A9BBBE285564993E98D3B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159975.jpgsave_picture_159975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159975.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:CB2B13C822F39722D8C1987DD0D5127924B10688
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159976.jpgsave_picture_159976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159976.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ ZTM Academy, Andrei Dumitrescu | Bash Scripting: Learn Shell Scripting (2022) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159977.jpgsave_picture_159977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159977.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:1223569686FA7E826D2C1F7212B685AAB31F238E
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159978.jpgsave_picture_159978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159978.jpg" />
 </div>
 
 

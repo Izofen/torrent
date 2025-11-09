@@ -6,7 +6,7 @@ Zerocoder, Вадим Михалев | Зерокодер на Bubble (2020) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21893.jpgsave_picture_21893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21893.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:96AA2209DE7BEA36042968816619AF23A2EC27D1
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21894.jpgsave_picture_21894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21894.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A9BF047C06B991EDD4F8FDA813997A71CDB738D6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21895.jpgsave_picture_21895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21895.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3B89417DCD193715A23D9B2BE4529931F98ADE05
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21896.jpgsave_picture_21896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21896.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3B89417DCD193715A23D9B2BE4529931F98ADE05
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21897.jpgsave_picture_21897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21897.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1AE0E9F5BD04411D490E17BD726B4AE1E73DAF62
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21898.jpgsave_picture_21898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21898.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BE4FA3B24D2D2C077A92A8EE6256DE99C3FA7A7E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21899.jpgsave_picture_21899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21899.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:925426AFFE13DD4DACB9735DAAC8FEB6801D941D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21900.jpgsave_picture_21900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21900.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21901.jpgsave_picture_21901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21901.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Prey (2006) [Ru] (1.4) Repack/Mod seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21902.jpgsave_picture_21902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21902.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:94C97738AFAAD46C06BFE75034AD80A4305ED397
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21903.jpgsave_picture_21903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21903.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21904.jpgsave_picture_21904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21904.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Scene FAiRLiGHT [Deluxe E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21905.jpgsave_picture_21905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21905.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21906.jpgsave_picture_21906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21906.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:0B51C90130EBE5176B11B7658F67B8A3DD342BDC
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21907.jpgsave_picture_21907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21907.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0B51C90130EBE5176B11B7658F67B8A3DD342BDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21908.jpgsave_picture_21908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21908.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:52AEF3AD182DFE6C762DFB904E3185B181E27118
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21909.jpgsave_picture_21909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21909.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:1FDBD46F882693A0C0BF64FD176A227CF47F1784
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21910.jpgsave_picture_21910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21910.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dream Theater - Official Bootleg: Dark Side Of The Moon (2006) 2CD [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21911.jpgsave_picture_21911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21911.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:2A11C738634DCA75E8963568E9AB8B113CFC8970
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21912.jpgsave_picture_21912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21912.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D12EF9A646DBC10A9BBE5990E4C240E20CF2038D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21913.jpgsave_picture_21913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21913.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:096712A9F5EE1535E933236BFE93E77F6851C938
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21914.jpgsave_picture_21914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21914.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:2BF9936CE83E79E7428A8E7498F276E6D9087B71
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21915.jpgsave_picture_21915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21915.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:1476E1F288B3F64515AFEBEB822A16F42E85E2C2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21916.jpgsave_picture_21916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21916.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.2.3-468950/dlc) Repack Decepticon [Deluxe Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21917.jpgsave_picture_21917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21917.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:D200772C8131E086720DEF6259829DC9DBD2D33E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21918.jpgsave_picture_21918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21918.jpg" />
 </div>
 
 

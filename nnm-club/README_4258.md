@@ -6,7 +6,7 @@ Opera GX 104.0.4944.85 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132089.jpgsave_picture_132089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132089.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:9CEB262E16E2AA796A884C1B2CACE084EA4BEBF2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132090.jpgsave_picture_132090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132090.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Dave Sereny - Talk to Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132091.jpgsave_picture_132091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132091.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ VA - Top 7 November 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132093.jpgsave_picture_132093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132093.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ magnet:?xt=urn:btih:698918CEC859399E4AE6B14E5A57D58755ABF5BA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132095.jpgsave_picture_132095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132095.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:073B03ED8CB31EC9AAE455B93D1A64B553676F3F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132097.jpgsave_picture_132097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132097.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:16D374EA461FA77F6AB57531A835806556E605E2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132099.jpgsave_picture_132099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132099.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:AF6C63CBB539871220908564F58724CED98B1F54
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132100.jpgsave_picture_132100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132100.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:D02DA844D4EB0E55799FF9129080C75B25F4F080
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132101.jpgsave_picture_132101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132101.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:96578E49D231017C9D3A62456FCDFB440F0E175D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132103.jpgsave_picture_132103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132103.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:B219AC0587A1A3FF53B9E1329B3AE91DF73AF3E8
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132104.jpgsave_picture_132104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132104.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132105.jpgsave_picture_132105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132105.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:F92FBEC1E741035BE403D22D4368DEC9CE60B467
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132106.jpgsave_picture_132106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132106.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:F92FBEC1E741035BE403D22D4368DEC9CE60B467
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132107.jpgsave_picture_132107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132107.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:07B134683786B92CDD3008048869B4336446EC9B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132108.jpgsave_picture_132108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132108.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Nothing But... Trancetopia Vol. 10 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132109.jpgsave_picture_132109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132109.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:DC8FB5403F03FCD1EE6FA402828E928C140FDB99
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132110.jpgsave_picture_132110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132110.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:7A984140ADFCDAEFCB59BEC0696E40FE8E3A9A3E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132111.jpgsave_picture_132111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132111.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:BAA8397FC4B28EFAC5F6FD72F8B671AA085E8E79
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132113.jpgsave_picture_132113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132113.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:03D3100BDB0E6FF94CF15FA7AA7C36CDCDE652D6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132114.jpgsave_picture_132114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132114.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Isospin - Aftermath Chronicles (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132116.jpgsave_picture_132116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132116.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:6FD9E617876ED186720439DA9245999077B9B253
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132119.jpgsave_picture_132119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132119.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Jerry Lee Lewis - The Platinum Collection (2006) [FLAC|Lossless]<Rock'n'Roll>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132120.jpgsave_picture_132120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132120.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Jerry Lee Lewis - The Platinum Collection (2006) [FLAC|Lossless]<Rock'n'Roll>
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132121.jpgsave_picture_132121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132121.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:BEF86A281851DAC76091136178134597DAC01C1C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132123.jpgsave_picture_132123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132123.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:C3D0795EE48EAD83C7FBC8A116A9F0B9B9361159
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132124.jpgsave_picture_132124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132124.jpg" />
 </div>
 
 

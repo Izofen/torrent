@@ -6,7 +6,7 @@ Antonio Vivaldi - 12 Concertos Op. 8 incl. Le quattro stagioni: VA, Musici di Sa
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88811.jpgsave_picture_88811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88811.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88813.jpgsave_picture_88813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88813.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88816.jpgsave_picture_88816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88816.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88818.jpgsave_picture_88818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88818.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88822.jpgsave_picture_88822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88822.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88829.jpgsave_picture_88829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88829.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88830.jpgsave_picture_88830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88830.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:2465451D99E184A477CBA6407640D0037089C595
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88831.jpgsave_picture_88831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88831.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Bruce Springsteen - Wrecking Ball (2012) Special Edition [FLAC|Lossless]<Classic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88833.jpgsave_picture_88833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88833.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Bruce Springsteen - Wrecking Ball (2012) Special Edition [FLAC|Lossless]<Classic
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88834.jpgsave_picture_88834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88834.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:F01DA8B6CEF957407A0B64F0FD05021C64E24EDF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88836.jpgsave_picture_88836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88836.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88840.jpgsave_picture_88840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88840.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Инструментальная музыка (2012) vol. № 03 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88841.jpgsave_picture_88841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88841.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:F7EC05FC5B470918D973F97ECF89C52035FE72E0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88842.jpgsave_picture_88842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88842.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Инструментальная музыка (2012) vol. № 05 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88844.jpgsave_picture_88844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88844.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:A8EEC8C9FF411610836C0A3501703BA5C5FDFFB9
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88846.jpgsave_picture_88846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88846.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:D913820D3A70C309D017508ABC280A48F135B051
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88849.jpgsave_picture_88849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88849.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:D913820D3A70C309D017508ABC280A48F135B051
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88851.jpgsave_picture_88851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88851.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dr.WEB CureIt! 6.0 от 15.04.2012 [русский / английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88854.jpgsave_picture_88854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88854.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Dr.Web CureIt! определяет и удаляет: почтовые и се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88855.jpgsave_picture_88855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88855.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A87301B88FFEECA0B18EFAEC7CF29B744669C307
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88857.jpgsave_picture_88857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88857.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:A87301B88FFEECA0B18EFAEC7CF29B744669C307
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88858.jpgsave_picture_88858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88858.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:5CBB934F4F38012D6EAD38B320F84EB5DC4754E4
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88861.jpgsave_picture_88861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88861.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:E1FC29759F819C25B9FD2862C8B35F5F9875E3BF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88867.jpgsave_picture_88867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88867.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ MediaPortal 1.2.3.0 [Русский (оболочка)/Английский (н�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88868.jpgsave_picture_88868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88868.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Your Uninstaller! Pro 7.4.2012.05 + Portable by BALISTA [Мульти, Русс�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88869.jpgsave_picture_88869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88869.jpg" />
 </div>
 
 

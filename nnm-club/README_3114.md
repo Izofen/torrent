@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100524.jpgsave_picture_100524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100524.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:778A22D6EF47FF26651EF4489F822251B419EB20
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100527.jpgsave_picture_100527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100527.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100528.jpgsave_picture_100528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100528.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2571F896146CC13E196060FAE05C3EECEBB75CAA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100529.jpgsave_picture_100529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100529.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - 11 Years SA - Best Of 2024 (Club Edition) (2024) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100530.jpgsave_picture_100530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100530.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Top Emotional Trance 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100531.jpgsave_picture_100531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100531.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B0F57D913B82A54FD191E74E2E28B3358341D90A
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100532.jpgsave_picture_100532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100532.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Karl Bartos (ex-Kraftwerk) - Communication (Limited Edition) (2003) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100533.jpgsave_picture_100533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100533.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100534.jpgsave_picture_100534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100534.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Cinematic Funky Grooves Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100535.jpgsave_picture_100535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100535.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ River Arrow - R.A.W (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100536.jpgsave_picture_100536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100536.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100537.jpgsave_picture_100537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100537.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:2A477C2692F0E7AE579F8FC5A2031775251BC926
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100538.jpgsave_picture_100538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100538.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tuff Luck - An Acoustic Afternoon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100539.jpgsave_picture_100539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100539.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:0D3F510B8456EE2E4FB16AFD2184A2A8FCFA1082
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100540.jpgsave_picture_100540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100540.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:548E544EC5D08C6137A9CA9FF776401AA12BE269
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100541.jpgsave_picture_100541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100541.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dominum - The Dead Don't Die (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100542.jpgsave_picture_100542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100542.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Breeze - Just Another Day (Breeze) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100543.jpgsave_picture_100543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100543.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Soulmate Project - Vinyl Flavour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100544.jpgsave_picture_100544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100544.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Blues Rock Generations - Blues Rock Generations No.6 (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100545.jpgsave_picture_100545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100545.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100546.jpgsave_picture_100546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100546.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Judy Garland - Judy At The Palace Closing Night 1952 (Live) (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100547.jpgsave_picture_100547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100547.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Rosie & the Revival - Soundchecks and Tape Decks (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100548.jpgsave_picture_100548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100548.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Forever Desire - Beings of Wonder (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100549.jpgsave_picture_100549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100549.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Lo Greco Bros, The Man With The Horn and Soulstance - The Electric Sessions  (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100550.jpgsave_picture_100550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100550.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Omar And The Howlers - Rhythm and Western (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100551.jpgsave_picture_100551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100551.jpg" />
 </div>
 
 

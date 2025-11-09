@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136764.jpgsave_picture_136764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136764.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sabaton - Legends (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136765.jpgsave_picture_136765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136765.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:C6EFC2C5FBB7391D3C22DDC7544FE7C952476E68
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136766.jpgsave_picture_136766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136766.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:BEC618C0B8C475FCB3CD98292F56684751F3D31F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136767.jpgsave_picture_136767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136767.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9FE944663AFECD3E04B0403BBFFCA55DE6779B96
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136768.jpgsave_picture_136768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136768.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:056048929144FA60F794562FD19BE7C7EC5044F3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136769.jpgsave_picture_136769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136769.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:EBCA9E5A68A306E2707A0326471DB72EC6C671DD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136770.jpgsave_picture_136770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136770.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A776AE0ACBB98B3A606C4E1DC4870827A9FE5BBF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136771.jpgsave_picture_136771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136771.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Internet Download Manager 6.42 Build 51 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136772.jpgsave_picture_136772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136772.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Window
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136773.jpgsave_picture_136773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136773.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:440E4501374424FFC4B41159E665377F1FCBC26C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136774.jpgsave_picture_136774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136774.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ FurMark 2.10.0.0 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136775.jpgsave_picture_136775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136775.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ OCCT 15.0.1 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136776.jpgsave_picture_136776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136776.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ O&O Defrag Professional 30.0 Build 1069 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136777.jpgsave_picture_136777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136777.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ FreeTube 0.23.12 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136778.jpgsave_picture_136778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136778.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by elchupacabra 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136779.jpgsave_picture_136779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136779.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Reg Organizer 9.88 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136780.jpgsave_picture_136780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136780.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136781.jpgsave_picture_136781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136781.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:66EEAA45608A90AAA5F118D66E1E52DF327BC2EE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136782.jpgsave_picture_136782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136782.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:3EC95D5B474242C761D3B621B659EDE2BA536ED2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136783.jpgsave_picture_136783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136783.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:B95CE0C0692B874B83B7B5283AB7ED9197F1C5A5
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136784.jpgsave_picture_136784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136784.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ YTDisBystro (универсальная сборка на основе Zapret) 3
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136785.jpgsave_picture_136785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136785.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Zapret-discord-youtube by Flowseal (сборка на базе Zapret) 1.8.5 (04
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136786.jpgsave_picture_136786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136786.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Vimic - Open Your Omen (2025) [FLAC|Lossless|WEB-DL|tracks] <lternative Metal, G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136787.jpgsave_picture_136787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136787.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:2DD7DCC9544B18CC40622C560024E1C5C8F10786
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136788.jpgsave_picture_136788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136788.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:73F3536D76CC68787C84D7D42BBE938024BFFA61
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136789.jpgsave_picture_136789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136789.jpg" />
 </div>
 
 

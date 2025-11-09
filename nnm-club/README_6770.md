@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233018.jpgsave_picture_233018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233018.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dick Hyman - From The Age of Swing (1994) Reference Recordings [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233022.jpgsave_picture_233022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233022.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fog Blues and Brass Band - Twelve Bar Prescription (2023) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233023.jpgsave_picture_233023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233023.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tinsley Ellis - Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233024.jpgsave_picture_233024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233024.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:24ED7F8AC7861B056F98098CC617890243586E24
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233027.jpgsave_picture_233027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233027.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Non Est Deus - Impious (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233028.jpgsave_picture_233028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233028.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:56D183E9F1490ACC1919D21F0F71424F29A73F92
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233029.jpgsave_picture_233029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233029.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Akilla - The Gods Have Spoken (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233030.jpgsave_picture_233030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233030.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Workout Hits 2023. 40 Essential Hits For The Practice Of Your Favorite Spor
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233034.jpgsave_picture_233034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233034.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Pekka Kuusisto, Joonas Ahonen - Symmetria Pario: Creation (2023) [FLAC|Lossless|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233035.jpgsave_picture_233035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233035.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hides 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233037.jpgsave_picture_233037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233037.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:4A0814763781F656F2F95C8CA04C011B55E717AF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233039.jpgsave_picture_233039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233039.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:F6FB2F3041A7C8D908D7C7137B3527F82A68EACC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233040.jpgsave_picture_233040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233040.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VueScan Pro 9.8.02 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233041.jpgsave_picture_233041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233041.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Lady J Huston - Groove Me Baby (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233042.jpgsave_picture_233042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233042.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ De Staat - red, yellow, blue (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Dutch Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233045.jpgsave_picture_233045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233045.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ MediaInfo for Mac 23.06 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233047.jpgsave_picture_233047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233047.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Samantha Fish & Jesse Dayton - Death Wish Blues (2023) [FLAC 24/88.2|Lossless|WE
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233048.jpgsave_picture_233048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233048.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ RegCool 1.339 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233051.jpgsave_picture_233051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233051.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:FFDF38292BE034FC1A8D85419BD5B61A7DB0D175
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233052.jpgsave_picture_233052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233052.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:8712C4283AB2541B36BB20B2E0A362FE42261430
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233053.jpgsave_picture_233053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233053.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ HWiNFO 7.47 Build 5115 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233055.jpgsave_picture_233055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233055.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Floodlights - Painting of My Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233057.jpgsave_picture_233057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233057.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Dave Erickson Project - JAMB (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233058.jpgsave_picture_233058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233058.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:2E71048831F4CEF2BABBE3CCB44C66D4FE65C504
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233062.jpgsave_picture_233062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233062.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ D.A.Y.N.E. - Meteor (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233063.jpgsave_picture_233063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233063.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Roxette - Joyride (1991) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121865.jpgsave_picture_121865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121865.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Miss Velvet & The Blue Wolf - Bad Get Some (2018) [MP3|320 Kbps] <Blues, Funk Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121866.jpgsave_picture_121866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121866.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ACDSee Photo Studio 10 for Mac v.10.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121867.jpgsave_picture_121867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121867.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dolly Parton - Rockstar (2024) Deluxe [MP3|320 Kbps] <Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121868.jpgsave_picture_121868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121868.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Icecream Slideshow Maker PRO 5.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121869.jpgsave_picture_121869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121869.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121870.jpgsave_picture_121870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121870.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:17E6F8C339C2B97AC73605DF1D6BF2FA79D359FD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121871.jpgsave_picture_121871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121871.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hollywood Undead - Studio Albums (9 releases) (2008-2022) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121872.jpgsave_picture_121872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121872.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:7F364EDC6C81AB98F58314991D16178074C8D413
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121873.jpgsave_picture_121873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121873.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Topaz Video AI for Mac 4.1.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121874.jpgsave_picture_121874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121874.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ PhotoRoom v4.8.2 b1243 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121875.jpgsave_picture_121875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121875.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Weather Dock 5.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121876.jpgsave_picture_121876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121876.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121877.jpgsave_picture_121877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121877.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ PDF Expert 3.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121878.jpgsave_picture_121878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121878.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:30A2E22409BAC981ADD9A0B3151D9C844F7560B2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121879.jpgsave_picture_121879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121879.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Capture One 23 Enterprise 16.3.4.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121880.jpgsave_picture_121880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121880.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121881.jpgsave_picture_121881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121881.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Aquarelle Chilled (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambien
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121882.jpgsave_picture_121882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121882.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:BE5D9F04F20D1F2EBD23A697052F11C09880F51F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121883.jpgsave_picture_121883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121883.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:5972D5AB7E0E093EC9F6C7B75265D314D8D55EB2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121884.jpgsave_picture_121884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121884.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:410D9086BC95134717DCFA70731E43F368FCEE10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121885.jpgsave_picture_121885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121885.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:E52B792D053335C80C8D6DD728B690A914ED5DDC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121886.jpgsave_picture_121886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121886.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ IceCream Ebook Reader Pro 6.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121887.jpgsave_picture_121887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121887.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121888.jpgsave_picture_121888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121888.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121889.jpgsave_picture_121889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121889.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:EF8852133B6D07FFAEBBD9A57E35C7D69412F392
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121890.jpgsave_picture_121890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121890.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ A Better Finder Attributes 7 v7.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243116.jpgsave_picture_243116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243116.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ben Sollberger Project - I Hate to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Mod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243117.jpgsave_picture_243117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243117.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Unfiltered Audio - TRIAD 1.3.5 VST, VST3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243118.jpgsave_picture_243118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243118.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Ellende - Ellenbogengesellschaft (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243119.jpgsave_picture_243119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243119.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:B23AB5E08F5BF401D4E62E1CCFDA2D68F17D53C9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243120.jpgsave_picture_243120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243120.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Frantz Amathy - In the Presence of Angels (2008) [FLAC|Lossless|tracks + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243121.jpgsave_picture_243121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243121.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:B51092B26DC3146F6F80C8AE13235C75587403AB
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243122.jpgsave_picture_243122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243122.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.7 RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243123.jpgsave_picture_243123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243123.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:674858013C1D97A2486D2918F26B6F3117C53159
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243124.jpgsave_picture_243124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243124.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Skillshare | Astronaut Animation: Motion Graphics & Rendering in Cinema 4D & Red
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243125.jpgsave_picture_243125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243125.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:73212D656B381F060A7987B96640D665585F520F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243126.jpgsave_picture_243126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243126.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:84F061B5D845A9B5ADEFD2F65EE7EAF88F3ACED8
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243127.jpgsave_picture_243127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243127.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:CD154FA2F2442543A43359F7802173FD5ADFE7F2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243128.jpgsave_picture_243128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243128.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:F1B9D2B696355B324B0E55F41CEFADFA61FA920A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243129.jpgsave_picture_243129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243129.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Japanese Relaxation and Meditation - Reiki Japanese Meditation: Remove All Energ
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243130.jpgsave_picture_243130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243130.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:A5BF585C4604064226F79BB1534A542D3D534A6C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243131.jpgsave_picture_243131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243131.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Aphyxion - Aftermath (2016) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243132.jpgsave_picture_243132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243132.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Dylan Bishop Band - Distilled (2018) [FLAC|Lossless|image + .cue] <Texas Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243133.jpgsave_picture_243133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243133.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:B84B970499ABC71A263ACC5A222E8450D8FC83AB
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243134.jpgsave_picture_243134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243134.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:998EB556068AD841132C7D5970172B8DBD705C8C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243135.jpgsave_picture_243135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243135.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Best Chillout Vol.21 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243136.jpgsave_picture_243136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243136.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Шансон 2020 Музыкальный хит-парад [часть.02] 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243137.jpgsave_picture_243137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243137.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Florian Kruse - Nordic Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243138.jpgsave_picture_243138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243138.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ HitPaw Screen Recorder 2.3.3.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243139.jpgsave_picture_243139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243139.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:405E1501DE5B7F82DA8F60C708BBD10C83DFB79B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243140.jpgsave_picture_243140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243140.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:9D36309AD30A6C3506D9EBE4FE5AE5DB80B09C3B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243141.jpgsave_picture_243141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243141.jpg" />
 </div>
 
 

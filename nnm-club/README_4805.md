@@ -6,7 +6,7 @@ Habaka - Heritage Blue (2016) [MP3|320 Kbps] <Blues, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150371.jpgsave_picture_150371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150371.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Azusa Plane - America Is Dreaming Of Universal String Theory (1998) 2CD [FLAC|Lo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150372.jpgsave_picture_150372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150372.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ magnet:?xt=urn:btih:D470E76D7E83931138015666F8CD1E5CB7CC1690
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150374.jpgsave_picture_150374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150374.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Windows 10.0.19044.1415, Version 21H2 (Updated December 2021)  - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150375.jpgsave_picture_150375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150375.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ JunkBelly - On the Inside (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues-Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150376.jpgsave_picture_150376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150376.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ReviverSoft Driver Reviver 4.0.1.44 [Rus/Eng] RePack by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150377.jpgsave_picture_150377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150377.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ReviverSoft Driver Reviver 4.0.1.44 [Rus/Eng] RePack by D!akov
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150378.jpgsave_picture_150378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150378.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Movavi Video Suite 22.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150379.jpgsave_picture_150379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150379.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Radiant Photo 1.1.2.346 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150380.jpgsave_picture_150380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150380.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:77F9E62BCBAAA0E7809A11F54BC991A0D8A01A76
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150381.jpgsave_picture_150381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150381.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:36C4B521AC85D836FAD082D7B8952D6B0F76C084
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150383.jpgsave_picture_150383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150383.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:65D7B7FC6CF9D0332960703DA0F4B41B27C9AA1A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150384.jpgsave_picture_150384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150384.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4D4DD99686A2992687AFB01C66A2BAFFBB8F64EB
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150385.jpgsave_picture_150385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150385.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:E3D14A33A1FAC6546DC1C8A78BD0392548B78A30
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150386.jpgsave_picture_150386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150386.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E3D14A33A1FAC6546DC1C8A78BD0392548B78A30
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150387.jpgsave_picture_150387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150387.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Fourfit EP05 (2015) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150389.jpgsave_picture_150389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150389.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sebastien - Hands On Armada (2018) [MP3|320 Kbps] <Progressive House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150390.jpgsave_picture_150390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150390.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:4E1E22F18ED00026FAC09F46AA779DFCCC09B14D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150391.jpgsave_picture_150391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150391.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:E429105D609346FD1E81D328EB1AC38A8B6AE85A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150392.jpgsave_picture_150392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150392.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:B240ECC8792D1BD46165518142F88704327F78E3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150393.jpgsave_picture_150393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150393.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Winter Deep: Deep House For Colder Days (2018) [MP3|320 Kbps] <House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150394.jpgsave_picture_150394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150394.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Windows Server, Version 20H2 (10.0.19042.1415) (Updated December 2021) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150395.jpgsave_picture_150395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150395.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:C0D5C589634CDF6AA0085435420194EA4C3E0651
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150397.jpgsave_picture_150397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150397.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:853E51E3C6DD9D984E2D361A15B12CD4E0DA7E25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150399.jpgsave_picture_150399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150399.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Maxon Cinema 4D Studio R25.115 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150400.jpgsave_picture_150400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150400.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:AF5D57E6A0140CBC3C49A836909182CA6D28A123
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150401.jpgsave_picture_150401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150401.jpg" />
 </div>
 
 

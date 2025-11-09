@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82915.jpgsave_picture_82915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82915.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82920.jpgsave_picture_82920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82920.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82921.jpgsave_picture_82921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82921.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:D3B47D3AD4ED2ED6A62A390A6C53A65A3470BEB9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82924.jpgsave_picture_82924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82924.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The KMPlayer 3.0.0.1440 (LAV) (сборка 7sh3 от 17.03.2012) [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82928.jpgsave_picture_82928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82928.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ KMPlayer - это универсальный проигрыватель, кот�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82930.jpgsave_picture_82930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82930.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ KMPlayer - это универсальный проигрыватель, кот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82932.jpgsave_picture_82932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82932.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82933.jpgsave_picture_82933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82933.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:14CC02D6DE55359693538B1DA5E7DCCF49E63885
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82934.jpgsave_picture_82934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82934.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:45D8A72E61B4362851DFC295955248C5D8BCA26E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82936.jpgsave_picture_82936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82936.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:45D8A72E61B4362851DFC295955248C5D8BCA26E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82937.jpgsave_picture_82937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82937.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82938.jpgsave_picture_82938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82938.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82940.jpgsave_picture_82940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82940.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ WPI Pack v.03.12 [Rus/Multi/x32/x64]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82941.jpgsave_picture_82941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82941.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:682DF869717A18AD9FB258FF4CF5A97A8089C526
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82942.jpgsave_picture_82942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82942.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:EA832C9D34DD1CA878548AA0505D0F4310AC14A5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82945.jpgsave_picture_82945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82945.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:EA832C9D34DD1CA878548AA0505D0F4310AC14A5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82947.jpgsave_picture_82947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82947.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:162EE39FB5C6853F357D102602F1F49FFD1AC323
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82949.jpgsave_picture_82949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82949.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Windows 7x64 Ultimate UralSOFT v.3.4.12 ( 2012) [Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82951.jpgsave_picture_82951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82951.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Windows 7x64 Ultimate UralSOFT v.3.4.12 ( 2012) [Rus]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82956.jpgsave_picture_82956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82956.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:70E3D38316558F831DE837ECD9A922A6F8BB6052
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82957.jpgsave_picture_82957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82957.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:FE4C8ADE5EDAA8C9BC4750AF64A02DC97BECA469
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82960.jpgsave_picture_82960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82960.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:4C12E4BC48C396486FDE1D2029528F1E0BE435DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82962.jpgsave_picture_82962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82962.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:4C12E4BC48C396486FDE1D2029528F1E0BE435DE
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82964.jpgsave_picture_82964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82964.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82965.jpgsave_picture_82965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82965.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:01895B5B496BB4C126A2281FF2D713A8C3622F69
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82969.jpgsave_picture_82969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82969.jpg" />
 </div>
 
 

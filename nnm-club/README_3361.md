@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 81 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107747.jpgsave_picture_107747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ Hits Vol. 78 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107748.jpgsave_picture_107748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107748.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vulgar Devils - Witches Wheel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107749.jpgsave_picture_107749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107749.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Psychic Graveyard - Wilting (2024) [FLAC|Lossless|WEB-DL|tracks] <synth punk, in
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107750.jpgsave_picture_107750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107750.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stonekind - Hollow Ground (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107751.jpgsave_picture_107751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107751.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sunburst - Manifesto (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107752.jpgsave_picture_107752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107752.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Portrait - The Host (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107753.jpgsave_picture_107753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107753.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ DinUmbra - Finality (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107754.jpgsave_picture_107754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107754.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Brian Auger & The Trinity, Savannah Grace - Live At Rockpalast (Live) (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107755.jpgsave_picture_107755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107755.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:662BA3DD9871916126073A24929FB6E76EB81163
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107756.jpgsave_picture_107756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107756.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Detroit Hills - Us (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107757.jpgsave_picture_107757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107757.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Teodasia - Metamorphosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107758.jpgsave_picture_107758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107758.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ My Diligence - The Matter, Form and Power (2022) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107759.jpgsave_picture_107759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107759.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Chillout Summer Anthems 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107760.jpgsave_picture_107760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107760.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:9D5C6972CFD532E83EBEFCB1387760375374C444
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107761.jpgsave_picture_107761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107761.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ KineMaster - Video Editor & Maker v7.4.15.33304.GP Mod by youarefinished [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107762.jpgsave_picture_107762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107762.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Новый хит- 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон,
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107763.jpgsave_picture_107763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107763.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:66C1A2980830A951ED82F8FD8173CF75BA7738DF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107764.jpgsave_picture_107764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107764.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Новый Хит Весна (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107765.jpgsave_picture_107765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107765.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:CF1C06E9DD89C42A2170319CBD3FD86D4C652B2E
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107766.jpgsave_picture_107766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107766.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Firefox Browser 127.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107767.jpgsave_picture_107767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107767.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:71F70A81F19BAF133ECB1656AB26376DFC6CA15C
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107768.jpgsave_picture_107768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107768.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PhotoRoom v5.0.5 b1455 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107769.jpgsave_picture_107769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107769.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:9993548624604CCF02B5E361B4D1ABD0D7FC80AB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107770.jpgsave_picture_107770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107770.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - DJ Hits Vol. 87 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107771.jpgsave_picture_107771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107771.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Vintage Culture - Promised Land (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107772.jpgsave_picture_107772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107772.jpg" />
 </div>
 
 

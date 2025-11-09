@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113741.jpgsave_picture_113741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113741.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DE85A6CFA2C982A38D276BA0B4A5135C7A5172FF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113742.jpgsave_picture_113742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113742.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpgsave_picture_113743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113743.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Madder Mortem - Mercury (1999) 2019 20th Anniversary Edition [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113744.jpgsave_picture_113744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113744.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stephane Grappelli - I Got Rhythm (1997) Delta Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113745.jpgsave_picture_113745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113745.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ellis Marsalis - Ruminations In New York (2004) ESP-Disk' [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113746.jpgsave_picture_113746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113746.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Curtis Fuller - The Complete Blue Note / UA Sessions (1957 - 1962) 3CD, 1996, Mo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113747.jpgsave_picture_113747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113747.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Branford Marsalis Quartet - Coltrane's A Love Supreme: Live In Amsterdam (2004) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113748.jpgsave_picture_113748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113748.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Joe La Barbera Quintet - Mark Time (2003) Jazz Compass [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113749.jpgsave_picture_113749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113749.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:3D9D15736E9919A089B548AF4ACBAA5DD0B4D68D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113750.jpgsave_picture_113750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113750.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:17EB90BAE06389E543078CA6A23F8E8184B5A9B6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113751.jpgsave_picture_113751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113751.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossle
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113752.jpgsave_picture_113752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113752.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113753.jpgsave_picture_113753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113753.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:D6F5D63971C0469260B9EEEAC177288CB0047EE3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113754.jpgsave_picture_113754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113754.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:5153A135BEDCE23ABA17CA1FC06930A9C7B55BAE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113755.jpgsave_picture_113755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113755.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:B1A0D3490E3E19C542F53FD373BE4D5E4E75201B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113756.jpgsave_picture_113756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113756.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:E164D288E68BE88036ED1064066F2E6CFB6B29A0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113757.jpgsave_picture_113757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113757.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Jack Jezzro & Star City Symphony - Guitar at the Symphony (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113758.jpgsave_picture_113758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113758.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113759.jpgsave_picture_113759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113759.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113760.jpgsave_picture_113760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113760.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113761.jpgsave_picture_113761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113761.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Nils Hoffmann - Running In A Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtem
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113762.jpgsave_picture_113762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113762.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:AB313DA556980B35B741FE9DBB1AE3DBE7CD3E38
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113763.jpgsave_picture_113763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113763.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ninja Sex Party - These Nuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113764.jpgsave_picture_113764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113764.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Alterium - Of War and Flames (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113765.jpgsave_picture_113765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113765.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Stephane Grappelli - Shades Of Django (1975) 1989, MPS Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113766.jpgsave_picture_113766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113766.jpg" />
 </div>
 
 

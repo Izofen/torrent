@@ -6,7 +6,7 @@ VA - Mega Hits Des Jahres (2022) [MP3|320 Kbps] <Synth-pop, Disco, Neo Soul, Bri
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159794.jpgsave_picture_159794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159794.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7F8643C7CB5D1C8817F79545F765D68B428B22C9
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159795.jpgsave_picture_159795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159795.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Music News vol.233 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159796.jpgsave_picture_159796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159796.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:81E35C1811A34D11C32D0B653FC9202238F1726E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159797.jpgsave_picture_159797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159797.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Opera One 104.0.4944.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159798.jpgsave_picture_159798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159798.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B95407247B231242C5CFF32C754B422D213E13FC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159799.jpgsave_picture_159799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159799.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Mokosmed, Мария Моргунова | МАКРО-, МИКРО- И УЛЬТР
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159800.jpgsave_picture_159800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159800.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:4EF6C86F112A72837D140F11283A83123D61CA76
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159801.jpgsave_picture_159801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159801.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159802.jpgsave_picture_159802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159802.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VueScan Pro 9.7.96 (22.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159803.jpgsave_picture_159803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159803.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:67E0D3063E5CA53EA787BC008C5A09FF49A632B6
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159804.jpgsave_picture_159804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159804.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ RSS Guard 4.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159805.jpgsave_picture_159805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159805.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:3BAB4F906D9AEB15BC46A3C8F7105BC0FA2386D8
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159806.jpgsave_picture_159806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159806.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:C7686F248C54BF49EB6E1FF15B6407F6E904999C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159807.jpgsave_picture_159807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159807.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ JetBrains DataGrip for Mac 2023.2.3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159808.jpgsave_picture_159808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159808.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159809.jpgsave_picture_159809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159809.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Status Quo - It's Christmas Time (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159810.jpgsave_picture_159810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159810.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:9E52FC29543D2C3FA77FA8B7600707CD55C7AB41
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159811.jpgsave_picture_159811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159811.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ PotPlayer 231110 (1.7.22037) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159812.jpgsave_picture_159812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159812.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:DFDBAF3C9ACBF8495506A329AE106276F8CE38A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159813.jpgsave_picture_159813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159813.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159814.jpgsave_picture_159814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159814.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:0D045886A7C918F1EC30D9F3EBDACF69F30891D0
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159815.jpgsave_picture_159815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159815.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E7F82DB0A86B70D3AE3852D8F6A37F625540AFBB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159816.jpgsave_picture_159816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159816.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ PotPlayer 231109 (1.7.22036) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159817.jpgsave_picture_159817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159817.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:70775BD69B6FB4997336A46D27F89FA4B51EB27B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159818.jpgsave_picture_159818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159818.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Ultimate Party Classics Dance (2022) [MP3|320 Kbps] <Electropop, Future Hou
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159819.jpgsave_picture_159819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159819.jpg" />
 </div>
 
 

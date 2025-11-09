@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247746.jpgsave_picture_247746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247746.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MyLanViewer 6.6.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247747.jpgsave_picture_247747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247747.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DDE7FB91B21446D43895FD872721CA719E2B287B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247748.jpgsave_picture_247748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247748.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247749.jpgsave_picture_247749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247749.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247750.jpgsave_picture_247750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247750.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Display Driver Uninstaller 18.1.3.8 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247751.jpgsave_picture_247751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247751.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:68A7D53E456C4844C73D7EB002EB8617BC58BC30
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247752.jpgsave_picture_247752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247752.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Any Video Downloader Pro 9.6.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247753.jpgsave_picture_247753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247753.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Colorize it v2.1.1 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247754.jpgsave_picture_247754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247754.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247755.jpgsave_picture_247755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247755.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack seleZen [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247756.jpgsave_picture_247756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247756.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ NG: Запреты / Табу / Taboo (2002-2012) HDTVRip [H.264/720p-LQ] (се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247757.jpgsave_picture_247757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247757.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:A1AB63CE2B1EEA590329B7ECE9CFCEED6E0A48F8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247758.jpgsave_picture_247758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247758.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:C9991C55FAA63F1309ADA67C52D056D4CD920CC2
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247759.jpgsave_picture_247759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247759.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:029D88C23C9820E436F19CEBA9526711AC0A1664
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247760.jpgsave_picture_247760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247760.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ A Light in the Dark / Yeguang (2018) [Ru/Multi] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247761.jpgsave_picture_247761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247761.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:E07775FDF426A47BBD35D695174F774F0C5DB65E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247762.jpgsave_picture_247762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247762.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WhatsApp 3.2310.5 Portable by OvArt 06.2023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247763.jpgsave_picture_247763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247763.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:B7407BADE6EB144A6951C94E234CD502A75EBE6A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247764.jpgsave_picture_247764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247764.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:784F488D5D19601F3584E9BB6463735E36A7B7C1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247765.jpgsave_picture_247765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247765.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C2B96BF697DFF7C8B839BD8824D57762AF482D3F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247766.jpgsave_picture_247766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247766.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:51166DC927351D45561F1F35FB9ED39685CDF80C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247767.jpgsave_picture_247767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247767.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:EE968FD9656231990AF0F68476366DA1C3771A0A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247768.jpgsave_picture_247768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247768.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ iDownerGo Video Downloader 10.9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247769.jpgsave_picture_247769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247769.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:49218945DC852557C21AA1C5C5E6114E2958C54D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247770.jpgsave_picture_247770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247770.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:5BF05F5CF881EE219908F906BB9B769B477D9D67
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247771.jpgsave_picture_247771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247771.jpg" />
 </div>
 
 

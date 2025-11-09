@@ -6,7 +6,7 @@ Kill Dorothy - Liberate Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212382.jpgsave_picture_212382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212382.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rites to Ruin - Daughter of Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212384.jpgsave_picture_212384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212384.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:E62A538A34B8A57F47031A8E06069E15320924CD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212386.jpgsave_picture_212386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212386.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:20A000BD7FCF148EFF44A2DAB0E599358DABF276
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212387.jpgsave_picture_212387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212387.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Hawklords - Faith (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212389.jpgsave_picture_212389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212389.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Screaming Frog SEO Spider 23.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212391.jpgsave_picture_212391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212391.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Aranda - Four0Five Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212401.jpgsave_picture_212401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212401.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:FF9422C7004D303B8DD981BEABC264108F7EE5A3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212404.jpgsave_picture_212404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212404.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Civil Daze - Once In A Blue Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Melodic 
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212406.jpgsave_picture_212406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212406.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Revo Uninstaller Free 2.6.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212408.jpgsave_picture_212408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212408.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Fishing 4 Compliments - Lost in Good Intentions (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212410.jpgsave_picture_212410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212410.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Stephanie Anne Johnson - Sing, baby! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212412.jpgsave_picture_212412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212412.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:3D6B0DE440FDBF7362582EC700F3CD9CC7CB8CA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212414.jpgsave_picture_212414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212414.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Austin Vallejo - Hunting Me Down (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212416.jpgsave_picture_212416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212416.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:D9D4BFF914DAB42F222C145674D84082E4FB2ED9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212418.jpgsave_picture_212418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212418.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:69B09A451831D6F367AFB8C815BC980060BF602B
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212420.jpgsave_picture_212420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212420.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:F9A59EDAECEE6520635DA3751A5CB3788614C344
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212422.jpgsave_picture_212422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212422.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Wanterlude [Di
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212424.jpgsave_picture_212424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212424.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16507r) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212426.jpgsave_picture_212426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212426.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:A8A6066520C93383DA14016E96325E8404B3AF62
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212433.jpgsave_picture_212433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212433.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Master of Command (2025) [Ru/Multi] (Build 20565020) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212435.jpgsave_picture_212435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212435.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:98B0F95CD37A41B6FDD2BFA6E1264B938FAEADDF
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212437.jpgsave_picture_212437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212437.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:6917E22DD17E26C59681BE90A8802726B651CA24
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212439.jpgsave_picture_212439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212439.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ TechSmith Camtasia 25.2.4 Build 12581 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212441.jpgsave_picture_212441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212441.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:9F84F538F9A9F3D64404EED1525D55B684679DBF
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212443.jpgsave_picture_212443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212443.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ O&O ShutUp10++ 2.1.1015 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212445.jpgsave_picture_212445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212445.jpg" />
 </div>
 
 

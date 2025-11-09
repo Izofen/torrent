@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236017.jpgsave_picture_236017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236017.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nepenthes - Grand Guignol (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236018.jpgsave_picture_236018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236018.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:777CF535E9B75938570D428ECFD7A2566CEE7482
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236019.jpgsave_picture_236019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236019.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Screen Wonders 1.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236020.jpgsave_picture_236020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236020.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D78A2D668DD1FCE6E012E416673AD85370D7A44D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236021.jpgsave_picture_236021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236021.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Kumano - Kumano (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236022.jpgsave_picture_236022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236022.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Micke Bjorklof & Blue Strip - Colors of Jealousy (2023) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236023.jpgsave_picture_236023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236023.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:331043A5FD49AE205C33ED182E489E3CC02901D6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236024.jpgsave_picture_236024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236024.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mork - Dypet (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236025.jpgsave_picture_236025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236025.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:7B974C507E33EF6E7703F095037C13640DFC0D80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236026.jpgsave_picture_236026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236026.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:7B974C507E33EF6E7703F095037C13640DFC0D80
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236027.jpgsave_picture_236027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236027.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ The Lurking Fear - Death, Madness, Horror, Decay (2021) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236028.jpgsave_picture_236028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236028.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:C3E9D5DD791DC1AE2B0547ED6DAAA939026E3699
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236030.jpgsave_picture_236030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236030.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ QuickLens 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236031.jpgsave_picture_236031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236031.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:A9D4524CB42D85A77CA961D36F1A07F78A2D8EE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236032.jpgsave_picture_236032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236032.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:34A06481FE7BA9D8E2319300D58236F61BB7A2A1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236033.jpgsave_picture_236033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236033.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ IronBourne - IronBourne (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236034.jpgsave_picture_236034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236034.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Noumena - Anima (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236035.jpgsave_picture_236035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236035.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ DirEqual 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236036.jpgsave_picture_236036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236036.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:90597AB493BA46E02CDD91F6546FCE082CB1A26C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236037.jpgsave_picture_236037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236037.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ashley Sherlock - Just A Name (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236038.jpgsave_picture_236038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236038.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Eddie Higgins Trio - Portraits Of Love (2009) Venus Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236039.jpgsave_picture_236039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236039.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Nervochaos - Chthonic Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236040.jpgsave_picture_236040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236040.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Audacity 3.3.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236041.jpgsave_picture_236041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236041.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:D92DF2DA2498FC0C99E14430E37370182F274984
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236042.jpgsave_picture_236042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236042.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Hot Lips Page - After Hours In Harlem (1940 - 1941) 1998, HighNote [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236043.jpgsave_picture_236043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236043.jpg" />
 </div>
 
 

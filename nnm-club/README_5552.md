@@ -6,7 +6,7 @@ Gloomy Tales 2: One-Way Ticket / Мрачные истории 2: Билет в 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171338.jpgsave_picture_171338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171338.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BDBE331BE3D00ECA07B45589FA3AC9B822F9BF11
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171339.jpgsave_picture_171339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171339.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:077730EF9E708DBBE90E5CCB0136968554B13469
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171340.jpgsave_picture_171340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171340.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ tvQuickActions Pro 3.3.1 Mod by Alex.Stranik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171341.jpgsave_picture_171341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171341.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PrivaZer Pro 4.0.79 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171342.jpgsave_picture_171342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171342.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Music News vol.309 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171343.jpgsave_picture_171343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171343.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B43C896963F82803BE73DC64E320F0EEC3E3BA4D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171344.jpgsave_picture_171344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171344.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ The Rolling Stones - Hackney Diamonds (2023) Japan [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171345.jpgsave_picture_171345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171345.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Opera One 104.0.4944.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171346.jpgsave_picture_171346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171346.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Nitro Pro 14.16.0.13 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171347.jpgsave_picture_171347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171347.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ DoYourData Start Menu Pro 5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171348.jpgsave_picture_171348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171348.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ashampoo UnInstaller 14.00.10 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171349.jpgsave_picture_171349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171349.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:10FD7704B4825043E1171C9FD237EBEF347B6C53
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171350.jpgsave_picture_171350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171350.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:7CF747C1C5F7D213DEEE2436D7A754C51E7EA462
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171351.jpgsave_picture_171351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171351.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:EF9145D342079E5FFAE4534963DCEE0D0ADB664F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171352.jpgsave_picture_171352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171352.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Queen - A Night At The Opera (1975) Remaster, 2 CD Deluxe Edition, 2011, Univers
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171353.jpgsave_picture_171353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171353.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Apple Remote Desktop 3.9.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171354.jpgsave_picture_171354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171354.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ ZZ Top - Goin' 50 (2019) Compilation [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171355.jpgsave_picture_171355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171355.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:F74DC0EF6D8C6FB70E61E62C908A1013A36FD7C3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171356.jpgsave_picture_171356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171356.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:B93DAF6E2EFA7C347FC2C5685249FFE0258D91B5
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171357.jpgsave_picture_171357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171357.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:089B2A60E155BFD8CF7CE8C666B3C6001711F8C6
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171358.jpgsave_picture_171358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171358.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:032A5E505F9C909A28A7137718CD9A8F14F0DF05
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171359.jpgsave_picture_171359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171359.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Queen - Queen II (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171360.jpgsave_picture_171360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171360.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ SupRemo 4.10.4.2202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171361.jpgsave_picture_171361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171361.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ MENDA - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171362.jpgsave_picture_171362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171362.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ FileZilla 3.66.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171363.jpgsave_picture_171363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171363.jpg" />
 </div>
 
 

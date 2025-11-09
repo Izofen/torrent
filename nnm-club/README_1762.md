@@ -6,7 +6,7 @@ Scarlet Rebels - Let Me In (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46169.jpgsave_picture_46169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46169.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BEE2E5513505409DA818A13B517BD7EF95528494
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46170.jpgsave_picture_46170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46170.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:8F5334C1F49619C98A3BAA010EF54BF45EE56C43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46171.jpgsave_picture_46171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46171.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Asenblut - Entfesselt (2024) [FLAC|Lossless|image + .cue] <Melodic Viking Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46172.jpgsave_picture_46172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46172.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:778212B3239D6B4B73905A6306F5161E075CD682
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46173.jpgsave_picture_46173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46173.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:693B22A59989BD8AF327B32AF0B39C5A228FDFAF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46174.jpgsave_picture_46174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46174.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:43FA439B0EA7A4ECB05665F11E318820445FAFAA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46175.jpgsave_picture_46175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46175.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Timo Tolkki's Avalon - Studio Albums (4 releases) (2013-2021) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46176.jpgsave_picture_46176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46176.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Shark Island - Memento Mori Live On The Strip (2024) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46177.jpgsave_picture_46177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46177.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TaTa Golosa (Romina Contiero) - Fotonovela Y Otras Historias (2009) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46178.jpgsave_picture_46178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46178.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:0C3A9B30B92004D5E9C9B02BB4E3B1261013BB6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46179.jpgsave_picture_46179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46179.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ EchoVerse - Whispers Between Worlds (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46180.jpgsave_picture_46180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46180.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:842BCF3B0A76AE9C348F59A07BC0807A2BF023A6
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46181.jpgsave_picture_46181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46181.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ TaTa Golosa (Romina Contiero) - Busca Busca (+ Micromania 2014) (2014) [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46182.jpgsave_picture_46182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46182.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Revolution Renaissance - Studio Albums (3 releases) (2008-2010) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46183.jpgsave_picture_46183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46183.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Hereafter - All Is As It Should Be (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46184.jpgsave_picture_46184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46184.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Gerry Mulligan - The Gerry Mulligan Quartets In Concert (1957, 1962) 2001, Unive
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46185.jpgsave_picture_46185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46185.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Microsoft Windows 11 [10.0.22621.4037], Version 22H2 (Updated August 2024) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46186.jpgsave_picture_46186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46186.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D7C90245B39746E318DC3590D664769754635B5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46187.jpgsave_picture_46187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46187.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:06284C05147C797769488B36D29BE56EF0708093
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46188.jpgsave_picture_46188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46188.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:06284C05147C797769488B36D29BE56EF0708093
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46189.jpgsave_picture_46189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46189.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:768A07C5F66442E3FA097FE1654056195D253DE9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46190.jpgsave_picture_46190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46190.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:6BEABA20874CDFED9CBBC367589CCC801EB69AF4
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46191.jpgsave_picture_46191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46191.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:3F34B5697492D12ADA6624435331B1851EE19948
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46192.jpgsave_picture_46192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46192.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:9B1ECB47176685797DF37DD0F5CE427EF04155C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46193.jpgsave_picture_46193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46193.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Vampire Dormitory | Общежитие вампиров [2024, TV, 12 эп.] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46194.jpgsave_picture_46194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46194.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154342.jpgsave_picture_154342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154342.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1114) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154343.jpgsave_picture_154343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154343.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:9C1A0FA38C50310FED89F17326F0DEC03510DFF2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154344.jpgsave_picture_154344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154344.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B15B42D1C13CE51504BBD67139748E50F328A615
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154345.jpgsave_picture_154345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154345.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Breather Of Chaos - Inner Demons (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154346.jpgsave_picture_154346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154346.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Space Chillout (2021) [AAC|~305 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154347.jpgsave_picture_154347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154347.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:1B29A3C12B82E6ED0E6693F30390BECEF501A6A1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154348.jpgsave_picture_154348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154348.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Jaz Blues - Evening Romantic Blues Collection (2022) [MP3|320 Kbps] <Jazz, Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154349.jpgsave_picture_154349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154349.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:5F7631363869046B6B7EC0476CCF3D40DF2D9FCE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154350.jpgsave_picture_154350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154350.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Magnus - Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154351.jpgsave_picture_154351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154351.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:D52D372E6EC232CB6B36F1F872C8CFFD2B80AC39
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154352.jpgsave_picture_154352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154352.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Artweaver Free 5.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154353.jpgsave_picture_154353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154353.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ A Better Finder Rename 11 v.11.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154354.jpgsave_picture_154354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154354.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Winter Relaxation, Vol. 3 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154355.jpgsave_picture_154355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154355.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ iCash 7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154356.jpgsave_picture_154356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154356.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Andres Colubri | Processing for Android, 2nd Edition (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154357.jpgsave_picture_154357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154357.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ BitMedic Pro Antivirus 3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154358.jpgsave_picture_154358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154358.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:895B3CFE10EDFD3D0E2D65548F03A39F5D9419A5
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154359.jpgsave_picture_154359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154359.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:B83C792F3DB0A694399F268A2F432FCF6A33AE9F
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154360.jpgsave_picture_154360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154360.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:15BEB4AD38AF3A240CFD3423C480B7E7E474B511
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154361.jpgsave_picture_154361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154361.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Eddie Condon And His All Stars - Jammin' At Condon's (1955) 2007, Membran Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154362.jpgsave_picture_154362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154362.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Winter Relaxation, Vol. 2 (2020) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154363.jpgsave_picture_154363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154363.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:8820CA9F82CCE4ED14263E7F4DF3D3B5F74BD40B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154364.jpgsave_picture_154364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154364.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ SyMenu 6.14.7660 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154365.jpgsave_picture_154365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154365.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:849BA7464AA1173E961C82CE948D2DDF62DFBC05
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154366.jpgsave_picture_154366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154366.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:FEDEF6E6C1998152C680FB5A2BB6BF12660CDBC1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154367.jpgsave_picture_154367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154367.jpg" />
 </div>
 
 

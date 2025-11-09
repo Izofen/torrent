@@ -6,7 +6,7 @@ Findroid | Избранник Башни (Книга 2). Tower Edition (2023) [M
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232627.jpgsave_picture_232627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232627.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B46E2FC8EE10B8DE83987AC9BE57FE1637D45246
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232630.jpgsave_picture_232630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232630.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Star of Madness - Into the Realm of Cthulhu (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232631.jpgsave_picture_232631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232631.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:54A1C98EFDE6A10F7EC15D80CB99C93B76074C20
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232632.jpgsave_picture_232632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232632.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:50D3D60FE9BD1845CDDD69F0D7EF0C1CDF55ED33
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232636.jpgsave_picture_232636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232636.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ SiteSucker Pro 5.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232637.jpgsave_picture_232637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232637.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:A094DF16C6410C3DB076C019BC15831A48ADE831
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232638.jpgsave_picture_232638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232638.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Chicago - Summer In Chicago (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232641.jpgsave_picture_232641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232641.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ The Feelers - Reimagined - Greatest Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232642.jpgsave_picture_232642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232642.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Ibiza Summer (2023) [MP3|320 Kbps] <Electronica, Soulful, Beach House, Deep
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232644.jpgsave_picture_232644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232644.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ EdgeView 4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232645.jpgsave_picture_232645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232645.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:E73FC94B9E9B74BAF0941D98FAFE7C0481053694
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232646.jpgsave_picture_232646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232646.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:E240D0AA0F1413C8F6766CE4238492D5F2742C79
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232649.jpgsave_picture_232649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232649.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Starseed - Cosmic Conspiracy (1997) EP, 931576 Records DK, Reissue 2018 [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232651.jpgsave_picture_232651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232651.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:CDCAD4A5DD05E71BBB8496B9DE24745F418C6477
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232652.jpgsave_picture_232652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232652.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:D41EFED3619449D90602BEC2FD7F8F74021C24CE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232654.jpgsave_picture_232654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232654.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sam Brown - The A&M Years 1988-1990 (2016) 4 x CD, Compilation, Remastered, Caro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232655.jpgsave_picture_232655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232655.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Swamp Lordz - Cosmic Swamp (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232658.jpgsave_picture_232658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232658.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0BCEF8088FB2964EBE370F01A08FB0F33DCD5FAE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232660.jpgsave_picture_232660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232660.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:191A76CD998015ED8258D682CA7FD0FEC86AAD84
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232661.jpgsave_picture_232661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232661.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Atomic Symphony - Nemesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232663.jpgsave_picture_232663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232663.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:4A2DFA94B6FA0E43A1E75D8A9CD52D02FE258FEF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232665.jpgsave_picture_232665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232665.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:8F9A12F31A78FADFB3FB5D38575F2DD2DFA8B848
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232667.jpgsave_picture_232667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232667.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Heathen Kings - Fealty to None (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232669.jpgsave_picture_232669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232669.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Perfectly Clear WorkBench 4.5.0.2550 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232671.jpgsave_picture_232671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232671.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Star Of Madness - Into the Realm of Cthulhu (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232672.jpgsave_picture_232672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232672.jpg" />
 </div>
 
 

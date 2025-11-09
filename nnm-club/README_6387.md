@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202720.jpgsave_picture_202720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202720.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:13CF9F78AB9889E8E97410368B4B25DBF1EC98B5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202721.jpgsave_picture_202721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202721.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4CCB2D266EB9A4B3DB93830CB0547B29F1CBEF7F
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202722.jpgsave_picture_202722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202722.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9CF5F2CA1A8D22A8A49920E6CCCEF5DCEF99AD35
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202723.jpgsave_picture_202723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202723.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ qBittorrent 4.5.1 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202724.jpgsave_picture_202724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202724.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ R-Studio Network 9.2 Build 191126 Portable by 7997 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202725.jpgsave_picture_202725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202725.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:5980246C72F7FAF3E2471D05692B76B42D6F7423
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202726.jpgsave_picture_202726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202726.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8CE2B72AF6FB26DAB1596BB8128EE5D0B622CEF1
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202727.jpgsave_picture_202727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202727.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ qBittorrent 4.5.1 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202728.jpgsave_picture_202728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202728.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B44E270000EEC11B3A9E19960CC4966C2C6B441B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202729.jpgsave_picture_202729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202729.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.6 Stable RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202730.jpgsave_picture_202730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202730.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F90ADF53969CB8E4C3D5AF12CE21B661F934E4F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202731.jpgsave_picture_202731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202731.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F92F28F8D4099B8739CA2C34613B1AD8DAAD1DE3
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202732.jpgsave_picture_202732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202732.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202733.jpgsave_picture_202733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202733.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:B66926E0FDF8DAE5774CE5061FFBF8645823CBCB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202734.jpgsave_picture_202734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202734.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:651DDB87C29C1E34F3E2C0B5899EEC95D50DC29F
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202735.jpgsave_picture_202735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202735.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:7F28726D75ACC1767C4AC3CBDBC9CD0C509F23A8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202736.jpgsave_picture_202736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202736.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Escape The Fate - Out Of The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202737.jpgsave_picture_202737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202737.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:1D96FADED00322164B252D802D0DC8ECF85D59DD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202738.jpgsave_picture_202738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202738.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ ZEDGE 8.15.9-beta Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202739.jpgsave_picture_202739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202739.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Study Kvo, Саня Кво | Курс по веб-дизайну 3.0 (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202740.jpgsave_picture_202740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202740.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Tombstone - Angel Of Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202741.jpgsave_picture_202741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202741.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Fox Girls Never Play Dirty! (2021) [Multi] (v1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202742.jpgsave_picture_202742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202742.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Defueld - Octagon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202743.jpgsave_picture_202743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202743.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ qBittorrent 4.5.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202744.jpgsave_picture_202744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202744.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Polaris - Fatalism (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202745.jpgsave_picture_202745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202745.jpg" />
 </div>
 
 

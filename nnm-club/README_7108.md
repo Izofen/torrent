@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243732.jpgsave_picture_243732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243732.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skype 8.96.0.408 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243733.jpgsave_picture_243733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243733.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:790B4A17FB088E6011439C8FA5FD0096A3B14444
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243734.jpgsave_picture_243734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243734.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ashtoreth - Bruxolico (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243735.jpgsave_picture_243735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243735.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Topaz Video AI 3.1.11 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243736.jpgsave_picture_243736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243736.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Topaz Gigapixel AI 6.0.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243738.jpgsave_picture_243738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243738.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:319A3EE4657EB309EDA1411CACE6B67A3B358BF4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243739.jpgsave_picture_243739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243739.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Loungerie (25 Amazing Lounge Tunes), Vol. 2 (2017) [AAC|~315 Kbps] <Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243740.jpgsave_picture_243740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243740.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Nu Deep Gold Series:01 (2015) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243741.jpgsave_picture_243741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243741.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Zoommy 3.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243742.jpgsave_picture_243742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243742.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Amthrya - Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243743.jpgsave_picture_243743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243743.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ IObit Driver Booster Pro 9.5.0.236 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243744.jpgsave_picture_243744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243744.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AIMP 5.11 Build 2427 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243745.jpgsave_picture_243745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243745.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Process Explorer 17.03 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243747.jpgsave_picture_243747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243747.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:92C2BD90B2AA7D6BEC9A7342846733E3ED34F715
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243748.jpgsave_picture_243748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243748.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 3 (2019) [AAC|~326 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243749.jpgsave_picture_243749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243749.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:37D52D17F7306A7F31998F7516A9651558FCCF72
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243750.jpgsave_picture_243750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243750.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:FC051B6779017A93888D5F1196066B7B9053961B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243751.jpgsave_picture_243751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243751.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Opera 97.0.4719.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243752.jpgsave_picture_243752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243752.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:1A095C9B6F03949986BCB62ADD4EF9F4CD54B3CD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243753.jpgsave_picture_243753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243753.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Grima - Will of the Primordial (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243754.jpgsave_picture_243754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243754.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:DA0CA027576DF742EF67FD014247DD295D62764C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243755.jpgsave_picture_243755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243755.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243756.jpgsave_picture_243756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243756.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 3 (2022) [AAC|~331 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243758.jpgsave_picture_243758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243758.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Midnight Lounge Vol.13: Lounge Lunatic (2016) [MP3|320 Kbps] <Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243759.jpgsave_picture_243759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243759.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PlayerFab 7.0.3.9 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243760.jpgsave_picture_243760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243760.jpg" />
 </div>
 
 

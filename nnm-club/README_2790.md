@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79071.jpgsave_picture_79071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79071.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Panda Cloud Antivirus 1.5.2 [Multilanguage+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79073.jpgsave_picture_79073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79073.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Panda Cloud Antivirus 1.5.2 [Multilanguage+Rus]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79077.jpgsave_picture_79077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79077.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:77ACCF48A4158ECC9EAAA07DF1B718D6AB3F9F09
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79078.jpgsave_picture_79078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79078.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4D23B934C20AC2E397F0820D32366D5D4B48AD49
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79079.jpgsave_picture_79079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79079.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B15CFDD699B441746F6757E09E10B267D94710B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79081.jpgsave_picture_79081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79081.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Command & Conquer: Generals (Deluxe Edition) [Native] [Eng]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79083.jpgsave_picture_79083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79083.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Command & Conquer: Red Alert 2 (+ Yuri's Revenge) [Wineskin] [Rus]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79084.jpgsave_picture_79084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79084.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A44ECB8179F5032245C1079E9FD1C447523D6E87
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79086.jpgsave_picture_79086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79086.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Autodesk AutoCAD 2012 [Eng]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79089.jpgsave_picture_79089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79089.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79090.jpgsave_picture_79090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79090.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79093.jpgsave_picture_79093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79093.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79094.jpgsave_picture_79094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79094.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79097.jpgsave_picture_79097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79097.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79105.jpgsave_picture_79105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79105.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79112.jpgsave_picture_79112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79112.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Indra - Global Music (2008) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79115.jpgsave_picture_79115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79115.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Indra - Global Music (2008) [FLAC|Lossless]<Psychedelic / Full On>
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79116.jpgsave_picture_79116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79116.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79120.jpgsave_picture_79120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79120.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79123.jpgsave_picture_79123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79123.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79124.jpgsave_picture_79124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79124.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79130.jpgsave_picture_79130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79130.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:FE6A9B37BD61E6445C92E2FE66F8696EC054A0C9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79132.jpgsave_picture_79132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79132.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:FE6A9B37BD61E6445C92E2FE66F8696EC054A0C9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79138.jpgsave_picture_79138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79138.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Joe Louis Walker - Hellfire (2012) [APE|Lossless]<Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79140.jpgsave_picture_79140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79140.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79141.jpgsave_picture_79141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79141.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36287.jpgsave_picture_36287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36287.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deathbound (2024) [Ru/Multi] (1.1.8f1) Scene Tenoke [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36290.jpgsave_picture_36290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36290.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Last Plague: Blight (2024) [Ru/Multi] (0.9.8) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36296.jpgsave_picture_36296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36296.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36304.jpgsave_picture_36304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36304.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PO'ed: Definitive Edition (2024) [Multi] (1.0.594) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36312.jpgsave_picture_36312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36312.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36321.jpgsave_picture_36321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36321.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vaporum (2017) [Ru/Multi] (Patch 15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36324.jpgsave_picture_36324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36324.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Strategic Command WWII: World at War (2018) [Multi] (1.20.00) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36327.jpgsave_picture_36327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36327.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Strategic Command: World War I (2019) [Multi] (1.15.00/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36328.jpgsave_picture_36328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36328.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ CarX Street (2024) [Ru/En] (1.2.1/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36337.jpgsave_picture_36337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36337.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36368.jpgsave_picture_36368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36368.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Quiet Place: The Road Ahead (2024) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36374.jpgsave_picture_36374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36374.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36375.jpgsave_picture_36375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36375.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Inside the Backrooms (2022) [Ru/Multi] (0.5.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36381.jpgsave_picture_36381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36381.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Factory Town (2021) [Ru/Multi] (2.2.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36408.jpgsave_picture_36408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36408.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Funko Fusion (2024) [Ru/Multi] (1.2.10.143142/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36415.jpgsave_picture_36415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36415.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Valheim - Ashlands (2021) [Ru/Multi] (0.219.16) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36419.jpgsave_picture_36419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36419.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36424.jpgsave_picture_36424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36424.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1358352/dlc) Scene Rune [Le
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36434.jpgsave_picture_36434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36434.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36437.jpgsave_picture_36437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36437.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36475.jpgsave_picture_36475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36475.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Pumping Simulator 2 (2023) [Ru/Multi] (0.7.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36519.jpgsave_picture_36519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36519.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36525.jpgsave_picture_36525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36525.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36527.jpgsave_picture_36527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36527.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.1.4/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36531.jpgsave_picture_36531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36531.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Patch 5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36536.jpgsave_picture_36536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36536.jpg" />
 </div>
 
 

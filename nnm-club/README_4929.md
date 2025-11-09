@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154160.jpgsave_picture_154160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154160.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:24EB17BC42F007DCCF2447C9206D07C767852EBC
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154161.jpgsave_picture_154161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154161.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:24EB17BC42F007DCCF2447C9206D07C767852EBC
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154162.jpgsave_picture_154162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154162.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:5C02BE280D8C920CB8DC28325747F9F2A4F58D68
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154163.jpgsave_picture_154163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154163.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:2D4C3FCC83BC0C7DAE3461A6150BC9D91BCFDF40
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154164.jpgsave_picture_154164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154164.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:F94D337188E2D0D4F38BE967055F9BFC3D3A6220
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154165.jpgsave_picture_154165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154165.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:F940ED2238E963088241AF140D84F82CCAE8ADBF
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154166.jpgsave_picture_154166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154166.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:AFE67BC4B20E9C2F7E3FDB4252663EB4BF8ED5A3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154167.jpgsave_picture_154167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154167.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Oscar Peterson - Piano Moods: The Very Best Of Oscar Peterson (1998) 2CD [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154168.jpgsave_picture_154168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154168.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B5A4092F2CE5B4B16B423B5FC1FB4181469DA8D8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154169.jpgsave_picture_154169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154169.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:37F01F7BD9AD4A4F4B42C343B7554A8549B57035
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154170.jpgsave_picture_154170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154170.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ ONLYOFFICE 7.5.1.23 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154171.jpgsave_picture_154171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154171.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:BAD96E33D88268BC861C800703AC72E232859611
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154172.jpgsave_picture_154172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154172.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5565C5E3AEEA3335AB5A876FF3B2E935BE2750FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154173.jpgsave_picture_154173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154173.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:93AD092ADA67372784C0604FDE99E535ED0E6093
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154174.jpgsave_picture_154174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154174.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Vinegar 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154175.jpgsave_picture_154175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154175.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Kari Arnett - Midwestern Skyline (2015) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154176.jpgsave_picture_154176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154176.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:5508C62C689094E6AB03510A5BAF1D68523FF7CE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154177.jpgsave_picture_154177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154177.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:CBF586D32C3A2FAB532F78B0625EC65625E44340
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154178.jpgsave_picture_154178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154178.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ AltTab 6.51.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154179.jpgsave_picture_154179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154179.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:17F270FCF4D5CC678233A78D96E0367FADBC5805
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154180.jpgsave_picture_154180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154180.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:1CC0DE9665B62707049C8C2F06DBE0303D039B8A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154181.jpgsave_picture_154181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154181.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:9A9E8BF2192305EFA34902DD0AA4FA5029178388
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154182.jpgsave_picture_154182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154182.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Wondershare Recoverit Video Repair 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154183.jpgsave_picture_154183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154183.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - 25 Years Bonzai Classics (Remixed) (2017) [MP3|320 Kbps] <Trance, Hard tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154184.jpgsave_picture_154184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154184.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 3 (2021) [AAC|~33
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154185.jpgsave_picture_154185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154185.jpg" />
 </div>
 
 

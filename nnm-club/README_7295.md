@@ -6,7 +6,7 @@ WizTree 4.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249707.jpgsave_picture_249707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249707.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rebelway, Sjors De Laat | The Basics of Substance Designer for Realtime FX (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249708.jpgsave_picture_249708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249708.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Music News vol.251 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249709.jpgsave_picture_249709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249709.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Bandband, Мария Галина и др. | Литературная масте
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249710.jpgsave_picture_249710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249710.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1BEE6EEB8A95AF6DF8C4D10FE92773C98A16F973
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249711.jpgsave_picture_249711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249711.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1BEE6EEB8A95AF6DF8C4D10FE92773C98A16F973
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249712.jpgsave_picture_249712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249712.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Microsoft Windows 11 [10.0.22000.795], Version 21H2 (Updated July 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249713.jpgsave_picture_249713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249713.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:887E8589ADDA8BBBC2CA0903853825024991A106
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249714.jpgsave_picture_249714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249714.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Fantasy Bishoujo Juniku Ojisan to | В другом мире с мужчиной
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249715.jpgsave_picture_249715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249715.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Travel - Tattered Passport (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249716.jpgsave_picture_249716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249716.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Wingfox, Amit Ginni Patpatia | Intro to Unreal Lighting (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249717.jpgsave_picture_249717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249717.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:A60005C68E66B1EA9446B437433AB0AFC3B8DD0A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249718.jpgsave_picture_249718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249718.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Zeeny Cobb and Blues Child - Out in the Open (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249719.jpgsave_picture_249719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249719.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:1E6AFE30C87C8B648187BF2789F04FBD1D4EFBAE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249720.jpgsave_picture_249720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249720.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The Schedules - Rescheduled (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249721.jpgsave_picture_249721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249721.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:8A6DAD8B4D78C5B932EEA1E8A9301553B2E7F67B
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249722.jpgsave_picture_249722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249722.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ DogLinux Debian 11 Bullseye 2022.07.12 [x86, amd64] 2xDVD 2xCD (ISO)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249723.jpgsave_picture_249723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249723.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:E3CBDB5A22AC31598E5E527C9B7B753A776AF111
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249724.jpgsave_picture_249724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249724.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Fort Firewall 3.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249725.jpgsave_picture_249725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249725.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:146CEE26A35F02F5732E6FAD1FE0BB6581DAE2FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249726.jpgsave_picture_249726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249726.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Topaz Video AI 3.1.9 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249727.jpgsave_picture_249727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249727.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Adobe Substance 3D Painter 8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249728.jpgsave_picture_249728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249728.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:24E292B3D152CC3E8268BB732F7C0F088BE5B229
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249729.jpgsave_picture_249729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249729.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ WinNTSetup 5.2.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249730.jpgsave_picture_249730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249730.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - All Day Throwback 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249731.jpgsave_picture_249731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249731.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:42E560C70145901F4D7CA3CE1D8295F2E59CCE70
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249732.jpgsave_picture_249732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249732.jpg" />
 </div>
 
 

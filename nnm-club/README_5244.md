@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163118.jpgsave_picture_163118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163118.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Аракс / Веселые Ребята - Песни На Стихи Ви�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163119.jpgsave_picture_163119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163119.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ A Sound of Thunder - Parallel Eternity (2020) [MP3|320 Kbps] <Symphonic-Power-He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163120.jpgsave_picture_163120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163120.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoinSnap - Value Guide v1.2.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163121.jpgsave_picture_163121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163121.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:17B9C0A51B43B97AB32E8845A8FC6D80EC8DF7CC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163122.jpgsave_picture_163122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163122.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ ORS / Orlando Riva Sound - Compilation (2023) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163123.jpgsave_picture_163123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163123.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:CD5FD6E276F47C7C43EAF002CAC33E24C841FEE9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163124.jpgsave_picture_163124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163124.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:0D1931AC4891BB824F75326D90F20B1648C0A537
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163125.jpgsave_picture_163125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163125.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:C1D61DD6D924D8D14D46BBA8AD315D6DF6903B23
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163126.jpgsave_picture_163126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163126.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Jon Moskowitz presents: DJ Cappel & Smitty - Blue Eyes Meets Bed-Stuy (Notorious
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163127.jpgsave_picture_163127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163127.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:AC41DED43747BFA90F5CFE6E4E39F79C7B957558
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163128.jpgsave_picture_163128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163128.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Tor Browser Bundle 11.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163129.jpgsave_picture_163129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163129.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Majestica - A Christmas Carol (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163130.jpgsave_picture_163130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163130.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:FD2B7BA59D5E94FCE611FC068516F04BF953647D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163131.jpgsave_picture_163131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163131.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:50B1E117074A1837CC293D798119C1A1A4BAD33C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163132.jpgsave_picture_163132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163132.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:B416A9A88F9E022086634C568C29D1F98DE25C7C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163133.jpgsave_picture_163133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163133.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:A7B5471ED4AA1089A92934773F3D654E4F0A09A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163134.jpgsave_picture_163134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163134.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Deflection 5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163135.jpgsave_picture_163135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163135.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:2EE8F68C81F2E7EAC7B81D9BE90004183581B8C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163136.jpgsave_picture_163136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163136.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:C8EF2F199BBEEE7F97CA04F1DC38AB8A715995ED
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163137.jpgsave_picture_163137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163137.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Cancer Bats - You'll Never Break Us (2020) Separation Sessions, Vol. 1 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163138.jpgsave_picture_163138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163138.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ New File Menu 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163139.jpgsave_picture_163139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163139.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:74F1BF945F7034A6B257E094B091EBDBF2A57320
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163140.jpgsave_picture_163140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163140.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Teardown (2020) [En] (0.9.0) Unofficial [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163141.jpgsave_picture_163141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163141.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:AD46F9FA181990F16315608C67561A97A3EF059E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163142.jpgsave_picture_163142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163142.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:6AFF6F45BE3A3682392764CA7AA487D8B709EFA2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163143.jpgsave_picture_163143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163143.jpg" />
 </div>
 
 

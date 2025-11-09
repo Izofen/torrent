@@ -6,7 +6,7 @@ Vangarde - The Best Of Lounge: The Orange Lounge Suite (2001) [FLAC|Lossless|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164479.jpgsave_picture_164479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164479.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Node Video - Pro Video Editor 6.8.4 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164480.jpgsave_picture_164480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164480.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2C50C3C8A5CB22922B6492D15A1BF3F7F95E6238
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164481.jpgsave_picture_164481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164481.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Not Dead Yet: Modern Rock Compilation (2019) [MP3|320 Kbps] <Rock, Alternat
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164482.jpgsave_picture_164482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164482.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:FD5D8E811768C0FEA117FB2A786204AB20FCF810
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164483.jpgsave_picture_164483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164483.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Wolftooth - Blood & Iron (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164484.jpgsave_picture_164484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164484.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Blacklite District - Instant // Concern (2020) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164485.jpgsave_picture_164485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164485.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:9E794796BC495FB786A7B54DE096771845859CD5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164486.jpgsave_picture_164486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164486.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Frozen Sounds: Techno Hypnotic Mix (2019) [MP3|320 Kbps] <Techno, Minimal, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164487.jpgsave_picture_164487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164487.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ OmniOutliner Pro 5 v5.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164488.jpgsave_picture_164488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164488.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ CorelDRAW Graphics Suite 2022 24.2.1.446 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164489.jpgsave_picture_164489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164489.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - Chillout King Ibiza: Sunset Hours (2019) [AAC|~328 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164490.jpgsave_picture_164490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164490.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:304E7A93143D329DB00976519237AF0A5D5DF22C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164491.jpgsave_picture_164491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164491.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ NoteBurner Spotify Music Converter 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164492.jpgsave_picture_164492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164492.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ FonePaw Android Data Recovery for Mac 5.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164493.jpgsave_picture_164493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164493.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ ProPaint -Image & Photo Editor for Mac 3.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164494.jpgsave_picture_164494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164494.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Disk Analyzer Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164495.jpgsave_picture_164495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164495.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:B2B88AB64B9641C39B9D34E730760AE059E46E0B
 >>Трейлеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164496.jpgsave_picture_164496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164496.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:656C8B9D140548BBFC4BC56752FC4B583273D71F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164497.jpgsave_picture_164497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164497.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:67BAE72078EF983B3FA2599BE84169E84A04425C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164498.jpgsave_picture_164498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164498.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Axxis - Monster Hero (2018) Japanese Edition, 2019 [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164499.jpgsave_picture_164499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164499.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Veonity - Sorrows (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164500.jpgsave_picture_164500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164500.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Teleborian - Electric Fortunes (2021) [FLAC|Lossless|image + .cue] <Modern Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164501.jpgsave_picture_164501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164501.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:4F6FFD63740278A81D8136B39AF0C97D74C5E2D3
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164502.jpgsave_picture_164502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164502.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:155EEFC636D4D130AE424AF582D229DD30132A1C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164503.jpgsave_picture_164503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164503.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:6C734F196DDCE4484DDDCA4E7D18D18257635F46
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164504.jpgsave_picture_164504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164504.jpg" />
 </div>
 
 

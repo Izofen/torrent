@@ -6,7 +6,7 @@ ScreaMachine - Church of the Scream (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209710.jpgsave_picture_209710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209710.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PotPlayer 230705 (1.7.21952) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209714.jpgsave_picture_209714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209714.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Bandicam 6.2.3.2078 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209715.jpgsave_picture_209715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209715.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Topaz Video AI 3.3.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209719.jpgsave_picture_209719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209719.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DF63459DB48643DF629E74F713E85587D1317E0C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209720.jpgsave_picture_209720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209720.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ AOA: Always on Display 5.7.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209723.jpgsave_picture_209723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209723.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Clipboard Pro / Буфер обмена Pro 3.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209724.jpgsave_picture_209724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209724.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VueScan Pro 9.8.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209727.jpgsave_picture_209727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209727.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ OneCommander Pro 3.47.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209729.jpgsave_picture_209729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209729.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F5D07BB6A7EC18161A9ADEB0A96C538388D4FC90
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209733.jpgsave_picture_209733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209733.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:92E7EA33A2FB8FA5BD00618F9937B7AF11C23C9C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209735.jpgsave_picture_209735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209735.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:BC64425D1FEB2D14D6CFA219309E82ABC5338317
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209737.jpgsave_picture_209737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209737.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Altus 4.8.6 (Repack & Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209739.jpgsave_picture_209739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209739.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:EBB800FF96628E7AECBD8F03B8ED33E7C21A0F7F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209741.jpgsave_picture_209741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209741.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ MAGIX Samplitude Pro X8 Suite 19.0.0.23112 + Sam INI Tool 3.4 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209743.jpgsave_picture_209743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209743.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Revo Uninstaller Mobile 3.1.060G Mod by Timozhai, derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209746.jpgsave_picture_209746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209746.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ RTG. Прогулка по Владивостоку (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209747.jpgsave_picture_209747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209747.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Meta* 6 июля запустит аналог социальной сети Twi
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209749.jpgsave_picture_209749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209749.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Meta* 6 июля запустит аналог социальной сети Twi
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209752.jpgsave_picture_209752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209752.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:FF888EA2873EAA2554C6ED60A2AAEB049F97E291
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209753.jpgsave_picture_209753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209753.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Ultimaker Cura 5.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209756.jpgsave_picture_209756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209756.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ ScrollNavigator 5.15.2 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209758.jpgsave_picture_209758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209758.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Uranium Backup 9.8.0.7401 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209759.jpgsave_picture_209759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209759.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:AFFF84147C33F9B15BBDFC82018AB96D7341DB68
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209762.jpgsave_picture_209762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209762.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:516FBD58CE0875529035C140C13B7A5E86555117
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209763.jpgsave_picture_209763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209763.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209766.jpgsave_picture_209766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209766.jpg" />
 </div>
 
 

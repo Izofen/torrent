@@ -6,7 +6,7 @@ VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93935.jpgsave_picture_93935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93935.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Trance Therapy - Volume 7 (2012) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93936.jpgsave_picture_93936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93936.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ VA - Living The Dream EP pt.3 (2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93938.jpgsave_picture_93938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93938.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Progressive Music (19.02.2012) [MP3|320 kbps]<Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93942.jpgsave_picture_93942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93942.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93945.jpgsave_picture_93945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93945.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93947.jpgsave_picture_93947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93947.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:90B851A123DAA950730C7EEE199F4A5A2494B684
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93950.jpgsave_picture_93950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93950.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93953.jpgsave_picture_93953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93953.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93957.jpgsave_picture_93957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93957.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93960.jpgsave_picture_93960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93960.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93979.jpgsave_picture_93979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93979.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93983.jpgsave_picture_93983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93983.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93985.jpgsave_picture_93985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93985.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93989.jpgsave_picture_93989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93989.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93994.jpgsave_picture_93994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93994.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94011.jpgsave_picture_94011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94011.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94013.jpgsave_picture_94013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94013.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94058.jpgsave_picture_94058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94058.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94063.jpgsave_picture_94063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94063.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94067.jpgsave_picture_94067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94067.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94083.jpgsave_picture_94083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94083.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94087.jpgsave_picture_94087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94087.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94091.jpgsave_picture_94091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94091.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94093.jpgsave_picture_94093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94093.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94114.jpgsave_picture_94114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94114.jpg" />
 </div>
 
 
@@ -775,7 +775,7 @@ VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94120.jpgsave_picture_94120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94120.jpg" />
 </div>
 
 

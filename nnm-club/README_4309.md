@@ -6,7 +6,7 @@ Affinity Publisher 2 v.2.3.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133819.jpgsave_picture_133819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133819.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Pixea Plus for Mac 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133820.jpgsave_picture_133820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133820.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4436ABAF7138B4BB52A80F11CABD8F524BF3B0B7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133821.jpgsave_picture_133821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133821.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6D8996603F3140A1713730D24C50CD33157E18AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133822.jpgsave_picture_133822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133822.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Trimma for Mac 1.6.884 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133823.jpgsave_picture_133823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133823.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Mobizen Screen Recorder 3.10.0.31 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133825.jpgsave_picture_133825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133825.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Cobra Spell - 666 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133827.jpgsave_picture_133827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133827.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Adobe Photoshop Express 11.7.176 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133829.jpgsave_picture_133829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133829.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A854A1299F9F375153FEEA9EA2A0F6D00B6C766C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133830.jpgsave_picture_133830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133830.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Visions Of Atlantis - A Pirate's Symphony (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133831.jpgsave_picture_133831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133831.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Capture One 23 Enterprise 16.3.2.32 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133833.jpgsave_picture_133833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133833.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Process Lasso Pro 12.4.3.14 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133835.jpgsave_picture_133835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133835.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C56460B2F07A73194F9BA3F6532DB02815FA5CA1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133837.jpgsave_picture_133837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133837.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Disk Space Fan 4.5.4.152 Final [MULTi + Русский]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133838.jpgsave_picture_133838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133838.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hiholl - Illusion Of Life.Lost Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133839.jpgsave_picture_133839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133839.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:B2FA51F375D92802EED625A96D517490E56EC425
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133840.jpgsave_picture_133840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133840.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:4DA5924EB685464F0E7D9493216CB675C2B74E68
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133843.jpgsave_picture_133843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133843.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Waves Complete v9r7 (x86/x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133844.jpgsave_picture_133844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133844.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Waves Complete v9r7 (x86/x64) [Английский]
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133846.jpgsave_picture_133846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133846.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Brian Eno - ForeverAndEverNoMore (2022) Forever Voiceless Edition, 2023, UMC (Un
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133848.jpgsave_picture_133848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133848.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:1AE84171B1D6278E6E1E82D55B141E359C253336
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133850.jpgsave_picture_133850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133850.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:0661C8F313FF50B738C1ED48CA39DD04904212E4
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133851.jpgsave_picture_133851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133851.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Paradise Lost - Icon 30 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133852.jpgsave_picture_133852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133852.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Paradise Lost - Icon 30 (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133854.jpgsave_picture_133854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133854.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ JSON Wizard for Mac 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133856.jpgsave_picture_133856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133856.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Acode - code editor | FOSS 1.9.0 (326) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133858.jpgsave_picture_133858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133858.jpg" />
 </div>
 
 

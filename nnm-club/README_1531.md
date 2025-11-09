@@ -6,7 +6,7 @@ PhotoRoom v5.4.7 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40162.jpgsave_picture_40162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40162.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hot Chip - Coming On Strongerer (2004) 20th Anniversary Deluxe Edition, 2024, Mo
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40163.jpgsave_picture_40163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40163.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Soft and Soothing Jazzy Playlist to Unwind and Relax (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40164.jpgsave_picture_40164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40164.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Relaxed & Luxurious Sophisticated Atmosphere Smooth Chilly Instrumentals (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40165.jpgsave_picture_40165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40165.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Vacation Travel and Leisure at Exotic Locations Lounge Sweet Tunes (2024) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40166.jpgsave_picture_40166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40166.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Melodic and Harmonic Laid-Back Ambiance Smooth Intrumentals (2024) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40167.jpgsave_picture_40167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40167.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Travel and Leisure Vacations at Exotic Locations Smooth Jazz Playlist (2024
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40168.jpgsave_picture_40168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40168.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - FSOE ADE Compilation (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40169.jpgsave_picture_40169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40169.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Anjunabeats presents Progressive House 01 (DJ Mix) (2024) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40170.jpgsave_picture_40170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40170.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Harmonic and Melodic Laid-Back Ambiance Lounge Tunes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40171.jpgsave_picture_40171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40171.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Luxurious, Relaxed & Sophisticated Atmosphere Soothing Tunes to Chill (2024
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40172.jpgsave_picture_40172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40172.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40173.jpgsave_picture_40173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40173.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:35DB1801148A96311B9BA825429B537135531D96
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40174.jpgsave_picture_40174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40174.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:A978FD4C1202937B84AC7E0E1A245BD0CB7D5485
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40175.jpgsave_picture_40175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40175.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C80BE356B853439C2034527263953024B42671FB
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40176.jpgsave_picture_40176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40176.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - AI song, AI music (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40177.jpgsave_picture_40177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40177.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:8AC25AE01115F573D67A26F67B04D5DBA0E547C7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40178.jpgsave_picture_40178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40178.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E9D1B71BB8B8EB54AFDECDA515390A6BFDAB4ADE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40179.jpgsave_picture_40179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40179.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:DF953AC8B3C263457D3D32E4823B017531D3CBB0
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40180.jpgsave_picture_40180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40180.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Advanced Renamer 4.05 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40181.jpgsave_picture_40181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40181.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Folder Player Pro v5.28 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40182.jpgsave_picture_40182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40182.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:0F53793535AA597CB2D1D60EA16355FF3270D8B6
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40183.jpgsave_picture_40183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40183.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:900AEE331DFB67B8FFEF090C0DF1DF4252796907
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40184.jpgsave_picture_40184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40184.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:96D1AEBE5A73E4F37CF9EC7398009B9AF603095B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40185.jpgsave_picture_40185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40185.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:A1020D7AC1C1DB816E8328BBE24D91B8B2A156BF
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40186.jpgsave_picture_40186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40186.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:94F50454D6E1B6A70334DE91DC48E2322277FCC7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40187.jpgsave_picture_40187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40187.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Native Instruments - Guitar Rig Pro 5.1.0 by ASSiGN [English]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87691.jpgsave_picture_87691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87691.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Adobe Acrobat X Professional v.10.1.3 DVD [RUS / ENG]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87694.jpgsave_picture_87694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87694.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Adobe Acrobat X Professional v.10.1.3 DVD [RUS / ENG]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87695.jpgsave_picture_87695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87695.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:8AFC20B5FFACAD8B09C71E5742CA61400369BE71
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87696.jpgsave_picture_87696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87696.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Armin van Buuren - 8 альбомов, 28 компиляций (1999-2012) [FLAC
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87697.jpgsave_picture_87697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87697.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Armin van Buuren - 8 альбомов, 28 компиляций (1999-2012) [FLAC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87698.jpgsave_picture_87698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87698.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:2A3C7F910F9AD050FBE96689018E444D49781B12
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87700.jpgsave_picture_87700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87700.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2AF0134465A418345B09865EB330F70DD8C9DE55
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87702.jpgsave_picture_87702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87702.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Punch! Professional Home Design Platinum 12.0.2 [English]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87704.jpgsave_picture_87704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87704.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Drivers BackUp Solution 3.4.10 Final [Multi/Rus]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87707.jpgsave_picture_87707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87707.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Last Exile: Ginyoku no Fam  / Last Exile: Fam, The Silver Wing / Изгнанн�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87708.jpgsave_picture_87708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87708.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Last Exile: Ginyoku no Fam  / Last Exile: Fam, The Silver Wing / Изгнанн�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87710.jpgsave_picture_87710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87710.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:46531043A0F15FFA7978EA5E369AA432F663B426
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87712.jpgsave_picture_87712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87712.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:7317BD0F49C13EF948499D351433BE6D014BAE73
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87713.jpgsave_picture_87713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87713.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:8B30A677D6BE68FC6AF9956EC284E0558B178D74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87715.jpgsave_picture_87715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87715.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Beatport Top 100 Download April (2012) [MP3|320 kbps]<House | Dance | Tranc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87720.jpgsave_picture_87720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87720.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Overtones - Gambling Man (2012) [MP3|~245 кб/с (V0)]<Pop, Doo-Wop, Vocal 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87723.jpgsave_picture_87723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87723.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:E100DAE951A84554D4AD74CFBF14F6373BB00AB8
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87725.jpgsave_picture_87725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87725.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:07520B2B8DBDCFF4DF8E7CE969E3F1AF3BCE5E33
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87730.jpgsave_picture_87730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87730.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:11C2FBB9CB3BBDA3794E647324F4D3B92B9AF003
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87735.jpgsave_picture_87735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87735.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Музыка для хорошей компании (2012) [MP3|256 кб/с
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87736.jpgsave_picture_87736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87736.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:B0EDC03CAB1C8FFD4E841413B16C4B1DAB7DC931
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87740.jpgsave_picture_87740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87740.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:A528A7394839BF4F8C11F773A9DE24CAA929F6A2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87743.jpgsave_picture_87743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87743.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:A528A7394839BF4F8C11F773A9DE24CAA929F6A2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87744.jpgsave_picture_87744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87744.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:A528A7394839BF4F8C11F773A9DE24CAA929F6A2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87748.jpgsave_picture_87748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87748.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:A528A7394839BF4F8C11F773A9DE24CAA929F6A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87750.jpgsave_picture_87750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87750.jpg" />
 </div>
 
 

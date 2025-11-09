@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113403.jpgsave_picture_113403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113403.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skype 8.114.0.214 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113404.jpgsave_picture_113404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113404.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B3E140CBFDD51B7C4A0AF47D24DD6CE396C55BCE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113405.jpgsave_picture_113405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113405.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dato 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113406.jpgsave_picture_113406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113406.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Desktop Stickers 2.72 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113407.jpgsave_picture_113407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113407.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|WEB-DL|tracks] <Sout
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113408.jpgsave_picture_113408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113408.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Topaz Gigapixel AI for Mac 7.0.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113409.jpgsave_picture_113409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113409.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 10 Years Of Suanda Music - Alex M.O.R.P.H. (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113410.jpgsave_picture_113410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113410.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Labels and Databases 1.7.11 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113411.jpgsave_picture_113411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113411.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Gotus - Gotus (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113412.jpgsave_picture_113412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113412.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:73F0FF903D78C38CAD0AEB20B0D3215ACCCE6319
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113413.jpgsave_picture_113413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113413.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:72899473F4B1DC3E5E40C2EBEBFD589A5B033CA8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113414.jpgsave_picture_113414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113414.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Black Hole House Music 03-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113415.jpgsave_picture_113415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113415.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:EE4B358D9966F48A6C9228F7EADA4BB4E1E45973
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113416.jpgsave_picture_113416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113416.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113417.jpgsave_picture_113417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113417.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Irene Dresel - Rose Fluo (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113418.jpgsave_picture_113418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113418.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ QOwnNotes 24.3.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113419.jpgsave_picture_113419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113419.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ OmniGraffle Pro 7.22.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113420.jpgsave_picture_113420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113420.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ PortableApps.com Platform 29.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113421.jpgsave_picture_113421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113421.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Speedtest от Ookla 5.3.3 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113422.jpgsave_picture_113422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113422.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Opera One 108.0.5067.29 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113423.jpgsave_picture_113423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113423.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:2228016D345A9758629FEC7A60F4689EA343845D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113424.jpgsave_picture_113424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113424.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:A18844298886D5238160099F03BB67363BB484D8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113425.jpgsave_picture_113425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113425.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Persher - Sleep Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113426.jpgsave_picture_113426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113426.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:7716807BFC768D800F0FD1E4CDA980BA078BAE6E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113427.jpgsave_picture_113427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113427.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Armin van Buuren - Tomorrowland Friendship Mix (2024-03-14) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113428.jpgsave_picture_113428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113428.jpg" />
 </div>
 
 

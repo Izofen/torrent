@@ -6,7 +6,7 @@ Xojo 2022 Release 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245269.jpgsave_picture_245269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245269.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ WiFiSpoof 3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245270.jpgsave_picture_245270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245270.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ PowerShell Studio 2022 v5.8.202 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245271.jpgsave_picture_245271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245271.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:41E72A8DC9F244E072E690FD1EB357F2BD884B18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245272.jpgsave_picture_245272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245272.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0835D6F2AAA76AB318DA7B2CD648A128A423C526
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245273.jpgsave_picture_245273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245273.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:74AA60C77742745CF54EEE5CC7E27A0FED0A8769
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245274.jpgsave_picture_245274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245274.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Yate 6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245275.jpgsave_picture_245275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245275.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ RTG. Национальная Президентская библиотека (2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245276.jpgsave_picture_245276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245276.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ The Mills Brothers - BD Voices (1931 - 1955) 2CD, 2006, Nocturne [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245277.jpgsave_picture_245277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245277.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ David Ronaldo - Tunes for a Dime - Tunes for a Dime (2023) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245278.jpgsave_picture_245278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245278.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Windows 11 Manager 1.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245279.jpgsave_picture_245279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245279.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 3 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245280.jpgsave_picture_245280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245280.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:E759F78A3A9E7F5C4E17444D15FAB2FFC58A7625
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245281.jpgsave_picture_245281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245281.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:7BCE4929CA03EB0E1BB0AA1821125B9C4898F8CD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245282.jpgsave_picture_245282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245282.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:262C1CE1F1341E8F442F3F5217932FDB5BCABD14
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245283.jpgsave_picture_245283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245283.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Geekbench 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245284.jpgsave_picture_245284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245284.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ RTG. Парки Москвы. Коломенское (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245285.jpgsave_picture_245285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245285.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ R-Studio Network 9.2 Build 191140 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245286.jpgsave_picture_245286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245286.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:8172FF3473448BECBC599CC645B254DB49754775
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245287.jpgsave_picture_245287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245287.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ QOwnNotes 23.5.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245288.jpgsave_picture_245288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245288.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245289.jpgsave_picture_245289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245289.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NCH WavePad Audio Editor Pro 17.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245290.jpgsave_picture_245290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245290.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:CCFC218A74C577DC559EC240BD26B3D1921D14ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245291.jpgsave_picture_245291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245291.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Viber 18.1.0 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245292.jpgsave_picture_245292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245292.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Topaz Photo AI 1.2.8 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245293.jpgsave_picture_245293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245293.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ SideFx Houdini FX 19.0.383 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245294.jpgsave_picture_245294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245294.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ CVN - 4 Albums (2016-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experiment
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106727.jpgsave_picture_106727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106727.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Lo-Fi Lounge Sessions: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106746.jpgsave_picture_106746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106746.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Time for Summer Chillhouse: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106755.jpgsave_picture_106755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106755.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Glis - Phoenix (2013) Deluxe Edition, 2024 , Glis [FLAC 24/44.1|Lossless|WEB-DL|
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106756.jpgsave_picture_106756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106756.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Empyre One Feat. Scarlet - I Turn To You 2k20 (2020) [FLAC|Lossless|tracks] <Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106757.jpgsave_picture_106757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106757.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ DJ Pulse Feat. Donna Marie - Wherever You Go (2019 remixes) (2019) [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106775.jpgsave_picture_106775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106775.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Summer Chillout & Lounge Music (Best Session) (2024) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106807.jpgsave_picture_106807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106807.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Chillout & Lounge Music Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106861.jpgsave_picture_106861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106861.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ TeknoVore - Caerdroia (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Hard T
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106865.jpgsave_picture_106865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106865.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ DJ Kiriloff - In The Mix(2008) [WavPack|Lossless|image + .cue] <House, Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106927.jpgsave_picture_106927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106927.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ D.I.P Project & Черное И Белое - Раз И Навсегда (2008) [
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106939.jpgsave_picture_106939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106939.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Afrobeat Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, So
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106955.jpgsave_picture_106955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106955.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Pretty Lights - 2 Albums (2013-2014) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Du
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106962.jpgsave_picture_106962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106962.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Big Aerobic & Cardio Dance Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106976.jpgsave_picture_106976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106976.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Kiasmos - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106985.jpgsave_picture_106985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106985.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Deep-House Heaven, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106988.jpgsave_picture_106988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106988.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Cardio - 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107010.jpgsave_picture_107010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107010.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - The Sound of Trance, Pt. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107021.jpgsave_picture_107021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107021.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Armada Electronic Elements - Ibiza 2024 - Extended Versions (2024) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107043.jpgsave_picture_107043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107043.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Armin van Buuren - A State Of Trance 1180 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107048.jpgsave_picture_107048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107048.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Playa D'en Bossa: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107068.jpgsave_picture_107068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107068.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107096.jpgsave_picture_107096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107096.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Charlotte de Witte - Power Of Thought EP (2023) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107100.jpgsave_picture_107100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107100.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107103.jpgsave_picture_107103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107103.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107123.jpgsave_picture_107123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107123.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - Live @ Pinkpop Festival Netherlands (2024) [MP3|320 Kbps] <Progressive Hous
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107205.jpgsave_picture_107205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107205.jpg" />
 </div>
 
 

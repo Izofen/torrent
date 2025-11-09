@@ -6,7 +6,7 @@
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5039.jpgsave_picture_5039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5039.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Abyss Eschaton Survivors (2025) [Ru/Multi] (1.00.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5050.jpgsave_picture_5050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5050.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Automobilista 2 (2020) [Multi] (1.6.7.0.2953.AVX/dlc) Repack Let'sРlay [IMSA Bu
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5055.jpgsave_picture_5055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5055.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Oddsparks: An Automation Adventure (2024) [Multi] (s31271/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5057.jpgsave_picture_5057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5057.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Astral Ascent (2023) [Ru/Multi] (2.2.3/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5058.jpgsave_picture_5058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5058.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5060.jpgsave_picture_5060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5060.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Soulstice (2022) [Ru/Multi] (1.1.0+219971/dlc) Repack Let'sРlay [Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5066.jpgsave_picture_5066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5066.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DAVY x JONES (2025) [Ru/Multi] (0.12.1) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5073.jpgsave_picture_5073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5073.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Riftbreaker (2021) [Ru/Multi] (2.0/dlc) Repack FitGirl [Complete Pack]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5156.jpgsave_picture_5156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5156.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hotline Miami (2012) [Ru/Multi] (gog-8(a)) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5180.jpgsave_picture_5180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5180.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ LEGO Builder's Journey (2021) [Ru/Multi] (4.0.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5182.jpgsave_picture_5182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5182.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5185.jpgsave_picture_5185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5185.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.5.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5187.jpgsave_picture_5187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5187.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5197.jpgsave_picture_5197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5197.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (07.12.2017) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5208.jpgsave_picture_5208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5208.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Totally Accurate Battle Simulator (2019) [Ru/Multi] (1.1.8.7/dlc) Repack Pioneer
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5215.jpgsave_picture_5215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5215.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Kingdom's Deck (2025) [Ru/Multi] (1.1.3) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5217.jpgsave_picture_5217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5217.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Talisman: Digital 5th Edition (2024) [Ru/Multi] (Build 84407/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5223.jpgsave_picture_5223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5223.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Prison Escape Simulator: Dig Out (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5236.jpgsave_picture_5236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5236.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.2/dlc) Repack FitGirl [
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5241.jpgsave_picture_5241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5241.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612/dlc) Repack FitGirl [Premium
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5247.jpgsave_picture_5247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5247.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Tiny Bookshop (2025) [Ru/Multi] (Build 19513764) Repack Other s [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5248.jpgsave_picture_5248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5248.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Panzer Knights (2020) [Ru/Multi] (1.1.7/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5249.jpgsave_picture_5249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5249.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5257.jpgsave_picture_5257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5257.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5264.jpgsave_picture_5264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5264.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Synergy (2024) [Ru/Multi] (2508200455) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5276.jpgsave_picture_5276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5276.jpg" />
 </div>
 
 

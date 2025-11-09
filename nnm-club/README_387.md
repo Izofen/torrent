@@ -6,7 +6,7 @@ VPN Secure 2.8.4 Mod by liteapks [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10228.jpgsave_picture_10228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10228.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4D6627FB5FE5DFDEF9DCBD2D4D237D0C6ACBD28E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10229.jpgsave_picture_10229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10229.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Last of Us Part II (2025) [Ru/Multi] (1.6.10721.0105/dlc) Repack Let'sРlay 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10230.jpgsave_picture_10230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10230.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Let'sРlay [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10231.jpgsave_picture_10231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10231.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B795F075C696A2926E46CE637CD3051006A85D15
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10232.jpgsave_picture_10232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10232.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:21F50BDC1E0ADBC87900D6B7BBB5CAACAEAD0DBF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10234.jpgsave_picture_10234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10234.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 11 Pro x64 Version 24H2 Build 26100.4652 by Igors_VL [RU]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10235.jpgsave_picture_10235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10235.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FDCB170A44DE6037F920D77CE323F555F07850C0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10236.jpgsave_picture_10236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10236.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:C9EB3B0F18A40BE1E720A8BE1F1ACE98F02260DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10237.jpgsave_picture_10237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10237.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:09415C63A904E23C4B608267EFFE3C714CD0F534
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10239.jpgsave_picture_10239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10239.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:F917330E7688551E9DDD287A01D9C05940C517F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10240.jpgsave_picture_10240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10240.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:2ADE31BF734533CEE80ED0946262D6427E45C053
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10241.jpgsave_picture_10241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10241.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:1A24525C8387B0DFCD01B4CF344773C6BCDA6E8A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10242.jpgsave_picture_10242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10242.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:A181C0A7DBAFF5315169D989F28FC9AB526B585F
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10243.jpgsave_picture_10243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10243.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ IObit Driver Booster Pro 12.6.0.620 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10244.jpgsave_picture_10244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10244.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10245.jpgsave_picture_10245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10245.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:A482FA1381466D38673B13BD7A51F68337EF6C80
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10247.jpgsave_picture_10247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10247.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:9221E4DBC5B9708F15D9557ED70C7FD0FE46ACAF
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10248.jpgsave_picture_10248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10248.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:A7092162B6B50043023B6DAF6A348204B0354DD8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10249.jpgsave_picture_10249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10249.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Rooftops & Alleys: The Parkour Game (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10250.jpgsave_picture_10250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10250.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:252CF461E3A9581E54F5E0713BFB69D40DCD9F0C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10251.jpgsave_picture_10251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10251.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:5FFD742E9E9CC510B42221EDF44B56B6903644B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10252.jpgsave_picture_10252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10252.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Auslogics File Recovery 12.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10253.jpgsave_picture_10253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10253.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:F4E4B57FD27A03CA99D898D1B68BD70326C5C9EE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10254.jpgsave_picture_10254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10254.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:37BB85875DE5F94BEA3D80621A9724F56022AD80
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10255.jpgsave_picture_10255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10255.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Telegram Desktop 5.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10256.jpgsave_picture_10256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10256.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Turbo Drive, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126239.jpgsave_picture_126239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126239.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cosmic Gate - Best Of 2023 (2023-12-20) [MP3|320 Kbps] <Progressive House, Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126240.jpgsave_picture_126240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126240.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F2E8CFC00791A22FA248F9200E7575B9C2A5B09D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126241.jpgsave_picture_126241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126241.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - The Best Of Hit News Vol.3 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126242.jpgsave_picture_126242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126242.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F517D1327F8F1C8837BB2F4ED28B34E53C989D25
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126243.jpgsave_picture_126243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126243.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Morning Bells Coffee Jazz Music for A Cozy Christmas Mood (2023) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126244.jpgsave_picture_126244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126244.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:187CC206691BCE2B24348B89E33108DBB07B95D8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126245.jpgsave_picture_126245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126245.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:C0BD5F8A063984C3F553CAD96408D275D5B86A36
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126246.jpgsave_picture_126246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126246.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:10649FFBE7A857CB66561016543C42751992F996
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126247.jpgsave_picture_126247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126247.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Various Artists - Best Carnival Party Jazz 2023 Brazilian Vibes (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126248.jpgsave_picture_126248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126248.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:177C5AD7E2BC9DA6F3849ADF1DE254E1E37B9DB3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126249.jpgsave_picture_126249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126249.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:839DDDECFA93D2FEE0B09461B14CB0D35EC65832
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126250.jpgsave_picture_126250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126250.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ TV Girl - Death of a Party Girl (2018) Digital Album [FLAC|Lossless|WEB-DL|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126251.jpgsave_picture_126251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126251.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:459B281917CF3CAD7E101426CF739B7CC3980032
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126252.jpgsave_picture_126252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126252.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:64B2FF30E092640864B59110C63FCE9031EFEA20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126253.jpgsave_picture_126253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126253.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1A4CD9E2CE8ADFC9210A046093377F655C527573
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126254.jpgsave_picture_126254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126254.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:5D5A2969958BAE249C68BD7AC4A2154719BBD85B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126255.jpgsave_picture_126255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126255.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:4D14E9EEB7DDE523A4AF6AFFB9B827831B2456B3
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126256.jpgsave_picture_126256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126256.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:2543AC0F98615F44392BA0D5E841781FCD5636D2
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126257.jpgsave_picture_126257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126257.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:071FE10D290ADD40942561AEC48D40D34A7E4F22
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126258.jpgsave_picture_126258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126258.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:51F53CA0E96CCF8CDDBD38350DAF19A7230BDE62
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126259.jpgsave_picture_126259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126259.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Knight Wolf 1981 - R.A.G.E. (2023) [MP3|320 Kbps] <Darksynth, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126260.jpgsave_picture_126260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126260.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:DB1B74F362314BF60E0E7C96E5EB706CB785C6EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126261.jpgsave_picture_126261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126261.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Johnny Hallyday - Made in Rock'n'Roll (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126262.jpgsave_picture_126262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126262.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ The Death Spell - The Death Spell (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126263.jpgsave_picture_126263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126263.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Bravo Hits 18 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126264.jpgsave_picture_126264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126264.jpg" />
 </div>
 
 

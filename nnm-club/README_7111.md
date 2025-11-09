@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243819.jpgsave_picture_243819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243819.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:407471A538E50BBABC193D467741D2A9673BA82B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243820.jpgsave_picture_243820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243820.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Chillax (20 Chill-Out Tunes), Vol. 3 (2017) [AAC|~328 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243821.jpgsave_picture_243821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243821.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:467E27898712C4C4ED68DD8C9F28B6DC14FAA0AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243822.jpgsave_picture_243822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243822.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Oka Unarchiver - Unzip ZIP RAR 2.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243823.jpgsave_picture_243823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243823.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:794B45549D52E5AE39C1E1D85DCF426EA4436B60
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243824.jpgsave_picture_243824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243824.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243825.jpgsave_picture_243825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243825.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:E7E89FC969B8A8DF38CA19B97AD69536A4939BC8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243826.jpgsave_picture_243826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243826.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Zoner Photo Studio X 19.2303.2.442 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243827.jpgsave_picture_243827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243827.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3F4E2CFA49506B1A31B8C6B23F39C322B056B6E3
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243828.jpgsave_picture_243828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243828.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:87D406BD914497886F72E324289B8C75E1F3CA80
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243829.jpgsave_picture_243829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243829.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:1D1B2C399AC5DFA30E2498D99087E2B2AE514E60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243830.jpgsave_picture_243830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243830.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ BetterDisplay Pro for Mac 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243831.jpgsave_picture_243831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243831.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Integrity Plus 12.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243832.jpgsave_picture_243832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243832.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243833.jpgsave_picture_243833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243833.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Chico Hamilton - The Complete Remastered Recordings On Black Saint & Soul Note (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243834.jpgsave_picture_243834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243834.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Eric Reed - Black, Brown, and Blue (2023) Smoke Sessions Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243835.jpgsave_picture_243835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243835.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ NetLimiter Pro 4.1.13.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243836.jpgsave_picture_243836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243836.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Charles Davis - For The Love Of Lori (2014) Reade Street Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243837.jpgsave_picture_243837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243837.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Larry Bartley - Along This Way (2003) [FLAC|Lossless|image + .cue] <Avant-Garde 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243838.jpgsave_picture_243838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243838.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ AIMP 5.11 Build 2427 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243839.jpgsave_picture_243839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243839.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Boris FX Mocha Pro 2022 9.5.3 Build 37 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243840.jpgsave_picture_243840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243840.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Abdullah Ibrahim - Cape Town Songs: The Very Best Of Abdullah Ibrahim (1979- 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243841.jpgsave_picture_243841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243841.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Z-Deep - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243842.jpgsave_picture_243842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243842.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:7847F951CBD923D6F99EC15D7DB69409EABB718E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243843.jpgsave_picture_243843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243843.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Bartender 4 v4.0.44 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243844.jpgsave_picture_243844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243844.jpg" />
 </div>
 
 

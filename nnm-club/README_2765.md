@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76393.jpgsave_picture_76393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76393.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:B7717149E1853045CDC8964B22B02474A4592CED
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76395.jpgsave_picture_76395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76395.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Terraria [Native] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76398.jpgsave_picture_76398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76398.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Sony Sound Forge Audio Studio 10.0 Build 177  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76399.jpgsave_picture_76399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76399.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Sound Forge Audio Studio позволяет легко захватить зву
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76400.jpgsave_picture_76400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76400.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:8EA41FD4A0F440C90F3A851E1E8EDF7639851FE1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76402.jpgsave_picture_76402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76402.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:EDE26214E951945EC0473D36D08A28B8012FA8A5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76404.jpgsave_picture_76404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76404.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:EDE26214E951945EC0473D36D08A28B8012FA8A5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76405.jpgsave_picture_76405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76405.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:EDE26214E951945EC0473D36D08A28B8012FA8A5
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76406.jpgsave_picture_76406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76406.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:EDE26214E951945EC0473D36D08A28B8012FA8A5
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76407.jpgsave_picture_76407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76407.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:333A141FC629C2B348E5CE7A0ED1DD313EC37FAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76410.jpgsave_picture_76410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76410.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:333A141FC629C2B348E5CE7A0ED1DD313EC37FAF
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76411.jpgsave_picture_76411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76411.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:70DEA5364356ABC7C2A4E30E6810D28CDCFBEDE5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76412.jpgsave_picture_76412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76412.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ From Dust - новый проект Эрика Чани. Проект, неск�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76419.jpgsave_picture_76419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76419.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:358561FCF0D6BED6D58AC5E4E10A8FDBD5B47502
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76420.jpgsave_picture_76420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76420.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:92142F63C7B37E67B441661B5C914505A1BD049B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76428.jpgsave_picture_76428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76428.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:2B8456D659D1673319DD330D8F5BD0DFF0873EF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76429.jpgsave_picture_76429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76429.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AntiWinLocker 2.5 [Русский/Английский] / (RePack by blondin1997
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76431.jpgsave_picture_76431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76431.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ AntiWinLocker – это защита от блокировщиков Windows, �
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76432.jpgsave_picture_76432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76432.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:74281EAFDF051E2D924DAAFCD3F05E7FD1F3A522
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76436.jpgsave_picture_76436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76436.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:338192474CC7C8A03A22552DEEAF95E3E4F12F69
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76450.jpgsave_picture_76450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76450.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:338192474CC7C8A03A22552DEEAF95E3E4F12F69
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76457.jpgsave_picture_76457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76457.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:9E86E609639A6E3D8F805E3CF42F4D41E905DD8E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76459.jpgsave_picture_76459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76459.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76463.jpgsave_picture_76463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76463.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76465.jpgsave_picture_76465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76465.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:E95028FCE25E7C1A1EEFE3F3F922C45C60146A64
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76467.jpgsave_picture_76467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76467.jpg" />
 </div>
 
 

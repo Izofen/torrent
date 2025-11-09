@@ -6,7 +6,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70014.jpgsave_picture_70014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70014.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:95E11442136A83857BFCF17F47C5511FCF30D937
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70015.jpgsave_picture_70015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70015.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:88FD9DF4CEC21CB16F7598E65C2F993ACE930DAD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70016.jpgsave_picture_70016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70016.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Freddie Hubbard - Keep Your Soul Together / Polar AC / Skagly (1974, 1975) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70017.jpgsave_picture_70017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70017.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Ori Uplift - Uplifting Only Episode 629 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70018.jpgsave_picture_70018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70018.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Freddie Hubbard - Bundle of Joy / Super Blue / The Love Connection (1977 - 1979)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70019.jpgsave_picture_70019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70019.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Sirrah (Poland) - Studio Albums (3 releases) (1996-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70020.jpgsave_picture_70020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70020.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:827837427EC9DB8514073186E00439577922ABC9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70021.jpgsave_picture_70021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70021.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:5D50B22DC51C8796DFAB187DDA1A5EC91127CC8D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70022.jpgsave_picture_70022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70022.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:FE9445A4232495C3E62422279132851F00F0B1C3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70023.jpgsave_picture_70023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70023.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:2E04FB0259F75783425609364A77D71C01668E99
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70024.jpgsave_picture_70024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70024.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:062ACACD7472D8E1DEFD3FF352DC81AD8A2BEB2C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70025.jpgsave_picture_70025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70025.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:3BF2205FA796CA481BAB2521FEC1790DBC35C5C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70026.jpgsave_picture_70026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70026.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Avantasia - Here Be Dragons (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70027.jpgsave_picture_70027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70027.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Gamma Ray - Compilation (1990-2021) [MP3|320 Kbps] <Power metal, Speed metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70028.jpgsave_picture_70028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70028.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:9AF64DDF977F333648B0553D73782EAA781159AF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70029.jpgsave_picture_70029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70029.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:9A33333B39D1176ACBC34B33FFBAC263176E82C6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70030.jpgsave_picture_70030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70030.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Hammer Hits (1991) 2 CD [OGG Vorbis|480 Kbps] <House, Soft Rock, Europop, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70031.jpgsave_picture_70031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70031.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:1DAC81E36FC8883833F575DB3011D0BF5AA55D05
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70032.jpgsave_picture_70032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70032.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Top Hits Only Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70033.jpgsave_picture_70033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70033.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:434C7D110C624680F3AC953EA784B1A1AA24CD40
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70034.jpgsave_picture_70034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70034.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - The Sound of 2025, Chapter 2: Madrid (Day Mix) (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70035.jpgsave_picture_70035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70035.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - A State Of Trance Festival 2025 – Day 1 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70036.jpgsave_picture_70036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70036.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:191FF2B8372BC52F694AE8C1E975B6DB18F8F436
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70037.jpgsave_picture_70037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70037.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Megadeth - The World Needs A Hero (2001) Japanese Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70038.jpgsave_picture_70038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70038.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Django Reinhardt - Rare Django (1928 - 1938) 1990, Disques Swing [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70039.jpgsave_picture_70039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70039.jpg" />
 </div>
 
 

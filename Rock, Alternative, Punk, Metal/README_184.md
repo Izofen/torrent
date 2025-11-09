@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122792.jpgsave_picture_122792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122792.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Navagon - Prepare To Meet Thy God (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122873.jpgsave_picture_122873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122873.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122874.jpgsave_picture_122874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122874.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122881.jpgsave_picture_122881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122881.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Edge Of The Blade - Trick Of The Light (2023) [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122882.jpgsave_picture_122882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122882.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Care Of Night - Love Equals War (2018) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122883.jpgsave_picture_122883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122883.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Atlas - Built To Last (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122885.jpgsave_picture_122885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122885.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Emil Sigfridsson - Back to Yesterday (2023) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122886.jpgsave_picture_122886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122886.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ray Noir - Scorpio (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122889.jpgsave_picture_122889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122889.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Edge Of Forever - Ritual (2023) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122890.jpgsave_picture_122890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122890.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Crucifer - Hell Is for the Hopeful (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122892.jpgsave_picture_122892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122892.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ dUg Pinnick - Naked (2013) Remastered, 2024, Rat Pak Records [FLAC|Lossless|WEB-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122898.jpgsave_picture_122898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122898.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ritual Earth & Kazak - Turned To Stone Chapter 9 (Split) (2024) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122899.jpgsave_picture_122899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122899.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Battle Of Metal Vol​.​8 (2024) Compilations [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122901.jpgsave_picture_122901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122901.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Temple Balls - Avalanche (2023) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122910.jpgsave_picture_122910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122910.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dead Fish - Labirinto da Memória (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122912.jpgsave_picture_122912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122912.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Beyond The Black - Beyond The Black (Deluxe Edition) (2024) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122915.jpgsave_picture_122915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122915.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Surya Kris Peters - There's Light In The Distance (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122919.jpgsave_picture_122919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122919.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ These Days & Those Days - Eminent Pleasurment – Fucked Into Sextasy (2024) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122931.jpgsave_picture_122931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122931.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:255D9B530535BDB884D412C9DC1F4EB3484F8D9F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122933.jpgsave_picture_122933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122933.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Tiger Lillies - Onepenny Opera (2022) [MP3|320 Kbps] <Indie Rock, Dark Cabar
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122934.jpgsave_picture_122934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122934.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Frozen Rain - One Mile From Heartsville (2023) Japanese Edition [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122936.jpgsave_picture_122936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122936.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Hex - From Dust To Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122937.jpgsave_picture_122937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122937.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Clamps - Megamouth (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123041.jpgsave_picture_123041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123041.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Depraved Entity - Angels of Sin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123043.jpgsave_picture_123043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123043.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123044.jpgsave_picture_123044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123044.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ RAM Saver Professional 25.10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187873.jpgsave_picture_187873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187873.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ED00104B14F98563BB3CCFF4A49233F5A0399FCF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187874.jpgsave_picture_187874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187874.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B1EB4805921DE1F010380550F7509E1B0DA5C7A3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187875.jpgsave_picture_187875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187875.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E8BBA50EFD608C52E3746B6D82CAA892D2F301F6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187876.jpgsave_picture_187876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187876.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Udemy, Hossein mashayekhi | Complete Unreal Engine 5 Mastery (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187877.jpgsave_picture_187877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187877.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9FA3280C50177AF22AAF19AA3DBF765732E1C249
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187878.jpgsave_picture_187878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187878.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:540DB8F81497E7BB1A962DFC488BAC2CD190E3C6
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187879.jpgsave_picture_187879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187879.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Office Installer & Office Installer+ 1.30 by Ratiborus [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187880.jpgsave_picture_187880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187880.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r27 Portable by Ratiborus [Multi/
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187881.jpgsave_picture_187881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187881.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Udemy, Raffi Bedross | Real-time VFX in EmberGen and Unreal Engine 5 (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187882.jpgsave_picture_187882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187882.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:42AED4DFA8E79D4F4B00E1C979859EC064E2080F
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187884.jpgsave_picture_187884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187884.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:C95A07FC412A6D24DA266F6414F463F1D85D8C81
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187885.jpgsave_picture_187885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187885.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:58FF8DD8C02EDCE8D61ECC72A34EEA307B5DFF42
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187886.jpgsave_picture_187886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187886.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:492A86DFFAA6C7FF15AF2C47F08639496EC8E8A1
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187888.jpgsave_picture_187888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187888.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:361CA49C61F18C0EF5493147C82BF924CE74400D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187890.jpgsave_picture_187890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187890.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:A8D22C1ACD114C53FAB32D2CBE4197939C71ABB4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187892.jpgsave_picture_187892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187892.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:66535B6EBDD4075029843549CDB9BDA8EE9FA510
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187893.jpgsave_picture_187893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187893.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:F831D6C75065E9DA0A0319C438997CCC7BEC0AF6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187894.jpgsave_picture_187894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187894.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:0BA202876A8DA70A821BEE583E2CF9A1FA0F0F3B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187896.jpgsave_picture_187896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187896.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5 - Product Animation - Visualization (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187897.jpgsave_picture_187897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187897.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:12C9B169F097554F84DF2C3E258245CA0D12421F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_187898.jpgsave_picture_187898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_187898.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ SystemRescue 10.02 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187899.jpgsave_picture_187899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187899.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ TreeSize Professional 9.6.1.2156 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187900.jpgsave_picture_187900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187900.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187902.jpgsave_picture_187902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187902.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:1DA12B81B7121AB769B8E5E74E32953C3DA14A92
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187903.jpgsave_picture_187903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187903.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:F292DF6DEC7673CE98DFF604059159533FBEB2EA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187904.jpgsave_picture_187904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187904.jpg" />
 </div>
 
 

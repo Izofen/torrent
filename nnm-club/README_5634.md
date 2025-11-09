@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173479.jpgsave_picture_173479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173479.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nergard - Memorial for a Wish (2018 Version) (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173480.jpgsave_picture_173480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173480.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PDF-XChange PRO 10.7.3.401 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173481.jpgsave_picture_173481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173481.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Dash 7.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173482.jpgsave_picture_173482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173482.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:61D6BD8078776A9D3F1F2DA21B3E0C94B501F560
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173483.jpgsave_picture_173483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173483.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Vintage Caravan - The Monuments Tour (2023) Live [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173484.jpgsave_picture_173484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173484.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D5CF186A2DABB7E3BAC4932AB834455C953AE91D
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173485.jpgsave_picture_173485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173485.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ DockView 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173486.jpgsave_picture_173486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173486.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:4DE12F8C6ABAB6C300085738D350522C7E81BFF2
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173487.jpgsave_picture_173487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173487.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:BF5AFAA0AA2653FA27C048DA5C0A6184BDB3C022
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173488.jpgsave_picture_173488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173488.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E78B7B5D7E9E481D5BF8188FF2232B987ABF1442
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173489.jpgsave_picture_173489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173489.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FABA4195342756AC0B53F3015DF06E81B3D5C3EA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173490.jpgsave_picture_173490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173490.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:153D303BF38729857D211428695D0CD2876399E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173491.jpgsave_picture_173491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173491.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ MyLanViewer 6.6.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173492.jpgsave_picture_173492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173492.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Native SQLite Manager 1.26.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173493.jpgsave_picture_173493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173493.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ A Better Finder Rename 12.01 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173494.jpgsave_picture_173494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173494.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:4BFE95997B9E8A75AF3438FD808C3ACF04628FF1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173495.jpgsave_picture_173495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173495.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Dropshare 5 v.5.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173496.jpgsave_picture_173496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173496.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:9BA8250AC1AB82B0991FB963D3D7D5F63ABEFA3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173497.jpgsave_picture_173497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173497.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ DirEqual 5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173498.jpgsave_picture_173498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173498.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:63A6D8B702C2596F5452784202ED85D74D25B7A7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173499.jpgsave_picture_173499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173499.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Nergard - A Bit Closer to Heaven (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173500.jpgsave_picture_173500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173500.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:6A367F770D491EAFAFF064BC5A29BE40568155CF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173501.jpgsave_picture_173501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173501.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Permute 3 v.3.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173502.jpgsave_picture_173502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173502.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Dropzone 4 Pro 4.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173503.jpgsave_picture_173503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173503.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Marked 2 - Markdown Preview 2.6.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173504.jpgsave_picture_173504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173504.jpg" />
 </div>
 
 

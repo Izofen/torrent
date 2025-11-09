@@ -6,7 +6,7 @@ Necrosmith (2022) [Ru/Multi] (1.3.0.285) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247093.jpgsave_picture_247093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247093.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8308296F56F0B65C0A7B10758739C5BB6C7E3D31
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247094.jpgsave_picture_247094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247094.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ED2E2AB4F8C33807EA421EE1E8CE12F597EDF81C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247095.jpgsave_picture_247095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247095.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:501A97FBEA8F2716C97EBD2CB1572DCFF7948ECE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247096.jpgsave_picture_247096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247096.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:71B20D662F8CC8FE64FC4F6821D3F6E556066C41
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247097.jpgsave_picture_247097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247097.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows 10 22H2 (Lite x64) 8in1 +/- Office 2021 by Eagle123 (06.2023) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247098.jpgsave_picture_247098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247098.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:690E6914BA662D7EEE96A23E40BA60F5AC5DEA2A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247099.jpgsave_picture_247099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247099.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack dix
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247100.jpgsave_picture_247100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247100.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:DBB61B3E826EE669AECEAA63334661CC332911F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247101.jpgsave_picture_247101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247101.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:48D4BBC71E7B3268B34AD4BF6C34BD1F94C15C8B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247102.jpgsave_picture_247102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247102.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247103.jpgsave_picture_247103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247103.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:6EBC3B0ADC45015F5357067D21E704F36E6AB4DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247104.jpgsave_picture_247104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247104.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Thymesia (2022) [Ru/Multi] (21.24723) License GOG [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247105.jpgsave_picture_247105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247105.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:E5B561C1E599F8DA0E99A624A3A47C7C121EDD13
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247106.jpgsave_picture_247106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247106.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:19328E4FE7AA46A8C3B6A44BE74D9E77866D4497
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247107.jpgsave_picture_247107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247107.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:1908C25CBFE09F687776FB3317FE7A1459EB1FDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247108.jpgsave_picture_247108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247108.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5393.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247109.jpgsave_picture_247109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247109.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:2BA5F3251C106D11B0A8B9401E488D03F5872B7E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247110.jpgsave_picture_247110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247110.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:53456D327A3BB3B75C9C2882C6A075D2302776AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247111.jpgsave_picture_247111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247111.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:A15AC88FE96EC61773E7CFFB77E20FF4D57F6F95
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247112.jpgsave_picture_247112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247112.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:B2CEB7C777C5EE815D78056890BBB7004DE6DDF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247113.jpgsave_picture_247113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247113.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:366462833069DAF3A241B19C360DCB750AFC2870
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247114.jpgsave_picture_247114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247114.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:F818140D3EDECDAA403D1B3014D21745B43516C1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247115.jpgsave_picture_247115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247115.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:0BBBE0133D72A0CC1A3EE54BFEF6E3440E86549A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247116.jpgsave_picture_247116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247116.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:B5B7BF251DF19BD8930FE6BE960DE43203867A2A
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247117.jpgsave_picture_247117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247117.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:7D545C9ED7D48FA5122EE57A0CCE87E4EAED2E46
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247118.jpgsave_picture_247118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247118.jpg" />
 </div>
 
 

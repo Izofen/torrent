@@ -6,7 +6,7 @@ VA - Futurenow 3.0 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, C
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110084.jpgsave_picture_110084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110084.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Travelers (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110085.jpgsave_picture_110085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110085.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dug Masters - Fantastic Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacewave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110090.jpgsave_picture_110090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110090.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Chill Out Vibes (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110094.jpgsave_picture_110094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110094.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Futurenow 2.0 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, C
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110095.jpgsave_picture_110095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110095.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Top 8 April 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110098.jpgsave_picture_110098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110098.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Best Of Sounemot 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110100.jpgsave_picture_110100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110100.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Spacebirds - Singles Team (Singles Collection 2008-2023) (2024) [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110117.jpgsave_picture_110117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110117.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Futurenow (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Chill
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110118.jpgsave_picture_110118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110118.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dug Masters - Digital Variety (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110119.jpgsave_picture_110119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110119.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Lounge Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Easy Listening, J
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110151.jpgsave_picture_110151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110151.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Death On The Balcony - Forever For Me EP (2024) [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110153.jpgsave_picture_110153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110153.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Calming Moments, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110154.jpgsave_picture_110154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110154.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 02 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110158.jpgsave_picture_110158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110158.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Funker Vogt - 3 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110174.jpgsave_picture_110174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110174.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Vector Seven - Atlas Industries (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110179.jpgsave_picture_110179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110179.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Missio - I Am Cinco (2024) [FLAC|Lossless|WEB-DL|tracks] <electropop>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110214.jpgsave_picture_110214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110214.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - New Music Friday (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110242.jpgsave_picture_110242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110242.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Beach House Hits (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110298.jpgsave_picture_110298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110298.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Armin van Buuren - A State Of Trance 1171 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110311.jpgsave_picture_110311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110311.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ James Grant & Jody Wisternoff - Live @ Anjunadeep London, Roundhouse London, Uni
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110312.jpgsave_picture_110312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110312.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Future Sound Of London - ISDN (30th Anniversary Edition) (2024) [FLAC 16/44.
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110323.jpgsave_picture_110323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110323.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (2023) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110328.jpgsave_picture_110328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110328.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Lounge Sexiest Ladies, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110348.jpgsave_picture_110348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110348.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Footsteps On The Dancefloor, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110375.jpgsave_picture_110375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110375.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110377.jpgsave_picture_110377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110377.jpg" />
 </div>
 
 

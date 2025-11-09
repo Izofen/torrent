@@ -6,7 +6,7 @@ Eric Street Band - Compilation'25 (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8.jpgsave_picture_8.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Music News For Forum vol.136 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27.jpgsave_picture_27.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:CC4C39BA763AAF9942634D971D5BEAE3BF38DF50
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108.jpgsave_picture_108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ AC🗲DC - Compilation (1975-2020) [MP3|320 Kbps] <Hard rock, Blues rock, Rock &
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128.jpgsave_picture_128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - National Pop Dance Music Vol.121 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_264.jpgsave_picture_264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_264.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - 60 minutes. Old School Dance Music vol.26 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_502.jpgsave_picture_502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_502.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Music News For Forum vol.135 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_556.jpgsave_picture_556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_556.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Musical kaleidoscope part 54 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_767.jpgsave_picture_767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_767.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Anything and everything assorted part 2 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_768.jpgsave_picture_768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_768.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sardø - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_789.jpgsave_picture_789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_789.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Reyvi - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_802.jpgsave_picture_802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_802.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_906.jpgsave_picture_906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_906.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Van Halen - Compilation (1978-2012) [MP3|320 Kbps] <Hard rock, Arena rock, Glam 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_986.jpgsave_picture_986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_986.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_989.jpgsave_picture_989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_989.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Gym Hits (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1033.jpgsave_picture_1033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1033.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Buddha Bar - Premium Playlist {b} (2007-2025) [MP3|320 Kbps] <Lounge, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1130.jpgsave_picture_1130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1130.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Buddha Bar - Premium Playlist {#, a} (2007-2025) [MP3|320 Kbps] <Lounge, Ch
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1131.jpgsave_picture_1131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1131.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Bajofondo Tango Club - Premium Playlist (2002-2013) [MP3|320 Kbps] <Neotango, el
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1132.jpgsave_picture_1132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1132.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1138.jpgsave_picture_1138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1138.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1139.jpgsave_picture_1139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1139.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Buddha Bar - Premium Playlist {c} (2007-2025) [MP3|320 Kbps] <Lounge, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1153.jpgsave_picture_1153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1153.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0DE3AF614F56232047D85E500F4286204E27C4F8
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1157.jpgsave_picture_1157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1157.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1163.jpgsave_picture_1163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1163.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Elect
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1170.jpgsave_picture_1170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1170.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1174.jpgsave_picture_1174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1174.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1182.jpgsave_picture_1182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1182.jpg" />
 </div>
 
 

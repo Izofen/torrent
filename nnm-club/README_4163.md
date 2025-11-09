@@ -6,7 +6,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128835.jpgsave_picture_128835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128835.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C09C1AAD1FD3B5CECB555D375F55311ADE67962A
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128836.jpgsave_picture_128836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128836.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:937BC07C37A9C02464C24D507F8787F7575E1A27
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128837.jpgsave_picture_128837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128837.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D1DBC6A8A9419FA1C1CF51A108395C3D2C694F01
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128838.jpgsave_picture_128838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128838.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128839.jpgsave_picture_128839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128839.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:38613B5884CA6DCBE237A71289130D6586BB4C52
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128840.jpgsave_picture_128840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128840.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5E1E414C3D9F8EF574D0A598731BD3ABEA1DEBC7
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128841.jpgsave_picture_128841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128841.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:AF7A6D68C2FFF7DA41D5624E1672F8F1A177AD36
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128842.jpgsave_picture_128842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128842.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:47856EE014E0EAEAF4E4B416A32B5719115929AB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128843.jpgsave_picture_128843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128843.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:0D232AA24074FD2A6A96F7FAB0E92A70091968A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128844.jpgsave_picture_128844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128844.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FAFC1C5A22BA6A2BD79F280D945BD91FFA828101
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128845.jpgsave_picture_128845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128845.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:72E649B7A2D787DDDD43B154C3D22C86CBA35D8E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128846.jpgsave_picture_128846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128846.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:541901C4DE6CC31CFCBFC15FEE4E403B9C588F9B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128847.jpgsave_picture_128847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128847.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:587195505D46FF0721A2B1ACDD43F4BAAD09C97D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128848.jpgsave_picture_128848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128848.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:3F8C08B6B98E60FA1B4DABC423C5407B9EDB3D88
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128849.jpgsave_picture_128849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128849.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:98FB68611A3D5DA167EDB1917187C8680B12637A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128850.jpgsave_picture_128850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128850.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:7483A19554438704838EC5086B1B54BFA9868807
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128851.jpgsave_picture_128851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128851.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Danny Peyronel - It Happens When You Look The Other Way (2025) [FLAC 24/48|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128852.jpgsave_picture_128852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128852.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Promare | Промар [2019, Movie] DVDRemux 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128853.jpgsave_picture_128853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128853.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:62FE964DD8748D113E71C07C0DCC7E00EE64AD5F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128854.jpgsave_picture_128854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128854.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:E2E9273695D166738A95272B221955644E75B3C6
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128855.jpgsave_picture_128855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128855.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:74F0D3A9E144C455772C9DFBED2E3DEC8E7F2CE6
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128856.jpgsave_picture_128856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128856.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ The Riverview Band - Finger Prints (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128857.jpgsave_picture_128857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128857.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ The Kokomo Kings - Turbomouth (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128858.jpgsave_picture_128858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128858.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Hoochie Coochie Men - Second Helping (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128859.jpgsave_picture_128859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128859.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Silverflame - FLY ON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128860.jpgsave_picture_128860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128860.jpg" />
 </div>
 
 

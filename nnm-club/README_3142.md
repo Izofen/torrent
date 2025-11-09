@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101269.jpgsave_picture_101269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8DBFED5A595B64FF0670B87F6C1C3131C1094BF0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101270.jpgsave_picture_101270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101270.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ultraboss - Yachtmaster (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101271.jpgsave_picture_101271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101271.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:BDC41A1A8C5AB6E8D29CA30CB906BACBD18DE3B9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101272.jpgsave_picture_101272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101272.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Best of Fables 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101273.jpgsave_picture_101273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101273.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Southern Mojo - One Take Jam (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101274.jpgsave_picture_101274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101274.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Krud - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101275.jpgsave_picture_101275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101275.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Nate Gross Band - A Ride With The Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101276.jpgsave_picture_101276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101276.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Vexovoid - Studio Albums (2 releases) (2014-2017) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101277.jpgsave_picture_101277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101277.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:58D90C878DFF334AFF0581DC5160FA7BD6670DF5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101278.jpgsave_picture_101278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101278.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:657291AD8C4A24C013650CE5CEFBF956414A8E36
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101279.jpgsave_picture_101279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101279.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Bayou Boogie House - Blues on Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101280.jpgsave_picture_101280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101280.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:FE0F40E1B74884C356A1136F0E99C66D88270D2A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101281.jpgsave_picture_101281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101281.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Beware Of Darkness - Lose Your Mind, Gain Your Soul (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101282.jpgsave_picture_101282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101282.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Johnson's Bridge - Line of Sight (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101283.jpgsave_picture_101283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101283.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Jason Craig Wilkins - Find Me Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101284.jpgsave_picture_101284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101284.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Effie Zilch - Multitudes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101285.jpgsave_picture_101285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101285.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101286.jpgsave_picture_101286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101286.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Godless men - Awakened by the wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101287.jpgsave_picture_101287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101287.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Deep South - Entering Deep (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101288.jpgsave_picture_101288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101288.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:B7E36DCCC2B87BFC2F9A2EA79D8B40C48A6B2835
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101289.jpgsave_picture_101289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101289.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:A2C852E13A19F7CD5AEB9CBD50ADD38C040E4CF4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101290.jpgsave_picture_101290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101290.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - The Remixes Chapter 1 (2024) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101291.jpgsave_picture_101291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101291.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:9414A5C40B617F50CC8C6FDFFDBCD157C05F81EE
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101292.jpgsave_picture_101292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101292.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:E2DD317345CEBB9D482432B13D9650D5785AFCC9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101293.jpgsave_picture_101293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101293.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:D8435C61B583D6671155CFD18BF730880C8105CE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101294.jpgsave_picture_101294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101294.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27832.jpgsave_picture_27832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27832.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:703EBE65B33DDBCFF3DD0CEECA3DA289A6F0104E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27833.jpgsave_picture_27833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27833.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:792D418FA219BE822146F0F50D2D075367B12D3F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27834.jpgsave_picture_27834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27834.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ NЮ – Некуда бежать (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27835.jpgsave_picture_27835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27835.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4D41D977158A73C3272A3CB671BE9EB4E29DA020
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27836.jpgsave_picture_27836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27836.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27837.jpgsave_picture_27837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27837.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2E9F46AE07B3BC4DAB6A70CB9229653BAC5E3FE2
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27838.jpgsave_picture_27838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27838.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5FA244E0E2132B3352B674BE3A3BD5471464A742
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27839.jpgsave_picture_27839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27839.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 09.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27840.jpgsave_picture_27840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27840.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft .NET 9.0.2 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27841.jpgsave_picture_27841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27841.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:9B011A4B0381F4EB37875B9943FC6FD5E48DC7F4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27842.jpgsave_picture_27842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27842.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:5387875FB4A15FD1B52EC56DC68670B34C93B3A7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27843.jpgsave_picture_27843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27843.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:3D9A85951EFA1544C120B626C5DCB4A4B65F6078
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27844.jpgsave_picture_27844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27844.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:0E8401BD26DB521BD7BD061C09243D3BD8E39571
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27845.jpgsave_picture_27845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27845.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Any Video Downloader Pro 9.1.16 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27846.jpgsave_picture_27846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27846.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:8413FDFA26949D8879AA1569515284BF34F947FF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27847.jpgsave_picture_27847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27847.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NetLimiter 5.3.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27848.jpgsave_picture_27848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27848.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ NetLimiter 5.3.20.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27849.jpgsave_picture_27849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27849.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:DE06676876A7025EB7ACD2300177993A2C1A4B38
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27850.jpgsave_picture_27850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27850.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:DBDF0F2B96936E01DB855E64B82372DB92286770
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27851.jpgsave_picture_27851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27851.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.110917.0/dlc) Repack FitGirl [Dwarven
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27852.jpgsave_picture_27852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27852.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:980FDA808E47615A0E6565940537457E59AD27E8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27853.jpgsave_picture_27853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27853.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:70CB5D5BABF3828DAFFF31FA72C761CB4F1F1C0C
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27854.jpgsave_picture_27854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27854.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:0C2200781765EB120D89B2C0F7650A36B139927E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27855.jpgsave_picture_27855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27855.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Microsoft Visual Studio 2022 Professional 17.13.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27856.jpgsave_picture_27856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27856.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:15ADDF3F0A70543C237808159D947BF8883378A4
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27857.jpgsave_picture_27857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27857.jpg" />
 </div>
 
 

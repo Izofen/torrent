@@ -6,7 +6,7 @@ New year wallpapers 2013 (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134784.jpgsave_picture_134784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134784.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinTools.net Premium 23.12.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134785.jpgsave_picture_134785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134785.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:EE3D2555E02C6EF20F34F8ACF06D69539F73FC77
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134786.jpgsave_picture_134786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134786.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Square Home Launcher 3.0.5 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134787.jpgsave_picture_134787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134787.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wise Registry Cleaner Pro 11.1.2.717 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134789.jpgsave_picture_134789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134789.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7C625F6B5F3A252B0FC02FC35961321F2820B07A
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134791.jpgsave_picture_134791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134791.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134792.jpgsave_picture_134792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134792.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:5C66601CE98C90AC3F9FF02DE50D6517FFEC7888
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134793.jpgsave_picture_134793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134793.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134794.jpgsave_picture_134794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134794.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:25FD509D450D49B8D49110AFA9A4E363EB10422F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134795.jpgsave_picture_134795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134795.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ New year wallpapers 2013 (23.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134796.jpgsave_picture_134796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134796.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ SlrLounge | Complete Wedding Photography Training System (2018) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134797.jpgsave_picture_134797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134797.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:673AB451E57FA7B8FD38651B006842861D0BC225
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134799.jpgsave_picture_134799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134799.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:543306FD38DAD0A536738A1E5FFD777D4EE3C42F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134801.jpgsave_picture_134801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134801.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Downplay - The Human Condition [EP] (2012) [MP3|320 кб/с]<Alt. Rock / Hard Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134802.jpgsave_picture_134802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134802.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:208E90B1FF48564A25F660A6802514E85AE9FFF5
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134803.jpgsave_picture_134803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134803.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:6821634ADC645DBABDB43DF98D2476E1117BCAD8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134805.jpgsave_picture_134805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134805.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:C664D57E996A2E13FEC499362C7C85AFD8752535
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134806.jpgsave_picture_134806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134806.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Smart Launcher 6.3 build 036 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134807.jpgsave_picture_134807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134807.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Glary Utilities Pro 6.2.0.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134808.jpgsave_picture_134808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134808.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:E3D05E9FC0BB48396870A9A71FC56F573B49A0FF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134809.jpgsave_picture_134809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134809.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ CareUEyes 2.2.10.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134810.jpgsave_picture_134810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134810.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Big cats wallpaper (24.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134811.jpgsave_picture_134811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134811.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ AlDente Pro fo Mac 1.24 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134812.jpgsave_picture_134812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134812.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134813.jpgsave_picture_134813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134813.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ FX Player Pro 3.7.2 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134814.jpgsave_picture_134814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134814.jpg" />
 </div>
 
 

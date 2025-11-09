@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165707.jpgsave_picture_165707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165707.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D3A2CF87DE46CA5791186FB1C85A95CDD80E9429
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165708.jpgsave_picture_165708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165708.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CB293DD965AB3E12D39CF84931F607E4315BFBFC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165709.jpgsave_picture_165709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165709.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:607D292BB3E005099EA72AF14E6AF21436A78CAC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165710.jpgsave_picture_165710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165710.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Chemical Brothers - Chemical Reaction (1997) Compilation, Mixed [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165711.jpgsave_picture_165711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165711.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Elmedia Player Pro 7.8 (build 1897) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165712.jpgsave_picture_165712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165712.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:9FDFAE967C3436AA57AEE03F22428528F9F979B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165713.jpgsave_picture_165713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165713.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.10) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165714.jpgsave_picture_165714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165714.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Hetman Partition Recovery 4.5 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165715.jpgsave_picture_165715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165715.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Smooth Jazz Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165716.jpgsave_picture_165716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165716.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Kaspersky Small Office Security 21.15.8.493 (Web Installer) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165717.jpgsave_picture_165717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165717.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:E3E3B1AD49F441363C0527E01C9F73FCF30CEE5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165718.jpgsave_picture_165718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165718.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:4CCB2D0EB079042FA566C95FFD2939B7B57881A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165719.jpgsave_picture_165719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165719.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:1E48115636ABA8FECFAEA66BDA8BB33A79372735
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165720.jpgsave_picture_165720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165720.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Christ. - Discography 25 Releases (1998-2014) [FLAC|Lossless|tracks+.cue, tracks
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165721.jpgsave_picture_165721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165721.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:E4587FBD8ADDF3A149C54F3E936FAADC68C235FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165722.jpgsave_picture_165722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165722.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:529F45D248CA994AF115876C4193A834CE502A8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165723.jpgsave_picture_165723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165723.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:C96FE2F8A87478ADF9C4317C69877E2ACB015BF4
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165724.jpgsave_picture_165724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165724.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 29) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165725.jpgsave_picture_165725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165725.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:CF473E5035F1B9D755D3EADEC4004A1288CE0707
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165726.jpgsave_picture_165726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165726.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Boris Brejcha - 22 5th album (2016) [MP3|320 кб/с] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165727.jpgsave_picture_165727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165727.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:A4E909CD019FA1DB5DAE1163542F9A4FC8E1FA6E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165728.jpgsave_picture_165728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165728.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:4919648A3010E4F180455E310630D0501BC15676
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165729.jpgsave_picture_165729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165729.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:39C3A368D3AE159BE63E5C9477C5DB5456EAE64C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165730.jpgsave_picture_165730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165730.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Topaz Video AI 3.0.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165731.jpgsave_picture_165731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165731.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:D10AE5068DEA70DBA76D6F4EF221C4F17DBDA531
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165732.jpgsave_picture_165732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165732.jpg" />
 </div>
 
 

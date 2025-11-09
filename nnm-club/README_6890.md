@@ -6,7 +6,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236604.jpgsave_picture_236604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236604.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Real Loud - Real Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236606.jpgsave_picture_236606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236606.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Udemy, Антон Трунович | Основы информационной �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236608.jpgsave_picture_236608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236608.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Crystal City Rockers - After All These Years (2021) [MP3|320 Kbps] <Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236609.jpgsave_picture_236609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236609.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:67A7DB30BCCADF090EA773FB33DB90A162FC1F4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236610.jpgsave_picture_236610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236610.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Wumpscut (:wumpscut:) - Giftkeks (2023) EP [FLAC|Lossless|image + .cue] <EBM, In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236611.jpgsave_picture_236611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236611.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:44AC8C49EEBC06BF7F74020539C6F41C58549297
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236613.jpgsave_picture_236613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236613.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Opera IX - The Gospel (2018) [FLAC|Lossless|image + .cue] <Symphonic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236615.jpgsave_picture_236615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236615.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:7517C6692988E5BD6D680ABF8229B972A7D4BB2A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236616.jpgsave_picture_236616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236616.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Delorian Domain - Alchemilla (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236617.jpgsave_picture_236617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236617.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:4AC8D0ED7EC8BBBE2218FE87A90DF42B29C856B9
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236618.jpgsave_picture_236618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236618.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Skype 8.99.0.202 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236619.jpgsave_picture_236619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236619.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:57F70A1E121E8729AB760A79037C2D12F5EC8A6F
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236621.jpgsave_picture_236621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236621.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Display Maestro 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236623.jpgsave_picture_236623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236623.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ WingFox, Pedro Blanco | Sci-Fi Environment Design Concept Art Course (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236624.jpgsave_picture_236624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236624.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:88747730CA4D82258A94C3175A7E037A7120C9D6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236625.jpgsave_picture_236625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236625.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:D114754CE5801403D8B23A69197B8CAA2A295882
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236627.jpgsave_picture_236627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236627.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:8CFCF52B0B130EA05A7318797CC88B7B760E90D5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236629.jpgsave_picture_236629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236629.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:3C41BE368CBE42A9562DCBF6848F229972309989
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236630.jpgsave_picture_236630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236630.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Driftmachine - Spume & Recollection (2021) Umor Rex [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236632.jpgsave_picture_236632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236632.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:FD83B0FDAF9C1E13C87202C797AAE8622D809B9C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236633.jpgsave_picture_236633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236633.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Fausto Danieli - Sax Pour Danser (1985) [AAC|~313 Kbps] <Jazz, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236634.jpgsave_picture_236634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236634.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Car Radio Reloaded 1.45.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236636.jpgsave_picture_236636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236636.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236638.jpgsave_picture_236638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236638.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BetterDisplay Pro for Mac 2.0.1 pre-release [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236639.jpgsave_picture_236639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236639.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Ordeal & Plight - Her Bones In Whispers (2021) [FLAC|Lossless|image + .cue] <Pos
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236640.jpgsave_picture_236640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236640.jpg" />
 </div>
 
 

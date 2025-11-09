@@ -6,7 +6,7 @@ VA - Colored Clouds: Deep House Soft Session (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129210.jpgsave_picture_129210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129210.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129229.jpgsave_picture_129229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129229.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - 60 Minutes. Old School Dance Music vol.6 (2021) mixed by Dj V [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129240.jpgsave_picture_129240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129240.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Trance Symphony Volume 10 (2012) [MP3|320 кб/с]<Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129245.jpgsave_picture_129245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129245.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129247.jpgsave_picture_129247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129247.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129252.jpgsave_picture_129252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129252.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Club Charts Vol.2 (2012) [MP3|256 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129270.jpgsave_picture_129270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129270.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Dance Rising (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129576.jpgsave_picture_129576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129576.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Rene LaVice - Все треки 2010-2012 (2010-2012) [MP3|320 кб/с]<Drum and
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129694.jpgsave_picture_129694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129694.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129747.jpgsave_picture_129747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129747.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Автозвук От Русских Диджеев (2012) [MP3|224 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129797.jpgsave_picture_129797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129797.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129871.jpgsave_picture_129871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129871.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Top Club Hits Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129919.jpgsave_picture_129919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129919.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Танцевальная Сенсация Русский выпуск (2012
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129921.jpgsave_picture_129921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129921.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129924.jpgsave_picture_129924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129924.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Gold Disco 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129962.jpgsave_picture_129962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129962.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Зарубежные Новинки Vol.46 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129982.jpgsave_picture_129982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129982.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129985.jpgsave_picture_129985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129985.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Steampunk Hotel (2023) [MP3|320 Kbps] <Electro, Swing, Cabare>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129992.jpgsave_picture_129992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129992.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130018.jpgsave_picture_130018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130018.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Русские Новинки Интернета (2012) [MP3|256 кб/с]<P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130226.jpgsave_picture_130226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130226.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130293.jpgsave_picture_130293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130293.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ VA - 60 Minutes. Old School Dance Music vol.5 (mixed by Dj V)(2021) [MP3|320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130414.jpgsave_picture_130414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130414.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130439.jpgsave_picture_130439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130439.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ VA - Зайцев.нет Лучшие новинки Января (2022) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130460.jpgsave_picture_130460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130460.jpg" />
 </div>
 
 
@@ -765,7 +765,7 @@ VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130673.jpgsave_picture_130673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130673.jpg" />
 </div>
 
 

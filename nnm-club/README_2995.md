@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89901.jpgsave_picture_89901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89901.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pink Floyd - Wish You Were Here (1975) Remastered /1993, Columbia, Legacy, Maste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89903.jpgsave_picture_89903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89903.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pink Floyd - Wish You Were Here (1975) Remastered /1993, Columbia, Legacy, Maste
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89911.jpgsave_picture_89911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89911.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:5438477BACA90E18A3F762E3AD349E5BA9115BF9
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89915.jpgsave_picture_89915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89915.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:C5E45FFEE7109E3B398136478AE287EE5DD775C8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89919.jpgsave_picture_89919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89919.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Mecha World (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89920.jpgsave_picture_89920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89920.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:382BB2E6B1C7BA924D350D258397B373D3BAC92E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89921.jpgsave_picture_89921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89921.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:78E3E31C9B218C0F704E4B24F197D38F12600832
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89923.jpgsave_picture_89923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89923.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:E6F0092EE4EA0867F3C4A230773666DD33A4B964
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89924.jpgsave_picture_89924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89924.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89925.jpgsave_picture_89925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89925.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89926.jpgsave_picture_89926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89926.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:90629F9042BB703AD73A23A492E0151BEEAE8B23
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89928.jpgsave_picture_89928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89928.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Tom Clancy's Rainbow Six 3: Complete Edition + Raven Shield 2.0 [En] (RePack) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89930.jpgsave_picture_89930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89930.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:627C5267B81903B7280EDF4DCE95CDD8DC5A3560
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89931.jpgsave_picture_89931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89931.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:9F6E07A5EBE571F2EAEBF2367A995B217F516D17
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89932.jpgsave_picture_89932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89932.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Platinum Hide IP 3.1.8.2 [Мульти/Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89934.jpgsave_picture_89934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89934.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Platinum Hide IP 3.1.7.8 - программа служит для защиты �
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89938.jpgsave_picture_89938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89938.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Autodesk AutoCAD P&ID 2013 x86-x64 RUS-ENG (AIO)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89939.jpgsave_picture_89939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89939.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Shiver: Poltergeist. Collector's Edition / Дрожь. Полтергейст. �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89942.jpgsave_picture_89942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89942.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3CC2D67B89627D8FB397E41F06415932131AF372
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89943.jpgsave_picture_89943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89943.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ TTF Fonts 1727 (20.04.12) by wadimus
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89946.jpgsave_picture_89946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89946.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ TTF Fonts 1727 (20.04.12) by wadimus
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89948.jpgsave_picture_89948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89948.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ TTF Fonts 1727 (20.04.12) by wadimus
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89953.jpgsave_picture_89953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89953.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Stubbs the Zombie in Rebel Without a Pulse [Ru] (RePack/1.0.2) 2006 | MOP030B
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89955.jpgsave_picture_89955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89955.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Dr. Paul Pimsleur | Иврит по методике Д-ра Пимслера (�
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89959.jpgsave_picture_89959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89959.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Tom Clancy's Rainbow Six 3: Raven Shield и Athena Sword [Ru] (RePack) 2003 | Pi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89964.jpgsave_picture_89964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89964.jpg" />
 </div>
 
 

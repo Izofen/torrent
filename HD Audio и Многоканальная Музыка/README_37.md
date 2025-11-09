@@ -6,7 +6,7 @@ Nocturna (Italy) - Studio Albums (2 releases) (2022-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40265.jpgsave_picture_40265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40265.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Dame Area - Toda la Verdad Sobre Dame Area (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40266.jpgsave_picture_40266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40266.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:894CFA773FA6188291A9CC6377949B4553EA1579
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40284.jpgsave_picture_40284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40284.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0480D3E1AC726DEC83377099979E6C7997A12DD6
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40286.jpgsave_picture_40286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40286.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Paul Heaton - The Mighty Several (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40350.jpgsave_picture_40350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40350.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Jasmin Bayer - Poetic License (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40356.jpgsave_picture_40356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40356.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cruachan - Studio Albums (9 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40357.jpgsave_picture_40357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40357.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Jeanette Berger - Do Your Thing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40358.jpgsave_picture_40358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40358.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Robespierre - Rainy Wednesday (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40361.jpgsave_picture_40361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40361.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Myles Kennedy - The Art Of Letting Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40362.jpgsave_picture_40362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40362.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Blues Factory - III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40363.jpgsave_picture_40363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40363.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Samy Thiebault - In Waves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40364.jpgsave_picture_40364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40364.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Headhunters - The Stunt Man (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40365.jpgsave_picture_40365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40365.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Schizophrenic Demon - Jazietto (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40366.jpgsave_picture_40366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40366.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40367.jpgsave_picture_40367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40367.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40368.jpgsave_picture_40368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40368.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40369.jpgsave_picture_40369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40369.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Andrea Bignasca - Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40370.jpgsave_picture_40370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40370.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40372.jpgsave_picture_40372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40372.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Marina Viotti / Fred Chappuis / Vincent Flückiger - Melankhôlia: In Darkness T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40382.jpgsave_picture_40382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40382.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ October London - October Nights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40389.jpgsave_picture_40389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40389.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:84CC8422696C367B89F59E48F88360CBE55DD66C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40392.jpgsave_picture_40392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40392.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ad Infinitum - Studio Albums (5 releases) (2020-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40673.jpgsave_picture_40673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40673.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Duran Duran - Danse Macabre (2023) Deluxe Edition, 2024, BMG [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40682.jpgsave_picture_40682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40682.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ The Offspring - Supercharged (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk-Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40684.jpgsave_picture_40684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40684.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40712.jpgsave_picture_40712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40712.jpg" />
 </div>
 
 

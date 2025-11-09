@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173401.jpgsave_picture_173401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173401.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FACCC01B289932BC0391F82E86161BB45B4035BB
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173402.jpgsave_picture_173402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173402.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Enchanted Stories 2: PAWisoned Kingdom / Зачарованные Истории
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173403.jpgsave_picture_173403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173403.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B18C5F6E2DC5112C2C2A1CE51EEDF94DD8053745
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173404.jpgsave_picture_173404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173404.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:74F27461AFAA3F1B4E8E7D3F3C97551C870DC9AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173405.jpgsave_picture_173405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173405.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F6D01731BB90AF71C3998E4B9A53155F70BCC220
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173406.jpgsave_picture_173406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173406.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:78FC6FDDE907C0DAAB28BC3B8221F7645D63D5B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173407.jpgsave_picture_173407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173407.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D840E37DBE33AAE8405B07A110836D297E614AE3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173408.jpgsave_picture_173408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173408.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:3B362B53919652933D2E3DBD642B857837AC5A9F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173409.jpgsave_picture_173409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173409.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Seal - Studio Albums (10 releases) (1991-2017) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173410.jpgsave_picture_173410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173410.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Open Server Panel 6.4.6 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173411.jpgsave_picture_173411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173411.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:F410A9FEC064C907618764731BF8681CCB5D8B5F
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173412.jpgsave_picture_173412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173412.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Nakia - Signal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative & I
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173413.jpgsave_picture_173413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173413.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Mr. M.D - Dog Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173414.jpgsave_picture_173414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173414.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:88A95A04E274BEE91E65E776181A810E76EF3A27
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173415.jpgsave_picture_173415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173415.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D93FDA6FEF254C60F834FFC48D1D30790A0423EC
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173416.jpgsave_picture_173416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173416.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Kristofer Lee Bentley - It's So Good (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173417.jpgsave_picture_173417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173417.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E5752915B8CA548E3C0AE29C7C69E0369F562F38
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173418.jpgsave_picture_173418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173418.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Kevin Bailey - Ride Into The Storm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173419.jpgsave_picture_173419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173419.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:A8572D35C5A2AA7651E8DD6C1551AFA48985E88A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173420.jpgsave_picture_173420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173420.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Carolyn Wonderland - Truth Is (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173421.jpgsave_picture_173421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173421.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:34DCC99FE5572982ACE69D9557CE2E8EA6AAAEC6
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173422.jpgsave_picture_173422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173422.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:04B74CDCD31343E0AB75BAFA95332490D3596ADC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173423.jpgsave_picture_173423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173423.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:A51A1BE69E17CEA1C28187CEDDCE1216F9C6A34E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173424.jpgsave_picture_173424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173424.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:743A8DF5C3D1D2F1B9CED5F614B8171356E68DB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173425.jpgsave_picture_173425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173425.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Icebound Secrets 2: Soul Hunter / Тайны ледяного мира 2: Охо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173426.jpgsave_picture_173426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173426.jpg" />
 </div>
 
 

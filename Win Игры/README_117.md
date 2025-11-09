@@ -6,7 +6,7 @@ The Long Dark (2017) [Ru/Multi] (2.12.148383 S/2.39.149246 S/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33192.jpgsave_picture_33192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33192.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33195.jpgsave_picture_33195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33195.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack se
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33201.jpgsave_picture_33201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33201.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33202.jpgsave_picture_33202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33202.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Iron Oath (2022) [En] (1.0.021) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33214.jpgsave_picture_33214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33214.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ HROT (2021) [Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33216.jpgsave_picture_33216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33216.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kong: Survivor Instinct (2024) [Multi] (1.0.4) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33218.jpgsave_picture_33218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33218.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Christmas Stories 13: Clara and the Guiding Star (2024) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33229.jpgsave_picture_33229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33229.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Neva (2024) [Ru/Multi] (1.2.0) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33270.jpgsave_picture_33270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33270.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hannah (2024) [En] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33281.jpgsave_picture_33281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33281.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРla
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33303.jpgsave_picture_33303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33303.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33316.jpgsave_picture_33316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33316.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fritz Powerbook 2025 (2024) [En] (2025) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33334.jpgsave_picture_33334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33334.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33339.jpgsave_picture_33339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33339.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Neptunia Game Maker R:Evolution Deluxe Edition (2024) [Multi] (UWP/dlc) Scene Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33345.jpgsave_picture_33345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33345.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Oxygen Not Included (2019) [Ru/Multi] (647408/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33348.jpgsave_picture_33348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33348.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33386.jpgsave_picture_33386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33386.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ DETECTIVE - The Motel (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33400.jpgsave_picture_33400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33400.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ruined Nurse (2024) [Multi] (1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33408.jpgsave_picture_33408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33408.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VOIN (2024) [Ru/Multi] (0.1.0) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33411.jpgsave_picture_33411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33411.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ WARNO (2024) [Ru/Multi] (141373/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33412.jpgsave_picture_33412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33412.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SIFU (2022) [Ru/Multi] (1.28/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33422.jpgsave_picture_33422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33422.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33424.jpgsave_picture_33424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33424.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33429.jpgsave_picture_33429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33429.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Mystery Case Files 27: The Riddle of Mrs. Bishop / За семью печатя�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33436.jpgsave_picture_33436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33436.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.3) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33445.jpgsave_picture_33445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33445.jpg" />
 </div>
 
 

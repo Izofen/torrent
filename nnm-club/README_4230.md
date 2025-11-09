@@ -6,7 +6,7 @@ Scorngrain - 3 альбома (2004 - 2010) Дискография [MP3|CBR:320,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131137.jpgsave_picture_131137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131137.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Arminstel - Trance Evolution (31.12.2012) [MP3|320 кб/с]<Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131139.jpgsave_picture_131139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131139.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:2B210238B04C79948BA4D060F17F8CE8E6C1D784
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131141.jpgsave_picture_131141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131141.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Cassidy Paris - New Sensation (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131142.jpgsave_picture_131142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131142.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Edward Seger & Sounds of Silence - For Greeny (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131143.jpgsave_picture_131143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131143.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Chip Windows XP SP3 (x86) 2012.12 DVD [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131144.jpgsave_picture_131144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131144.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Chip Windows XP SP3 (x86) 2012.12 DVD [русский]
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131145.jpgsave_picture_131145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131145.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - The Best Of Suanda Voice 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131147.jpgsave_picture_131147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131147.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:ACAB6A18582463AA51CDA6199FB549724D4476E7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131148.jpgsave_picture_131148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131148.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:9BFF6C5C86605021FD2B71440B241112A0251568
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131149.jpgsave_picture_131149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131149.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:747FEF3CE0603DF7056ADCDFF1990A0D108F7627
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131150.jpgsave_picture_131150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131150.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0FC8CCF24F71773425A32AA6664EE8494ED53F19
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpgsave_picture_131151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131151.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AgiliaLinux 8.1.1 "Telnyashka" [x32, x64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131152.jpgsave_picture_131152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131152.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Blue Oyster Cult (Blue Öyster Cult) - First Night (2023) 50th Anniversary Live,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131153.jpgsave_picture_131153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131153.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Modern Rock Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131155.jpgsave_picture_131155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131155.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:9C109325CD96603426162ED417CFD5DE748B9B5A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131156.jpgsave_picture_131156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131156.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:9C109325CD96603426162ED417CFD5DE748B9B5A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131157.jpgsave_picture_131157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131157.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - The Best Of Suanda Base 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131159.jpgsave_picture_131159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131159.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Recovery Partition for Samsung NP-350 V5C / Windows 7 Home Basic (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131160.jpgsave_picture_131160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131160.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Fifth Note - Here We Are (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131161.jpgsave_picture_131161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131161.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:C62A27B911D0D9210D56CD7EE42DD0E77A1C93ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131162.jpgsave_picture_131162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131162.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:C62A27B911D0D9210D56CD7EE42DD0E77A1C93ED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131163.jpgsave_picture_131163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131163.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Borderlands 2 + 5 DLC [Ru/En] (RePack/1.2.2) 2012 l R.G ReCoding
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131164.jpgsave_picture_131164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131164.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131165.jpgsave_picture_131165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131165.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131166.jpgsave_picture_131166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131166.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131167.jpgsave_picture_131167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131167.jpg" />
 </div>
 
 

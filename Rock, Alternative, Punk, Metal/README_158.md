@@ -6,7 +6,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113472.jpgsave_picture_113472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113472.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Whom Gods Destroy - Insanium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113487.jpgsave_picture_113487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113487.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lipz - Changing The Melody (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113489.jpgsave_picture_113489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113489.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [MP3|320 Kbps] <Melodic Heavy, Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113502.jpgsave_picture_113502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113502.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rathole - Out Of Phase (2024) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113504.jpgsave_picture_113504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113504.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:3B045D3141294A6E309020E1360BE7A553B41DD3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113505.jpgsave_picture_113505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113505.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dragonforce - Warp Speed Warriors (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113511.jpgsave_picture_113511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113511.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:B16F3CDF2164BE5FC3780F9E6B8FE2DBD754297B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113562.jpgsave_picture_113562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113562.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:270F1CE606BF06E8BC6D2B7DA2DE02DABA447DE2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113569.jpgsave_picture_113569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113569.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0BFF061DEB8A51293C587481C9B9C6806B30F0D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113583.jpgsave_picture_113583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113583.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Pathmaker - Something More (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113637.jpgsave_picture_113637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113637.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Crimson Crux - Teenage Rebel (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113639.jpgsave_picture_113639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113639.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Black Electric - Late Night Lightning (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113644.jpgsave_picture_113644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113644.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ John A. Showler - Swinging Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113647.jpgsave_picture_113647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113647.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Alex Winters - Unexpected Trespasses (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113649.jpgsave_picture_113649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113649.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Dirty Doves - Tunes & Tribulations (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113650.jpgsave_picture_113650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113650.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Badhoven - Rock Thru Ages (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113661.jpgsave_picture_113661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113661.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Alice Cooper - The Sound Of A (2018) EP [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113666.jpgsave_picture_113666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113666.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ These Wicked Rivers - Force of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113679.jpgsave_picture_113679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113679.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Whorehouse Love - Whorehouse Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113688.jpgsave_picture_113688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113688.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Algebra - Pulse? (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113694.jpgsave_picture_113694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113694.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Houwitser - Sentinel Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113716.jpgsave_picture_113716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113716.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Pantheist - Kings Must Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113722.jpgsave_picture_113722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113722.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Into The Tempest - Black Is All (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113728.jpgsave_picture_113728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113728.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Saint Renascence - Saint Renascence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113732.jpgsave_picture_113732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113732.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Rage Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113736.jpgsave_picture_113736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113736.jpg" />
 </div>
 
 

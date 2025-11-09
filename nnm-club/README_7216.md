@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246855.jpgsave_picture_246855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246855.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:39FC4C840486AC4133194BC2F6CEECEAAFE81076
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246856.jpgsave_picture_246856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246856.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D3DDF024DD37DC4B2712973EF0E6CEAB84FCF3DA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246857.jpgsave_picture_246857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246857.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7FB722AE336ABE0635E6DDF80C6BF287CF666FFD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246858.jpgsave_picture_246858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246858.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D915E0CE44E6AD54C7EBD414903F1D6DC9B33B23
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246859.jpgsave_picture_246859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246859.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3F2C57E4E2EA73BED416282A3C0BD26526740345
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246860.jpgsave_picture_246860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246860.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:2DED7104B28A00773A02DA979AA887B0B7F50240
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246861.jpgsave_picture_246861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246861.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:63B4E9FC13D6277DB81BB194E725966A95E92B48
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246862.jpgsave_picture_246862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246862.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:82FE112D0BFB50E48CDAD1BBE885D08E3BF9B760
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246863.jpgsave_picture_246863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246863.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.492.0_64/dlc) Repack Other s [Defi
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246864.jpgsave_picture_246864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246864.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:73D5BB2BA21C1DD0A3A789677A14AECDADC8B145
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246865.jpgsave_picture_246865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246865.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:C1B5D2CBBB6887157DF7D9C6D7215806C4AE6B7B
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246866.jpgsave_picture_246866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246866.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E74D01DE067AC70FDAE7D1A13D5319ABEAF4DF4E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246867.jpgsave_picture_246867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246867.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 10.1.2046.0 (19.07.2023) RePack
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246868.jpgsave_picture_246868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246868.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:C37E4C9A2BEFF8154A2F7484DE90A18A5CFC20C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246869.jpgsave_picture_246869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246869.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Microsoft Windows 11 [10.0.22621.1992], Version 22H2 (Updated July 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246870.jpgsave_picture_246870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246870.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:15274F6D4443D88568104D77A7D394B55670DB7D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246871.jpgsave_picture_246871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246871.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:B0D379611512BA4E8664266812528AE74C6F1245
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246872.jpgsave_picture_246872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246872.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:0F3F13BFD4CBC258F13FAA6A6CC26E824A2EC8DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246873.jpgsave_picture_246873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246873.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:BF613E86FDE869DFA904327EAE20506F984B42BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246874.jpgsave_picture_246874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246874.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:525775385FB3C672775C2EF103059D3AA8E26B11
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246875.jpgsave_picture_246875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246875.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:2C0FCFF550D3A58E7024B5FC65650D170B60652C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246876.jpgsave_picture_246876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246876.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9C24C72256CCB440243ECAFC4C7DD6BCF14BF6D7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246877.jpgsave_picture_246877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246877.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:98191911A787B4C599DB0D8EEA9CC413662A9217
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246878.jpgsave_picture_246878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246878.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Persona 5 (2017) [PS3] [EUR] 4.80 [HEN / CFW] [Unofficial / DLC] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246880.jpgsave_picture_246880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246880.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:FD38896A16229846D4668E97CA3C6FF28F8592A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246881.jpgsave_picture_246881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246881.jpg" />
 </div>
 
 

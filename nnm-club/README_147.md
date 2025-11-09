@@ -6,7 +6,7 @@ Helloween - Helloween (2021) SHM-CD, 2XCD, Japanese Edition, Reissue, 2023, Vict
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3872.jpgsave_picture_3872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3872.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7DB35FA66BE89D9268C204F2B271BA7AF7E0183B
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3873.jpgsave_picture_3873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3873.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E06CAB46EF07214C307E3D3C29A93D3C6069EEE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3874.jpgsave_picture_3874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3874.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:EFF37D8B5B35E0490101E7551D2CCC3FACDA9E75
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3875.jpgsave_picture_3875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3875.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:4ED2DE382C2CC7B215870D72640F16503FE3BDAC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3876.jpgsave_picture_3876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3876.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B9FB7EA6891AADF3CB574141EE26224E6EBA067F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3877.jpgsave_picture_3877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3877.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - BC Deep Summer 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3878.jpgsave_picture_3878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3878.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ David Byrne - Who Is The Sky? (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3879.jpgsave_picture_3879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3879.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:C91E501BE1F03CCD52275E836C8F947025E8C99F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3880.jpgsave_picture_3880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3880.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:1A1EE1BE0F1185B7C5D5D828899779C2486BB6B5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3881.jpgsave_picture_3881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3881.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:1B0FABAD78597191D69A944A0C458B0F91D2414B
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3882.jpgsave_picture_3882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3882.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:B168B664B3083A83580B5E65BCA83F41290B0DE5
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3883.jpgsave_picture_3883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3883.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:204921C423233B3E55CFBA0E59D43E02E14DC2CE
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3884.jpgsave_picture_3884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3884.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:2BC7ECC20AB95ECF0D7D2D254D664A0EEDE7D7A8
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3885.jpgsave_picture_3885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3885.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:3AFCD2DFEA3037E29627626AB04E0DD1BE81F382
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3886.jpgsave_picture_3886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3886.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Helloween - March Of Time (The Best Of 40 Years) (2025) 3 x CD, Compilation [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3887.jpgsave_picture_3887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3887.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:0EA80B809756AF4158C4A7D656DE2DBB66A906F5
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3888.jpgsave_picture_3888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3888.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:527C49600C4331E2519C18E0A959B28E33D5478E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3889.jpgsave_picture_3889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3889.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Jean-Michel Jarre - Live In Bratislava (Special Guest Brian May) (2025) Live [MP
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3890.jpgsave_picture_3890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3890.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:49D327147574586A59DE0659AC5B47332CB550FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3891.jpgsave_picture_3891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3891.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:99F31B3D5143632477CDE51560E31A4060D40F84
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3892.jpgsave_picture_3892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3892.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:428AEE5AF67E71FFECCAEC5DEA90C7751EB79293
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3893.jpgsave_picture_3893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3893.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:450FD4A714EE32387E4294A8D84D48FF97123061
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3894.jpgsave_picture_3894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3894.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:80B7E65D623BDD1B0704519B6D7EC365BB4A4598
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3895.jpgsave_picture_3895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3895.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Vocal Techno & Progressive 2025 [MP3|320 Kbps] <Vocal Techno & Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3896.jpgsave_picture_3896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3896.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Reyvi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3897.jpgsave_picture_3897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3897.jpg" />
 </div>
 
 

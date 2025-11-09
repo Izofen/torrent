@@ -6,7 +6,7 @@ VA - Cruella (2021) [MP3|320 Kbps] <OST, Unofficial>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31266.jpgsave_picture_31266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31266.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - ЕвроХит Топ 40 Europa Plus 10.01.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31295.jpgsave_picture_31295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31295.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Лучшие песни Наше радио за 2024 год (2025) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31309.jpgsave_picture_31309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31309.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Country Music 2025 (Hot Hits & Classics) (2025) [MP3|320 Kbps] <Country, Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31508.jpgsave_picture_31508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31508.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:EFD99C8AAB02E42CB93CFABCA327DAA59DED1AC1
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31531.jpgsave_picture_31531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31531.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Robbie Williams - Compilation (1996-2022) [MP3|320 Kbps] <Pop rock, Soft rock, E
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31593.jpgsave_picture_31593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31593.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Радио Рекорд Итоговый Суперчарт 2024 - 100 лу
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31654.jpgsave_picture_31654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31654.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Лучшие песни Love Radio за 2024 год (2025) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31741.jpgsave_picture_31741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31741.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B3C0AD1EAD734E093107799F23D88E0ED0F02067
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31772.jpgsave_picture_31772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31772.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Disco Riviera (2025) [MP3|320 Kbps] <Disco, Eectronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31775.jpgsave_picture_31775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31775.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Music News For Forum vol.054 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31792.jpgsave_picture_31792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31792.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Compilation part 137 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32077.jpgsave_picture_32077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32077.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Лучшие песни Радио DFM за 2024 год (2025) [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32140.jpgsave_picture_32140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32140.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Musical kaleidoscope part 19 Easy listening (2024) [MP3|320 Kbps] <Electron
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32181.jpgsave_picture_32181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32181.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 17 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32254.jpgsave_picture_32254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32254.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Лучшие песни Европа Плюс за 2024 год (2025) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32365.jpgsave_picture_32365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32365.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ JJ Cale - Compilation (1971-2019) [MP3|320 Kbps] <Blues, Country rock, Tulsa sou
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32409.jpgsave_picture_32409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32409.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:40FFD5A4EEE6972EB58ED6DC196C30ACC2E4DBA2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32444.jpgsave_picture_32444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32444.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Adriano Celentano - Compilation (1958-2021) [MP3|320 Kbps] <Pop, Disco, Rock 'n'
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32445.jpgsave_picture_32445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32445.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Jazz Sexiest Ladies Top 100 (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32618.jpgsave_picture_32618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32618.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Musical kaleidoscope part 18 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32620.jpgsave_picture_32620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32620.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Новогодний Шансон (2024) [MP3|320 Kbps] <Chanson, Pop>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32639.jpgsave_picture_32639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32639.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Крутые пушки Зима 2024-2025 (2024) [MP3|320 Kbps] <Club, Dan
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32659.jpgsave_picture_32659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32659.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - SAW 4 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32720.jpgsave_picture_32720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32720.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Remixes 2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32783.jpgsave_picture_32783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32783.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ VA - 500 лучших хитов русского рока (2014) [MP3|224 Kbps]
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32802.jpgsave_picture_32802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32802.jpg" />
 </div>
 
 

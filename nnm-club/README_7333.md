@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250735.jpgsave_picture_250735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250735.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3E407CA27FBB3E5BACBADC97F06BD161615FBC53
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250736.jpgsave_picture_250736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250736.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BF5D40049B1D21D64AA8399F8539734A4E290460
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250737.jpgsave_picture_250737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250737.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:7FB2156C5898C8B981A409A3B9AFA4135F39D81B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250738.jpgsave_picture_250738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250738.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:D65F606A77A1067B425F5E31A1779B5B103B2FDA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250739.jpgsave_picture_250739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250739.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:3C7834961916D9BFB35C89DAFCFB8BA0BC355EEE
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250740.jpgsave_picture_250740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250740.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:69B9A45CD0072ECC3CCF937BCC677894B1A14033
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250741.jpgsave_picture_250741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250741.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Social Media Downloader 7.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250742.jpgsave_picture_250742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250742.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:34B8751A65EBFBE745435EC7978640C4CFC035BF
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250743.jpgsave_picture_250743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250743.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:48E78A84918A0092B54275F0E0CFDABF1676155E
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250744.jpgsave_picture_250744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250744.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0AB4FCF23C2697F5072373FD8573D30B66D2F27F
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250745.jpgsave_picture_250745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250745.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:2F5AD7A2F959D56DEEBE71322D9C882E86165582
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250746.jpgsave_picture_250746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250746.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Google Chrome 142.0.7444.135 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250747.jpgsave_picture_250747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250747.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:95770ECC0251C3F2C9468B84F729AFA481859E27
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250748.jpgsave_picture_250748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250748.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2486837F4A6C7B4D733B6A1394F3EE528CD5C2F7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250749.jpgsave_picture_250749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250749.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:3D54306E35972C6AA30F0B1C79DA4C9FE31408A4
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250750.jpgsave_picture_250750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250750.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:2A8CFF08C63CD6E6813692302487C9FED2280CD4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250751.jpgsave_picture_250751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250751.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250752.jpgsave_picture_250752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250752.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ DxO PhotoLab 9.2.0 build 524 RePack by KpoJIuK [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250753.jpgsave_picture_250753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250753.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Capture One 23 Pro/Enterprise 16.7.1.3218 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250754.jpgsave_picture_250754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250754.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B36D4587536BB629477F9C467286D25ADC39B4FF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250755.jpgsave_picture_250755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250755.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B1776E71B5443375F2EE7304A186DDAB47A6A825
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250756.jpgsave_picture_250756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250756.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:B4E2103FFCAF39CCBD401A0480E62B19B038A5E2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250757.jpgsave_picture_250757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250757.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Slash - Live at the S.E.R.P.E.N.T. Festival (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250758.jpgsave_picture_250758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250758.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:15CF2D07FDDD85A9540184812614E4C2F02E6ECD
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250760.jpgsave_picture_250760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250760.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Alex Hutton Trio - Legentis (2012) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250764.jpgsave_picture_250764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250764.jpg" />
 </div>
 
 

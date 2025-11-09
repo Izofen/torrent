@@ -6,7 +6,7 @@ Laibach - 3 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Neo-Class
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124391.jpgsave_picture_124391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124391.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:854AAE2C9C25C67BA83470CCD25F85D7A5A04368
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124392.jpgsave_picture_124392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124392.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F8B9A179F5DEBBB9221250248BE0D4392543B0BD
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124393.jpgsave_picture_124393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124393.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3A7DC238B7AD5FC1CF68E3A1529F60A947D66A58
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124394.jpgsave_picture_124394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124394.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Andrii Yurlov - Northern Low Blues (2024) [MP3|320 Kbps] <Blues, Instrumental, H
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124395.jpgsave_picture_124395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124395.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:9E53CC6A95F7EB4F204074EFC150170B23374719
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124396.jpgsave_picture_124396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124396.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:59705E6E63F52E459F9B9C3D652ABA7B08FB08D3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124397.jpgsave_picture_124397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124397.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Vanessa Paradis - Le retour des beaux jours (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124398.jpgsave_picture_124398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124398.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:4C967C55B01407A36EA8E136168FECF01A950779
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124399.jpgsave_picture_124399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124399.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ John Lennon and Yoko Ono Plastic Ono Band with Elephant’s Memory - Power To Th
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124400.jpgsave_picture_124400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124400.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ ASAP Utilities for Excel 8.4 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124401.jpgsave_picture_124401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124401.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Procreate (Corel) Painter 7 7.1.357 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124402.jpgsave_picture_124402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124402.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:6B54AD0081462BF9C245CCB48B3FEAD2B72D4C78
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124403.jpgsave_picture_124403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124403.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ The Orb - Buddhist Hipsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambien
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124404.jpgsave_picture_124404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124404.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:576CE9F308222805742BBF5FE4130182999DEA8A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124405.jpgsave_picture_124405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124405.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:267FBFF076535DEC8B4309742BB580805F423915
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124406.jpgsave_picture_124406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124406.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.003/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124407.jpgsave_picture_124407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124407.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v14 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124408.jpgsave_picture_124408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124408.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:CFC6DBBD613A20F09CED46A4357E1C931FB10AC8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124409.jpgsave_picture_124409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124409.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ PSPaudioware - PSP preQursor3 3.0.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124410.jpgsave_picture_124410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124410.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Woodstock Audio - Open Compressor 1.0.2 VST 3 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124411.jpgsave_picture_124411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124411.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:CE557286C5A221850F3D15DFB80C7B697864E4D8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124412.jpgsave_picture_124412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124412.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124413.jpgsave_picture_124413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124413.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Metric Halo - Make Believe MixHead 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124414.jpgsave_picture_124414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124414.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:3C3E770B40E7D12E2351877214262F5688FF5BDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124415.jpgsave_picture_124415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124415.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Metric Halo - CGII 4.0.86 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124416.jpgsave_picture_124416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124416.jpg" />
 </div>
 
 

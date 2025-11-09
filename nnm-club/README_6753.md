@@ -6,7 +6,7 @@ RightFont 8.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232309.jpgsave_picture_232309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232309.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Downie 4.6.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232310.jpgsave_picture_232310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232310.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ GOM Player Plus 2.3.87.5356 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232311.jpgsave_picture_232311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232311.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B421C113593492111FE850FC5D46DC26D47F89CC
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232313.jpgsave_picture_232313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232313.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ End of the Dream - Until You Break (2017) [MP3|320 Kbps] <Melodic Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232315.jpgsave_picture_232315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232315.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:8C9551558A2EAD8CD883777BE721653FA4766060
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232316.jpgsave_picture_232316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232316.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Company - The Company (1995) Japan Edition, Teichiku Records [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232319.jpgsave_picture_232319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232319.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ CPU-Z 2.06.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232320.jpgsave_picture_232320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232320.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Hetman Uneraser Unlimited Edition 6.8 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232321.jpgsave_picture_232321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232321.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ K-Lite Codec Pack Update 17.6.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232322.jpgsave_picture_232322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232322.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Timer RH PRO  2.11.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232324.jpgsave_picture_232324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232324.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CE5EA33425F8FE1DD7094A0AE5FFB1D24545C68D
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232325.jpgsave_picture_232325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232325.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Soulful Femme - Attitude (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232327.jpgsave_picture_232327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232327.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:72FB558AC87097DC06A02AD72123BD312FDF5FBE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232330.jpgsave_picture_232330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232330.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ The Fall of Mother Earth - Another Kind of Consciousness (2022) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232331.jpgsave_picture_232331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232331.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Omni Recover 3.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232332.jpgsave_picture_232332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232332.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Opera 99.0.4788.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232333.jpgsave_picture_232333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232333.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:5C6FBB624FF940849643E69C05D02B3F2FABEEF4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232335.jpgsave_picture_232335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232335.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:C8D02E1484A4B6846BAD2E13217B5C82A389F289
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232337.jpgsave_picture_232337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232337.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ CheckBook Pro 2.7.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232339.jpgsave_picture_232339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232339.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Marc Fruttero - Miracle (2023) [FLAC|Lossless|tracks] <Pop, Euro Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232340.jpgsave_picture_232340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232340.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Zone Out - Турбоглэм (2023) [MP3|320 Kbps] <Glam Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232342.jpgsave_picture_232342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232342.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:C18E8265D65C616013C8CB7C1C2EF1136A86B141
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232343.jpgsave_picture_232343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232343.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ SyncBird Pro 4.0.1[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232346.jpgsave_picture_232346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232346.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ CREAM SODA - INTERNET FRIENDS (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232347.jpgsave_picture_232347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232347.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AnyMP4 DVD Ripper for Mac 9.0.58 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232349.jpgsave_picture_232349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232349.jpg" />
 </div>
 
 

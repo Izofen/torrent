@@ -6,7 +6,7 @@ Wild Bill Davison - The Commodore Master Takes (1943 - 1946) 1997, Commodore [AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124173.jpgsave_picture_124173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124173.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:230F31EEA653B6C7E057635B89412BB6317D51C3
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124174.jpgsave_picture_124174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124174.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:625EF06785E6B9DDD807E7B6F17C2048D7001302
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124175.jpgsave_picture_124175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124175.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:497474E30B24357498D0CA387ABBDE3509C6BB76
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124176.jpgsave_picture_124176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124176.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:998B5EC7F4BBDAC647044316EFDF8580767FED44
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124177.jpgsave_picture_124177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124177.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Visions of Morpheus - Lost Within (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124178.jpgsave_picture_124178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124178.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:88BA0379AAD5C36D7C5029924C40F8B12A74189C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124179.jpgsave_picture_124179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124179.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Adramelch - Irae Melanox (1988) 2CD Remaster, 2010, Underground Symphony [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124180.jpgsave_picture_124180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124180.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:BC44D1A334EABBFDAD04A87803204A5BBD82ADBE
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124181.jpgsave_picture_124181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124181.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:56773CEE3DC25B6323CCD7FC20049A9D12DBF219
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124182.jpgsave_picture_124182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124182.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:F526C3D6DAFBE9CFB5FC799B7154F483D70F50B2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124183.jpgsave_picture_124183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124183.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:89F0C4F43116968859BCD952452FC21C68DFD2C8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124184.jpgsave_picture_124184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124184.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:B825E8FF5434CE0A6E1C5D145AA0D1ECF4D72DDC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124185.jpgsave_picture_124185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124185.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:D8A6DA198E3AFFFB0B4FEB74E89FA2CB8D765501
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124186.jpgsave_picture_124186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124186.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Plus Messenger (Telegram+) v10.5.0.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124187.jpgsave_picture_124187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124187.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:0DA3B705E5312593EFFDED5C7387FBC0A035556B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124188.jpgsave_picture_124188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124188.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:152787C64DDBFFC17D74F6AFFEE732E6CAF786C7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124189.jpgsave_picture_124189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124189.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:401A8244613788408872756A6BB7326CE8336025
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124190.jpgsave_picture_124190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124190.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2955 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124191.jpgsave_picture_124191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124191.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:5447D3C418832BC33D4113F552DEC8EF229D02D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124192.jpgsave_picture_124192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124192.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Lemongrass - Mirror Of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124193.jpgsave_picture_124193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124193.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:0B9B49E57CDD51CF638EF61EC25D2A9F06FF987D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124194.jpgsave_picture_124194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124194.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:C55E4DA627DE4C0069E651800CC14ECF2DF732EE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124195.jpgsave_picture_124195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124195.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:90AEEF4F7868AACAA6D21EC83ADAAB95950C5644
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124197.jpgsave_picture_124197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124197.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Trance Emotions Vol. 12 (Best of Edm Playlist Compilation 2024) (2024) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124198.jpgsave_picture_124198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124198.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:538D40B85897D88CB0194C47BC50CCD58F935B85
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124199.jpgsave_picture_124199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124199.jpg" />
 </div>
 
 

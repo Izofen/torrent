@@ -6,7 +6,7 @@ Bond - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143787.jpgsave_picture_143787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143787.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Default Folder X 6.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143788.jpgsave_picture_143788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143788.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Red Johnson's Chronicles - One Against All [En] (L/1.0) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143789.jpgsave_picture_143789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143789.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3423385E4CDF17441E1FFA8C0AEA7D804ADB6BF3
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143790.jpgsave_picture_143790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143790.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ MovieSherlock 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143791.jpgsave_picture_143791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143791.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Lounge Sensations (Lounge Masters) (2015) [MP3|320 кб/с] <Downtempo, Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143793.jpgsave_picture_143793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143793.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Lange Recordings Best Of 2015 (Mixed by Tempo Giusto) (2015) [MP3|320 кб/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143794.jpgsave_picture_143794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143794.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ FonesGo iPhone Unlocker for Mac 5.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143795.jpgsave_picture_143795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143795.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:BCE2ABF2D3C1149E1D8F1F55D21CD5AB91D77AAB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143796.jpgsave_picture_143796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143796.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:BCE2ABF2D3C1149E1D8F1F55D21CD5AB91D77AAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143797.jpgsave_picture_143797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143797.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - Beatport Deep House: Sound Pack #385 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143798.jpgsave_picture_143798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143798.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:864CF03723F42A09B36840DC6BA0035300F075CE
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143800.jpgsave_picture_143800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143800.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143802.jpgsave_picture_143802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143802.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:E18056754AC72321006D93A6E53541221544E1A5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143803.jpgsave_picture_143803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143803.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:78E048CA1067AA047D4E796308D2887E6CBF5C85
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143804.jpgsave_picture_143804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143804.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:2B85182A0B1C4132DE8F403BB380AD5EA4494695
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143805.jpgsave_picture_143805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143805.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:2DDF0655FBF4C3908CD02348315CBAF8E3E871E3
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143806.jpgsave_picture_143806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143806.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:85747576EEB4CED1840BE74A63003C59E353CB88
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143807.jpgsave_picture_143807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143807.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:B38EB361F20215C57FF4F34555E6E1BC73DBC136
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143808.jpgsave_picture_143808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143808.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Chill Out And Mellow, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downt
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143809.jpgsave_picture_143809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143809.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:02380DD11AD7BF3294349F4ACF9D095EA91F4C35
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143810.jpgsave_picture_143810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143810.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:BF22E5B0B1F89CA9B09900C335094D9A557F0FC8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143811.jpgsave_picture_143811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143811.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:F475CEF4AF4B64A5FBFF3840FFB4299C26EB8563
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143813.jpgsave_picture_143813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143813.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:545F611440CE205A78B7DC70E4FFB69264A043F0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143814.jpgsave_picture_143814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143814.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143815.jpgsave_picture_143815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143815.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:D9D5DB435FCAE85F7366904A2F63EDE67785F0B8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143816.jpgsave_picture_143816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143816.jpg" />
 </div>
 
 

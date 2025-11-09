@@ -6,7 +6,7 @@ Martial Solal - The Vogue Recordings, Vol.1 (1954 - 1957) 1993, Vogue [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239440.jpgsave_picture_239440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239440.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Receipts 1.9.10b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239441.jpgsave_picture_239441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239441.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mortician - Shout for Heavy Metal (2014) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239442.jpgsave_picture_239442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239442.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:5212A29469A02FDA4228B9D5D9C4951C0727DE65
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239443.jpgsave_picture_239443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239443.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:20D278557881D11B7AB2126CF0A521434A75944E
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239445.jpgsave_picture_239445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239445.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1887 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239447.jpgsave_picture_239447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239447.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Scrutiny 12 v.12.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239448.jpgsave_picture_239448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239448.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:991A79EA71CF4AA7D04B1CB90D9CD66BFC9AD07F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239449.jpgsave_picture_239449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239449.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Milt Hinton, Wendell Marshall, Wyatt Ruther - Basses Loaded! (1955) 2021, Fresh 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239452.jpgsave_picture_239452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239452.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:956118DBDD10851B40C9F3FEBE187B521D33D78E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239453.jpgsave_picture_239453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239453.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Astro Throne - Tales of the Astro Throne (2022) EP [MP3|320 Kbps] <Heavy Psych, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239454.jpgsave_picture_239454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239454.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ UFO Princess Valkyrie | UFO Ultramaiden Valkyrie | Валькирия, прин�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239456.jpgsave_picture_239456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239456.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Data Guardian 6 v.6.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239457.jpgsave_picture_239457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239457.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Autumn Leaves Lounge: Chillout Your Mind (2020) [AAC|~325 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239458.jpgsave_picture_239458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239458.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:F916A850C3D06FF1A6CE654302832008CBB2955C
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239459.jpgsave_picture_239459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239459.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Serial 2 v2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239460.jpgsave_picture_239460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239460.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ WinToUSB Technician 7.9 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239461.jpgsave_picture_239461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239461.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Shirley Scott - Queen Of The Organ (1964) 1993, GRP [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239462.jpgsave_picture_239462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239462.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B630F3EC84D4F41C375E09D04385063D0FEECAC2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239466.jpgsave_picture_239466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239466.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:B630F3EC84D4F41C375E09D04385063D0FEECAC2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239468.jpgsave_picture_239468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239468.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - I Love the Rain Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239470.jpgsave_picture_239470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239470.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:7190A203F00DF5FB92B76C1B9E54A02F405DCAF7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239471.jpgsave_picture_239471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239471.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Recordia 1.5.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239472.jpgsave_picture_239472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239472.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:1137D0154EC08253C09D7E4A49B5440F1BC59D49
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239473.jpgsave_picture_239473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239473.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Haou Taikei Ryuu Knight | Lord of Lords Ryu Knight | Повелитель Рюк
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239474.jpgsave_picture_239474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239474.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Acorn 6 v6.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239477.jpgsave_picture_239477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239477.jpg" />
 </div>
 
 

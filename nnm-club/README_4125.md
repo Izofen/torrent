@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127825.jpgsave_picture_127825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127825.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B27395F469DDB77AB17011C1CC42AEF3BFB4D00E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127826.jpgsave_picture_127826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127826.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Музыка для машины Vol.53 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127827.jpgsave_picture_127827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127827.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Google Chrome 120.0.6099.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127828.jpgsave_picture_127828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127828.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FA5DD67254EB903E342051A03406C79CA728D7E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127829.jpgsave_picture_127829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127829.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Christmas Fables 2: The Magic Snowflake (2023) [Multi] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127830.jpgsave_picture_127830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127830.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Ungoogled Chromium 120.0.6099.71-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127831.jpgsave_picture_127831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127831.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:699BEC8F4A81F0DE85EB4BE91F78EF49BE6A722D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127832.jpgsave_picture_127832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127832.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:6F64BF4463741C73DB6125142A1390AD2A1366A7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127833.jpgsave_picture_127833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127833.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Best Jazz Songs of 2023 (2023) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127834.jpgsave_picture_127834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127834.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Opera One 105.0.4970.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127835.jpgsave_picture_127835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127835.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9766A7ECE6217B3EE5D42D3CAD921C9451530D9F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127836.jpgsave_picture_127836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127836.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wondershare PDFelement 10.2.0.2576 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127837.jpgsave_picture_127837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127837.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F16955364A8EC65F495C94DF1C7EF77FD5BC2690
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127838.jpgsave_picture_127838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127838.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:DD3927258EAC3B3AE2BCBA837A80D323EB2F193E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127839.jpgsave_picture_127839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127839.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Topaz Photo AI 2.2.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127840.jpgsave_picture_127840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127840.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:1188D9BD2F410DA39A1C9FD8AFC8B8ABF07E7AC5
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127841.jpgsave_picture_127841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127841.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:03FD2F3247DDC696D6B68C9FC800EB60EEDF0C2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127842.jpgsave_picture_127842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127842.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Cockos REAPER 7.07 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127843.jpgsave_picture_127843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127843.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127844.jpgsave_picture_127844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127844.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:E5750465C12E648F15BEF8CED0A5C9387E0CFE0A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127845.jpgsave_picture_127845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127845.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Teorex Inpaint 10.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127846.jpgsave_picture_127846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127846.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:E0321258F2F204F275E321A900B71E84A321EBBA
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127847.jpgsave_picture_127847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127847.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ MassTube Ultra 17.1.0.513 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127848.jpgsave_picture_127848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127848.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:3734CC9007E5EC20616A93980187468F6CE8D416
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127849.jpgsave_picture_127849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127849.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Motion Science, Cameron Pierron | Master Main Titles (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127850.jpgsave_picture_127850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127850.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Audiobulldozzer - Pandemonium Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243392.jpgsave_picture_243392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243392.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Scherlokk - Files finder 4 v4.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243393.jpgsave_picture_243393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243393.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243394.jpgsave_picture_243394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243394.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mitch Watkins - Curves (1990) Enja Records[FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243395.jpgsave_picture_243395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243395.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Misty Blues - Outside the Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243396.jpgsave_picture_243396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243396.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Nabokova - Кувшинки (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, I
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243397.jpgsave_picture_243397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243397.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:7CF7FAF39FFDECD9A9A06ECF907088206B1F15AD
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243398.jpgsave_picture_243398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243398.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:85EC7146D2CA4254834C46DD761C2C6CD31B42D5
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243399.jpgsave_picture_243399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243399.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ BELOFF [dp] 2022.08
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243400.jpgsave_picture_243400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243400.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Vintage Landscape Chill Out, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243401.jpgsave_picture_243401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243401.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:441136578E380E021AB94B4E3BF2C9358103CDB7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243403.jpgsave_picture_243403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243403.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ National Youth Jazz Orchestra - Hallmark (1993) [FLAC|Lossless|image + .cue] <Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243404.jpgsave_picture_243404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243404.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Zoot Sims & Bucky Pizzarelli - Send In The Clowns (1990) 1997, MCR [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243405.jpgsave_picture_243405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243405.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:FF0D6D9C173585C095DF70304A0887813DB24933
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243406.jpgsave_picture_243406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243406.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ AnyMP4 MP3 Converter for Mac 8.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243407.jpgsave_picture_243407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243407.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Visual Studio Code 1.77.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243408.jpgsave_picture_243408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243408.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:6653D22C0288D6A807A2C0BD3828F6EDFCC6CE52
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243409.jpgsave_picture_243409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243409.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ JRiver Media Center 30.0.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243410.jpgsave_picture_243410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243410.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:357F6F69B62C47A980C6F65A778C9C1AD4228C48
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243412.jpgsave_picture_243412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243412.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Antumbra - Split The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243413.jpgsave_picture_243413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243413.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:FAF9C637F6CAD2E8DD417E435B83E61CF22EBC89
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243414.jpgsave_picture_243414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243414.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Native Instruments - Kontakt 6.7.1 STANDALONE, VSTi, VSTi3, AAX (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243415.jpgsave_picture_243415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243415.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ R-Studio Technician 9.2 Build 191144 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243416.jpgsave_picture_243416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243416.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Creye - III: Weightless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243417.jpgsave_picture_243417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243417.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ National Youth Jazz Orchestra - 47 Frith Street (1998) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243418.jpgsave_picture_243418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243418.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Joe Williams - Presenting Joe Williams And Thad Jones & Mel Lewis Jazz Orchestra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243419.jpgsave_picture_243419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243419.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Fable Anniversary (2014) [Ru/En] (1.0.8767.0/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17051.jpgsave_picture_17051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17051.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17055.jpgsave_picture_17055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17055.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.09.1/dlc) Scene Tenoke [De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17067.jpgsave_picture_17067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17067.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17076.jpgsave_picture_17076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17076.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17080.jpgsave_picture_17080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17080.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17082.jpgsave_picture_17082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17082.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Duck Detective: The Ghost of Glamping (2025) [Multi] (2.2.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17152.jpgsave_picture_17152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17152.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Bloodshed (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17156.jpgsave_picture_17156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17156.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Warhammer 40,000: Gladius (2018) [Ru/Multi] (1.16.0/dlc) Repack FitGirl [Complet
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17181.jpgsave_picture_17181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17181.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ SpaceEngine / Space Engine (2019) [Ru/Multi] (0.990.48.2065/dlc) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17216.jpgsave_picture_17216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17216.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.09.1/dlc) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17225.jpgsave_picture_17225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17225.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17227.jpgsave_picture_17227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17227.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Another Crab's Treasure (2024) [Ru/Multi] (2.0.000.5) Repack Let'sРlay [Deluxe 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17228.jpgsave_picture_17228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17228.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17231.jpgsave_picture_17231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17231.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Brass Brigade (2019) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17271.jpgsave_picture_17271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17271.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Hunter’s Journey: Tears of the Lake / Путь охотника: Слезы о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17275.jpgsave_picture_17275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17275.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58728/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17279.jpgsave_picture_17279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17279.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (Build 18577240) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17284.jpgsave_picture_17284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17284.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17320.jpgsave_picture_17320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17320.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17324.jpgsave_picture_17324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17324.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Wizordum (2023) [Ru/En] (1.0.06.3) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17327.jpgsave_picture_17327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17327.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Blades of Fire (2025) [Ru/Multi] (1.0.0.1) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17329.jpgsave_picture_17329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17329.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17356.jpgsave_picture_17356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17356.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17370.jpgsave_picture_17370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17370.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ FANTASIAN Neo Dimension (2024) [Multi] (29100132/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17404.jpgsave_picture_17404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17404.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tactical Warfare (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17427.jpgsave_picture_17427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17427.jpg" />
 </div>
 
 

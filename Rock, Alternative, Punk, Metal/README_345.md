@@ -6,7 +6,7 @@ Joe Satriani / G3 / Chickenfoot - 25 albums, 1 ЕР, 1 Box-set, 41 CD (1986-2022
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192219.jpgsave_picture_192219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192219.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Barbarians - Viking Metal War (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Vikin
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192240.jpgsave_picture_192240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192240.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Everlasting Fall - Alive (2023) [MP3|320 Kbps] <Alternative Rock, Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192259.jpgsave_picture_192259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192259.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dying Fetus - Make Them Beg for Death (2023) [MP3|320 Kbps] <Extreme death metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192275.jpgsave_picture_192275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192275.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Oktoberfest Rock Party (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192280.jpgsave_picture_192280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192280.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aventhur - Fractured Memories (2023) [MP3|320 Kbps] <Symphonic Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192296.jpgsave_picture_192296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192296.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ BrokenMan - Songs in the Absence of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192297.jpgsave_picture_192297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192297.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Classic Rock Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192303.jpgsave_picture_192303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192303.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Blut Aus Nord - Disharmonium - Nahab (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192304.jpgsave_picture_192304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192304.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Everlasting Fall - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192305.jpgsave_picture_192305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192305.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Isolation - Isolation (Compilation) (2008) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192308.jpgsave_picture_192308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192308.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Trollband - Woolgatherings (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192310.jpgsave_picture_192310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192310.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Elvis Presley - Live 1969 (2019) [FLAC|Lossless|tracks + .cue] < Rock & Roll, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192356.jpgsave_picture_192356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192356.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:FC6CAF6BD6E9DD0CB526339C1DB0CB5F94488BBC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192371.jpgsave_picture_192371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192371.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dark voice of Angelique - Adult Content (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192396.jpgsave_picture_192396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192396.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Edenbridge - Shangri-La (2022) [FLAC|Lossless|image + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192399.jpgsave_picture_192399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192399.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Riven Earth - 3 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192401.jpgsave_picture_192401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192401.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:2D2C64369E1B2AED43B27EFDAAC5A10C7E48023C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192404.jpgsave_picture_192404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192404.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Grimskull - Awake Asleep (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192405.jpgsave_picture_192405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192405.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ U.D.O. - Touchdown (2023) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192421.jpgsave_picture_192421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192421.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Slowdive - everything is alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192444.jpgsave_picture_192444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192444.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dying Fetus - Killing On Adrenaline (1998) 2022, Back On Black [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192451.jpgsave_picture_192451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192451.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mr. Hurley & Die Pulveraffen - Leuchtturm (2023) Captain's Edition, 2023, Affeni
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192458.jpgsave_picture_192458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192458.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ A Sickness Unto Death - Beyond (2018) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192461.jpgsave_picture_192461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192461.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Who - The Who Sell Out (1967) Box Set, 5xCD, Compilation, Deluxe Edition, Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192633.jpgsave_picture_192633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192633.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ This Is Not Real - Evanescent (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192649.jpgsave_picture_192649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192649.jpg" />
 </div>
 
 

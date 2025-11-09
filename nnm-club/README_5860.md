@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184035.jpgsave_picture_184035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184035.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Frozen Dawn - The Decline of the Enlightened Gods (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184037.jpgsave_picture_184037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184037.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Paladine - Entering The Abyss (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184039.jpgsave_picture_184039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184039.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Resident Evil Village v.1.0.0 (2022) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184040.jpgsave_picture_184040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184040.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:69830B462A25C4DF1816114849DCC163F53A7500
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184041.jpgsave_picture_184041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184041.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Joachim Witt - Rubezahl (2018) [FLAC|Lossless|image + .cue] <Goth Rock, Darkwave
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184043.jpgsave_picture_184043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184043.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Stepmother - Planet Brutalicon (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184045.jpgsave_picture_184045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184045.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AVS Document Converter 4.2.5.270 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184049.jpgsave_picture_184049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184049.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184050.jpgsave_picture_184050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184050.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:B8B5C3BAA501CD139F4FF991F41749B1C5DC718E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184051.jpgsave_picture_184051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184051.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:1702979A2BB3FAD734915F8C04BC178C35C929C3
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184054.jpgsave_picture_184054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184054.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Wingfox, David Masana Lafuente | 3D Game-Ready Environment In Unreal Engine 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184055.jpgsave_picture_184055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184055.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Powertryp - Midnight Marauder (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184056.jpgsave_picture_184056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184056.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Origins - Edge Of Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184059.jpgsave_picture_184059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184059.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:4DCEC30189F1F6C6627D494C4458B18F12706131
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184060.jpgsave_picture_184060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184060.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:3F068E6972A826CAD7C4A1D5394BDECBC4A72BA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184061.jpgsave_picture_184061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184061.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:26628EA4D70E9B6D1388AF03877746FAB97BEFD0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184064.jpgsave_picture_184064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184064.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:ED9006C0BD3B6196484FAECBB0F893C9F68DF317
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184065.jpgsave_picture_184065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184065.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Great Master - Lion & Queen (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184066.jpgsave_picture_184066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184066.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Wingfox, MikeHong | Creating a photorealistic character Joan of Arc (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184068.jpgsave_picture_184068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184068.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:F86DF555F6452C8658A22DB37268E787560CDD60
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184070.jpgsave_picture_184070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184070.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Ralph Burns - Bijou (1955) 1999, Original Jazz Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184071.jpgsave_picture_184071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184071.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ WSCC (Windows System Control Center) 4.0.5.7 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184073.jpgsave_picture_184073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184073.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E7DAA0DFE631F4AA83C8569F65D7459515DDD6D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184074.jpgsave_picture_184074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184074.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Granich.Design, Вадим Гранич | Графсистема UI-дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184076.jpgsave_picture_184076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184076.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:F756DB44F7DF0FBCD8F5488249E7D9D4F0AACC4A
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184077.jpgsave_picture_184077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184077.jpg" />
 </div>
 
 

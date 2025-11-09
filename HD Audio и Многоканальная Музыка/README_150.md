@@ -6,7 +6,7 @@ Black Country Communion - Red Sun; Stay Free (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111450.jpgsave_picture_111450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111450.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111466.jpgsave_picture_111466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111466.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Armin van Buuren - Breathe In (2024) Extended Edition [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111472.jpgsave_picture_111472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111472.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Linkin Park - Papercuts (2024) Singles Collection 2000-2023 [FLAC 24/44.1, 48.0,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111511.jpgsave_picture_111511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111511.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Jay Heye - Smooth & Easy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111537.jpgsave_picture_111537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111537.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111574.jpgsave_picture_111574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111574.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Storm Seeker - Live in Stuttgart (2023) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111593.jpgsave_picture_111593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111593.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Chris Brown - 11:11 (Deluxe) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&b, So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111598.jpgsave_picture_111598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111598.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111601.jpgsave_picture_111601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111601.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111605.jpgsave_picture_111605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111605.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Nienke Dingemans - Ain't No Hollywood Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111612.jpgsave_picture_111612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111612.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Charlie Parr - Little Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111649.jpgsave_picture_111649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111649.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Hubert Dorigatti - The Nashville Sessions (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111650.jpgsave_picture_111650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111650.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Dirty Nil - Free Rein To Passions (2023) Deluxe, 2024, Dine Alone Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111652.jpgsave_picture_111652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111652.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ The Mind Sweepers - All This Too Shall Pass (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111653.jpgsave_picture_111653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111653.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111663.jpgsave_picture_111663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111663.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Sam Morrow - On The Ride Here (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roots 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111666.jpgsave_picture_111666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111666.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:518E3F25B6885D3C91C18A536D7142BF092953B1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111668.jpgsave_picture_111668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111668.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Blue Lavinia - Don't Take It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111674.jpgsave_picture_111674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111674.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Rick Vito - Cadillac Man (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111675.jpgsave_picture_111675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111675.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ The Fiery Lights - 1982 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111676.jpgsave_picture_111676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111676.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Kenya Grace - The After Taste (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111712.jpgsave_picture_111712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111712.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Mahmut Orhan - Pangea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111715.jpgsave_picture_111715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111715.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Five Finger Death Punch - AfterLife (2022) Deluxe, 2024, Better Noise Music [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111718.jpgsave_picture_111718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111718.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Still Corners - Dream Talk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111720.jpgsave_picture_111720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111720.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Celtian - Secretos de Amor y Muerte (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111722.jpgsave_picture_111722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111722.jpg" />
 </div>
 
 

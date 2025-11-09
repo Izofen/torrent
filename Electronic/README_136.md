@@ -6,7 +6,7 @@ P.O.S. - Deeper Tales (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242086.jpgsave_picture_242086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242086.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - I Love Lounge Beach (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242136.jpgsave_picture_242136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242136.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - TrackWolves Best Of 2021 DJ Mix (2021-2022) [MP3|320 Kbps] <Electro House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242147.jpgsave_picture_242147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242147.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Electronic Wunderland Vol.1 20 Chill out Master Pieces (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242149.jpgsave_picture_242149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242149.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ New Arcades - Until Now: The Decade Retrospective (2022) [MP3|320 Kbps] <Synthwa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242180.jpgsave_picture_242180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242180.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SynthAttack + Basscalate - Discography 17 Releases (2015-2022) [MP3|320 Kbps] <H
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242181.jpgsave_picture_242181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242181.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Johan Tronestam - Androids (2022) [MP3|320 Kbps] <Berlin-School, Space Music>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242201.jpgsave_picture_242201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242201.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - My Intimate Lounge World (Essential Deluxe Selection of Buddha Erotic Downb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242213.jpgsave_picture_242213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242213.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Maretimo Sessions: The Lounge Playlist Vol 1 (2017) [MP3|320 Kbps] <Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242236.jpgsave_picture_242236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242236.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ King Satan - Occult Spiritual Anarchy (2022) [FLAC|Lossless|WEB-DL|tracks] <Indu
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242239.jpgsave_picture_242239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242239.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Daniel Kandi Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242241.jpgsave_picture_242241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242241.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Dawn Of Ashes + Kristof Bathory: solo album  + URILIA: side project - Discograph
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242262.jpgsave_picture_242262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242262.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Deep House Resort (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242271.jpgsave_picture_242271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242271.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ XZICD - NIVIVIИ (2018) Kaer‘Uiks [FLAC|Lossless|WEB-DL|tracks] <Experimental,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242274.jpgsave_picture_242274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242274.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Spring Cardio Dance Hits 2021 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242329.jpgsave_picture_242329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242329.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Blue Lounge Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242365.jpgsave_picture_242365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242365.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Black Hole House Music 02-17 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242371.jpgsave_picture_242371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242371.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Twelve Inch Nineties 90s - Loaded (2017) 3 CD [OGG Vorbis|480 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242376.jpgsave_picture_242376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242376.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Chilled & Timeless Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242393.jpgsave_picture_242393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242393.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Lostly - Trance Academy: Acid Revolution (Mixed By Lostly) (2015) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243097.jpgsave_picture_243097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243097.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Florian Kruse - Nordic Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243138.jpgsave_picture_243138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243138.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Mark Dwane - The Euphonic Collection (2016) [MP3|320 Kbps] <Chill out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243155.jpgsave_picture_243155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243155.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Winter Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243185.jpgsave_picture_243185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243185.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - My Free Hour: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243233.jpgsave_picture_243233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243233.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Tiga - You Gonna Want Me (2005) [FLAC|Lossless|image + .cue] <House, Techno, Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243242.jpgsave_picture_243242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243242.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Salinas Chillout Session (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243294.jpgsave_picture_243294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243294.jpg" />
 </div>
 
 

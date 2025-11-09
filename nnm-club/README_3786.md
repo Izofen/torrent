@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118816.jpgsave_picture_118816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118816.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Steel Echoes (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118817.jpgsave_picture_118817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118817.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ToDesk 4.7.2.1 [Ru/En/Cn]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118818.jpgsave_picture_118818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118818.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:96B12DC2A6129D9FA23FE1EF2A91FCC7840DE069
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118819.jpgsave_picture_118819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118819.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:248BF5EA25C8935111D222A8BB7095E14D989081
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118820.jpgsave_picture_118820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118820.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:FF920156058BE3658590364D5DDD2AD60FA77146
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118821.jpgsave_picture_118821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118821.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Capture One 23 Enterprise 16.3.5.1929 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118822.jpgsave_picture_118822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118822.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:CACB7AB2E1907C248E280E9C27B2A5B337E8CC29
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118823.jpgsave_picture_118823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118823.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:690C7069F4D2FF9AB672DCBC9C6FAD6777A6433E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118824.jpgsave_picture_118824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118824.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:D10112250A07C810A1B5EA96A05ECD53B5CD00DB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118825.jpgsave_picture_118825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118825.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:60DE2B76FB73800AAD089268458167C2759BCF0A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118826.jpgsave_picture_118826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118826.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:79A8780F6FE9B0BD4C722644912E6FA6144FA650
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118827.jpgsave_picture_118827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118827.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:89E7291A5673A24A3E68B00467936F2B8C451250
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118828.jpgsave_picture_118828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118828.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:FE35E2EC0CBB5A07CC42B0C89B7065913A8037A4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118829.jpgsave_picture_118829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118829.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ES File Explorer File Manager v4.4.2.1.1 Premium by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118830.jpgsave_picture_118830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118830.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:A505A2191E2D5AAD5C8A1A60C320D4B949AB5AEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118831.jpgsave_picture_118831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118831.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Lucy - The Eternity She Wished For (2016) [Ru/Multi] (v.1.05) Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118832.jpgsave_picture_118832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118832.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:E7027AFEB04AB6257C79D81C415230DE62912928
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118833.jpgsave_picture_118833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118833.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Google Chrome 121.0.6167.161 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118834.jpgsave_picture_118834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118834.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Winaero Tweaker 1.60.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118835.jpgsave_picture_118835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118835.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ AVS Media Player 5.6.4.158 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118836.jpgsave_picture_118836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118836.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ The Great Rebellion (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118837.jpgsave_picture_118837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118837.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:9AFEA1F08DA9608C6CF16B0B1B5C2BEE73866309
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118838.jpgsave_picture_118838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118838.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:9AFEA1F08DA9608C6CF16B0B1B5C2BEE73866309
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118839.jpgsave_picture_118839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118839.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:E812211119F8B3E41DB09811008E66D464038F62
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118840.jpgsave_picture_118840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118840.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:3F9442F64071F345986CA5E22DC7A75137347770
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118841.jpgsave_picture_118841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118841.jpg" />
 </div>
 
 

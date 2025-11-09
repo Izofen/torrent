@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155406.jpgsave_picture_155406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155406.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8FCB083BB05016D420E6433F254F64F4074F4578
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155408.jpgsave_picture_155408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155408.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ED2E04D460EBC001EEFC6720EFDFF4621B4AC602
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155409.jpgsave_picture_155409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155409.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Aiseesoft Data Recovery 1.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155410.jpgsave_picture_155410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155410.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B406412CDECE3A21C6B89F4CDAD8FF51745ABBDA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155411.jpgsave_picture_155411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155411.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BD9945607C9B73F4E80061C5CB2A4EB305C18AED
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155412.jpgsave_picture_155412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155412.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:499838C4F1AF015DDB2D87245E3378D422BDA0CA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155413.jpgsave_picture_155413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155413.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:20F0992C25025F76AB91D52DB7CAAE8D1A8C5D9C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155414.jpgsave_picture_155414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155414.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ BBC. Horizon: Конопля: вредная трава? / Canabis: The Evil Wee
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155416.jpgsave_picture_155416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155416.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:7ED351F7B4A95A2B64609BD55DF7465E8BCA20F3
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155417.jpgsave_picture_155417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155417.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Dehumanized - Controlled Elite (2012) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155418.jpgsave_picture_155418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155418.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:C7D5067B0A2807DD0867579B4F54A3C839989DBD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155419.jpgsave_picture_155419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155419.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155421.jpgsave_picture_155421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155421.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:6EF69AFAC83630137B59F5C98B6BDF77E3385BCD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155422.jpgsave_picture_155422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155422.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Royal Legends: Marshes Curse (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155424.jpgsave_picture_155424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155424.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:8747E3312BAEFBCE62F5A835A5199F83F9255BAF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155425.jpgsave_picture_155425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155425.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:AE90B1554F1E4CC04CE5E7EA0AC528BFBDCF1C66
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155426.jpgsave_picture_155426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155426.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:DB5E744AFB58544E69A3AAAB6DA5BD754D96A9E1
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155427.jpgsave_picture_155427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155427.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:1DD8B1E4928EB8423D735B8A8ABBDF89C644BC6B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155428.jpgsave_picture_155428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155428.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Udemy, Harsh Gupta | Paint and prep training in Nuke: fundamental – NK101 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155430.jpgsave_picture_155430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155430.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:98CE5CE0BBDC2811959ABCFAE8A0143F0CE02515
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155431.jpgsave_picture_155431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155431.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:F485877992F41E18EDB2D497DD65BCB3EC56D181
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155432.jpgsave_picture_155432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155432.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Current Value - SENEX LP (2019) MethLab Recordings [FLAC|Lossless|WEB-DL|tracks]
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155433.jpgsave_picture_155433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155433.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:A00CCBE8E74156C050917401786CF159D4E165B7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155434.jpgsave_picture_155434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155434.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:304E4227F7A181DC997376E06A37F810FB28EF57
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155435.jpgsave_picture_155435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155435.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ AIMP 4.00 Build 1680 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155436.jpgsave_picture_155436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155436.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Black Hole House Music 08-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217875.jpgsave_picture_217875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217875.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AI Transcription 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217880.jpgsave_picture_217880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217880.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217891.jpgsave_picture_217891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217891.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4ADD5164C486517397B0807D42F6A1F0B686C002
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217903.jpgsave_picture_217903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217903.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0D4BA3873E3046DB7B63BA1622B29521514271F7
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217909.jpgsave_picture_217909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217909.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Linda Ronstadt - Living In The USA (1978) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217915.jpgsave_picture_217915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217915.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Sandboxie plus 1.10.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217921.jpgsave_picture_217921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217921.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Ghost Buster Pro 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217926.jpgsave_picture_217926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217926.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Bill Evans Trio - Consecration. The Last Complete Collection (1980) 8CD, 1989, A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217932.jpgsave_picture_217932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217932.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Sandboxie 5.65.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217944.jpgsave_picture_217944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217944.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Nova 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217953.jpgsave_picture_217953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217953.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Rottenwood 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217960.jpgsave_picture_217960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217960.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Sarayasign - The Lion's Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217969.jpgsave_picture_217969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217969.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Jay Tausig - Amorphous Architecture (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217977.jpgsave_picture_217977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217977.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Cisdem Video Converter 7.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217989.jpgsave_picture_217989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217989.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ White Canyon & The 5th Dimension - Gardeners of the Earth (2023) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218031.jpgsave_picture_218031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218031.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:20ED8DA5C9836757704F4CD9E76BC73352B0435C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218040.jpgsave_picture_218040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218040.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Dynamic Wallpaper Engine 15.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218048.jpgsave_picture_218048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218048.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:0454142B4DBD86E841EC9086FCC0BD456E6D57F1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218062.jpgsave_picture_218062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218062.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Rascal Reporters - The Strainge Case Of Steve (2023) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218069.jpgsave_picture_218069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218069.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:3283D62B84CCB805060703217346CB0690C5E7B7
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218076.jpgsave_picture_218076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218076.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:A1F02659F6483A3D123CB1499445DB7580580E45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218087.jpgsave_picture_218087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218087.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ iNet Network Scanner 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218099.jpgsave_picture_218099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218099.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Strident - Paranoia of the Tyrant (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218110.jpgsave_picture_218110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218110.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Baking Soda for Mac 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218123.jpgsave_picture_218123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218123.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:935D0C748EEFF663D24C46CF21002097AB2FD353
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218131.jpgsave_picture_218131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218131.jpg" />
 </div>
 
 

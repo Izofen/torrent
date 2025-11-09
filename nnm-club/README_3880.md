@@ -6,7 +6,7 @@ Armin van Buuren - Breathe In - Extended Versions (2024) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121314.jpgsave_picture_121314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121314.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Slimjet 42.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121315.jpgsave_picture_121315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121315.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E9B784027CEB08875B597C68DE1DC02144E41BED
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121316.jpgsave_picture_121316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121316.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ ForkLift 4 v.4.0.6 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121317.jpgsave_picture_121317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121317.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E1D441683B03A6E8907DF5B62DC9191BE3A4D8DF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121318.jpgsave_picture_121318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121318.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FocusWriter 1.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121319.jpgsave_picture_121319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121319.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ YT Downloader 9.6.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121320.jpgsave_picture_121320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121320.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ HiBit Startup Manager 2.6.30 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121322.jpgsave_picture_121322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121322.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Firefox Browser ESR 115.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121323.jpgsave_picture_121323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121323.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:26CC30B9250C941288BB4E1EE6FD73CC8A8006F6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121324.jpgsave_picture_121324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121324.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121325.jpgsave_picture_121325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121325.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:52850293A0B67DA8E38B973FC46BACB602D52087
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121326.jpgsave_picture_121326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121326.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3CD16957FD7FFDCAE605281AAEB613CC53A12E27
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121327.jpgsave_picture_121327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121327.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Freeplane 1.11.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121328.jpgsave_picture_121328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121328.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Music News vol.333 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121329.jpgsave_picture_121329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121329.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:48D6B4A848A24BA9A202275314503430448249BC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121330.jpgsave_picture_121330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121330.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C6996687E905F6C08AD0BC563855EE25E6F9E659
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121331.jpgsave_picture_121331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121331.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Floorp Browser 11.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121333.jpgsave_picture_121333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121333.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Live Home 3D Pro Edition 4.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121335.jpgsave_picture_121335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121335.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:F463E94A75A0A51A3185A9AF18D132799A8C0D1A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121336.jpgsave_picture_121336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121336.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:6F3242649A038FEB897A496B5892EEF3AD3816EA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121337.jpgsave_picture_121337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121337.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:10A9BEDC5B995C172A8E1A4D6BC670996AF51192
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121338.jpgsave_picture_121338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121338.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:E4A56B5D12ECBC29C6EC4B34CE5DC6FC8734B709
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121339.jpgsave_picture_121339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121339.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Total Commander 11.02 (22.01.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121340.jpgsave_picture_121340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121340.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ SteerMouse 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121341.jpgsave_picture_121341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121341.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ennio Morricone - 100 Movie Themes Hits/Original Versions - Super Gold (2005) Bo
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121342.jpgsave_picture_121342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121342.jpg" />
 </div>
 
 

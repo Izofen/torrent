@@ -6,7 +6,7 @@ HiPER Calc Pro v11.2.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212146.jpgsave_picture_212146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212146.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:00A8CCA131B3CDD35A0BB153C6CB796950348D8A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212147.jpgsave_picture_212147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212147.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3ECFC468C887C90C79A0CDFC8A01A95892635BE0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212148.jpgsave_picture_212148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212148.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2D25A7463679024D41333B740719371DA655CD45
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212149.jpgsave_picture_212149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212149.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:52BB1C31189EB37600F06AFBB5C5F369FFB238FC
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212150.jpgsave_picture_212150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212150.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0D93BF14CC20F6A401563079CD44AF1E6BB5A364
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212151.jpgsave_picture_212151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212151.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5808BDE3366A38039958AB220ED1873C3FBA4897
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212152.jpgsave_picture_212152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212152.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:691E04CC33F2A5C9B179738D0F389BE882EBA9D9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212153.jpgsave_picture_212153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212153.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:20AB7529E3A2BD454E6AC6FC82115567DFEFBECC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212154.jpgsave_picture_212154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212154.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:C83C94AC61A3B3F719E0891DAF629C0276D59A7B
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212155.jpgsave_picture_212155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212155.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:9C849A12D148343E288B2A87C8E54BF9233DAD42
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212156.jpgsave_picture_212156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212156.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212157.jpgsave_picture_212157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212157.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:827814A96E2FE855FCCF9B49F1F07064516EA123
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212158.jpgsave_picture_212158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212158.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Marcelo Rovai | Edge AI Engineering: Hands-on with the Raspberry Pi (2025) [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212159.jpgsave_picture_212159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212159.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hattersley L. (ed.) | The Official Raspberry Pi Handbook 2025: Astounding projec
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212160.jpgsave_picture_212160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212160.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ L. Hattersley (ed.) | The Official Raspberry Pi Handbook - 2026 (2025) [PDF] [EN
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212161.jpgsave_picture_212161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212161.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Phil King | Simple electronics with GPIO Zero: Take control of the real world wi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212162.jpgsave_picture_212162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212162.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dylan G.H. Quagmire | Raspberry Pi Bible: The Ultimate Project & Programming Gui
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212163.jpgsave_picture_212163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212163.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ GIMP 3.0.6 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212164.jpgsave_picture_212164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212164.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MechWarrior (1989) [En] (2.1.0.4) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212165.jpgsave_picture_212165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212165.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Heretic + Hexen (2025) [Ru/Multi] (Update 1) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212166.jpgsave_picture_212166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212166.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Beneath (2025) [Ru/Multi] (0.9920f/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212167.jpgsave_picture_212167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212167.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Molasses Fire - In The Presence Of The Pirate King (2025) [FLAC 24/44.1|Lossless
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212168.jpgsave_picture_212168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212168.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:9DE6D21C19AE22515D85C8629C7DDD7AD3C28889
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212169.jpgsave_picture_212169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212169.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Tor Browser 15.0 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212170.jpgsave_picture_212170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212170.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ MyPhoneExplorer 2.3 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212171.jpgsave_picture_212171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212171.jpg" />
 </div>
 
 

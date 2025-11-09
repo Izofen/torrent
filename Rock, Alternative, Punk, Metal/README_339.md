@@ -6,7 +6,7 @@ Skull & Crossbones - Sungazer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190670.jpgsave_picture_190670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190670.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Downes Braide Association - Celestial Songs (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190672.jpgsave_picture_190672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190672.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Colony Collapse - You Miss Everything (2022) Deluxe Edition, 2023, Theoria Recor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190675.jpgsave_picture_190675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190675.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fatmas - External Internal Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190678.jpgsave_picture_190678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190678.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Experiment Specimen - Purity Of Purpose (2023) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190680.jpgsave_picture_190680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190680.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Evilon - A Warriors Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Fol
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190681.jpgsave_picture_190681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190681.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Slomatics - Strontium Fields (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190682.jpgsave_picture_190682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190682.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Divides Unfold - Distain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt. M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190683.jpgsave_picture_190683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190683.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Taake - Et Hav av Avstand (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190688.jpgsave_picture_190688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190688.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sodomisery - Mazzaroth (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190689.jpgsave_picture_190689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190689.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Fire Down Below - 3 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190691.jpgsave_picture_190691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190691.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ GraveRipper - Seasons Dreaming Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190694.jpgsave_picture_190694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190694.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Egokills - Egokills (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190697.jpgsave_picture_190697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190697.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Seinaru Sekai - Fragile Little World (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190700.jpgsave_picture_190700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190700.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Spillage - Phase Four (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard, Heavy, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190702.jpgsave_picture_190702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190702.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lowdrive - Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Stoner, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190703.jpgsave_picture_190703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190703.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Vandenberg - 11 albums, 1 Box-set, 16 CD (1982-2023) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190852.jpgsave_picture_190852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190852.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Catapult - The Single Collection (1996) CD [MP3|320 Kbps] <Pop Rock, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190861.jpgsave_picture_190861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190861.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Pretty Reckless - Other Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Country
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190870.jpgsave_picture_190870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190870.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ebb - Mad & Killing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190878.jpgsave_picture_190878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190878.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Flamborough Head - Jumping The Milestone (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190883.jpgsave_picture_190883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190883.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Antena White Opera - 3 Albums (2018-2022) [MP3|320 Kbps] <Progressive Metal, Roc
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190886.jpgsave_picture_190886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190886.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Arc Light Sessions - The Hours (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190887.jpgsave_picture_190887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190887.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Derek Sherinian - Vortex (2022) [FLAC|Lossless|image + .cue] <Prog Rock, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190896.jpgsave_picture_190896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190896.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Stryper - The Final Battle (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190901.jpgsave_picture_190901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190901.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hinayana - Order Divine (2018) [FLAC|Lossless|image + .cue] <Melodic Death, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190902.jpgsave_picture_190902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_190902.jpg" />
 </div>
 
 

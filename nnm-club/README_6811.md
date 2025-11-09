@@ -6,7 +6,7 @@
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234253.jpgsave_picture_234253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234253.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ European Jazz Trio - Barcelona's Flame (1990) Alfa Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234254.jpgsave_picture_234254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234254.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:80EC55A7E0664E1614974CD170F58EABE1FD007D
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234255.jpgsave_picture_234255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234255.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2B4168A0C1C07AF823340E594A7E2E7FAF946F26
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234256.jpgsave_picture_234256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234256.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Vanlife Chill, Vol. 5 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234257.jpgsave_picture_234257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234257.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:6F588C8E4844134B53CAC11763413D7BD8D36BFB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234258.jpgsave_picture_234258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234258.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Foxit PDF Editor Pro 12.0.1.12430 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234259.jpgsave_picture_234259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234259.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Eddie Henderson - Be Cool (2018) Smoke Sessions Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234260.jpgsave_picture_234260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234260.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Brave Browser 1.52.129 Portable by Cento8 + ext [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234261.jpgsave_picture_234261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234261.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ TechSmith Camtasia 2022 Studio 2022.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234262.jpgsave_picture_234262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234262.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:0E8FA168F06C0AF254B68D90756A76460ED9E77F
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234263.jpgsave_picture_234263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234263.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Lake of Tears - Ominous (2021) [AAC|~334 Kbps] <Doom Metal, Gothic Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234264.jpgsave_picture_234264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234264.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:EF2B03170775263CFB8D586FCA0C7589B9D64E2C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234265.jpgsave_picture_234265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234265.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:AE6748B54CA81BEECD46D5A4C7FCAFF1D45CE728
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234266.jpgsave_picture_234266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234266.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:82952BF8AD93DBA345FE008C83C13D0772F82E1E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234267.jpgsave_picture_234267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234267.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:489A6038B3888DAD0F5120ED2790DADF163D5958
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234268.jpgsave_picture_234268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234268.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:A198BA747D0EA00BDB8053C909691C5B933269F5
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234269.jpgsave_picture_234269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234269.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - The Forest Chill Lounge, Vol. 18 (2021) [AAC|~317 Kbps] <Lounge, Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234270.jpgsave_picture_234270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234270.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Benny Golson Group - Remembering Clifford (1998) Milestone [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234271.jpgsave_picture_234271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234271.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:1ABA677B942B40151C05F043A45F657901FC8145
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234272.jpgsave_picture_234272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234272.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Eddie Henderson - Shuffle And Deal (2020) Smoke Sessions Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234273.jpgsave_picture_234273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234273.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ron Kalina - Getting My Axes Together (2004) Kalinor Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234274.jpgsave_picture_234274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234274.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:491D15B36124B9BC3C138BE83D87F91794137B2A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234275.jpgsave_picture_234275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234275.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C9BA0633A18DDE55D4C0481A985D1F517DBDE699
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234276.jpgsave_picture_234276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234276.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:568C4BD379C0BDF82AC85CF61B4CF63DB4D5E861
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234277.jpgsave_picture_234277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234277.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Smooth Jazz n Chill 4 (2019) [AAC|~349 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234278.jpgsave_picture_234278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234278.jpg" />
 </div>
 
 

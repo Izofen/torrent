@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44167.jpgsave_picture_44167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44167.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44168.jpgsave_picture_44168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44168.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B5403D33B4048C9550F1BB18D1490B3AF1259AC7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44169.jpgsave_picture_44169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44169.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:44C30A206FCC8635D0D37166EA23D9E19F5B09BB
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44170.jpgsave_picture_44170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44170.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7AC3B45E954CEF5B11F4BD3D9DD729DD2B92ECA4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44171.jpgsave_picture_44171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44171.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:A6D28420B7FA4FEF8B146348E6760F915A2E01BA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44172.jpgsave_picture_44172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44172.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Adobe Media Encoder 2024 24.6.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44173.jpgsave_picture_44173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44173.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Adobe Audition 2024 24.6.0.69 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44174.jpgsave_picture_44174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44174.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:424D42E5CE202FB9DDD0394EB9945A24C101F972
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44175.jpgsave_picture_44175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44175.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:BBA802E94994898DAC3D9118320ED1949767D5A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44176.jpgsave_picture_44176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44176.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ IK Multimedia - T-RackS 6 MAX 6.0.0 STANDALONE, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44177.jpgsave_picture_44177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44177.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:28CB2F60D465AE3203AB701AD3B98E2EA33D137E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44178.jpgsave_picture_44178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44178.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44179.jpgsave_picture_44179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44179.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ FinePrint 12.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44180.jpgsave_picture_44180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44180.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - ARAB X (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44181.jpgsave_picture_44181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44181.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:66DDAD55BC95EBF7B4AB5B0755CCB6E9F96F5DF0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44182.jpgsave_picture_44182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44182.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:AA44749116888EFD63D3311D8ED4C4449541FA5D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44183.jpgsave_picture_44183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44183.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44184.jpgsave_picture_44184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44184.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Bon Jovi - Forever (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44185.jpgsave_picture_44185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44185.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ MusicBrainz Picard 2.12.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44186.jpgsave_picture_44186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44186.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ FireAlpaca 2.12.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44187.jpgsave_picture_44187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44187.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:7D6E52E55293DB52DD58DB22F648308D12031F71
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44188.jpgsave_picture_44188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44188.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:A5C8AFB7A0DCEA020D7DE9D452C832D3268651A3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44189.jpgsave_picture_44189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44189.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - The Blues Won’t Leave Me Alone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44190.jpgsave_picture_44190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44190.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:286D8EF9C778C003B13C4B8B6FE58E2F818CC1A0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44191.jpgsave_picture_44191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44191.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:D3D5E43336E3CECE6D587977FD035F3B949189F2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44192.jpgsave_picture_44192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44192.jpg" />
 </div>
 
 

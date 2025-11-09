@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105641.jpgsave_picture_105641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105641.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Funky Jazz House Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105642.jpgsave_picture_105642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105642.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soul.Blues - The Easy Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105643.jpgsave_picture_105643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105643.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Jay Lang - Jay Lang and the Devil's Due (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105644.jpgsave_picture_105644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105644.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Blues Pickers - Night Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105645.jpgsave_picture_105645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105645.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ The Honey Badgers - Shakin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105646.jpgsave_picture_105646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105646.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Achievers - Easy Going Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105647.jpgsave_picture_105647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105647.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Cotton Wing - Nothing but Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105648.jpgsave_picture_105648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105648.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Dillion James - Heavy Keys (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105649.jpgsave_picture_105649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105649.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:A97EB1F230394D7F212D2DFE5D9DA51F0EF15ABA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105650.jpgsave_picture_105650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105650.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:2EC29A8D351429FB1C08BEBFDC95332FCE2F5908
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105651.jpgsave_picture_105651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105651.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:FC3BE0C2B21C0CC21CBD68216A1856F468AD6753
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105652.jpgsave_picture_105652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105652.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105653.jpgsave_picture_105653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105653.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:38330361791F45B76377183E7837F8EBA6815ED2
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105654.jpgsave_picture_105654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105654.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:A72DB1B71641936CB80F84F946993FF93149D782
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105655.jpgsave_picture_105655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105655.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:03C3B3D7ACEA9F95F51B02700A3B30E563CD5322
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105656.jpgsave_picture_105656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105656.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Firefox Browser 129.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105657.jpgsave_picture_105657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105657.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:CB46F7488236C2D96F34200EFB0DDDA284D6BD0A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105658.jpgsave_picture_105658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105658.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:C575341F9710A12C749DC5FEE4EA56D4CED668B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105659.jpgsave_picture_105659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105659.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:2E8AACA593B095956ECDF8F6C287B2B2DB13C93A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105660.jpgsave_picture_105660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105660.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Cher - Living Proof (2001) Deluxe Edition, Reissue, 2024 [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105661.jpgsave_picture_105661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105661.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:6DFC99645B916593F6243974865B6D7AA90034A9
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105662.jpgsave_picture_105662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105662.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105663.jpgsave_picture_105663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105663.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AA866BE66A729389180C11EEA06C2D27493573E7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105664.jpgsave_picture_105664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105664.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:71A8932B5DAA987F427307B135E405BFCB74A843
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105665.jpgsave_picture_105665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105665.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105666.jpgsave_picture_105666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105666.jpg" />
 </div>
 
 

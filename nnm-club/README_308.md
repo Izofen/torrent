@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8100.jpgsave_picture_8100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8100.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EF48E2E66569CF366338DA92CF940BF420531CA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8101.jpgsave_picture_8101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8101.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4AAB1A6ECD5D22C459005A21CDC6EC4DCF75F03E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8102.jpgsave_picture_8102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8102.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ RAR for Linux 7.12 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8103.jpgsave_picture_8103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8103.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:6E4ABAAE565BA0782B83A1503B91E87BC8243D33
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8104.jpgsave_picture_8104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8104.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8105.jpgsave_picture_8105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8105.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8106.jpgsave_picture_8106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8106.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:91C2EE03AFD15369DE3FD346C3A0D2C62AA10E5E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8107.jpgsave_picture_8107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8107.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:962039FFF6A64C77BAB275ABDC18D406EB7DFC5A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8108.jpgsave_picture_8108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8108.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.50 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8109.jpgsave_picture_8109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8109.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7D7D37904B2DAE3FAC330A1C3D7B1BA38A864DCB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8110.jpgsave_picture_8110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8110.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:882937F2136736140A4F265F60FD68CEAD34446B
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8111.jpgsave_picture_8111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8111.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:41D5EE9E78B8D54C604990F427BEA6DD054157DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8112.jpgsave_picture_8112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8112.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:995CE4577A832CE989967C9B2318EC62C1EDA0B9
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8113.jpgsave_picture_8113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8113.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:0AAFB813D9B6A415D774B1F89B89F822D365422F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8114.jpgsave_picture_8114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8114.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.5) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8115.jpgsave_picture_8115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8115.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Fade Numb - Fresh Start (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8116.jpgsave_picture_8116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8116.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:35F8BBEF8BB7D9B51B492D346CD87C24E91925AA
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8117.jpgsave_picture_8117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8117.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0) Repack AIexandro
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8118.jpgsave_picture_8118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8118.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:D0D1EF058C13597D1D7CA6320DC2A4E1C8DFAEBE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8119.jpgsave_picture_8119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8119.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:EE473BD70B6A7FA0867377E10868C88D9F871634
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8120.jpgsave_picture_8120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8120.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:E9CAEB69F1F483AACE484734969470A94B39BB78
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8121.jpgsave_picture_8121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8121.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9EB865344D0087B4987195150C8D602DAF2CA23D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8122.jpgsave_picture_8122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8122.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:A42C0A43A53CEA4C28A9A9F5AEECFFDD64C9BF51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8123.jpgsave_picture_8123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8123.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:A0C216D8136596BC5F518093CE18ECA646378972
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8124.jpgsave_picture_8124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8124.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack seleZen [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8125.jpgsave_picture_8125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8125.jpg" />
 </div>
 
 

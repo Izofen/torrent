@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46455.jpgsave_picture_46455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46455.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1691E18C7B1575298823599EA5AB1CE4A2C2275C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46456.jpgsave_picture_46456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46456.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:125C4080CB9E7849D796E6E07E1900B382BBB0FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46457.jpgsave_picture_46457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46457.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.2 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46458.jpgsave_picture_46458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46458.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46459.jpgsave_picture_46459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46459.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Rave Mission (1994-2001) [MP3|320Kbps]<Progressive House/Techno/Trance/Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46460.jpgsave_picture_46460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46460.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ System software for Windows v.3.6.4 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46461.jpgsave_picture_46461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46461.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Rutube запустил сервис для «переезда» из YouTube
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46462.jpgsave_picture_46462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46462.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Rutube запустил сервис для «переезда» из YouTube
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46463.jpgsave_picture_46463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46463.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Synology DSM 7.2.1 [x32_x64] 2xDVD OVA IMG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46464.jpgsave_picture_46464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46464.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:39A2B915A9276B415EA76D454E34076E4239D755
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46465.jpgsave_picture_46465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46465.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Microsoft сняла ограничение на максимальный раз
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46466.jpgsave_picture_46466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46466.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft сняла ограничение на максимальный раз
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46467.jpgsave_picture_46467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46467.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:33E88859025EE68E2D2E5F14085A1661CC0D499E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46468.jpgsave_picture_46468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46468.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:83C56897CE18E00BBE978290B803A70CDC75C756
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46469.jpgsave_picture_46469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46469.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Крутые пушки Лето 2024 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46470.jpgsave_picture_46470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46470.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:69159536FDEFC9D63E4AE4CF6D84EBE1B3C22204
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46471.jpgsave_picture_46471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46471.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:89F5DC267EEC51F05DE59F1D2D3D302F43D31429
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46472.jpgsave_picture_46472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46472.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:ED3A61AD4994BA337D954B9F86254C39F57B9E39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46473.jpgsave_picture_46473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46473.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:00F84745450C213FD499950301C648803DC22950
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46474.jpgsave_picture_46474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46474.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:91C3EA56B6D7BBD984AB28808C6CCDF4E2ECB133
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46475.jpgsave_picture_46475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46475.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:0097864FAFFECC477E97A7D2EED12036DF3A64F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46476.jpgsave_picture_46476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46476.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Atlantis Word Processor 4.4.0.7 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46477.jpgsave_picture_46477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46477.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Welcome to Elk (2020) [Multi] (1.22.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46478.jpgsave_picture_46478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46478.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:31CA6A148F9315A793DB418117DD5B1DFBDF57F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46479.jpgsave_picture_46479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46479.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Radiant Photo 1.4.1.502 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46480.jpgsave_picture_46480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46480.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117617.jpgsave_picture_117617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117617.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117618.jpgsave_picture_117618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117618.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Edge of Reality 10: Island of Shadows (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117619.jpgsave_picture_117619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117619.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Trivax - Eloah Burns Out (2023) [MP3|320 Kbps] <Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117620.jpgsave_picture_117620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117620.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:8B119E0ED360C1CC93BE6B2B172530131E095719
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117621.jpgsave_picture_117621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117621.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Smooth Jazz Music Ensemble, Background Instrumental Music Collective - A Cup of 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117622.jpgsave_picture_117622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117622.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117623.jpgsave_picture_117623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117623.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - The Atlantic New Orleans Jazz Sessions (1955 - 1962) 4CD, 1998, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117624.jpgsave_picture_117624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117624.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:D23827259E34B53D75BBD8D3854C463C2E81B643
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117625.jpgsave_picture_117625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117625.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:CD7D59371A54996E601B406452B0CEA64EEBFE95
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117626.jpgsave_picture_117626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117626.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Positive Music Universe, Most Relaxing Music Academy - Relaxing Sunday Brunch: S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117627.jpgsave_picture_117627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117627.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:B57782AB40A782D5F2C98C52476F920A171A0772
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117628.jpgsave_picture_117628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117628.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ LASCALA - Play-Off (2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117629.jpgsave_picture_117629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117629.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:10C67DA370AB868AD50B76B1402314B924FD75E0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117630.jpgsave_picture_117630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117630.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:90D3EF1776DE2F4483CF37E465A688B804BA9FEC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117631.jpgsave_picture_117631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117631.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:A09C984D2C2EB836AFF98B0E50F19AC51A39ED71
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117632.jpgsave_picture_117632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117632.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:1C3BC645B8502C1F339A4035A4BF001DEA8B70C3
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117633.jpgsave_picture_117633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117633.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ TattooIN - Звёзды и руны (2025) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117634.jpgsave_picture_117634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117634.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:70AC9032B54007FB706E9115A5075B3253C0B8D0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117635.jpgsave_picture_117635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117635.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:DE457D8DC87E1699CFEFBFBDAE35B000E4037690
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117636.jpgsave_picture_117636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117636.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:69EA65803CB8AA9146188CD68E695772A7592914
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117637.jpgsave_picture_117637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117637.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Innellea - The Belonging (2024) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Progressi
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117638.jpgsave_picture_117638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117638.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:7E6C0539302A4A7AC32E33456D055A5F8598325C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117639.jpgsave_picture_117639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117639.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:871CDD5136169D1EAF9E7DF6762E63FFBD96E978
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117640.jpgsave_picture_117640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117640.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Topaz Video AI for Mac 4.1.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117641.jpgsave_picture_117641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117641.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Native Instruments Komplete Kontrol 3.1.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117642.jpgsave_picture_117642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117642.jpg" />
 </div>
 
 

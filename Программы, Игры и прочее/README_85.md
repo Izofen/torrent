@@ -6,7 +6,7 @@ AR GPS Compass Map 3D Pro 1.8.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235196.jpgsave_picture_235196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235196.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235561.jpgsave_picture_235561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235561.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VTC Radio - Lactose / Дорожное радио 6.8 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235820.jpgsave_picture_235820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235820.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Polarr v6.7.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235858.jpgsave_picture_235858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235858.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Webcams 2.0.17 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236254.jpgsave_picture_236254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236254.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Compass Level & GPS 2.4.13 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236484.jpgsave_picture_236484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236484.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Car Radio Reloaded 1.45.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236636.jpgsave_picture_236636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236636.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236642.jpgsave_picture_236642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236642.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Radio Alarm Clock + 5.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236676.jpgsave_picture_236676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236676.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ZaZa Remote v4.8.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237045.jpgsave_picture_237045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237045.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ English Grammar & Phonetics v7.6.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237071.jpgsave_picture_237071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237071.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Volume Panel 21.23 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237121.jpgsave_picture_237121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237121.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Colorfy PLUS - Coloring Book v3.19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237508.jpgsave_picture_237508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237508.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:60322C50781BB3BDF33112E187982A04564BA181
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237700.jpgsave_picture_237700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237700.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:9F9FE33E0A7FEB3374E9BCC03A32B0AF7F6C4379
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237718.jpgsave_picture_237718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237718.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237744.jpgsave_picture_237744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237744.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Garmin: City Navigator North America NT 2023.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238023.jpgsave_picture_238023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238023.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:7E23DC483F0CF3B76B04EF8CE0FED3B587F41EA4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238528.jpgsave_picture_238528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238528.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ AntiBAG Тахограф 2.0.108 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238863.jpgsave_picture_238863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238863.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Learn English - 6000 Essential Words 4.1.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238896.jpgsave_picture_238896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238896.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ CamSam PLUS v3.7.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239625.jpgsave_picture_239625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239625.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ ReVanced YouTube Music 5.17.51 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240089.jpgsave_picture_240089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240089.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ FullReader - читалка всех форматов книг v4.3.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241262.jpgsave_picture_241262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241262.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Hollow Knight 1.0 (Unofficial port) Mod by Dan Cooper [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241529.jpgsave_picture_241529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241529.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:76575621C5FA527A94D3014415FC6A7F0B2CBFD3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241609.jpgsave_picture_241609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241609.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:5AB2DD0EF3998139ACE31E7D063D04BA633E8906
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241882.jpgsave_picture_241882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241882.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240839.jpgsave_picture_240839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240839.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deathstars - Everything Destroys You (2023) [MP3|320 Kbps] <Industrial Gothic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240840.jpgsave_picture_240840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240840.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Downie 4 v4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240841.jpgsave_picture_240841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240841.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ PensiOi!ners - Капсаицин (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240842.jpgsave_picture_240842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240842.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hypocrisy - The Fourth Dimension (1994) Remaster, 2023, Nuclear Blast Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240843.jpgsave_picture_240843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240843.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Armin van Buuren - A State Of Trance 1116 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240844.jpgsave_picture_240844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240844.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bandicam 5.4.3.1923 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240845.jpgsave_picture_240845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240845.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Anthems Of Gomorrah - Aelvica (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Det
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240846.jpgsave_picture_240846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240846.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:A722B14D450DC1135325736CDD9267558A9B1D5E
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240847.jpgsave_picture_240847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240847.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Sommerhits (2023) [MP3|320 Kbps] <Pop/Rock Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240848.jpgsave_picture_240848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240848.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NIUBI Partition Editor 9.5.0 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240849.jpgsave_picture_240849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240849.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Kryder & DEADLINE - Kryteria Radio 286 (2021-04-14) [MP3|192 Kbps] <House, Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240850.jpgsave_picture_240850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240850.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Khanate - To Be Cruel (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240851.jpgsave_picture_240851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240851.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A0FB1032C6766CBE7848A1EC76E707D63A531406
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240852.jpgsave_picture_240852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240852.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.21.2 RePack (& portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240853.jpgsave_picture_240853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240853.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7B544EDC918990C3D67954D600AE449D678AEAFC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240854.jpgsave_picture_240854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240854.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Elephant Rose - 2 Albums, 1 Single (2019-2022) [MP3|320 Kbps] <Progressive Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240855.jpgsave_picture_240855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240855.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:5E9C4B45B0C04F61D6D9D3C03110D6AC7BE0015E
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240856.jpgsave_picture_240856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240856.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B4FF15D9B755493EFA34D9E5D03C0044DAE55CE8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240857.jpgsave_picture_240857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240857.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Dark Princess - Phoenix (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Gothic M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240858.jpgsave_picture_240858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240858.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ TextMate 2 v2.0.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240859.jpgsave_picture_240859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240859.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film So
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240860.jpgsave_picture_240860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240860.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:72C09B453C00DAF1B43B3BB42E52AE528F34DCEE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240861.jpgsave_picture_240861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240861.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:6D1645BE172C9FA16DE32E698B359FF7EFFAC9F8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240862.jpgsave_picture_240862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240862.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:81E2FA3A981CD4A24781955948487109590D203D
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240863.jpgsave_picture_240863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240863.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:E54917348C9A2ED938091CF687EADC75E6446F3F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240864.jpgsave_picture_240864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240864.jpg" />
 </div>
 
 

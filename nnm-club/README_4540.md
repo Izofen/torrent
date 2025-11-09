@@ -6,7 +6,7 @@ Prism 9 v9.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142054.jpgsave_picture_142054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142054.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DEAE9F8909F782539F26634CA510E3AB530E6ED9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142055.jpgsave_picture_142055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142055.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / По�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142056.jpgsave_picture_142056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142056.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142057.jpgsave_picture_142057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142057.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1C37FF5F2BD7D81E5E6228C988C22921ECF1C922
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142058.jpgsave_picture_142058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142058.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:3B6A86CCC2FCBEA953DACBBE21191C58BDDB9AB3
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142059.jpgsave_picture_142059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142059.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2A73678813EBCF95AF5EC502ACC4E7250412396D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142060.jpgsave_picture_142060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142060.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Schneeweiss 10 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142061.jpgsave_picture_142061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142061.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D0FFB73C1E9C2B7C9B10BB6318C60B3DED85AAAE
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142062.jpgsave_picture_142062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142062.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Michael Feinstein - The Sinatra Project, Vol. II: The Good Life (2011) Concord J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142065.jpgsave_picture_142065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142065.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:3D4235D0AD17B7C39AE40F3336676FC0B0BF6E0B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142066.jpgsave_picture_142066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142066.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ KineMaster - видеоредактор 7.2.8.31088 Mod by AppKaMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142067.jpgsave_picture_142067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142067.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:6B1A319950DA4A5547A392C2BE545CC615023724
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142068.jpgsave_picture_142068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142068.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Gothic 2 / Готика 2 (2003-2005) [Ru/En/Ge] (1.30.0/2.6/dlc) Lossless Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142069.jpgsave_picture_142069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142069.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - A Day to Relax: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142070.jpgsave_picture_142070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142070.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:85D137D73F210FF5DDEDF10A3410C69BFBA4DA10
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142071.jpgsave_picture_142071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142071.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ iMazing 2.5.3 (8307) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142073.jpgsave_picture_142073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142073.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:11044A0DC03FE5BAE2974AA646979011646C55BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142074.jpgsave_picture_142074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142074.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:14713E7B4535BB56B0AF4BC363F891610667D603
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142075.jpgsave_picture_142075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142075.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - The Death Therapy (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142076.jpgsave_picture_142076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142076.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:EB4CCF09EF842E8F0211BF00AC7BEEC66F51744C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142077.jpgsave_picture_142077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142077.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:0B5D228F9C0550F33B6243FC7D102C503263AA96
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142078.jpgsave_picture_142078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142078.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:655A331DC20C15CF308A8A4C3EB04DB1B670B4A1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142079.jpgsave_picture_142079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142079.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Lee Konitz - Stereokonitz 1968 (1998) BMG [FLAC|Lossless|tracks + .cue] <Cool, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142080.jpgsave_picture_142080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142080.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Emurasoft EmEditor Professional 23.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142082.jpgsave_picture_142082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142082.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Psycroptic - Symbols of Failure (2006) [WavPack|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142084.jpgsave_picture_142084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142084.jpg" />
 </div>
 
 

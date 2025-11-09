@@ -6,7 +6,7 @@ Nekonomicon - Choose Your Fighter! (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119440.jpgsave_picture_119440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119440.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:28EBCBF5E5131229F44A4BBF37E81493C39ED155
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119441.jpgsave_picture_119441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119441.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:34E56D1B82524AC5A3CFEFDDEC89BDFC482C8544
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119442.jpgsave_picture_119442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119442.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Axwell - Axtone House Party (Dance Tent, MDLBEAST SOUNDSTORM, Saudi Arabia) (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119443.jpgsave_picture_119443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119443.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Brookwood Drive - Take A Ride On The Drive (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119444.jpgsave_picture_119444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119444.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ June Ryah - Inspired Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119445.jpgsave_picture_119445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119445.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PowerPhotos 2.5.6 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119446.jpgsave_picture_119446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119446.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ The Tibbs - Keep It To Yourself (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119447.jpgsave_picture_119447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119447.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Batushka - Black Rituals (Liturgy in Budapest – Live 2021) (2024) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119448.jpgsave_picture_119448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119448.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Theocracy - Mosaic (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119449.jpgsave_picture_119449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119449.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Larmet - Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119450.jpgsave_picture_119450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119450.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Olhava - Sacrifice (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119451.jpgsave_picture_119451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119451.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ PullTube 1.8.5.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119452.jpgsave_picture_119452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119452.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Nekonomicon - Choose Your Fighter! (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119453.jpgsave_picture_119453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119453.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Hearts & Hand Grenades - Where I Begin (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119454.jpgsave_picture_119454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119454.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Stone Horns - Chimaira (2024) [FLAC|Lossless|tracks] <Groove Metal, Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119455.jpgsave_picture_119455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119455.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Jennifer Porter - Yes, I Do! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119456.jpgsave_picture_119456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119456.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:028314A06A6885CEA69BC48E7B038BA83F15A219
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119457.jpgsave_picture_119457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119457.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:3F371D7E4BC2B1241A1C8EAB79A8BD4805F4F85D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119458.jpgsave_picture_119458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119458.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.5 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119459.jpgsave_picture_119459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119459.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Open to Close Solo Set, Groove C
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119460.jpgsave_picture_119460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119460.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Smooth Jazz Hits 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119461.jpgsave_picture_119461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119461.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:7883B55398EDF7B191C259E40DBB2666FD1532ED
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119462.jpgsave_picture_119462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119462.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ocean Jet - Mind Rivers (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119463.jpgsave_picture_119463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119463.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Sam Feldt - Tomorrowland Friendship Mix (2024-02-01) [MP3|320 Kbps] <Dance, Elec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119464.jpgsave_picture_119464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119464.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:211D6F34AA91FE2AA087AD1FCEF42E85ABF87B92
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119465.jpgsave_picture_119465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119465.jpg" />
 </div>
 
 

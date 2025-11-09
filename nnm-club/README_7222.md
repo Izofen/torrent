@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247015.jpgsave_picture_247015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247015.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:21C6AE527519832CFAB4606663E637F16D7782FD
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247016.jpgsave_picture_247016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247016.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:21C6AE527519832CFAB4606663E637F16D7782FD
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247017.jpgsave_picture_247017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247017.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AEB1BAA76B4F4A6EB144430D61AA50F855001ABB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247018.jpgsave_picture_247018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247018.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EEF7744E9697A7D343736ADD984A0A303541460A
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247019.jpgsave_picture_247019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247019.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F3652AC840301E8280FF8687533587F13AF4D5A0
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247020.jpgsave_picture_247020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247020.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:66950E932392ECBE1561C912A873F90B5F029897
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247021.jpgsave_picture_247021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247021.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E5125782F5132E272D6D52162CBECA53F87F8FFC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247022.jpgsave_picture_247022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247022.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Stepik, Герман Янгалин | Экспресс-курс по Arduino, э
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247023.jpgsave_picture_247023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247023.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C6DE5CBFFE6FA222FFAA7CE4AA5E4AB1C461C38A
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247024.jpgsave_picture_247024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247024.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:A73CD2652AFA83B3F9833C137FE8F46F001C7DFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247025.jpgsave_picture_247025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247025.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:4C0C97B26E150A510EA4DE05AB3D6A36CD9B37F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247026.jpgsave_picture_247026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247026.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич [ТВ-2, 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247027.jpgsave_picture_247027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247027.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:151CA3A98F4485FE136642938408248AFD6E925E
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247028.jpgsave_picture_247028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247028.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Microsoft Office 2013 Professional Plus / Standard + Visio + Project 15.0.5571.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247029.jpgsave_picture_247029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247029.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:43DCFE1F5C315B773AC80FEF67C704F23222D59D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247030.jpgsave_picture_247030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247030.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:D1B495ED82845FFEB58470E55CA1BEA85ADB7268
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247031.jpgsave_picture_247031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247031.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:9EAF401B10D2640412B8AF93889239932BEE3715
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247032.jpgsave_picture_247032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247032.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:B570DDCEC52F12A7A6C41C3AF0CC26B2FEBC7244
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247033.jpgsave_picture_247033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247033.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247034.jpgsave_picture_247034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247034.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247035.jpgsave_picture_247035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247035.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.1992]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247036.jpgsave_picture_247036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247036.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack Oth
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247037.jpgsave_picture_247037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247037.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:D057C32B820EAEA99D8F8EC59CC67FE68E59283F
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247038.jpgsave_picture_247038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247038.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:524FD5025F9764788AD45CC09B77FFF427F31158
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247039.jpgsave_picture_247039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247039.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:F5CE3EF6D886B12A594E6790021F9022A5E2B2E0
 >>Менталист / The Mentalist; Теория Лжи / Lie To Me
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247040.jpgsave_picture_247040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247040.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100842.jpgsave_picture_100842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100842.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:61C8E95DDF9FA332817F78354DC77E5D72580048
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100843.jpgsave_picture_100843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100843.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100844.jpgsave_picture_100844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100844.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:093F684FC386CBE00119082B871F31E8C88BE739
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100845.jpgsave_picture_100845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100845.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100846.jpgsave_picture_100846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100846.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:17A0EB01FAA0727D1E4C65CB782137757BDD190B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100847.jpgsave_picture_100847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100847.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100848.jpgsave_picture_100848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100848.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я ста�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100849.jpgsave_picture_100849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100849.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Gutalax - The Shitpendables (2021) [APE|Lossless|image + .cue] <Goregrind>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100850.jpgsave_picture_100850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100850.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ FxSound 1.2.1.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100851.jpgsave_picture_100851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100851.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100852.jpgsave_picture_100852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100852.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100853.jpgsave_picture_100853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100853.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ OTT Navigator IPTV v1.7.3.3 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100854.jpgsave_picture_100854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100854.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Smart AudioBook Player Pro v11.5.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100855.jpgsave_picture_100855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100855.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100856.jpgsave_picture_100856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100856.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:B985753797995565CC3FFE442E8AB902F15D9A3D
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100857.jpgsave_picture_100857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100857.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:7AB20A945360EF29990D42BF04D886991D45C4E9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100858.jpgsave_picture_100858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100858.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Coheed And Cambria - The Father of Make Believe (2025) New Entities Edition, Vir
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100859.jpgsave_picture_100859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100859.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ BikeComputer Pro v9.2.3 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100860.jpgsave_picture_100860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100860.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bad Cop Bad Cop - Lighten Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100861.jpgsave_picture_100861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100861.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100862.jpgsave_picture_100862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100862.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100863.jpgsave_picture_100863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100863.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:C1D208562B981D66C433644CA765FC908CFD4464
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100864.jpgsave_picture_100864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100864.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:0E6AF19507CB69F0C069CA7B2A3EF5113A1F01E8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100865.jpgsave_picture_100865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100865.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In fo
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100866.jpgsave_picture_100866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100866.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Moon+ Reader Pro v10.2 (b1002001) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100867.jpgsave_picture_100867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100867.jpg" />
 </div>
 
 

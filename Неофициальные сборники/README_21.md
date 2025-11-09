@@ -6,7 +6,7 @@ Relaxing Radiance - Fire Sounds White Noise (2024) [MP3|320 Kbps] <Easy Listenin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36134.jpgsave_picture_36134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36134.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Christmas Rock Santa's Secret (2024) [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36160.jpgsave_picture_36160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36160.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:7E8050F4280E3F92715F25451043B238FBC43E5D
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36214.jpgsave_picture_36214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36214.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Christmas Blues Santa's Secret (2024) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36265.jpgsave_picture_36265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36265.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tommy J (Tommy Johansson) - Metal Covers (2024) [MP3|320 Kbps] <Metal, Covers>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36279.jpgsave_picture_36279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36279.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Umar Keyn - Compilation Part 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36289.jpgsave_picture_36289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36289.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hamidshax - Compilation Cd 5 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36356.jpgsave_picture_36356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36356.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Music News For Forum vol.045 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36472.jpgsave_picture_36472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36472.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Musical kaleidoscope part 14 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36509.jpgsave_picture_36509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36509.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - То, что доктор прописал 2 Remix NNM (2024) [MP3|320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36551.jpgsave_picture_36551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36551.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - In ecstasy from metal (2024) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36578.jpgsave_picture_36578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36578.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hamidshax - Compilation Cd 3 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36665.jpgsave_picture_36665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36665.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:E5EC25224AF23D686724CE9C0F4B1C6D2C26A759
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36702.jpgsave_picture_36702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36702.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Music News For Forum vol.044 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36744.jpgsave_picture_36744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36744.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Best of Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36785.jpgsave_picture_36785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36785.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hamidshax - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36851.jpgsave_picture_36851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36851.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kasimoff - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36957.jpgsave_picture_36957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36957.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Да здравствуют музы! (2009) [MP3|320 Kbps] <Авторск
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36968.jpgsave_picture_36968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36968.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hamidshax - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36997.jpgsave_picture_36997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36997.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Music News For Forum vol.043 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37065.jpgsave_picture_37065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37065.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kasimoff - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37103.jpgsave_picture_37103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37103.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Rocking The Blues (2024) [MP3|320 Kbps] <Blues, Rock, Folk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37193.jpgsave_picture_37193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37193.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Watercolor Melodies (2024) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37197.jpgsave_picture_37197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37197.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Musical kaleidoscope part 13 (2024) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37199.jpgsave_picture_37199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37199.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - National Pop Dance Vol.90 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37222.jpgsave_picture_37222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37222.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Melodic Techno 2 2024 [MP3|320 Kbps] <Melodic Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37228.jpgsave_picture_37228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37228.jpg" />
 </div>
 
 

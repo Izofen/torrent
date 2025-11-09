@@ -6,7 +6,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack FitGirl [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54547.jpgsave_picture_54547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54547.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Trinity Fusion (2023) [Multi] (20240412/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54557.jpgsave_picture_54557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ C.A.R.D.S. RPG: The Misty Battlefield (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54596.jpgsave_picture_54596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54596.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack FitGirl [Apex Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54614.jpgsave_picture_54614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54614.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.6.0.0/dlc) Scene Tenoke [Alex Murphy Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54618.jpgsave_picture_54618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54618.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Phantom Fury (2024) [Ru/Multi] (17384) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54623.jpgsave_picture_54623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54623.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54626.jpgsave_picture_54626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54626.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Taboo Trial (2023) [Multi] (5.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54627.jpgsave_picture_54627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54627.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Scene Rune [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54632.jpgsave_picture_54632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54632.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.3.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54640.jpgsave_picture_54640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54640.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54646.jpgsave_picture_54646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54646.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54647.jpgsave_picture_54647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54647.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54650.jpgsave_picture_54650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54650.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54669.jpgsave_picture_54669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54669.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54688.jpgsave_picture_54688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54688.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54726.jpgsave_picture_54726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54726.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ KARM (2024) [Multi] (1.0.1) Repack FitGirl [Headbang Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54732.jpgsave_picture_54732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54732.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54737.jpgsave_picture_54737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54737.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54754.jpgsave_picture_54754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54754.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Aliens vs. Predator (2010) [Ru] (2.27/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54758.jpgsave_picture_54758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54758.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Creeper World 4 (2020) [En] (2.5.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54796.jpgsave_picture_54796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54796.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Starstruck Vagabond (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54798.jpgsave_picture_54798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54798.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54814.jpgsave_picture_54814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54814.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BioShock 2 (2010) [Multi] (1.5.0.019) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54852.jpgsave_picture_54852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54852.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ StarCraft II: Антология (2010-2015) [Ru/En] (3.0.5.39117/dlc) Repack Fi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54855.jpgsave_picture_54855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54855.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54952.jpgsave_picture_54952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54952.jpg" />
 </div>
 
 

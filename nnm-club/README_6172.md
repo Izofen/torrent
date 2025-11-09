@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193893.jpgsave_picture_193893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ YouTube ReVanced Extended 18.31.40 (RVP v2.188.1) Mod by Vooltmace + Micro G [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193894.jpgsave_picture_193894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2BCEE74F2D1350F3CADA4C73F2D0A8431C1679CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193895.jpgsave_picture_193895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193895.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:40E4E0F3C683153973938CDA03FC754BEF6712F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193896.jpgsave_picture_193896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193896.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ U.D.O. - Touchdown (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193897.jpgsave_picture_193897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193897.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Toto Cutugno - 3 Albums (1990 - 2005) [FLAC|Lossless|tracks + .cue]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193898.jpgsave_picture_193898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193898.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ AIMP 5.11 Build 2435 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193899.jpgsave_picture_193899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193899.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:B116BE6AA834BAC0730326C06ADC7EA419FD582B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193900.jpgsave_picture_193900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193900.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:79D5EFA2EAA6DFA0992FB3BF35ACE50DD71198E0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193901.jpgsave_picture_193901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193901.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:0CA0708D9A40587245CB68A01A6ECA7B14C80323
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193903.jpgsave_picture_193903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193903.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:408947B426CF44ABBF472CA9D0422E40C7B72665
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193904.jpgsave_picture_193904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193904.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:75C23795A5F3A61D87B9E0E5EFDCC2BF99A9B919
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193905.jpgsave_picture_193905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193905.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ IObit Smart Defrag Pro 9.0.0.311 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193906.jpgsave_picture_193906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193906.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ YT Downloader 9.3.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193907.jpgsave_picture_193907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193907.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:6EDC4E9F7AF5BE527D6BF88F03833C7E9D5704BA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193908.jpgsave_picture_193908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193908.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:FA1ECB450608B7668C457177750DCE60A525F0ED
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193909.jpgsave_picture_193909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193909.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:B06BF27D0DC20DF1233946E8967E1A4603B3DBCA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193910.jpgsave_picture_193910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193910.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Rozen Maiden | Девы Розена [ТВ-1] [2004, TV, 12 эп.] BDRip 1080p 1
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193911.jpgsave_picture_193911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193911.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ IceCream Ebook Reader Pro 6.34 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193912.jpgsave_picture_193912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193912.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193913.jpgsave_picture_193913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193913.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Download Master 7.0.1.1709 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193914.jpgsave_picture_193914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193914.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Viber 20.8.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193915.jpgsave_picture_193915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193915.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:72C84EDB9E166767B776CE742599E02C658A8F0B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193916.jpgsave_picture_193916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193916.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Han
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193917.jpgsave_picture_193917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193917.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:F5463252875C3D8EA62F7C0721E7052CC7A9DA15
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193918.jpgsave_picture_193918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193918.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Autodesk Flame 2024.0.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193919.jpgsave_picture_193919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193919.jpg" />
 </div>
 
 

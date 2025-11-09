@@ -6,7 +6,7 @@ Botanicula [Multi12/+] (RePack) 2012 l R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90783.jpgsave_picture_90783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90783.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Schwarzblut - Maschinenwesen (2CD) (2012) [MP3|~245 кб/с (V0)]<Dark Electro, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90787.jpgsave_picture_90787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90787.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Big Joe Turner - All The Classic Hits 1938-1952 (2003) 5 CD BoxSet [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90789.jpgsave_picture_90789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90789.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Kiss The Anus Of A Black Cat - 6 albums (2005-2012) [mp3|320 kbps] <Neofolk, Apo
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90794.jpgsave_picture_90794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90794.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:61EA4D30E8E291E9C01490A2FCC2F04D822107DA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90796.jpgsave_picture_90796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90796.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Prong - Carved into Stone (2012) [FLAC|Lossless]<Crossover/Thrash/Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90798.jpgsave_picture_90798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90798.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Prong - Carved into Stone (2012) [FLAC|Lossless]<Crossover/Thrash/Groove Metal>
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90800.jpgsave_picture_90800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90800.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Eric Marienthal - It's Love (2012) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90801.jpgsave_picture_90801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90801.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Richie Sambora(Bon Jovi) - Acoustic Set At Spain (1998) [MP3|320 кб/с]<Acoust
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90802.jpgsave_picture_90802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90802.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:DE97B6B01AABB914BB9F06881F7CDC639BC96B15
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90803.jpgsave_picture_90803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90803.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:D5F4630A5E1E2F6A091C2B781957067735989BF8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90805.jpgsave_picture_90805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90805.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:98CC428E15173E88DAADD05F5BE590E45720ABF1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90808.jpgsave_picture_90808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90808.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Azkend (P) [En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90810.jpgsave_picture_90810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90810.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FastStone Capture 7.1 Final + portable [Английский + Русифика�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90812.jpgsave_picture_90812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90812.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ FastStone Capture - утилита для снятия скриншотов ра
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90817.jpgsave_picture_90817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90817.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ FastStone Capture - утилита для снятия скриншотов ра
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90818.jpgsave_picture_90818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90818.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ FastStone Capture - утилита для снятия скриншотов ра
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90823.jpgsave_picture_90823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90823.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:83A8CB2E138115453C59A41F4FAAC93A332CACD6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90824.jpgsave_picture_90824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90824.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:8BACB0F411C29E44D4226837DCACFD702AE837DC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90828.jpgsave_picture_90828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90828.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:7EB78EDB647750CE73D70DDC3A6F1F3CFC95217B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90832.jpgsave_picture_90832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90832.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Rusko - Songs (2012) [FLAC|Lossless|tracks] <Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90834.jpgsave_picture_90834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90834.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Rusko - Songs (2012) [FLAC|Lossless|tracks] <Dubstep>
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90840.jpgsave_picture_90840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90840.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mozilla Firefox 13.0  Beta 1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90844.jpgsave_picture_90844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90844.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Mozilla Firefox - очень быстро работающий браузер, �
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90850.jpgsave_picture_90850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90850.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:8DE1FDEADF482DFA9CE67F1FC40572434EAA7DDF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90851.jpgsave_picture_90851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90851.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Manowar - Японские издания и Сборники (1982-2002) [MP3|1
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90852.jpgsave_picture_90852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90852.jpg" />
 </div>
 
 

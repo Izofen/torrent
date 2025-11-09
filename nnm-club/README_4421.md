@@ -6,7 +6,7 @@ Artie Shaw - 1946-1950 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138131.jpgsave_picture_138131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138131.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Hit News Vol. 5 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138132.jpgsave_picture_138132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138132.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138133.jpgsave_picture_138133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138133.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:CBC3225FE030F179890EECD778B68E90277CF618
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138135.jpgsave_picture_138135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138135.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Photo Supreme 5.3.0.2616 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138136.jpgsave_picture_138136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138136.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:BDDF24852FD0B1FAB5470AB4B9CF6148333BC030
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138140.jpgsave_picture_138140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138140.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:02A69AFC0876D4D7E46458C08C6603BE2BB2D132
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138141.jpgsave_picture_138141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138141.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:02A69AFC0876D4D7E46458C08C6603BE2BB2D132
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138142.jpgsave_picture_138142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138142.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:C25D7E51012AA27EBD2867324DF0CA8D240F4751
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138144.jpgsave_picture_138144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138144.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8190608B27C1C129E92C14ABC75D3D05FCEC34F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138145.jpgsave_picture_138145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138145.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Stand Up (2016.12.18) WEB-DL [H.264/720p-LQ] (Концерт Стаса Стар
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138146.jpgsave_picture_138146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138146.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:B78B3A31A937D7C9CA9392475BFE1A32BE12DEF5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138147.jpgsave_picture_138147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138147.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:4F8E9BADF5D0C15DE028F1746031CF7439C0C523
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138149.jpgsave_picture_138149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138149.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:E63E6B41F050732EA53A7F8C6DB1EE7E449BA784
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138150.jpgsave_picture_138150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138150.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Boris FX Continuum Complete 2021 v14.0.1.602 (PlugIns OFX) 2021 v14.0.1.602 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138153.jpgsave_picture_138153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138153.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:D8605C0A836BCC3A3C0E791DD4292F96BD30020F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138154.jpgsave_picture_138154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138154.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:04014CC72BD8C99FAC1784901D15FD254C4587A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138156.jpgsave_picture_138156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138156.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:04014CC72BD8C99FAC1784901D15FD254C4587A3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138157.jpgsave_picture_138157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138157.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:B7871C17EA415688C72D5B8223F6A897EF2ADF87
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138158.jpgsave_picture_138158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138158.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Vintage & Morelli - Hymn To The Night (2019) Silk Music [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138159.jpgsave_picture_138159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138159.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:6B3E56087A2E1707DE3FE79C5975AC0CC5592842
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138162.jpgsave_picture_138162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138162.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:823C05C3356FF8273E302DB42706C99F99791746
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138163.jpgsave_picture_138163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138163.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Mark Knopfler: Концерт в Берлине 2007 / Live In Berlin 2007 (2014
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138164.jpgsave_picture_138164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138164.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138165.jpgsave_picture_138165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138165.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:DD7A7DE0C928B94D0764F28DF074D9489217E1F2
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138168.jpgsave_picture_138168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138168.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Союз Новогодний (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138169.jpgsave_picture_138169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138169.jpg" />
 </div>
 
 

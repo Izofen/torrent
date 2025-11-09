@@ -6,7 +6,7 @@ Your Android (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30477.jpgsave_picture_30477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30477.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30488.jpgsave_picture_30488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30488.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30558.jpgsave_picture_30558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30558.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Haunting of Joni Evers (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30616.jpgsave_picture_30616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30616.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ECO HOLE (2021) [Ru/Multi] (1.06) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30637.jpgsave_picture_30637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30637.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Cursed Digicam (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30670.jpgsave_picture_30670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30670.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30671.jpgsave_picture_30671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30671.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Decepticon [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30707.jpgsave_picture_30707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30707.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Among Ashes (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30746.jpgsave_picture_30746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30746.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 16745997) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30766.jpgsave_picture_30766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30766.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30897.jpgsave_picture_30897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30897.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack FitGirl [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30907.jpgsave_picture_30907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30907.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30994.jpgsave_picture_30994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30994.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dropsy (2015) [Ru/Multi] (1.5) License GOG [Warm Damp Hug Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31163.jpgsave_picture_31163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31163.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31174.jpgsave_picture_31174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31174.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31184.jpgsave_picture_31184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31184.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31192.jpgsave_picture_31192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31192.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31205.jpgsave_picture_31205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31205.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31212.jpgsave_picture_31212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31212.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Undead Realm: Ego (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31214.jpgsave_picture_31214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31214.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31253.jpgsave_picture_31253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31253.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ HELLSEED: All Chapters (2022) [Ru/Multi] (Build 16646433) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31285.jpgsave_picture_31285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31285.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31294.jpgsave_picture_31294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31294.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31306.jpgsave_picture_31306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31306.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31328.jpgsave_picture_31328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31328.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (Build 1374323) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31378.jpgsave_picture_31378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31378.jpg" />
 </div>
 
 

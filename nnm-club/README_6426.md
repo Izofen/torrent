@@ -6,7 +6,7 @@ Topaz Photo AI 1.1.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203759.jpgsave_picture_203759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203759.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SimpleMind − Mind Mapping 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203760.jpgsave_picture_203760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203760.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:01654E56A0351433B118BDB1B4888C1BB1C12F9B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203761.jpgsave_picture_203761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203761.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:560E4889F47F35E7BB849A71067FFCB9BB900CE3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203762.jpgsave_picture_203762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203762.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:63459A063FD775E4959C454D26E99A5757232975
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203763.jpgsave_picture_203763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203763.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:59865B492281142838A1DA3B41EAE74151BD70D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203764.jpgsave_picture_203764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203764.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:97CA4FEC27FAA61E00CD4C3A70450F93EF6DB7CE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203765.jpgsave_picture_203765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203765.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C49667AF1580CA15A7849B57FD739B6112ADB56F
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203766.jpgsave_picture_203766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203766.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:665031FB2991F08E3AC5E15D7181FF658ABAA2BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203767.jpgsave_picture_203767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203767.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:424BA9489D30F543BD5D1A2AA6B9AB062A8FA048
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203768.jpgsave_picture_203768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203768.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ GraphicConverter for Mac 12.0.4 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203770.jpgsave_picture_203770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203770.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:ED52000F8E45E88FF4A808C4AED817A87BADAE35
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203771.jpgsave_picture_203771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203771.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:4C0384A26E8FADB3B2B59A4DFF569BF8CFF1A8B6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203772.jpgsave_picture_203772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203772.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:DFDB0E756E33D7AB11F1110D1182E3C985E31E5F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203773.jpgsave_picture_203773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203773.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:2529907F9A07A9CE91F4A460657BE1296C6BCDDF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203774.jpgsave_picture_203774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203774.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Analog Sunshine - The Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203775.jpgsave_picture_203775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203775.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:763E0F71BAEE3AEBABC51B31B5A723614E9423EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203776.jpgsave_picture_203776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203776.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:33E761174F245C9B01040CA3F1C2C9B5FD92D4A9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203777.jpgsave_picture_203777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203777.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ New Graceland (2021) WEB-DL [H.264/1080p]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203778.jpgsave_picture_203778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203778.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:17DF33DD8EB3C52FD0F23C82D3E62D4B730F1E5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203779.jpgsave_picture_203779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203779.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:F331EA07ABC13522AE3D988A1C871F53D0F350CA
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203780.jpgsave_picture_203780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203780.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:0C8725CC43E7873880112D53D9A4AB699FF71B84
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203781.jpgsave_picture_203781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203781.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:70B66AEB89B33D16EA07A9C46FD0B5EA1803FFD4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203783.jpgsave_picture_203783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203783.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:ED981681FE265C2C66F42DFE2D7EE59ED0E7775D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203784.jpgsave_picture_203784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203784.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.1.0.56) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203785.jpgsave_picture_203785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203785.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F0ABBCBF39EB079A80BC87F4E9B12202407523B6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203786.jpgsave_picture_203786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203786.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Adobe Photoshop 2025 26.11.1.5 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212280.jpgsave_picture_212280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212280.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Winxvideo AI 4.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212595.jpgsave_picture_212595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212595.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VideoProc Converter AI 8.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212596.jpgsave_picture_212596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212596.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ PotPlayer 251024 (1.7.22685) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212598.jpgsave_picture_212598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212598.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Radiant Photo 2.1.1.790 + Addons Pack [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212629.jpgsave_picture_212629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212629.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Adobe Photoshop 2026 27.0.0.25 Full Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213420.jpgsave_picture_213420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213420.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cowon jetAudio 8.1.11.22010 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213445.jpgsave_picture_213445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213445.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Adobe Photoshop 2026 27.0.0.25 Light Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213548.jpgsave_picture_213548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213548.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Capture One 23 Enterprise 16.7.0.3201 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213579.jpgsave_picture_213579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213579.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ dslrBooth Professional 6.42.2011.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214104.jpgsave_picture_214104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214104.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215102.jpgsave_picture_215102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215102.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Photoshop 2026 27.0.0.25 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220291.jpgsave_picture_220291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220291.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Photoshop Lightroom Classic 2026 15.0.0.17 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220588.jpgsave_picture_220588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220588.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Illustrator 2026 30.0.0.123 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220683.jpgsave_picture_220683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220683.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe InDesign 2026 21.0.0.192 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220790.jpgsave_picture_220790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_220790.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PT Portrait 3.0 Studio Edition RePack (& Portable) by 78Sergey-Dinis124 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229217.jpgsave_picture_229217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229217.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Adobe Illustrator 2026 30.0.0.123 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230061.jpgsave_picture_230061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230061.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ PreSonus Studio One Pro 7 7.2.3 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230258.jpgsave_picture_230258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230258.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Steinberg - Cubase Pro 14 14.0.40 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230261.jpgsave_picture_230261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230261.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Foobar2000 2.25.3 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230316.jpgsave_picture_230316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230316.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ BeeConverter Pro 2025 3.2.0 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230330.jpgsave_picture_230330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230330.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Zoom Player MAX 22.0 Beta 3 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230371.jpgsave_picture_230371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230371.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Adobe Bridge 2026 16.0.0.63 RePack by KpoJIuK [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230402.jpgsave_picture_230402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230402.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:09F19D3D0AC99FD919EBA16CFADDC82798C16B9B
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231432.jpgsave_picture_231432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231432.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ PTE AV Studio Pro 11.0.6 (x64) RePack (& Portable) by TryRooM [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231446.jpgsave_picture_231446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231446.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ GeoSetter 3.5.3 + Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231559.jpgsave_picture_231559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231559.jpg" />
 </div>
 
 

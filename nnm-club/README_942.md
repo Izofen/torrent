@@ -6,7 +6,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24831.jpgsave_picture_24831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24831.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:539E4B6DBCE91C988CBE8BFC0D7B580FD9A2F66A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24832.jpgsave_picture_24832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24832.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C52D64257D3EC091D1D75F33F2F88B3D97C8BF25
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24833.jpgsave_picture_24833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24833.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1F975B464DF9126872801D8638B11B172F1F4F84
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24834.jpgsave_picture_24834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24834.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:27F63A0B2D1DD0B586B76E30A0EE0F633DAA1D6F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24835.jpgsave_picture_24835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24835.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24836.jpgsave_picture_24836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24836.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B7C8D86802563ABB72E384671C40B42C41DE296F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24838.jpgsave_picture_24838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24838.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:E7D890B16F02677682DFFF8DB574A17C400768E2
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24839.jpgsave_picture_24839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24839.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Discovery. Голубые ангелы: Год в жизни / Blue Angels: A Ye
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24840.jpgsave_picture_24840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24840.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Audacity 3.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24841.jpgsave_picture_24841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24841.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24843.jpgsave_picture_24843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24843.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Mers Academy, Владислав Казмирук | Работа с осцилл
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24844.jpgsave_picture_24844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24844.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:4AFFF5CDBF1F67C8857D664A8ADA0D9701AE9DA5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24845.jpgsave_picture_24845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24845.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mers Academy, Владислав Казмирук | Мастер-класс по
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24846.jpgsave_picture_24846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24846.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NVIDIA GeForce Desktop Game Ready 572.70 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24847.jpgsave_picture_24847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24847.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C5EBE4C78D0D3AFDC5833539EA8AB30F0EC1B88C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24848.jpgsave_picture_24848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24848.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Meta* обязана ответить на обвинения в удалени�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24849.jpgsave_picture_24849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24849.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Combat Mission: Black Sea (2021) [Multi] (2.18.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24850.jpgsave_picture_24850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24850.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:14F37C98412EF2B59F3EB6A713B1E0EED59685F5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24851.jpgsave_picture_24851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24851.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Launcher for zapret 2.4 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24852.jpgsave_picture_24852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24852.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack Decepticon [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24853.jpgsave_picture_24853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24853.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:90C982026CD04E5C107EB6E11BDCFF3465C0B352
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24854.jpgsave_picture_24854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24854.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ The KMPlayer 4.2.3.14 repack by cuta (build 10) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24855.jpgsave_picture_24855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24855.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:D70EEFFFCBCDBDF81003A80A0ADEA94C8CCACE81
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24856.jpgsave_picture_24856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24856.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:719AA5D122A6F5FDAC1AF50FB5F0A140285DE4FE
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24857.jpgsave_picture_24857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24857.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:29C1EF8399808FE151B2D5A824BA044E5C346E63
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24858.jpgsave_picture_24858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24858.jpg" />
 </div>
 
 

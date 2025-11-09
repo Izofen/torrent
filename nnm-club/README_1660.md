@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43517.jpgsave_picture_43517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43517.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E2ED68FACF8F9DB7D30A03454DF2C8978FAF8570
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43518.jpgsave_picture_43518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43518.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FxSound 1.1.27.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43519.jpgsave_picture_43519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:73C1C40437E6AE093DAA9799A836E104EF5E051A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43520.jpgsave_picture_43520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43520.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4B32630773FCC9EB1D8C50E1478964539196AEE3
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43521.jpgsave_picture_43521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43521.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4B32630773FCC9EB1D8C50E1478964539196AEE3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43522.jpgsave_picture_43522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43522.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ EVOTINCTION (2024) [Multi] (build 15675746/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43523.jpgsave_picture_43523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43523.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43524.jpgsave_picture_43524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43524.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Adobe Photoshop 2024 25.12.0.806 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43525.jpgsave_picture_43525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43525.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:22276559ED3DCECB617A7ABCEF826285812398B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43526.jpgsave_picture_43526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43526.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Spyro: Year of the Dragon (2000) [Ru] (2.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43527.jpgsave_picture_43527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43527.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43528.jpgsave_picture_43528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43528.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack FitGirl [Deluxe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43529.jpgsave_picture_43529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43529.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:56F993FDC04ABFDD4EE5A47FE20B705AF0758028
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43530.jpgsave_picture_43530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43530.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:0B86AD80CD1BD283EF851AD4E2E0EA36E4F06333
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43531.jpgsave_picture_43531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43531.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:40A46E7D71922D1347E777E6A9B1D305A8183701
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43532.jpgsave_picture_43532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43532.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43533.jpgsave_picture_43533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43533.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [15.09.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43534.jpgsave_picture_43534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43534.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43535.jpgsave_picture_43535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43535.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:1FEE1B41FFFF741D81F9C0A698A45C2E517D7262
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43536.jpgsave_picture_43536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43536.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3EDE3B6F1195468E3330BAB22F2B8D9A49F3A18C
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43537.jpgsave_picture_43537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43537.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:2DD3C4122C94393B2C9DE93CDE0972C02DFB83E0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43538.jpgsave_picture_43538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43538.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ FL Studio Producer Edition 24.1.1.4285 - All Plugins Edition (Rev.1) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43539.jpgsave_picture_43539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43539.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:5AD31F4722FA31F3403F141E60EE8AC0F44A3988
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43540.jpgsave_picture_43540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43540.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mount and Blade: Warband (2010) [Multi] (2.069/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43541.jpgsave_picture_43541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43541.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Borderlands: Trilogy (2013-2019) [Ru/Multi] (1.5.0/1.8.5/1.0.9/dlc) Repack dixen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43542.jpgsave_picture_43542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43542.jpg" />
 </div>
 
 

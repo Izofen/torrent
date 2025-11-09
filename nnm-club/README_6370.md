@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202268.jpgsave_picture_202268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202268.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7A4C4E08EEF9B7D83660F2FA939B93518BC05DB8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202269.jpgsave_picture_202269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202269.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:580245B9A09C6F7E02EC134479455C6CC0FB3563
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202270.jpgsave_picture_202270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202270.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1A0B905DAC1090082DFAF75A658B2E7B2AE15627
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202271.jpgsave_picture_202271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202271.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [22.08.2023]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202272.jpgsave_picture_202272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202272.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Udemy, Arno Pretorius | Python Django: Build an E-commerce Store - 2023 (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202273.jpgsave_picture_202273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202273.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:0B7EEE9E70DCF52C7027A199D17D845512D3E91A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202274.jpgsave_picture_202274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202274.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:9519E927B3B0240CB419FBD8853A98D2D22137B8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202275.jpgsave_picture_202275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202275.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:A79AFD2DC975D40B5406FC2F71EA9C77DFDEEC3D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202276.jpgsave_picture_202276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202276.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:17A20A71F9490CC53A7FB4622AD02376F35F0E0F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202277.jpgsave_picture_202277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202277.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FDCE1D0DDFBFEDB25DAA51FD38DB61D447631830
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202278.jpgsave_picture_202278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202278.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:85ED94392EDAD03019A85776400EFD1348E74D01
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202281.jpgsave_picture_202281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202281.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Undead Wilderness: Survival (2023) [Ru/Multi] (0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202282.jpgsave_picture_202282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202282.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:485D47CF911CD452DDFD1907C2A9E95D4B0F7022
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202283.jpgsave_picture_202283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202283.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B79F96EC82B5DA3FEC87A1ACBAFC1033C73665DC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202284.jpgsave_picture_202284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202284.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A87CB93AFD0932560C63A2FA6B9A2F3AEAA766D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202285.jpgsave_picture_202285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202285.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:3CB16AE0DC2F48924659D02C1FD778C5B16A76EF
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202286.jpgsave_picture_202286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202286.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ JavaBegin | Авторизация OAuth2 из frontend – на основе Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202287.jpgsave_picture_202287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202287.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:3D1269408C700C5AF89D6C4F880BD5D82D5C67F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202288.jpgsave_picture_202288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202288.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7997F8DF8D52720D40339F383651B4C84C60077F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202289.jpgsave_picture_202289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202289.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:97BCAEE46B23031DE61C0153326BCEB305D2CD16
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202290.jpgsave_picture_202290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202290.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202291.jpgsave_picture_202291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202291.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:EC7120948EB14037DB14B22050314D628AB50068
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202292.jpgsave_picture_202292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202292.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:4E201C3C4E13B29BAA15674CFBF2AE479EDBC38E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202293.jpgsave_picture_202293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202293.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Toto Cutugno - Maestro Collection (2012) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202294.jpgsave_picture_202294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202294.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Remorse: The List (2022) [Multi] (1.1.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202295.jpgsave_picture_202295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202295.jpg" />
 </div>
 
 

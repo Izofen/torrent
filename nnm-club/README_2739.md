@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71964.jpgsave_picture_71964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71964.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4E0934A88AD02135DE4748F6E08AEBC6EB0EDA85
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71965.jpgsave_picture_71965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71965.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Vendetta - Geetroit Wolves (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71966.jpgsave_picture_71966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71966.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:57D15B6AA73452AB2F6868C986C8EA312BC0BE2C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71967.jpgsave_picture_71967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71967.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Spektra's History - 17th Anniversary (2025) [MP3|320 Kbps] <Breaks, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71968.jpgsave_picture_71968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71968.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:836D046696ED11D13593CDC6AEA10C8322DC1EAE
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71969.jpgsave_picture_71969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71969.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Aillion - Война Миров (2015) [FLAC|Lossless|tracks] <Melodic Heavy Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71970.jpgsave_picture_71970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71970.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:7EC642B9C0AFF7D41551C52E5E1A918022769448
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71971.jpgsave_picture_71971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71971.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:0B62A39B23F952F4E801B0DE6A51E14942CF66E4
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71972.jpgsave_picture_71972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71972.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Venom - Canadian Assault (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71973.jpgsave_picture_71973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71973.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Redux Selection, Vol. 1 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71974.jpgsave_picture_71974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71974.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Ablazing Winter Sessions 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71975.jpgsave_picture_71975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71975.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:5EE5292DA8C718CB110D2B80E1D2D5F88D22C55D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71976.jpgsave_picture_71976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71976.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:78A7848B21CAEED9ADEC51965ED9C638BFDE43EB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71977.jpgsave_picture_71977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71977.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:9D79F6653E7A864D57E2029146C2AE294E2403CC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71978.jpgsave_picture_71978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71978.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:731DEF1D2A9D8B6CB3FB82200FD957BE28FA76B2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71979.jpgsave_picture_71979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71979.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:AAC88CA316C59A000B9EBA6390C1BC152FCF170C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71980.jpgsave_picture_71980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71980.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:99D1E694999A0707AD0D8975C85967B9777E3F0D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71985.jpgsave_picture_71985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71985.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A60C21D3425E4A8419AC06FB1EF56CA05F434A7F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71987.jpgsave_picture_71987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71987.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:70A7F00B4AAE29B26C24DE20F54F7C6430C18781
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71994.jpgsave_picture_71994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71994.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B1461C535545C5BDC1DDE9FAD472406403AFE230
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72005.jpgsave_picture_72005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72005.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VKMusic 4.29.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72009.jpgsave_picture_72009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72009.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VKMusic 4.29.1 [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72020.jpgsave_picture_72020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72020.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VKMusic 4.29.1 [Русский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72024.jpgsave_picture_72024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72024.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C3CAA1D2DE652F5D48F9C73FCD8DBAC001428F48
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72025.jpgsave_picture_72025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72025.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:C3CAA1D2DE652F5D48F9C73FCD8DBAC001428F48
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72027.jpgsave_picture_72027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_72027.jpg" />
 </div>
 
 

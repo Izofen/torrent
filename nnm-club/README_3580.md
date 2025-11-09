@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113455.jpgsave_picture_113455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113455.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TS Calc 1.8.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113456.jpgsave_picture_113456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113456.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Lords Of Black - Mechanics Of Predacity (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113457.jpgsave_picture_113457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113457.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Aborted - Vault Of Horrors (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113458.jpgsave_picture_113458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113458.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Shirley Horn & Dizzy Gillespie - Where Are You Going & The Real Thing (1996) Col
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113459.jpgsave_picture_113459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113459.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Herb Ellis Trio - Sweet And Lovely (1984) Atlas [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113460.jpgsave_picture_113460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113460.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:55FEDEE28BCEE30FE603883A0CE8E0618C4E0710
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113461.jpgsave_picture_113461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113461.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:FC7F71B577C648910C836E9BB9744217E6DCF447
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113462.jpgsave_picture_113462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113462.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Hans van Lier Band - It Could Have Been Less (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113463.jpgsave_picture_113463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113463.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:706395D5FA9EC91D011ADF84AC0B2E1752832204
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113464.jpgsave_picture_113464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113464.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:FD6183910C079C3B241CCA2757B254BE2417DC2E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113465.jpgsave_picture_113465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113465.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:DE1EB6AE642CB42904E71C5D39DBF81AB17CE8AB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113466.jpgsave_picture_113466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113466.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ WiFiSpoof 3.9.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113467.jpgsave_picture_113467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113467.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:9754D7D5379CBB6FB03A9062053F54E70523E6A9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113468.jpgsave_picture_113468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113468.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Gene Krupa - Drum Crazy (1936 - 1950) 2001, ASV [FLAC|Lossless|image + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113469.jpgsave_picture_113469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113469.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Cookie 7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113470.jpgsave_picture_113470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113470.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Darkthrone - Under a Funeral Moon (1993) Reissue, 2010, Peaceville [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113471.jpgsave_picture_113471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113471.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (Deluxe Edition) (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113472.jpgsave_picture_113472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113472.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:C4CDC21AB8E51E7F4F6E0439FF6A9E0CFEF8BFE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113473.jpgsave_picture_113473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113473.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:C4CDC21AB8E51E7F4F6E0439FF6A9E0CFEF8BFE5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113474.jpgsave_picture_113474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113474.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Opera GX 107.0.5045.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113475.jpgsave_picture_113475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113475.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:62AD8481CB6E5DED2815DAF9027309E96D4158D1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113476.jpgsave_picture_113476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113476.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Перекати-поле. Песни на стихи Лидии Козло
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113477.jpgsave_picture_113477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113477.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Kaleidoscope 4.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113478.jpgsave_picture_113478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113478.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Prism 10 v.10.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113479.jpgsave_picture_113479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113479.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:1DB97111E0BB2591A97C19420BA9FF4468CA6D1C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113480.jpgsave_picture_113480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113480.jpg" />
 </div>
 
 

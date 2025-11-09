@@ -6,7 +6,7 @@ Adobe Illustrator 2022 26.0.2.754 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156661.jpgsave_picture_156661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156661.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B8F383755BC183FC3E4EBFCF4AD34F3249E03640
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156662.jpgsave_picture_156662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156662.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:1D55C34278E725E98ECD48D971A2BD760626F9D8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156664.jpgsave_picture_156664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156664.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:F23BDDADB50CEFA267586CEE2224042EC89AD659
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156666.jpgsave_picture_156666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156666.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VirtualBox 6.0.0 Build 127566 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156667.jpgsave_picture_156667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156667.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:29CC5BA7CB2AEAC204C27C7737DA1CCC8CEDCC88
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156668.jpgsave_picture_156668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156668.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:865817781B9B8DFC6C1A5A9A8A49FFA6F13F4C1E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156669.jpgsave_picture_156669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156669.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:37D7BD21BD08DD71310DFEAB932E5514A4C8F066
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156670.jpgsave_picture_156670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156670.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:7EB63F21FAA33F789EB1C2D5602433D63B8FD0BA
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156671.jpgsave_picture_156671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156671.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:F959FA83C98199811AE365BA4872C5D9A01A1E32
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156672.jpgsave_picture_156672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156672.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:DB29CE79041BD0E25CE77C97AB4666F1D7C9757F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156674.jpgsave_picture_156674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156674.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:507265A291A63F95D6104BC95E9688793E066BAD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156677.jpgsave_picture_156677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156677.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:7872B6E6CF018B9C25D08EFC445E74A01E9405BC
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156678.jpgsave_picture_156678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156678.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:4EE210A012BF1A6082EE479A11EE7996D346A866
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156679.jpgsave_picture_156679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156679.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ uDesktop NEXT - vast wallpaper collection 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156680.jpgsave_picture_156680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156680.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Vocal Trance 2018 (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156682.jpgsave_picture_156682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156682.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:91A711EE45C2CE80F5051E2BADDEEC5862F601C6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156683.jpgsave_picture_156683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156683.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:B6EAAFB4FFBA1773AF28FFFD44201CDDAEC7490C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156684.jpgsave_picture_156684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156684.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ NNM-Club Unmarked Team - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156687.jpgsave_picture_156687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156687.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:BD36B80F88251B0AC832E06A8080464557A40EBA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156689.jpgsave_picture_156689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156689.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Latin Favourites Baila Conmigo (2016) [MP3|320 Kbps] <Urban, Reggaeton, Dem
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156692.jpgsave_picture_156692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156692.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Chris Rea - The Road To Hell Part 2 (1999) [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156693.jpgsave_picture_156693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156693.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:9E143827EA0CC3D3F9B6A98564F960295C0CBE88
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156694.jpgsave_picture_156694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156694.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156695.jpgsave_picture_156695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156695.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156696.jpgsave_picture_156696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156696.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ OCTOPATH TRAVELER (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156698.jpgsave_picture_156698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156698.jpg" />
 </div>
 
 

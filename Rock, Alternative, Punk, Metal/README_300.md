@@ -6,7 +6,7 @@ Seventh Wonder - The Testament (2022) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177383.jpgsave_picture_177383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177383.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177389.jpgsave_picture_177389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177389.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rainbow - Osaka Live (1978) Broudcast, 2023, Leftfield media [MP3|320 Kbps] <Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177402.jpgsave_picture_177402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177402.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gothminister - Empire Of Dark Salvation (2005) [FLAC|Lossless|image + .cue] <Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177410.jpgsave_picture_177410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177410.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Atomic Trip - 3 Albums (2017-2022) [MP3|320 Kbps] <Stoner, Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177440.jpgsave_picture_177440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177440.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dire Straits - Live 1978 - 1992 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177443.jpgsave_picture_177443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177443.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aggressiful - Инновация (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177452.jpgsave_picture_177452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177452.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Entheos - 3 Singles, 1 EP (2015-2022) [MP3|320 Kbps] <Progressive Metalcore, Bla
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177456.jpgsave_picture_177456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177456.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Faust - From Glory To Infinity (2010) [WavPack|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177462.jpgsave_picture_177462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177462.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Teach Me Violence - 2 Singles, 3 EP (2014-2022) [MP3|320 Kbps] <Dark Hardcore, M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177466.jpgsave_picture_177466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177466.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Creation's End - A New Beginning (2010) [WavPack|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177471.jpgsave_picture_177471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177471.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Van Halen - Dallas Live (1982) Broudcast, 2023, Golden Rain [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177481.jpgsave_picture_177481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177481.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Advent Horizon - A Cell To Call Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177532.jpgsave_picture_177532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177532.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ufo - Hot N’ Ready In Texas Live 1979 (2011) Remaster, 2023, Cleopatra Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177566.jpgsave_picture_177566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177566.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jon Anderson - Independent Stateside (1982) BROADCAST, 2023, Wickerman [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177574.jpgsave_picture_177574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177574.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Apotheus - Ergo Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177596.jpgsave_picture_177596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177596.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stonemiller Inc. - Welcome To The Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177603.jpgsave_picture_177603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177603.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Marcel Verand - Memorias De Un Despertar - Reclama Tu Libertad (2023) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177607.jpgsave_picture_177607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177607.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rave The Reqviem - EX​-​EDEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177619.jpgsave_picture_177619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177619.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Nauthik - Araganu (2020) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177628.jpgsave_picture_177628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177628.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Luca Brasi - The World Don’t Owe You Anything (2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177643.jpgsave_picture_177643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177643.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bone Pixie - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Da
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177654.jpgsave_picture_177654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177654.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Gothminister - Happiness In Darkness (2008) [FLAC|Lossless|image + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177661.jpgsave_picture_177661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177661.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Gothminister - Gothic Electronic Anthems (2003) [FLAC|Lossless|image + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177665.jpgsave_picture_177665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177665.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Enid - An Alternative History Volume One (1994) Remaster, Compilation, 2023,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177671.jpgsave_picture_177671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177671.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dusk - Wheels of Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal, har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177675.jpgsave_picture_177675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177675.jpg" />
 </div>
 
 

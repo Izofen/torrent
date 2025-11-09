@@ -6,7 +6,7 @@ Bartender 4 v.4.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167925.jpgsave_picture_167925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167925.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1F37DC4BA7157196945B2A025603E554794ECCE8
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167926.jpgsave_picture_167926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167926.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:08BD4A58AA699815BA7D561BDBEE2C3A9195853C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167927.jpgsave_picture_167927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167927.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:52CF305DCAE74F79ED79E79AB1880C962B5AC8B6
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167928.jpgsave_picture_167928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167928.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ iThoughtsX 5.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167929.jpgsave_picture_167929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167929.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Resume Templates - Design 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167930.jpgsave_picture_167930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167930.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:3F09C148DEE38C6D9209EA5F2556E50B2ED2B4A7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167931.jpgsave_picture_167931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167931.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B79B2C1C5CABE365748D5908702DC1DB778F26C7
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167932.jpgsave_picture_167932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167932.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Buddha Luxury, Vol. 3 (Esoteric World Music) (2019) [AAC|~318 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167933.jpgsave_picture_167933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167933.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Phil K & Habersham - Cloudbrake (2005) Single [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167934.jpgsave_picture_167934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167934.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1565C3125155F4093CBFE42A8A95CEAF95909306
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167935.jpgsave_picture_167935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167935.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Earthbound Collection, Vol. 2 (Compiled by Salvo Migliorini) (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167936.jpgsave_picture_167936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167936.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:8AA06C654AB48ACD114E7722593C02E848E97B0E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167937.jpgsave_picture_167937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167937.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:B2D3F7FBCBDFBAAC837EF5B30B302B23AC3F6F65
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167938.jpgsave_picture_167938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167938.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1924AD8144E09C312303E3B9431A254B7C229566
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167939.jpgsave_picture_167939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167939.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Disk Diet 5.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167940.jpgsave_picture_167940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167940.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Aiseesoft Video Enhancer 9.2.50 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167941.jpgsave_picture_167941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167941.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:876967CA33F8EB3DB1A813ADB8B3704800A81A01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167942.jpgsave_picture_167942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167942.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Downie 4 v4.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167943.jpgsave_picture_167943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167943.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bartender 4 v4.0.32b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167944.jpgsave_picture_167944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167944.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:7123D72844310B3E4718C5E56BEBC2EF69906BF7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167945.jpgsave_picture_167945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167945.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:3ADFD4A7324FCC1D95750D7BC8EFEF8C7FE3AF6F
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167946.jpgsave_picture_167946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167946.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:7621641BA479B8650A743CEB33298197A8375CE1
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167947.jpgsave_picture_167947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167947.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Native Instruments Massive X 1.4.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167948.jpgsave_picture_167948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167948.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Caravan 2 (2018) [AAC|~305 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167949.jpgsave_picture_167949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167949.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:5D6D69B0E33DECCF9B9A814A2CA5E307152205E2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167950.jpgsave_picture_167950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167950.jpg" />
 </div>
 
 

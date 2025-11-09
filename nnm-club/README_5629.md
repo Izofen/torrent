@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173347.jpgsave_picture_173347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3AB1DD6F4C32ABCC17EABC9E215D68680644D7F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173348.jpgsave_picture_173348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173348.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SHAMAN – «До самого неба» (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173349.jpgsave_picture_173349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173349.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:98614D9C7355DDEA19B123CFBEF14D3EDF0702CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173350.jpgsave_picture_173350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173350.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ The Orb And David Gilmour - Metallic Spheres In Colour (2023) Japanese Edition [
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173351.jpgsave_picture_173351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173351.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E935C3904B012345C7209436F32DB178ECB15A46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173353.jpgsave_picture_173353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173353.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Topaz Photo AI 2.0.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173354.jpgsave_picture_173354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173354.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6143EFA75CDC10CE9885E4B31A00D668CCBF0061
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173355.jpgsave_picture_173355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173355.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C6901ADA880CBE6D0E49099A8A1C34438C22C983
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173356.jpgsave_picture_173356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173356.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:CF8678EA9620131C8494473A3E8D3929EFA4DB8D
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173357.jpgsave_picture_173357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173357.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:EEF54014D9DDC86AFB53908A97268D204E7528D9
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173358.jpgsave_picture_173358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173358.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Icecream Video Editor Pro 3.09 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173359.jpgsave_picture_173359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173359.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ XMind Pro 2023 23.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173360.jpgsave_picture_173360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173360.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:1B1FA21014CF548DA0D1487D77C17D525ECC2493
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173361.jpgsave_picture_173361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173361.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173362.jpgsave_picture_173362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173362.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ PortableApps.com Platform 26.2.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173363.jpgsave_picture_173363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173363.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ MusicBrainz Picard 2.10 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173364.jpgsave_picture_173364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173364.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:EEAA7C8B135A7DD5158327BF47FD7512DE809149
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173365.jpgsave_picture_173365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173365.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Blank & Jones feat. Coralie Clement - Surround Me with Your Love (2023) 2EP [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173366.jpgsave_picture_173366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173366.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ LibreWolf 118.0.2-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173367.jpgsave_picture_173367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173367.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173368.jpgsave_picture_173368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173368.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Rec
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173369.jpgsave_picture_173369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173369.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:6096FEF227728888FFD543DF719EA9ADAB1F4A0C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173370.jpgsave_picture_173370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173370.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:704DE7806652BD5D93A9B78EF14EBDC7A8CE1428
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173371.jpgsave_picture_173371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173371.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ CudaText 1.200.0.1 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173372.jpgsave_picture_173372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173372.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Contacts Journal CRM 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173373.jpgsave_picture_173373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173373.jpg" />
 </div>
 
 

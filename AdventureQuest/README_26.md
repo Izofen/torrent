@@ -6,7 +6,7 @@ CRUELTY (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38305.jpgsave_picture_38305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38305.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38340.jpgsave_picture_38340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38340.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38379.jpgsave_picture_38379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38379.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Night is Grey (2024) [En] (1.4) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38397.jpgsave_picture_38397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38397.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38417.jpgsave_picture_38417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38417.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38537.jpgsave_picture_38537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38537.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38600.jpgsave_picture_38600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38600.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38642.jpgsave_picture_38642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38642.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38650.jpgsave_picture_38650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38650.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38652.jpgsave_picture_38652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38652.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38654.jpgsave_picture_38654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38654.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tintin Reporter Cigars of the Pharaoh / Репортер Тинтин: Сига�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38660.jpgsave_picture_38660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38660.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38725.jpgsave_picture_38725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38725.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38748.jpgsave_picture_38748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38748.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38780.jpgsave_picture_38780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38780.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Don't Be Afraid 2 (2024) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38833.jpgsave_picture_38833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38833.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38854.jpgsave_picture_38854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38854.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38886.jpgsave_picture_38886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38886.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38936.jpgsave_picture_38936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38936.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38940.jpgsave_picture_38940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38940.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39022.jpgsave_picture_39022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39022.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39054.jpgsave_picture_39054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39054.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39131.jpgsave_picture_39131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39131.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39241.jpgsave_picture_39241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39241.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39263.jpgsave_picture_39263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39263.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39450.jpgsave_picture_39450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39450.jpg" />
 </div>
 
 

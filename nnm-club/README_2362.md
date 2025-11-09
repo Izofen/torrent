@@ -6,7 +6,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61779.jpgsave_picture_61779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61779.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:939668ECF0076F4751E5A98E8D8E7466D133DA98
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61780.jpgsave_picture_61780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61780.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:01033FAA6A72250406243629C6022A17738BC2AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61781.jpgsave_picture_61781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61781.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Folder Player Pro v5.24 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61782.jpgsave_picture_61782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61782.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kekkon Yubiwa Monogatari | Легенда свадебных колец | Скa�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61783.jpgsave_picture_61783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61783.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61784.jpgsave_picture_61784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61784.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen / Зл�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61785.jpgsave_picture_61785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61785.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61786.jpgsave_picture_61786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61786.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ iTop VPN 5.4.0.5166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61787.jpgsave_picture_61787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61787.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:DFEE93C42977301D3069C0DA4AC78125CB4A4B32
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61788.jpgsave_picture_61788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61788.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B9455085D92B65B2EAC946447FAFCECEB255E6B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61789.jpgsave_picture_61789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61789.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:7902D624AEBBF00FB0F13B54B51E3C5AEBF7AAC1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61790.jpgsave_picture_61790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61790.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:2029E60C622474391FCBAD85A910E93F4088B8FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61791.jpgsave_picture_61791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61791.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:E2B8470C6289B42766044F86BA65ABBCD0ABB59E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61792.jpgsave_picture_61792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61792.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Juliagraule, Юлия Грауле | Онлайн-курс по фотограф
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61793.jpgsave_picture_61793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61793.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Domine - Champion Eternal (1997) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61794.jpgsave_picture_61794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61794.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:1E22AEDB7BC39BF3C7753C43B8517EF40FEB13C7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61795.jpgsave_picture_61795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61795.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:69C024F4716C42DAA660D4396DD7B863641B3088
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61796.jpgsave_picture_61796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61796.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B776FE6B69F45E242D11DDF8F0E84F0098C76923
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61797.jpgsave_picture_61797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61797.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ USB Device Tree Viewer 4.1.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61798.jpgsave_picture_61798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61798.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61799.jpgsave_picture_61799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61799.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:1B5141EAF3474509EA5721B0489B5836D9067FC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61800.jpgsave_picture_61800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61800.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:1F78E354D301C0BB4E8BE2022602CE8A2104BDD0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61801.jpgsave_picture_61801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61801.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:8AE4A8736C84882C3EF2C1E720017F38A0175B9E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61802.jpgsave_picture_61802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61802.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:B2705AF8BE5CE1C14A6BB51565E8CDA192EA0976
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61803.jpgsave_picture_61803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61803.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Cherry Laine - The Singles Collection - Projects, Versions & New (2023) Compilat
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61804.jpgsave_picture_61804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61804.jpg" />
 </div>
 
 

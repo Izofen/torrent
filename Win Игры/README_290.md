@@ -6,7 +6,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20625643) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250932.jpgsave_picture_250932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250932.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Snark Busters: High Society / Охотники за Снарком. Высшее
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250939.jpgsave_picture_250939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250939.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1DDE43BC4F3957E5397B2F234C0BC2B8BCA47B0A
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251033.jpgsave_picture_251033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251033.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251060.jpgsave_picture_251060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251060.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251240.jpgsave_picture_251240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251240.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251271.jpgsave_picture_251271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251271.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Other s [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251278.jpgsave_picture_251278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251278.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Snark Busters: High Society / Охотники за Снарком 3. Высше
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251295.jpgsave_picture_251295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251295.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Live Novels. Jane Austen's: Pride And Prejudice / Джейн Остин. Гор�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251297.jpgsave_picture_251297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251297.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mystery Case Files: Return to Ravenhearst / За семью печатями. В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251562.jpgsave_picture_251562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251562.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Living Legends 13: Haunting Melody (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251683.jpgsave_picture_251683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251683.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.10) License GOG [Part 1]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251691.jpgsave_picture_251691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251691.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251700.jpgsave_picture_251700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251700.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ DELTARUNE (2025) [Ru/Multi] (1.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251701.jpgsave_picture_251701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251701.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Secrets of Salem 2: The Phantom Cab / Секреты Салема 2: Призр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251703.jpgsave_picture_251703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251703.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Second Sun (2025) [En] (1.0.5b) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251707.jpgsave_picture_251707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251707.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251714.jpgsave_picture_251714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251714.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ No Players Online (2025) [Ru/Multi] (6000.024f1) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251746.jpgsave_picture_251746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251746.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Planet of Lana (2023) [Ru/Multi] (1.0.7.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251757.jpgsave_picture_251757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251757.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251765.jpgsave_picture_251765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251765.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Slayers X: Terminal Aftermath: Vengance of the Slayer (2023) [Ru/Multi] (1.0.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251771.jpgsave_picture_251771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251771.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Second Sun (2025) [En] (1.021) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251786.jpgsave_picture_251786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251786.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251789.jpgsave_picture_251789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251789.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.0.8) License GOG [Part 3]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251793.jpgsave_picture_251793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251793.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251795.jpgsave_picture_251795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251795.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251796.jpgsave_picture_251796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251796.jpg" />
 </div>
 
 

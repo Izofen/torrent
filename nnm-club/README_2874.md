@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84127.jpgsave_picture_84127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84127.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Chronicles of Shakespeare: Romeo & Juliet / Хроники Шекспира.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84128.jpgsave_picture_84128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84128.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D2D375041F4F1A26112D6B7A9B41D4320709239D
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84131.jpgsave_picture_84131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84131.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Seventy Dubstep - Electronic Essentials (2012) [FLAC|Lossless]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84133.jpgsave_picture_84133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84133.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Byrds - [31 альбом] Дискография (1965-2008) [MP3|320 кб/�
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84134.jpgsave_picture_84134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84134.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Dicter 3.31 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84135.jpgsave_picture_84135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84135.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Dicter – программа переводчик осуществляющая 
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84136.jpgsave_picture_84136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84136.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:FE9183EC315A4ABF310298D1C232BFBDBC95895C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84138.jpgsave_picture_84138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84138.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:EC10EC55F8A9173CAB41549F0EE15C9F84450C5A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84143.jpgsave_picture_84143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84143.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:07CB3617055166C266C11C36913FE46A5D4C362A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84144.jpgsave_picture_84144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84144.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Big Fish Legend / Легенда о большой рыбе (L) [Ru] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84146.jpgsave_picture_84146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84146.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:DEA0912B9C6D2D5026B7666656860E9BB578FB35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84147.jpgsave_picture_84147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84147.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:5469B134CF369A7B07A238DA2017B517AD72C007
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84149.jpgsave_picture_84149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84149.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:0B470F4B35CCCE48BA6CD62894ECBCDC0B693242
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84151.jpgsave_picture_84151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84151.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:17EBB1CAA007AA80C3DBFA4E99E27CFBC5ED284A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84153.jpgsave_picture_84153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84153.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:D469F51D6F0D9D6B9D401AD507AEA6FDDF193A85
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84154.jpgsave_picture_84154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84154.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:D469F51D6F0D9D6B9D401AD507AEA6FDDF193A85
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84158.jpgsave_picture_84158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84158.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D469F51D6F0D9D6B9D401AD507AEA6FDDF193A85
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84159.jpgsave_picture_84159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84159.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Voltage Racing / Voltage: Супергонки [Ru] (RePack) 2008 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84161.jpgsave_picture_84161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84161.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Voltage Racing / Voltage: Супергонки [Ru] (RePack) 2008 | Fenixx
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84162.jpgsave_picture_84162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84162.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:A2FB83253CF112F46640F7672D3C40653158742F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84168.jpgsave_picture_84168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84168.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:F5F98D30BDC75FF8355A71CBC559962F622E12FE
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84169.jpgsave_picture_84169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84169.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:F5F98D30BDC75FF8355A71CBC559962F622E12FE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84173.jpgsave_picture_84173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84173.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84177.jpgsave_picture_84177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84177.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84178.jpgsave_picture_84178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84178.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:719735D19A60E1012B60C23F6715E2435378476B
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84180.jpgsave_picture_84180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84180.jpg" />
 </div>
 
 

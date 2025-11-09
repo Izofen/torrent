@@ -6,7 +6,7 @@
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110943.jpgsave_picture_110943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110943.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Anjunadeep presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110960.jpgsave_picture_110960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110960.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sensuous Enemy - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111019.jpgsave_picture_111019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111019.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2024-04-18) [MP3|320 Kbps] <Tech Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111106.jpgsave_picture_111106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111106.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Claptone & Diplo - Live @ The Masquerade, Fabrik Madrid, Spain (2024-04-06) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111112.jpgsave_picture_111112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111112.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Pure Dreams, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111124.jpgsave_picture_111124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111124.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nova Scotia - Everytime We Touch (2023) [FLAC|Lossless|WEB-DL|tracks] <Club-Danc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111125.jpgsave_picture_111125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111125.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Nova Scotia - Think About The Angels (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111126.jpgsave_picture_111126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111126.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Armin van Buuren - A State Of Trance 1169 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111128.jpgsave_picture_111128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111128.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - The Sound of 2024 Mix 3: Rio De Janeiro (2024) [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111130.jpgsave_picture_111130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111130.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Black Hole House Music 04-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111134.jpgsave_picture_111134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111134.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Soul Button - Dual Realms Of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111148.jpgsave_picture_111148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111148.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111149.jpgsave_picture_111149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111149.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Nova Scotia - Before I Sleep (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111171.jpgsave_picture_111171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111171.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Pure Dreams, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111173.jpgsave_picture_111173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111173.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Soul Button - Master Minds (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111175.jpgsave_picture_111175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111175.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Audio - Where The Chaos Lies (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111198.jpgsave_picture_111198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111198.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Rooftop Lounge, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111240.jpgsave_picture_111240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111240.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111245.jpgsave_picture_111245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111245.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Blank & Jones - Sunset Coffee (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111263.jpgsave_picture_111263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111263.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - Rooftop Lounge: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111266.jpgsave_picture_111266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111266.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Spring Lounge 2024 - Sounds Like Sunshine (2024) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111352.jpgsave_picture_111352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111352.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Durante - Enter (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111369.jpgsave_picture_111369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111369.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Nena - 7 Albums (1983-1989) LP Collection [MP3|320 Kbps] <New Wave, Pop Rock, Sy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111411.jpgsave_picture_111411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111411.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111421.jpgsave_picture_111421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111421.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111438.jpgsave_picture_111438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111438.jpg" />
 </div>
 
 

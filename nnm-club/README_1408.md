@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36963.jpgsave_picture_36963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36963.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Polarr v6.10.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36964.jpgsave_picture_36964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36964.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:625DFBC3EFEFBB9C88AEB88F9DE0E350A30979FF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36965.jpgsave_picture_36965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36965.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1BA2393653115FC840AC54D16D9CF44372211440
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36966.jpgsave_picture_36966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36966.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:38844C428317FD9941BDF23C1698FF78B5130220
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36967.jpgsave_picture_36967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36967.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Да здравствуют музы! (2009) [MP3|320 Kbps] <Авторск
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36968.jpgsave_picture_36968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36968.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:B2DDFB0E622BA6DC860A6CD8FB1A1B5BD0A1F183
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36969.jpgsave_picture_36969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36969.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2E45AD4601867633729524C4168084888CB1B299
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36970.jpgsave_picture_36970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36970.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:1D3FDC2A8866724EDBBD3824EA8AEB98DA5F9CCF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36971.jpgsave_picture_36971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36971.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:85FF725DFE1E03DE9F328DC32E3B2A9C24DEFC9D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36972.jpgsave_picture_36972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36972.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:87C871878006A417433E056A75E1E226FA564A7B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36973.jpgsave_picture_36973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36973.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:8C5D7CA409C9E5FE02E66A07C0EF81638A0C7CED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36974.jpgsave_picture_36974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36974.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - World Organic 2024 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36975.jpgsave_picture_36975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36975.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Orbital - A Beginner's Guide (Best Of) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36976.jpgsave_picture_36976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36976.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Steve Vai, Generation Axe, Brian May, Zakk Wylde, Nuno Bettencourt, Yngwie Malms
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36977.jpgsave_picture_36977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36977.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:A8FB7C612EF803943C6F056AA84BD8DAB7075F87
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36978.jpgsave_picture_36978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36978.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ FacePic - AI Face App v1.9.1 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36979.jpgsave_picture_36979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36979.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:5207613F2B1D6EDC5FFA255E985980C3459BF2B0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36980.jpgsave_picture_36980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36980.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36981.jpgsave_picture_36981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36981.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:7AF66DFF47474C7A6F3491B0D680EF41FE04CFA8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36982.jpgsave_picture_36982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36982.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:780AA7BE2C04B686C7025DC95EE823F51B667357
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36983.jpgsave_picture_36983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36983.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:35DACF480E26802554892FF236B75C01BF52F0D3
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36984.jpgsave_picture_36984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36984.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:7ECA790074DC9AAF83C5FD96CFCBE1A3B56F78BA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36985.jpgsave_picture_36985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36985.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ XRecode 3 1.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36986.jpgsave_picture_36986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36986.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36987.jpgsave_picture_36987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36987.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Самые яркие хиты года 2024 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36988.jpgsave_picture_36988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36988.jpg" />
 </div>
 
 

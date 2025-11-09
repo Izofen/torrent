@@ -6,7 +6,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190017.jpgsave_picture_190017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190017.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ring of Fire - Gravity (2022) [MP3|320 Kbps] <Progressive, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190018.jpgsave_picture_190018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190018.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:292E3F7CC9B0F84D20493FCF6942A9191AB00738
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190019.jpgsave_picture_190019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190019.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:07E74B6150BF7E61C15D91293D252771CA972E18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190020.jpgsave_picture_190020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190020.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Trinkle Jazz Ensemble - Red, Hot & Blue Cole (2021) [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190021.jpgsave_picture_190021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190021.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:0D842D8C56C7DDC97AE65A84E431896AA38B8EF0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190022.jpgsave_picture_190022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190022.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:859ED52B7C91782F95ACD6E60C3EE7D533DBC93B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190023.jpgsave_picture_190023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190023.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:61BEE525AB1FF8C6B8260241E59E432BC280128D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190024.jpgsave_picture_190024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190024.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:8FD89ED1FE76116C28A5B30E405150F237054D73
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190025.jpgsave_picture_190025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190025.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4B593AB38FC32A796BA1E784054084C80733E67C
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190026.jpgsave_picture_190026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190026.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:ABFD59D27D85F40F77AAB0750855A8F0DB48D84E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190027.jpgsave_picture_190027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190027.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EBE6AE0F9300E3A81C206AD340E14BBE5D4ECFC3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190028.jpgsave_picture_190028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190028.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Najee - The Best Of (1998) Compilation [FLAC|Lossless|image + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190029.jpgsave_picture_190029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190029.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Arida Vortex - Riders Of Steel (2020) Japanese Edition [FLAC|Lossless|image + .c
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190030.jpgsave_picture_190030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190030.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Spotify 1.2.19.941 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190031.jpgsave_picture_190031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190031.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:A7223FA2DE9C2B279A9802C547D563720844FB8C
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190032.jpgsave_picture_190032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190032.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Amplified! - 2 Albums (2021-2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190033.jpgsave_picture_190033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190033.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Oak - The Quiet Rebellion Of Compromise (2022) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190034.jpgsave_picture_190034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190034.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:B0D9C6FA0EFAB6D4C162A5A88A04142329456CD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190035.jpgsave_picture_190035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190035.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Sketch 94 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190036.jpgsave_picture_190036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190036.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Hem Dutt | Full Stack iOS Development with Swift and Vapor (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190037.jpgsave_picture_190037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190037.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ GPXSee 13.8 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190038.jpgsave_picture_190038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190038.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Forever & Always - AURA (2022) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190039.jpgsave_picture_190039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190039.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:9419E34436E22DA481E8873E4C68428679FDDD0E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190040.jpgsave_picture_190040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190040.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Eternal Solitude - The Gates of the Beyond (2022) [MP3|320 Kbps] <Death, Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190041.jpgsave_picture_190041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190041.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:342AD7DEC7495F129B74D3DEA79EDF95A080E8A9
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190042.jpgsave_picture_190042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190042.jpg" />
 </div>
 
 

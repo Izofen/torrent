@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13617.jpgsave_picture_13617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13617.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fast Video Cutter Joiner 6.8.4.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13618.jpgsave_picture_13618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13618.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:78C841A721F0C2E124B9E888BB168E1A9C958616
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13619.jpgsave_picture_13619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13619.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:885D21C51C97DE34D2E33955B99D50E8975401CC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13620.jpgsave_picture_13620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13620.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:688168448FB940424CDDA0804D0FDECF3AE3A634
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13621.jpgsave_picture_13621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13621.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:38CF64E5B33CB8A1AFB18702A5E2B73A1FB36750
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13622.jpgsave_picture_13622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13622.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ qBittorrent 5.1.1 Portable by stalkerok (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13623.jpgsave_picture_13623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13623.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:52F6E76412F2F0C1768B22C482018B180E622E48
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13624.jpgsave_picture_13624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13624.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:FD3E2CAB3CA7D0450686AA3A17CAE76B26771486
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13625.jpgsave_picture_13625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13625.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:325F1635DEED8610B2010E2AD8FABC32162BAADE
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13626.jpgsave_picture_13626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13626.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:2C4492F8FB168EF6573957A98561756971A5A1E9
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13627.jpgsave_picture_13627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13627.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Vivat Slovakia (2024) [Multi] (1.0b12) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13628.jpgsave_picture_13628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13628.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:AC18DBA1AC038B977252A6384A36AA4FAD2D5247
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13629.jpgsave_picture_13629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13629.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 эп.] WebRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13630.jpgsave_picture_13630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13630.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:76F552BD143C41739549FF8930F6456FC325E504
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13631.jpgsave_picture_13631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13631.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Windows Manager 2.1.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13632.jpgsave_picture_13632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13632.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13633.jpgsave_picture_13633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13633.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Capture One 23 Enterprise 16.6.3.2987 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13634.jpgsave_picture_13634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13634.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:75AB4908C98E35740BA08078BEAA3BC8C7D952DC
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13635.jpgsave_picture_13635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13635.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:8A606E9E46427EF635DFB364EFADE81164A74B2C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13636.jpgsave_picture_13636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13636.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13637.jpgsave_picture_13637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13637.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:AD60B18C768A46C929DFA483861456CCDACC467C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13638.jpgsave_picture_13638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13638.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:AD60B18C768A46C929DFA483861456CCDACC467C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13639.jpgsave_picture_13639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13639.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:66FB9336F9D7812A7D74A2DFFB8836B206ACB52B
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13640.jpgsave_picture_13640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13640.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13641.jpgsave_picture_13641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13641.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 10 Pro 22H2 19045.5854 x64 by SanLex [Extreme Edition] [Ru-En] (2025.06.
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13642.jpgsave_picture_13642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13642.jpg" />
 </div>
 
 

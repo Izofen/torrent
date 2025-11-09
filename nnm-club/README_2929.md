@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86496.jpgsave_picture_86496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86496.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:48BF3696BC0C0BF7F56F2CB5167CA97422904EE6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86500.jpgsave_picture_86500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86500.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Шансон без тормозов 16 (2012) [MP3|256 кб/с]<Шансо
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86501.jpgsave_picture_86501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86501.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Любимые весенние хиты (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86502.jpgsave_picture_86502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86502.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:C33F50732D2370B61AAE16CBC86154AE131F46A4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86503.jpgsave_picture_86503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86503.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:9FF83C3952A84A0729CD96C05051CA3715C834C2
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86505.jpgsave_picture_86505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86505.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:FA59A8C9868D3846EB7F404A8D1FD724AF3ABCEC
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86510.jpgsave_picture_86510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86510.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - 50 Fitness & Aerobic Songs (2012) [MP3|320 кб/с]<House, Deep House, Tech
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86513.jpgsave_picture_86513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86513.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:7D40561F64FB874778DCC3869C210148268DC33F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86514.jpgsave_picture_86514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86514.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:EDD93B429F0FD50E02F32ABB60C8F6B84E2F7526
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86515.jpgsave_picture_86515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86515.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:FC9B647FF51EC15CFBE14292B215A0EC9A78974A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86516.jpgsave_picture_86516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86516.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:13F944B8E033CE8A599F499C53C82B1189A7E049
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86518.jpgsave_picture_86518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86518.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:13F944B8E033CE8A599F499C53C82B1189A7E049
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86519.jpgsave_picture_86519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86519.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:1053C0ACB13EDC0D533EEF4BA415B59743F90BA5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86520.jpgsave_picture_86520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86520.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:A52AAFC9B6C941CA4EC085551F3AAF31297CF07D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86521.jpgsave_picture_86521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86521.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:DB52B3D32DBBABE54094B31792B743906767976C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86522.jpgsave_picture_86522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86522.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:1A03E67DBD0D1CE25DF35C49442BD3BC122CA7B1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86526.jpgsave_picture_86526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86526.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:A432CADDD182E9E10F7B77433D393B11B7566E0B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86528.jpgsave_picture_86528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86528.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:A432CADDD182E9E10F7B77433D393B11B7566E0B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86529.jpgsave_picture_86529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86529.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:B9C9818D93681B13F248A857C106B8B47B5F2637
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86531.jpgsave_picture_86531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86531.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Shannon Tweeds: Attack of the Groupies (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86532.jpgsave_picture_86532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86532.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Warp [Ru] (RePack) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86533.jpgsave_picture_86533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86533.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:EEAA77F2EBD21C523E8287966456B59CEB7934F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86534.jpgsave_picture_86534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86534.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:8EF3BEB5824A254D1F3BCB3A1C1B7ED93682847D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86535.jpgsave_picture_86535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86535.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ MIDI Pack - Collection TWO Part 3 (MIDI) [Английский]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86536.jpgsave_picture_86536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86536.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86538.jpgsave_picture_86538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86538.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16825.jpgsave_picture_16825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16825.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Without Love Metal Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16826.jpgsave_picture_16826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16826.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Gary Moore - Gary Moore Live From Baloise Session (2025) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16827.jpgsave_picture_16827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16827.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:45A575F286BE0ADD0B3D1D9F643ED294751455E5
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16828.jpgsave_picture_16828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16828.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7F43F2BCB03BBB0A3C13397316ACE6237D4CD7B7
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16829.jpgsave_picture_16829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16829.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Valerie Star - I Can’t Forget You (2025) [MP3|320 Kbps] <Italo Disco, Synthpop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16830.jpgsave_picture_16830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16830.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:E561FE19F0E98FA5FBAEC53E62A7D3FADD5EF2C2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16831.jpgsave_picture_16831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16831.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Arifureta Shokugyou de Sekai Saikyou | Арифурэта: Сильнейший 
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16832.jpgsave_picture_16832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16832.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:AC3CA508BB75427DD03BF19F4E160060466BC063
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16833.jpgsave_picture_16833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16833.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - D.Trance 110 (incl. EYE-Trance 18) (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16834.jpgsave_picture_16834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16834.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:B6806D537DF97F512B431471E5D57E469AB35240
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16835.jpgsave_picture_16835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16835.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:9946FB50BBAF17A98DEB87818A2388D1E4B8E082
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16836.jpgsave_picture_16836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16836.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:E8069B8B07E291827FBFFEBF081346475780C126
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16837.jpgsave_picture_16837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16837.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:7AD24F3982F67129F78BE789994A99360C04663C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16838.jpgsave_picture_16838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16838.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7B735881F53F2037B68F1335A9C9FC278FF2AB02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16839.jpgsave_picture_16839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16839.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16840.jpgsave_picture_16840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16840.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:63E5DEC3DD07F3C92C5E3E8DAC33E8D8FBE5AD3C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16841.jpgsave_picture_16841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16841.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:BCAB8AAD282410C9DAA9EB2B6D50A9544B1C9C5A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16842.jpgsave_picture_16842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16842.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:F7EB26E03904FA58AC07EA9E2CA4F278BE752057
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16843.jpgsave_picture_16843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16843.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:9A399C28C4BDBA3152E0B73814479F1EA673505A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16844.jpgsave_picture_16844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16844.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:8D2167ECEDE8BFE06B7D470BFD5B94C4DF09DBB6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16845.jpgsave_picture_16845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16845.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:0D050F7B1D72D7EFBC75AA952019224D7A0E5F5F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16846.jpgsave_picture_16846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16846.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:54DA2B8C78C0E8B0E38E97D2526E963DF6EC986B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16847.jpgsave_picture_16847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16847.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Fort Firewall 3.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16848.jpgsave_picture_16848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16848.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ XnView MP 1.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16849.jpgsave_picture_16849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16849.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:175428A3B60FCB4673DF662DB5393E77F414EC50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16850.jpgsave_picture_16850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16850.jpg" />
 </div>
 
 

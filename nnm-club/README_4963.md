@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155077.jpgsave_picture_155077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155077.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5713F4462CD87B598C088B4B4D3397426D871B31
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155078.jpgsave_picture_155078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155078.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:70BC906C1F381E57213EA7155DDEAE79D2C4483F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155079.jpgsave_picture_155079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155079.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Christmas Wonderland 9 / Рождество 9. Страна чудес (2018) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155080.jpgsave_picture_155080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155080.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Espresso 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155081.jpgsave_picture_155081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155081.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1A9A8E494F9452FDD90502B0F4222B9A09499361
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155082.jpgsave_picture_155082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155082.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C9ED45C84970BDBE7E60663A6F8E87A833E99E7E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155083.jpgsave_picture_155083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155083.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:68D07F42B0B6DFE09126ECE1033AF959E2E2F31C
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155084.jpgsave_picture_155084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155084.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Eondry - 7 Echoes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedelic, Experime
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155085.jpgsave_picture_155085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155085.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Deep House Collection vol.150 (2017) [MP3|192-320 Kbps] <Deep House, Club H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155086.jpgsave_picture_155086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155086.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:C2DFC8323BD34F4CA0BE5DCAA1844A5AF087809B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155087.jpgsave_picture_155087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155087.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - не Громкие новинки недели 48 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155088.jpgsave_picture_155088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155088.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:2CD593640F56FB92D761CB014AE1CD5F46E28520
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155089.jpgsave_picture_155089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155089.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:4B2593D0DA3B86B04B784057B8FBCDB8907FB7C2
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155090.jpgsave_picture_155090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155090.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:0A511356D365B8E39DACE1D93CA4544269F769F2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155091.jpgsave_picture_155091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155091.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:F74294D209A0C80D8B68F2BD8D2AA1CCF7ED24CF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155092.jpgsave_picture_155092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155092.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:650D6432BC342D4E95948C1FAB12B5A1045FF473
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155093.jpgsave_picture_155093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155093.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:1AB8977F948F935ECCFD9057C61B19FF49529B2B
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155094.jpgsave_picture_155094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155094.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155095.jpgsave_picture_155095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155095.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Blender 4.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155096.jpgsave_picture_155096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155096.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Andre Rieu And His Johann Strauss Orchestra - The Christmas I Love (2011) [FLAC|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155097.jpgsave_picture_155097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155097.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Механ�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155098.jpgsave_picture_155098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155098.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:C2B5B75134BAA8F119AD223D88534DC3B51DD813
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155099.jpgsave_picture_155099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155099.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ LibreWolf 108.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155100.jpgsave_picture_155100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155100.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VPN Russia - VPN сервера в России 1.183 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155101.jpgsave_picture_155101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155101.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:ACB0ED89F2F0B2E63B7BD456BA944EC64D084475
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155102.jpgsave_picture_155102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155102.jpg" />
 </div>
 
 

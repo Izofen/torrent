@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13005.jpgsave_picture_13005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13005.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:43CF451DCFC9255CACF0478101C34950E0D6A8A5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13006.jpgsave_picture_13006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13006.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1E7CE541614947EE0C1F56E9C09B5B753B64772A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13007.jpgsave_picture_13007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13007.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13008.jpgsave_picture_13008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13008.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Too Many Clothes Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13009.jpgsave_picture_13009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13009.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:737126C3B3FC73627CFD8B03600C46F16D16215F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13010.jpgsave_picture_13010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13010.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:64A49B7208C9A5924A6F4C289799BBFF9CBC6F6F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13011.jpgsave_picture_13011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13011.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:64A49B7208C9A5924A6F4C289799BBFF9CBC6F6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13012.jpgsave_picture_13012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13012.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:64A49B7208C9A5924A6F4C289799BBFF9CBC6F6F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13013.jpgsave_picture_13013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13013.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:0B48322D45E1125BCC2A01FF605D84A3D2541F8E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13014.jpgsave_picture_13014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13014.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4A89664BEF2B7E4F9A38FFC81ACD8F5FBBE25CCA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13015.jpgsave_picture_13015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13015.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4A89664BEF2B7E4F9A38FFC81ACD8F5FBBE25CCA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13016.jpgsave_picture_13016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13016.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:D561328EA6099CC34E855F4F871C6D95B0DE8236
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13017.jpgsave_picture_13017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13017.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:A66EA6E8CDE72D517502D6C73A80D969E6B7A9D1
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13018.jpgsave_picture_13018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13018.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:D64647D0B9EE4D9114FD728B24430E508B74177F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13019.jpgsave_picture_13019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13019.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:258BEDA7966CC21C17A818B1FDCB0628151F00C0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13020.jpgsave_picture_13020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13020.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:136750A34C54AB75F487DC32ADBF63D50CFF345F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13021.jpgsave_picture_13021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13021.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:4278329F3A80C474C3B61B516AFBFA322B7AA0AB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13022.jpgsave_picture_13022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13022.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Control (2020) [Ru/Multi] (1.31 HotFix/dlc) License GOG [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13023.jpgsave_picture_13023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13023.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.64.0/dlc) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13024.jpgsave_picture_13024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13024.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:A88629C04A49B5958F3F9928BC6ADD667DE78A01
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13025.jpgsave_picture_13025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13025.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:7075315958F7095FA065EB7AA674407B82D52300
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13026.jpgsave_picture_13026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13026.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:7075315958F7095FA065EB7AA674407B82D52300
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13027.jpgsave_picture_13027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13027.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:C491341C7EA653E737F0C0C1AECE4B085A7F4843
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13028.jpgsave_picture_13028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13028.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13029.jpgsave_picture_13029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13029.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13030.jpgsave_picture_13030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13030.jpg" />
 </div>
 
 

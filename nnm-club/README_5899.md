@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185735.jpgsave_picture_185735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pratik Naik | Beauty and portrait retouching (2023) WEB-DL [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185737.jpgsave_picture_185737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185737.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Floorp Browser 12.3.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185738.jpgsave_picture_185738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185738.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CGMA, David Mooy | Introduction to Maya / Введение в Maya [En] (2020) P
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185739.jpgsave_picture_185739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185739.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6B98E540E8C24157603558C89BF8B45F60533E5C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185741.jpgsave_picture_185741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185741.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C0169D5329BF1EDEFC1B1F75CF4F548EFDE1FB58
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185742.jpgsave_picture_185742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185742.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:867886D3FFA6CAC8647DE3ADEE1889C6762F87F1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185743.jpgsave_picture_185743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185743.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Oxygen Not Included v.568201 (2019) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185745.jpgsave_picture_185745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185745.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:27AC897768FB0739ABFB9EF1E60350339170CEE3
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185747.jpgsave_picture_185747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185747.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:55077F1C32051075C7DABEBB6D28BE90B6DDB7BD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185748.jpgsave_picture_185748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185748.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185749.jpgsave_picture_185749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185749.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:E011232BD847D4EECFCCC330A044A1C7F0B8C992
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185751.jpgsave_picture_185751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185751.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:68F39EA98E168F8513062904D00A97636AE29BB6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185752.jpgsave_picture_185752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185752.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:3AA2A66CE5B3294F9817DA962D093D2812B1FA3B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185753.jpgsave_picture_185753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185753.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:F82798BD7FC897EA0AF9741EBDF7704BA12C6CF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185756.jpgsave_picture_185756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185756.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:4FBC70C3D1ADC64C5C719825D4EC80B86508015C
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185757.jpgsave_picture_185757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185757.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Udemy, Terry Mc Gonigle | Английский для собеседований
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185758.jpgsave_picture_185758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185758.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:98690F4740FCBCB6091C20C7C9FB7405274419EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185760.jpgsave_picture_185760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185760.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Shank 2 (2012) [Ru] (1.0dc120305) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185761.jpgsave_picture_185761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185761.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:CCBB1F3661E2D37DB86414D450C769AE70D8A164
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185763.jpgsave_picture_185763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185763.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:2E22723FCAABD1DA2AB4E0A384AEBAE8F54485A3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185764.jpgsave_picture_185764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185764.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Shank (2010) [Ru] (1.3) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185765.jpgsave_picture_185765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185765.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Udemy, Martin Yanev | ChatGPT Software Mastery: Build, Deploy & Sell AI Apps (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185767.jpgsave_picture_185767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185767.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Toontrack - EZdrummer 2.1.8 (build 21073) Standalone, VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185768.jpgsave_picture_185768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185768.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ iSenin - Не воскрес (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185770.jpgsave_picture_185770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185770.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:24C7C8FCFC4DF461963F2B176510F49A9E9EF6E9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185771.jpgsave_picture_185771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185771.jpg" />
 </div>
 
 

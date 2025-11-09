@@ -6,7 +6,7 @@ Pink Floyd - Ummagumma (1969) Japanese Edition, 2 x CD, Reissue, 1994, Toshiba E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209082.jpgsave_picture_209082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209082.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Black Furs - The Mayhem Years (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Ston
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209105.jpgsave_picture_209105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209105.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Don Henley [ex. Eagles] - 6 Albums (1982-2015) Collection [MP3|320 Kbps] <Soft R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209118.jpgsave_picture_209118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209118.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209121.jpgsave_picture_209121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209121.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:762883446304B6D231687C3E65ABE0AFA25AEE22
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209242.jpgsave_picture_209242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209242.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Adrian Benegas - Arcanvm - El mantra secreto de los espíritus (2023) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209266.jpgsave_picture_209266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209266.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Blood Diary - Дневник кровавых историй (2023) [MP3|320
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209296.jpgsave_picture_209296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209296.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Adrian Benegas - The Revenant (2019) Japanese Edition [MP3|320 Kbps] <Melodic He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209299.jpgsave_picture_209299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209299.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ ScreaMachine - Church of the Scream (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209710.jpgsave_picture_209710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209710.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ ZZ Top - Degüello (1979) Remastered, 2013, Rhino - Warner Records [FLAC 2.0|24/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209844.jpgsave_picture_209844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209844.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Hu - Rumble of Thunder (2022) Deluxe, Reissue, 2023, Better Noise Music [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209936.jpgsave_picture_209936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209936.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Creedence Clearwater Revival - Chronicle: The 20 Greatest Hits (1976) Remastered
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209964.jpgsave_picture_209964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209964.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Creedence Clearwater Revival - Chronicle: The 20 Greatest Hits (1976) Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209973.jpgsave_picture_209973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209973.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Vehemence - The Thoughts From Which I Hide (2000) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209982.jpgsave_picture_209982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209982.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Hu - Rumble of Thunder (Deluxe) (2023) [FLAC|Lossless|WEB-DL|tracks] <Mongol
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210177.jpgsave_picture_210177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210177.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Chris Angels - Chaos - The War of the Worlds (2023) [MP3|320 Kbps] <Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210278.jpgsave_picture_210278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210278.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210373.jpgsave_picture_210373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210373.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Levania - Fukushima (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210401.jpgsave_picture_210401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210401.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hellish War - Wine Of Gods (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210405.jpgsave_picture_210405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210405.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Elo OMEGA - Kisstadion ’77 (2023) 2CD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210483.jpgsave_picture_210483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210483.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:87EF08BFCDA0723B055B97DFE4A1FD89B4FA94D4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210503.jpgsave_picture_210503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210503.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Elegant Weapons - Horns For A Halo (2023) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210511.jpgsave_picture_210511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210511.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eloy - Echoes from the past (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210730.jpgsave_picture_210730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210730.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:CB28989A58236712D4081D351B6E265D99151B19
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210737.jpgsave_picture_210737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210737.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:A3FB48041C42CE2F7C9B3A2251ED5E2686CAFABF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210738.jpgsave_picture_210738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210738.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Who - Back At The Fillmore (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, New W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210797.jpgsave_picture_210797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210797.jpg" />
 </div>
 
 

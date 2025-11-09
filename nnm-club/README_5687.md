@@ -6,7 +6,7 @@ Twinkle Tray 1.15.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175185.jpgsave_picture_175185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175185.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CD4388936B27E0600D807D192D2B7DED8DBACD3C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175186.jpgsave_picture_175186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175186.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ISO Workshop 12.3 Pro RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175188.jpgsave_picture_175188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175188.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Hanker - In Our World (1994) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175189.jpgsave_picture_175189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175189.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:9D05FCF0689CBE9AB338AF73D73887943FCF3861
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175191.jpgsave_picture_175191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175191.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ OneCommander Pro 3.54.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175193.jpgsave_picture_175193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175193.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Vidmore Video Converter 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175194.jpgsave_picture_175194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175194.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:263CDCF2097201F889563383996F11B7DFA85526
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175196.jpgsave_picture_175196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175196.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ TapinRadio 2.15.96.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175197.jpgsave_picture_175197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175197.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Snappy Driver Installer Origin R749 / Драйверпаки 22.12.1 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175198.jpgsave_picture_175198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175198.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Exposure Software Snap Art 4 v4.1.3.351 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175200.jpgsave_picture_175200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175200.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:F2DC66B7B5DAC334266FFA461F366919A8D31022
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175201.jpgsave_picture_175201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175201.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:37DDB0F31432F6B3A2D1D49D5F3D7AB36DD4685C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175202.jpgsave_picture_175202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175202.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:F62692276A7C0032991DEE9B1BC7CEF806204246
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175204.jpgsave_picture_175204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175204.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ CrossOver 23.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175205.jpgsave_picture_175205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175205.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:5E7F13282DD6C00286CF14A9A320466312287155
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175206.jpgsave_picture_175206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175206.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Auslogics BoostSpeed 13.0.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175208.jpgsave_picture_175208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175208.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Vidmore Player 1.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175209.jpgsave_picture_175209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175209.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:C452E6AC8F9E6F27D25BCB1691B35AE0D87B81C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175210.jpgsave_picture_175210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175210.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Whisk 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175212.jpgsave_picture_175212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175212.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ RadioMaximus 2.32.1 RePack (& Portable) by TryRooM[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175213.jpgsave_picture_175213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175213.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C11BE4EFFAF9CB34B2847C8BC02C09E15B90255E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175214.jpgsave_picture_175214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175214.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:C5789ADB13FDD6BBBC2A50255EED172E801F3209
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175216.jpgsave_picture_175216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175216.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Auslogics Duplicate File Finder 10.0.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175217.jpgsave_picture_175217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175217.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:AC44C0CBF9DB905136D6D76988321DED3A3A4A50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175218.jpgsave_picture_175218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175218.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ App Cleaner & Uninstaller Pro 8.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175220.jpgsave_picture_175220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175220.jpg" />
 </div>
 
 

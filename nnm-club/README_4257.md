@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132053.jpgsave_picture_132053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132053.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132055.jpgsave_picture_132055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132055.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Revival 69: Возвращение легенды / Revival69: The Concert That 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132057.jpgsave_picture_132057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132057.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ RegCool 1.348 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132059.jpgsave_picture_132059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132059.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Drowning Pool - Drowning Pool (2010) [FLAC|Lossless]<Alternative metal / Post-Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132060.jpgsave_picture_132060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132060.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Dance With The Dead - Driven to Madness (2022) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132061.jpgsave_picture_132061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132061.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Cee Cee James - 3 Альбома (2008 - 2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132062.jpgsave_picture_132062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132062.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Cee Cee James - 3 Альбома (2008 - 2012) [MP3|320 кб/с]<Blues>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132063.jpgsave_picture_132063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132063.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:2766137BFE4AB58A15823C56BD5F066770F0F464
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132064.jpgsave_picture_132064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132064.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:24CBEFD4A6A732AB8DAC3317AEBDEF3A57B13ED7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132065.jpgsave_picture_132065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132065.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:C390E6B2219B0FB2C2CDD8865BCB9C29C6A55986
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132066.jpgsave_picture_132066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132066.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Soul Browser 1.3.89 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132067.jpgsave_picture_132067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132067.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Dropbox 1.6.11 Stable [Multilingual]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132068.jpgsave_picture_132068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132068.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Dropbox - программа для работы с облачным храни�
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132069.jpgsave_picture_132069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132069.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Hypnotised  A Journey Through British Trance Music 1993-2002 (2023) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132071.jpgsave_picture_132071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132071.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:D9529F98E9FE475064372E3A2ECB391DFE4FFB89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132073.jpgsave_picture_132073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132073.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:D9529F98E9FE475064372E3A2ECB391DFE4FFB89
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132075.jpgsave_picture_132075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132075.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:CDB65532906CD0E7A524FE9829FC24E64AC32213
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132076.jpgsave_picture_132076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132076.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F26C98FE704FE20F0759C02C476462528E1CB689
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132077.jpgsave_picture_132077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132077.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:43E082F0BF518DC3F8349E344470FBF0E79DB3D5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132079.jpgsave_picture_132079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132079.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - The Best Acid Jazz Covers (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132081.jpgsave_picture_132081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132081.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:843732EE74E799F2A159E54FB09A456D4AA626EF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132082.jpgsave_picture_132082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132082.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7BCC600E525EE88F5F17464753FA5F148E27BFFE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132083.jpgsave_picture_132083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132083.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wa
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132085.jpgsave_picture_132085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132085.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ KSB muzic - Маме не покажем!! (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132087.jpgsave_picture_132087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132087.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:D8DE7DEE4E03CE54AD72BEE134A5436FA8322D47
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132088.jpgsave_picture_132088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132088.jpg" />
 </div>
 
 

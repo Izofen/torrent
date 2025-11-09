@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123006.jpgsave_picture_123006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123006.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:538014700FE76886DD5809A1EBFF93BE33343CB6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123007.jpgsave_picture_123007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123007.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E5450F1C7F5F0169C632B2153C5163BD0150D71E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123008.jpgsave_picture_123008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123008.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123009.jpgsave_picture_123009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123009.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Stepik, Глеб Учитель | Проектирование архитект�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123010.jpgsave_picture_123010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123010.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Retreat to Enen (2022) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123011.jpgsave_picture_123011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123011.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5A1A18F994194F5EEA01A5F76E3A4CF4890EACF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123012.jpgsave_picture_123012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123012.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C0083444CF84177F5DB1B5CE2D5F75CE145C410A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123013.jpgsave_picture_123013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123013.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123014.jpgsave_picture_123014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123014.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Let's Get Rusty | Rust Developer Bootcamp (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123015.jpgsave_picture_123015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123015.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:AF4F4674FC819E507D1D9DA78CC6B1A8CBAA013C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123016.jpgsave_picture_123016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123016.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:9AF3F002E19CDF2666A58215CDB4051EFA8CF634
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123017.jpgsave_picture_123017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123017.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:F5DA919BEAC272E14DA414B075687D7A36542437
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123018.jpgsave_picture_123018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123018.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ jetAudio HD Music Player Plus v12.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123019.jpgsave_picture_123019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123019.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:09AE47055FB8223CC52730C2D91F88A14FD9BDD1
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123020.jpgsave_picture_123020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123020.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.5441S/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123021.jpgsave_picture_123021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123021.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:D570DBB5ABC80B20D64ABC15A9F04F24B9FB1FC4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123022.jpgsave_picture_123022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123022.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 01.2024
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123023.jpgsave_picture_123023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123023.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:999FE20719AF8D1F6E708D90B47E9A1A3FD06A4D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123024.jpgsave_picture_123024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123024.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:F5A788B7C04B7DEF497B9EA937997C70A8B06851
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123025.jpgsave_picture_123025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123025.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ KMS Tools Portable Lite by Ratiborus 14.01.2024
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123026.jpgsave_picture_123026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123026.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:210F17529235BB4F58CCEEF6BC961A5C53C14EF8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123027.jpgsave_picture_123027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123027.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:7D1AA3466E258D0DC047AA4EF70E8DFF79946DF0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123028.jpgsave_picture_123028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123028.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Netmonitor: Cell & WiFi  v1.20.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123029.jpgsave_picture_123029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123029.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:27E57F3922260643F8F584FE82E7F5E7708C5E27
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123030.jpgsave_picture_123030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123030.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:1EAB394FB4D2C0FF812493337A45C2BB388591EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123031.jpgsave_picture_123031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123031.jpg" />
 </div>
 
 

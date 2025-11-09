@@ -6,7 +6,7 @@ VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132699.jpgsave_picture_132699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132699.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132716.jpgsave_picture_132716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132716.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133112.jpgsave_picture_133112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133112.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133492.jpgsave_picture_133492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133492.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133582.jpgsave_picture_133582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133582.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133597.jpgsave_picture_133597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133597.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133675.jpgsave_picture_133675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133675.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA-Новая Игрушка 30-31  (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133678.jpgsave_picture_133678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133678.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - До 18 и старше №40 Зима (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134200.jpgsave_picture_134200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134200.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Живёт моя отрада. Застольные песни (2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134454.jpgsave_picture_134454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134454.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134563.jpgsave_picture_134563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134563.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Зимний extrim. Самые новые хиты 2 (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134710.jpgsave_picture_134710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134710.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Хитовый Запах Нового года (2012) [MP3|256 кб/с]<Р
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134771.jpgsave_picture_134771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134771.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134813.jpgsave_picture_134813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134813.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134880.jpgsave_picture_134880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134880.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134899.jpgsave_picture_134899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134899.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136243.jpgsave_picture_136243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136243.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 5 (2019) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137473.jpgsave_picture_137473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137473.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Новогоднее Настроение: Русский Популярн�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137621.jpgsave_picture_137621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137621.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Новогодний Топ 100 От Зайцев.Нет (2015) [MP3|191 - 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137891.jpgsave_picture_137891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137891.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Shazam Хит-парад Russia Top 100 Декабрь (2020) [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138226.jpgsave_picture_138226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138226.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - De Top 100 Aller Tijden 1988 (RadioVeronica) (2017) [MP3|320 Kbps] <Electro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138416.jpgsave_picture_138416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138416.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Новогодняя Дискотека В Стиле Modern Talking (2012)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138691.jpgsave_picture_138691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138691.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Dee D. Jackson - The Singles Collection (1977-1984) [MP3|320 Kbps] <Electronic, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138724.jpgsave_picture_138724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138724.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138751.jpgsave_picture_138751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138751.jpg" />
 </div>
 
 
@@ -780,7 +780,7 @@ VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138786.jpgsave_picture_138786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138786.jpg" />
 </div>
 
 

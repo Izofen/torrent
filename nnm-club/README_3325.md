@@ -6,7 +6,7 @@ DiskGenius Pro 5.6.0.1565 (x64) Portable by FC Portables [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106811.jpgsave_picture_106811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106811.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4D2A08733F14D57ED63CD7B120F5262AC06E9E63
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106812.jpgsave_picture_106812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106812.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:46C4211B235E098C7DEE45093FE1484F2B9A7546
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106813.jpgsave_picture_106813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106813.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mr. Big - Ten (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106814.jpgsave_picture_106814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106814.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0709) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106815.jpgsave_picture_106815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106815.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8081A119367ED7BC26D8BAB2CC95EABE423FEC0A
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106816.jpgsave_picture_106816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106816.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:443E2C3FA6975136EEF46681F2A77AA9DACF9C71
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106817.jpgsave_picture_106817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106817.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:86E834007EA8579B251F56DDC0F6F03DE1A9CF2B
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106818.jpgsave_picture_106818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106818.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:5B87EB3AC31CB21CDD3331FCF10438E84B777369
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106819.jpgsave_picture_106819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106819.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Wise Care 365 Pro 6.7.4.649 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106820.jpgsave_picture_106820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106820.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106821.jpgsave_picture_106821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106821.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Microsoft .NET 6.0.32 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106822.jpgsave_picture_106822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106822.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Tixati 3.26 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106823.jpgsave_picture_106823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106823.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Wise Disk Cleaner 11.1.3.829 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106824.jpgsave_picture_106824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106824.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:9673BB620F2677223D9DED8CB245ED630A44E6F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106825.jpgsave_picture_106825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106825.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:9673BB620F2677223D9DED8CB245ED630A44E6F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106826.jpgsave_picture_106826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106826.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Troyen - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106827.jpgsave_picture_106827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106827.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ LaBronn Conner Jr - Bluesberry Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106828.jpgsave_picture_106828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106828.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Cloven Hoof - Eye Of The Sun (2006) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106829.jpgsave_picture_106829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106829.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ PDF Shaper Premium / Ultimate 14.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106830.jpgsave_picture_106830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106830.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:B2A90150FC16A129ABD3883095D4B894D71AE9DB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106831.jpgsave_picture_106831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106831.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Chris Bergson Band - Comforts of Home (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106832.jpgsave_picture_106832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106832.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:5F2B0E4DBE37409DAF2E23443DD7E5F57C7B5634
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106833.jpgsave_picture_106833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106833.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:5BE3F19D6B255DABED321993288FD8DA6FE3AC02
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106834.jpgsave_picture_106834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106834.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:E5F19D400C2A55703D6F1E991281DA5B14E25560
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106835.jpgsave_picture_106835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106835.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Hads Lads - Kingdom in the Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106836.jpgsave_picture_106836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106836.jpg" />
 </div>
 
 

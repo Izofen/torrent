@@ -6,7 +6,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.1hf/dlc) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162675.jpgsave_picture_162675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162675.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163723.jpgsave_picture_163723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163723.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164759.jpgsave_picture_164759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164759.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Gamedec (2021) [Ru/Multi] (1.7.1.r70100/dlc) License GOG [Digital Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165389.jpgsave_picture_165389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165389.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166018.jpgsave_picture_166018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166018.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Unliving - Founder's Pack (2023) [Ru/Multi] (1.0.2892023_1631) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168607.jpgsave_picture_168607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168607.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168647.jpgsave_picture_168647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168647.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169905.jpgsave_picture_169905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169905.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169976.jpgsave_picture_169976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169976.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170202.jpgsave_picture_170202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170202.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170801.jpgsave_picture_170801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170801.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171485.jpgsave_picture_171485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171485.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Space Wreck (2023) [En] (1.3.24) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171814.jpgsave_picture_171814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171814.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171973.jpgsave_picture_171973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171973.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172153.jpgsave_picture_172153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172153.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Vosphia (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172909.jpgsave_picture_172909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172909.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172924.jpgsave_picture_172924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172924.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173267.jpgsave_picture_173267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173267.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Blade of Immortality (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173273.jpgsave_picture_173273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173273.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173437.jpgsave_picture_173437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173437.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173450.jpgsave_picture_173450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173450.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173532.jpgsave_picture_173532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173532.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174338.jpgsave_picture_174338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174338.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174866.jpgsave_picture_174866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174866.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Pentiment (2022) [Multi] (1.0.1212) License Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175226.jpgsave_picture_175226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175226.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ The Surge (2017) [Ru/Multi] (55623) License GOG [Augmented Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176157.jpgsave_picture_176157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176157.jpg" />
 </div>
 
 

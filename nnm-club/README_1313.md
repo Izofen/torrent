@@ -6,7 +6,7 @@ File & Image Uploader 8.4.8 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34493.jpgsave_picture_34493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34493.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A15DB2EFD0B9B7246561291507C867D36822FEB1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34494.jpgsave_picture_34494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34494.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:91B581FE7CBA1B8CD3CF3153F80A8AC0395645ED
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34495.jpgsave_picture_34495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34495.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Halloween Stories 8: Inspirations Spark / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34496.jpgsave_picture_34496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34496.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - The Winter Chillout Collection: Chillout Your Mind (2024) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34497.jpgsave_picture_34497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34497.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C1DF5A3AF66022D8205366B2262AA30C8B477C24
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34498.jpgsave_picture_34498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34498.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Best Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34499.jpgsave_picture_34499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34499.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:AFBB5D058AE49E3D5566BCDE6E1B5BE4F4CCA424
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34500.jpgsave_picture_34500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34500.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:BA7AB91FE6F0D96882540265209E564948F6A82C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34501.jpgsave_picture_34501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34501.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:ACC94651DA7712BA7922C1F4C7F751019A65C081
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34502.jpgsave_picture_34502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34502.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Babbba - Virtual Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34503.jpgsave_picture_34503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34503.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ DelaDap - King of the Swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34504.jpgsave_picture_34504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34504.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Google Chrome 131.0.6778.140 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34505.jpgsave_picture_34505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34505.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:05D4A34C7C184805518CF64166173C277663FFCA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34506.jpgsave_picture_34506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34506.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:CED259102C8443F4AC15D1B363A91E72B06FDA00
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34507.jpgsave_picture_34507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34507.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ WinTools.net Premium 24.12.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34508.jpgsave_picture_34508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34508.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Firefox Browser 133.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34509.jpgsave_picture_34509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34509.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.4.127/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34510.jpgsave_picture_34510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34510.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:758BBBF6707BB170575C4F5C6166513286E4C760
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34511.jpgsave_picture_34511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34511.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:237E5B8DE48BD90D7E32ACD6BFE1E6E5A56E08F6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34512.jpgsave_picture_34512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34512.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:E614F1D20796B549B143A8C5BDEF0EDFD9F0B7E5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34513.jpgsave_picture_34513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34513.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:93FD4227EAEF51222DC2BFFD3EEFAEA0AEBFF678
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34514.jpgsave_picture_34514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34514.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:556B34BD940C88057EAB021E16D899DB995FA6CE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34515.jpgsave_picture_34515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34515.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:2FC1FC3D3704977A893C2C995C25DCD9ACA6E9FE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34516.jpgsave_picture_34516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34516.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:D555D813D747D37547D7E1F2B7E20C0DAA9E1687
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34517.jpgsave_picture_34517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34517.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34518.jpgsave_picture_34518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34518.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84764.jpgsave_picture_84764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84764.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Uriah Heep - 10 Albums (1970-1977) /Teichiku, Japan/ [FLAC|Lossless]<Progressive
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84765.jpgsave_picture_84765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84765.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Uriah Heep — британская рок-группа, образовавша�
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84767.jpgsave_picture_84767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84767.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Uriah Heep — британская рок-группа, образовавша�
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84769.jpgsave_picture_84769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84769.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Uriah Heep — британская рок-группа, образовавша�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84770.jpgsave_picture_84770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84770.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Uriah Heep — британская рок-группа, образовавша�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84772.jpgsave_picture_84772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84772.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:648148DD3683ED0E0F3C4A60B0D689852E0AE4E3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84773.jpgsave_picture_84773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84773.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:8F28D02A71A54216BCC017E37374BB3E55AB52D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84776.jpgsave_picture_84776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84776.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:8F28D02A71A54216BCC017E37374BB3E55AB52D0
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84777.jpgsave_picture_84777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84777.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:8CFD6F9A9A9EA38BF27FD08F3F7DC0EC9F3D4F44
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84778.jpgsave_picture_84778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84778.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:8CFD6F9A9A9EA38BF27FD08F3F7DC0EC9F3D4F44
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84785.jpgsave_picture_84785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84785.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Ultimate Bonus for Corel VideoStudio Pro X5 15.0.0.2581 [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84789.jpgsave_picture_84789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84789.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ ProDAD RotoPenЯзык интерфейса: EN
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84790.jpgsave_picture_84790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84790.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ ProDAD RotoPenЯзык интерфейса: EN
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84791.jpgsave_picture_84791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84791.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:9D30B1106478C5C93253BF271A61AAC82E329077
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84793.jpgsave_picture_84793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84793.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:9D30B1106478C5C93253BF271A61AAC82E329077
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84794.jpgsave_picture_84794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84794.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:9D30B1106478C5C93253BF271A61AAC82E329077
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84795.jpgsave_picture_84795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84795.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:9D30B1106478C5C93253BF271A61AAC82E329077
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84796.jpgsave_picture_84796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84796.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:9D30B1106478C5C93253BF271A61AAC82E329077
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84797.jpgsave_picture_84797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84797.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:A9A831E0AFDDF0E7546B400D74925A3ECED14C8D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84798.jpgsave_picture_84798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84798.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:93ECEC502A7532B00B49549B840256167DA4727C
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84800.jpgsave_picture_84800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84800.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Green Disc 2012.4 v6.0.0.0 (22.03.2012) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84801.jpgsave_picture_84801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84801.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Green Disc 2012.4 v6.0.0.0 (22.03.2012) [Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84803.jpgsave_picture_84803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84803.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:5258FB5D2D8E4BC16177B278A4DA601A5C3B0AA3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84805.jpgsave_picture_84805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84805.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Warhammer 40 000: Fire Warrior [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84806.jpgsave_picture_84806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84806.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Realtek High Definition Audio Driver [Multi] (R2.68)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84807.jpgsave_picture_84807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84807.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Daniel Avery - More Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electron
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240813.jpgsave_picture_240813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240813.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:447AB96B5F436C445A6BA71787D6502B894CF949
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240814.jpgsave_picture_240814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240814.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TweetShot 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240815.jpgsave_picture_240815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240815.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5DE4CECE3EDC9941EC950B074DE315C68ED25F8A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240816.jpgsave_picture_240816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240816.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B190FC4DA113353A62716D08F3A54DB15BF837D3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240817.jpgsave_picture_240817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240817.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:3C7AC192F4115AC142CDA6B46563DC7A87DB4D3B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240818.jpgsave_picture_240818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240818.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:DD69CFA1462C51BFD76286899748A6912B1E1049
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240819.jpgsave_picture_240819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240819.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5F9C96A86AD9F29BB89EAECFC99112D52044F451
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240820.jpgsave_picture_240820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240820.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ CudaText 1.193.3.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240821.jpgsave_picture_240821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240821.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:75BC276B56BB5428F1D189A90FE33C37C525159C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240822.jpgsave_picture_240822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240822.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Rampage - Asgard (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240823.jpgsave_picture_240823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240823.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ RAR Extractor Max - Unzip 6.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240824.jpgsave_picture_240824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240824.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ G-Hard - μ-sick (2022) [MP3|320 Kbps] <Nu-Metal, Oriental Metal, Progressive Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240825.jpgsave_picture_240825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240825.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:5AE2FD4B4E95B3E1F195DD01E946BEF78FC57FE5
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240826.jpgsave_picture_240826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240826.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:0200C081FC56EFDE1CDEBD5B8E727DD8BF329040
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240827.jpgsave_picture_240827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240827.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ HWiNFO 7.43 Build 5045 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240828.jpgsave_picture_240828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240828.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:E8DC6AF7A3194399345E1910B8FC04C298D8F397
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240829.jpgsave_picture_240829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240829.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Eleni Drake - Surf The Sun (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240830.jpgsave_picture_240830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240830.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E8CDA25353CD14035D62AF2883D399B9A05725A5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240831.jpgsave_picture_240831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240831.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:A230B38773489E8220303AA2590BA0D549294C99
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240832.jpgsave_picture_240832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240832.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Acon Digital AudioLava for Mac 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240833.jpgsave_picture_240833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240833.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Gary Schutt - The Beautiful Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240834.jpgsave_picture_240834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240834.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:8A6E3E64E903B95F9A8606FCEBA9A1E19007B0AE
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240835.jpgsave_picture_240835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240835.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:AAD87C2DF8FB78455A33B96C02912A53D915310E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240836.jpgsave_picture_240836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240836.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240837.jpgsave_picture_240837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240837.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:24C8E037EB3140964669BB69A897C13C5B0C4E8D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240838.jpgsave_picture_240838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240838.jpg" />
 </div>
 
 

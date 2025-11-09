@@ -6,7 +6,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172252.jpgsave_picture_172252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172252.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172323.jpgsave_picture_172323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172323.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ice Nine Kills - Welcome To Horrorwood: Under Fire (2023) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172337.jpgsave_picture_172337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172337.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172592.jpgsave_picture_172592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172592.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172602.jpgsave_picture_172602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172602.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172644.jpgsave_picture_172644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172644.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172673.jpgsave_picture_172673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172673.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172682.jpgsave_picture_172682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172682.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172683.jpgsave_picture_172683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172683.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172684.jpgsave_picture_172684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172684.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172878.jpgsave_picture_172878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172878.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Машина Времени / Самоцветы - Песни Из Кино
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172981.jpgsave_picture_172981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172981.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Meduza - Meduza (2023) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173002.jpgsave_picture_173002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173002.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Who - Who’s Next (1971) Steven Wilson remix, 2023, UMC [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173003.jpgsave_picture_173003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173003.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Bullet - Studio Albums (6 releases) (2006-2018) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173020.jpgsave_picture_173020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173020.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173165.jpgsave_picture_173165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173165.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Whitesnake - The Purple Album (2015) Special Gold Edition, Remix, 2023, Rhino [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173175.jpgsave_picture_173175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173175.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:24A7B38F884D21695EACE52DFBE691A239AEA3CE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173178.jpgsave_picture_173178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173178.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173197.jpgsave_picture_173197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173197.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Golden Earring - Cut (1982) Remastered & Expanded, 2023, Red Bullet [FLAC 24/192
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173209.jpgsave_picture_173209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173209.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Nitrate - Feel The Heat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173213.jpgsave_picture_173213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173213.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:15CAD70D20BF1C3ECA961CA9B537495AD3299BFC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173222.jpgsave_picture_173222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173222.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173223.jpgsave_picture_173223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173223.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Kings Crown - Closer To The Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173231.jpgsave_picture_173231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173231.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Holly Humberstone - Paint My Bedroom Black (2023) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173241.jpgsave_picture_173241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173241.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Eucharist - Studio Albums (3 releases) (1993-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173246.jpgsave_picture_173246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173246.jpg" />
 </div>
 
 

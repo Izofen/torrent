@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76201.jpgsave_picture_76201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76201.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Boot MiniCD Strelec WinPE 3.1 (11.02.2012) [Русский, Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76203.jpgsave_picture_76203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76203.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Windows 7х64 Ultimate AUZsoft Black v.5.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76206.jpgsave_picture_76206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76206.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Advanced SystemCare Pro 5.1.0.198 [RG Soft] 5.1.0.198 [Русский / Англ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76209.jpgsave_picture_76209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76209.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Advanced SystemCare Pro - набор утилит для оптимизации 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76212.jpgsave_picture_76212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76212.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ SamDrivers 12.2 Maldives - Сборник драйверов для Windows x86/
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76213.jpgsave_picture_76213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76213.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Empire Earth 3 [Ru] (RePack/1.1) 2007 | MAJ3R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76215.jpgsave_picture_76215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76215.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:F8B0846C987A0299B066086C6C28ACE5A4AA288E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76219.jpgsave_picture_76219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76219.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Autodesk AutoCAD Civil 3D 2012 sp1 [RU EN DE] [x32 x64]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76220.jpgsave_picture_76220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76220.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ AutoCAD® Civil 3D®, решение на основе технологии ин
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76221.jpgsave_picture_76221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76221.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ ProxyCap 5.02 [Английский]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76223.jpgsave_picture_76223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76223.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ ProxyCap - небольшая программа, которая позволи�
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76225.jpgsave_picture_76225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76225.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:7398FF4900D8B9F19AE300BF0FFA434392F1192E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76234.jpgsave_picture_76234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76234.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:17E19383B42E42524DF9415940E466A250104285
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76236.jpgsave_picture_76236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76236.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:C06B066063B9C38D3982DE1960269BF8A49E2EAE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76237.jpgsave_picture_76237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76237.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Freemake Video Converter 3.0.1.13 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76244.jpgsave_picture_76244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76244.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ BatWithParameters 1.0.0.17 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76247.jpgsave_picture_76247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76247.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ PcBoost 4.2.13.2012 + portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76251.jpgsave_picture_76251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76251.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ PcBoost 4.2.13.2012 + portable [Английский]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76252.jpgsave_picture_76252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76252.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ PcBoost 4.2.13.2012 + portable [Английский]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76253.jpgsave_picture_76253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76253.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:3FA0907C536D89D6D7028AA1AAB1DA827C6649A9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76256.jpgsave_picture_76256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76256.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B92D96577FE2B3EF560F04A0B25F02A3171D1453
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76259.jpgsave_picture_76259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76259.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:5B25B99AC45D643745B8C3DF9CE8B775CD1153C2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76260.jpgsave_picture_76260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76260.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:5A022FB4B8EFC4FE7BB4D6F5DC4F9676F21CC49D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76261.jpgsave_picture_76261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76261.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ STDU Viewer 1.6.2 Rus - Тихая установка by moRaLIst [Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76262.jpgsave_picture_76262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76262.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76266.jpgsave_picture_76266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76266.jpg" />
 </div>
 
 

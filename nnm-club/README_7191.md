@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245920.jpgsave_picture_245920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245920.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E761D75EB9DD487FD35515C65A90B5609997DE3C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245921.jpgsave_picture_245921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245921.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6D081D26F0FE4CC9B95B5A705AEE20C320846C4A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245922.jpgsave_picture_245922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245922.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Toys For Bob | Артбук по игре Crash Bandicoot 4: It's About Time / T
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245923.jpgsave_picture_245923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245923.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Money Pro - Personal Finance 2.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245924.jpgsave_picture_245924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245924.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ NCH DreamPlan Plus 8.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245925.jpgsave_picture_245925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245925.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PowerPhotos 2.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245926.jpgsave_picture_245926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245926.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - TikTok Pop (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245927.jpgsave_picture_245927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245927.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Living Earth - Weather & Clock 1.29 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245928.jpgsave_picture_245928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245928.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Tete Montoliu - Catalonian Folksongs (1977) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245929.jpgsave_picture_245929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245929.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:F559062170F54B492D06A65C3E9E17EE8F539421
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245930.jpgsave_picture_245930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245930.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ MotoGP. Этап 04. Гран-при Испании. Квалификация (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245931.jpgsave_picture_245931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245931.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:B10711F60202B63A35D84C649802A872B9595879
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245932.jpgsave_picture_245932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245932.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:1663867B0B299BDFAEBE56D6816F4200E490E701
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245933.jpgsave_picture_245933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245933.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:B981A1C89358A2F61DEE584A13416BEB33820597
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245934.jpgsave_picture_245934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245934.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Network Radar 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245935.jpgsave_picture_245935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245935.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Nevercenter CameraBag Photo 2020.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245936.jpgsave_picture_245936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245936.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Sonny Rollins - And The Contemporary Leaders (1958) 1988, Original Jazz Classics
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245937.jpgsave_picture_245937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245937.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Phil Woods Quartet - European Tour Live (1980) 2CD, 1995, Red Record [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245938.jpgsave_picture_245938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245938.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ The Steve Miller Band - Your Saving Grace (1969) Reissue, 1987, Capitol [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245939.jpgsave_picture_245939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245939.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Uartsy, Ryan Kingslien | Artistic Anatomy in ZBrush (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245940.jpgsave_picture_245940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245940.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Bernard Sellam & The Boyz From The Hood - Feelin' So Fine (2023) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245941.jpgsave_picture_245941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245941.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Smooth and Sexy - Premium Jazz Grooves (2016) [AAC|~331 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245942.jpgsave_picture_245942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245942.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ FontXChange 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245943.jpgsave_picture_245943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245943.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Beatport Trance Pack (23.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245944.jpgsave_picture_245944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245944.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Like The Old Day (2023) [MP3|320 Kbps] <Disco, Electronic, Synthwave>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245945.jpgsave_picture_245945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245945.jpg" />
 </div>
 
 

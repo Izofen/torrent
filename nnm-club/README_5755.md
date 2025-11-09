@@ -6,7 +6,7 @@ qBittorrent 4.5.0 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178329.jpgsave_picture_178329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178329.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Unheilig - Als Musik Meine Sprache Wurde (2013) Digipack 5CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178330.jpgsave_picture_178330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178330.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:E7D7C5A24BE2C37BB39482980DEF077857B41AD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178332.jpgsave_picture_178332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178332.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Steeler - Steeler (1983) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178333.jpgsave_picture_178333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178333.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:D1697AEC700640E6967033856FCEB69F1998CA32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178335.jpgsave_picture_178335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178335.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Slaughter 2: Prison Assault 1.42 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178336.jpgsave_picture_178336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178336.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:29631FBA52D39EF7903D9C549B97753D8FF16C86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178338.jpgsave_picture_178338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178338.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:F00A06266E765796D2464DF47A5220E9CA99A6FE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178339.jpgsave_picture_178339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178339.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Epica - Live At AFAS Live (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178341.jpgsave_picture_178341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178341.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ EaseUS Data Recovery Wizard Technician 15.8.1.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178342.jpgsave_picture_178342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178342.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Carly — OBD2 car scanner 48.47 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178343.jpgsave_picture_178343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178343.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178346.jpgsave_picture_178346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178346.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Trevor Rabin - Rio (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Crossover Prog>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178348.jpgsave_picture_178348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178348.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Uninstall Tool 3.7.1 Build 5699 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178349.jpgsave_picture_178349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178349.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ LEX LIVE 10 2022 v.22.10.25 RC FIX 15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178353.jpgsave_picture_178353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178353.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:1EC5C3B56C75B0906F643DC94B28806D711F94C2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178354.jpgsave_picture_178354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178354.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178357.jpgsave_picture_178357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178357.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:5D29CE51E04E2BE542BE7B4D70DA8582D4A65202
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178359.jpgsave_picture_178359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178359.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:B3BF1C419079CC3B95C90D1E26ED6159DC6F3A82
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178363.jpgsave_picture_178363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178363.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Carnifex - Necromanteum (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178365.jpgsave_picture_178365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178365.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:625285BD474EE7CF619E099CCA25C2CEDF5687D8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178369.jpgsave_picture_178369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178369.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:4C27E59111CB4F1478E03C07DD039C46B9C1FBDC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178371.jpgsave_picture_178371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178371.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ KMSAuto++ Portable 1.7.7 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178373.jpgsave_picture_178373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178373.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Brant Bjork and The Bros - Saved By Magic Again (2005) Remastered, 2023, Heavy P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178375.jpgsave_picture_178375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178375.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:7104F50F74D3A8C170D2E1DBE9A2FDAA9B32EE93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178376.jpgsave_picture_178376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178376.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Brant Bjork - Saved By Magic Again (2005) Remastered , 2023, Heavy Psych Sounds 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178379.jpgsave_picture_178379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178379.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119888.jpgsave_picture_119888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119888.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1F0A8FEAB3A2DC347A22AC4B6E790E6C1DDFEBEF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119889.jpgsave_picture_119889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119889.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Steinberg - Cubase Pro 13 13.0.21 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119890.jpgsave_picture_119890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119890.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ iStat Menus 6 v.6.73 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119891.jpgsave_picture_119891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119891.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6994EC4797ACE6F9F41CCBE080B090850B6B53FE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119892.jpgsave_picture_119892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119892.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4BD8F3BC8C3B124C40CE4C2807C11ADA6C117704
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119893.jpgsave_picture_119893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119893.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E5556681432A2CB1E25AC92D21B4672ADE6A1467
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119894.jpgsave_picture_119894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119894.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Microsoft  Visual C++ Runtimes AIO v0.78.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119895.jpgsave_picture_119895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119895.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Windows 10 22H2 + LTSC 21H2 (x64) 28in1 +/- Office 2021 by Eagle123 (01.2024) [R
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119896.jpgsave_picture_119896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119896.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:1BEBB300F51EB225D2C075CBFD2B83A51050D44E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119897.jpgsave_picture_119897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119897.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:3A06F0A3F948B2CB69FF08907DEAD9843C9AD6D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119898.jpgsave_picture_119898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119898.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Factorio  v.1.1.104 (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119899.jpgsave_picture_119899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119899.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:903F8F885474D008556369DA8234C81C83129BE6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119900.jpgsave_picture_119900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119900.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:46A4966CAFBDAD388519E157D85F7ADE25AC6B17
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119901.jpgsave_picture_119901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119901.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119902.jpgsave_picture_119902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119902.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:3F060E1E7B0884BF7D8B1AA60258294BDBE8019F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119903.jpgsave_picture_119903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119903.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:7B3C3661B17E00B8FB928FC250B86BC970D3C4C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119904.jpgsave_picture_119904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119904.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:76674A3D2FA1393C0828FEACB184424285FE4A83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119905.jpgsave_picture_119905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119905.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:D28CE8184802C929B3FC9A05E101535D6B219E7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119906.jpgsave_picture_119906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119906.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:2EE37244B74ED342187D7EDA85FB3FC46833F86F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119907.jpgsave_picture_119907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119907.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4A95EB81BFF59C13497F4C885A365B3528981386
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119908.jpgsave_picture_119908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119908.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:33C86C4D74DA9860A9098EB11016C602F5377462
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119909.jpgsave_picture_119909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119909.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:934EBFE6CE5F7C3A28AFF34E5476133E64CCC708
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119910.jpgsave_picture_119910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119910.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:59CB99C7FE8BA48D9D2FBE31A022157335B4F5B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119911.jpgsave_picture_119911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119911.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Lynch Mob - 12 Albums, 3 EP (1990 - 2023) 18 CD [FLAC|Lossless|image + .cue|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119913.jpgsave_picture_119913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119913.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B01C78B16CE0AE3056C90CDF6B1F932C57590C2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119914.jpgsave_picture_119914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119914.jpg" />
 </div>
 
 

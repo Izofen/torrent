@@ -6,7 +6,7 @@ Tineidae - Lights (2012) [MP3|320 кб/с]<IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140326.jpgsave_picture_140326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140326.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:484142BB817E7162C6824EA49BBB8B3C307B4CC8
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140327.jpgsave_picture_140327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140327.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:7A1B4930E21E1084995A95CADB0D18D88D9916B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140328.jpgsave_picture_140328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140328.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Trance Top 100 2013.1 - 12 (2013) (Обновляемая) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140330.jpgsave_picture_140330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140330.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ magnet:?xt=urn:btih:4B720C86426DA40C478F9A349BF3FE58965F8782
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140331.jpgsave_picture_140331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140331.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ magnet:?xt=urn:btih:5B8464922C09324669110C9D59CD48F7463EA97B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140332.jpgsave_picture_140332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140332.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Lee Aaron - Metal Queen (1985) [WavPack|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140333.jpgsave_picture_140333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140333.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Lee Aaron - Metal Queen (1985) [WavPack|Lossless]<Hard Rock>
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140334.jpgsave_picture_140334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140334.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:ABE5194915C543613ADD405B8C70BC93475458FB
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140335.jpgsave_picture_140335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140335.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:AB41CE108095FE4C23B9F590943D1BFB40897F52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140337.jpgsave_picture_140337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140337.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:1E82D17666FBDF1C95FBBD13B43F792EB7C28553
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140338.jpgsave_picture_140338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140338.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:98D116C2F9FFBD448CB4CE2DAC641D52F81685A1
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140339.jpgsave_picture_140339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140339.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Best HD Wallpapers Pack (17.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140340.jpgsave_picture_140340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140340.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Nik Collection 2 by DxO 2.3.1 Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140341.jpgsave_picture_140341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140341.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:630FC717B40F8D025E290B247FBDD27D05C4959A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140342.jpgsave_picture_140342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140342.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:A9197E3431F6B62C5480986F60EDE767ADFD5C01
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140343.jpgsave_picture_140343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140343.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:E6E34363FA48BF588FFE05ADB1D64855654644EC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140344.jpgsave_picture_140344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140344.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:ACFD43DDA59A7B0430E201074E0AA81577B7394F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140345.jpgsave_picture_140345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140345.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken / Я стал
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140346.jpgsave_picture_140346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140346.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Hunting Unlimited 2009 (2008) [En] (1.0) License Just for Kicks
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140349.jpgsave_picture_140349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140349.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:DAF9675B39BC5013BA39A52A3754525D030A8EE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140350.jpgsave_picture_140350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140350.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:2716920188A1603A1369AE9A1577017F20566A24
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140351.jpgsave_picture_140351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140351.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:E31AF866C50490A1F824BAE330F20AE4ECFFEE66
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140352.jpgsave_picture_140352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140352.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:E76870783517D7D9996362BC7C73ACB480CC8F81
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140353.jpgsave_picture_140353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140353.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:4DE55A78FDC38E2613AB71CFDE537909B47A8B2F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140354.jpgsave_picture_140354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140354.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:EAF20EEA78074BD4E0356A4ED22222C336B1C253
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140355.jpgsave_picture_140355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140355.jpg" />
 </div>
 
 

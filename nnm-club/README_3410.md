@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109021.jpgsave_picture_109021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109021.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Fulltime Production Italo Disco, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109022.jpgsave_picture_109022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109022.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FastStone Capture 10.5 Final RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109023.jpgsave_picture_109023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109023.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:65175C7F12F451B865E67AB4DAA019BF72DE8551
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109024.jpgsave_picture_109024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109024.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Black Sabbath - Evil Eye, Get a Grip (2024) Single [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109025.jpgsave_picture_109025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109025.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ NetLimiter 5.3.13.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109026.jpgsave_picture_109026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109026.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Joplin 2.14.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109027.jpgsave_picture_109027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109027.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9FF80FA7186C4E6ACCCD91551826FDF82BDD2316
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109028.jpgsave_picture_109028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109028.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109029.jpgsave_picture_109029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109029.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:6889383A1747551B2D8D7977EBFCB3A3D57E1556
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109030.jpgsave_picture_109030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109030.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Serif Affinity Publisher 2.5.0.2471 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109031.jpgsave_picture_109031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109031.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ FastCopy Pro 5.7.11 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109032.jpgsave_picture_109032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109032.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - Русская 30-ка хитов 4 (Новые русские песни) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109033.jpgsave_picture_109033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109033.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ BurnAware Professional 17.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109034.jpgsave_picture_109034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109034.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:81BF21A66FCE2256AD52F6451C938DF5859129CD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109035.jpgsave_picture_109035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109035.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109036.jpgsave_picture_109036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109036.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:235E62020F88D520CA9686F61B7D402096FE9E50
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109037.jpgsave_picture_109037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109037.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ OneCommander Pro 3.80.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109038.jpgsave_picture_109038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109038.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:88245B80101942DC269B1C377E15357772FC8CB1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109039.jpgsave_picture_109039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109039.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Exhorder - Studio Albums (4 releases) (1990-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109040.jpgsave_picture_109040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109040.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Bloodorn - Let the Fury Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109041.jpgsave_picture_109041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109041.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:EF453967A2CB3F425CA16650AE83844DBC0340D1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109042.jpgsave_picture_109042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109042.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Superblue - Superblue 2 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109043.jpgsave_picture_109043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109043.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Malachi Thompson - Freebop Now! (1998) Delmark Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109044.jpgsave_picture_109044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109044.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:2042E00D88782BC96A3C86C1C971273247B32300
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109045.jpgsave_picture_109045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109045.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Fort Firewall 3.12.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109046.jpgsave_picture_109046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109046.jpg" />
 </div>
 
 

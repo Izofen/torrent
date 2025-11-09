@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129263.jpgsave_picture_129263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129263.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1B35A255EFEC40ABD016F8765367E00E7FF3AE2D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129266.jpgsave_picture_129266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129266.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2CCB7CA94C386F1B4E1DA32216F514CCB23F0BB0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129267.jpgsave_picture_129267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129267.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D0F6F9005649D048B55356A80E59C268E78EF672
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129268.jpgsave_picture_129268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129268.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Foghat - Night Shift (1976) (Reissue 2008), Limited Edition, Remastered K2HD  [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129269.jpgsave_picture_129269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129269.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Club Charts Vol.2 (2012) [MP3|256 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129270.jpgsave_picture_129270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129270.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Gates of Ishtar - The Dawn of Flames (1997) [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129271.jpgsave_picture_129271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129271.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:A50A2CB223E4F8E5EC8F6FDC781CAF039C4CCE56
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129273.jpgsave_picture_129273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129273.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ ISO Workshop 10.8 Pro RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129274.jpgsave_picture_129274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129274.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:C148F48F8173F4FC510DCA09D13C3E8395889B62
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129276.jpgsave_picture_129276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129276.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:AE8D5E1EAF202A3E2BE57949318C4399250EB530
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129278.jpgsave_picture_129278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129278.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:AE8D5E1EAF202A3E2BE57949318C4399250EB530
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129279.jpgsave_picture_129279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129279.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129280.jpgsave_picture_129280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129280.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mp3tag 3.12 + Portable [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129281.jpgsave_picture_129281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129281.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Mp3tag предоставляет пользователям мощный и п�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129283.jpgsave_picture_129283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129283.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mp3tag предоставляет пользователям мощный и п�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129284.jpgsave_picture_129284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129284.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mp3tag предоставляет пользователям мощный и п�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129285.jpgsave_picture_129285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129285.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mp3tag предоставляет пользователям мощный и п�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129287.jpgsave_picture_129287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129287.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mp3tag предоставляет пользователям мощный и п�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129288.jpgsave_picture_129288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129288.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Calibre 5.35.0 + Portable [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129289.jpgsave_picture_129289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129289.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129291.jpgsave_picture_129291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129291.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129292.jpgsave_picture_129292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129292.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129293.jpgsave_picture_129293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129293.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129294.jpgsave_picture_129294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129294.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129295.jpgsave_picture_129295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129295.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129297.jpgsave_picture_129297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129297.jpg" />
 </div>
 
 

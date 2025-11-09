@@ -6,7 +6,7 @@ Eclipse Community - r3dfox 142.0.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193381.jpgsave_picture_193381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193381.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAX Desktop 25.14.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193413.jpgsave_picture_193413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193413.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:508893D7B79DA24B5416991D48A759EB1CB4BB50
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193447.jpgsave_picture_193447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193447.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:25A8B384E25C489AB11DEBB33F860645BC5A65FB
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193451.jpgsave_picture_193451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193451.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Internet Download Manager 6.42 Build 52 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193459.jpgsave_picture_193459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193459.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ MassTube Ultra 21.0.4.171 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193506.jpgsave_picture_193506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193506.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:76204F66377A62D944212D4D93B685141A9A6A4A
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193514.jpgsave_picture_193514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193514.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Internet Download Manager 6.42 Build 52 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193518.jpgsave_picture_193518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193518.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ MassTube Ultra 21.0.4.171 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193579.jpgsave_picture_193579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193579.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ TraceRouteOK 3.33 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194101.jpgsave_picture_194101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194101.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:D34E37914612667C88BE42549DABBFE818B937B9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194146.jpgsave_picture_194146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194146.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Blue Iris 5.7.9.4 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194216.jpgsave_picture_194216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194216.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ MyPublicWiFi 30.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196417.jpgsave_picture_196417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196417.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Nmap 7.94 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198070.jpgsave_picture_198070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198070.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WebBrowserPassView 2.12 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198529.jpgsave_picture_198529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198529.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:B1D5D5C39CF32750013A7AD877F28F8B0DA99C9D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200033.jpgsave_picture_200033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_200033.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Any Video Downloader Pro 9.6.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201756.jpgsave_picture_201756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201756.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ By Click Downloader Premium 2.4.27 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201757.jpgsave_picture_201757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201757.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ YT Downloader 9.17.15 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201824.jpgsave_picture_201824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201824.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ AnyDesk 9.6.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202028.jpgsave_picture_202028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202028.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Screenpic 0.15.2 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202131.jpgsave_picture_202131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202131.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Deluge 2.1.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202145.jpgsave_picture_202145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202145.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:727C9753605D8DCCBD9376BDC315874D92CFC482
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202194.jpgsave_picture_202194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202194.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Internet Download Manager 6.42 Build 52 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202209.jpgsave_picture_202209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202209.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Floorp Browser 12.3.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202410.jpgsave_picture_202410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202410.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:00C4F3999DAB08047FF9A2D4CF79EB5624865DA9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202445.jpgsave_picture_202445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202445.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Animal Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135713.jpgsave_picture_135713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135713.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Freddy Todd - Sick in the City, Alive in the Woods (2012) [MP3|320 kbps]<Dubstep
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135719.jpgsave_picture_135719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135719.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135721.jpgsave_picture_135721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135721.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135722.jpgsave_picture_135722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135722.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Windows 8 x64 Pro Reactor v2 [Русский]
 >>38
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135727.jpgsave_picture_135727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135727.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ magnet:?xt=urn:btih:24FB0DF03A78B92758921786DB5101FB4B274879
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135734.jpgsave_picture_135734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135734.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ A New Beginning - Final Cut [En] (L/1.4.4) 2012 | *HI2U*
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135743.jpgsave_picture_135743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135743.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0E0EF99D3497D4804EDBABDBA82D1815DE95B962
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135744.jpgsave_picture_135744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135744.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A62660AE232A46EB58C6BA71D3434708927EEB9A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135747.jpgsave_picture_135747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135747.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:E1469C4FE990C56D1A48CBB63622ABA6E19C7624
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135749.jpgsave_picture_135749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135749.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Oddworld.Stranger's Wrath HD [Ru/En/Multi10] (Repack/1.5) 2012 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135751.jpgsave_picture_135751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135751.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:3B12FA028E19A9D0402DD8849F32AAB3AF678CF6
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135760.jpgsave_picture_135760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135760.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:FF65C4CD15C807F449D1B9065458F28B1C638A62
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135763.jpgsave_picture_135763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135763.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B13D427A7484072F3B2D6464A608E906628E1E0C
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135764.jpgsave_picture_135764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135764.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:20A509C6DFB3AA81374C8B193C5AF98CE947342A
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135767.jpgsave_picture_135767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135767.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135768.jpgsave_picture_135768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135768.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:E094626E64C00D0788EF502273862CDCA2034AE2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135770.jpgsave_picture_135770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135770.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:DCDC1AE7B6C74FDCF0B048BBBFCDECC665737AE1
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135772.jpgsave_picture_135772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135772.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:CCE63052AF19905B71BB473F48B8BC7E21C30FE6
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135779.jpgsave_picture_135779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135779.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:2E6288DC421803B825530A261423CAE47D55604E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135780.jpgsave_picture_135780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135780.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:20B05FA5C76762BA7C197979E8E157C58F1F3BA4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135783.jpgsave_picture_135783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135783.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:15820B08FBF14A346A0AEB29EB49F619424506B6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135784.jpgsave_picture_135784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135784.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:70C6AD7334149E5A0416B0D2A45BD7F9AFB2D97D
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135787.jpgsave_picture_135787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135787.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:40CEAD26EB3BC3BE2FA67567860D35A27C4A6117
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135795.jpgsave_picture_135795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135795.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Berlitz | Португальский язык. Базовый курс [APE+JPEG
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135798.jpgsave_picture_135798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135798.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ The Dark Eye: Chains of Satinav [Ru/En/Multi6] (Steam-Rip/1.1) 2012 | R.G.Origin
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135799.jpgsave_picture_135799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135799.jpg" />
 </div>
 
 

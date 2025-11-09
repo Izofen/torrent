@@ -6,7 +6,7 @@ Exif Pilot 6.21.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209090.jpgsave_picture_209090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209090.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Brave Browser 1.52.130 Portable by Cento8 + ext [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209092.jpgsave_picture_209092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209092.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Blues In The Garden (2023) [MP3|320 Kbps] <Blues, Country Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209094.jpgsave_picture_209094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209094.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:150787B27943372CEDE3046063FED7F3355035E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209096.jpgsave_picture_209096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209096.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Trance In Motion Vol.362 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209098.jpgsave_picture_209098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209098.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ MuseScore 4.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209099.jpgsave_picture_209099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209099.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Slimjet 40.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209101.jpgsave_picture_209101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209101.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ SynWrite 6.41.2780 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209104.jpgsave_picture_209104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209104.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ The Black Furs - The Mayhem Years (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Ston
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209105.jpgsave_picture_209105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209105.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Microsoft .NET 6.0.20 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209108.jpgsave_picture_209108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209108.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:7EA71210B2EE71769F7DA8823C094C315FAD5C1B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209110.jpgsave_picture_209110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209110.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:013F0DC26B7A7BD1BB978E55364A28AF109477F5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209111.jpgsave_picture_209111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209111.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Auslogics Registry Cleaner Pro 10.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209114.jpgsave_picture_209114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209114.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Auslogics Registry Cleaner Pro 10.0.0.3 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209115.jpgsave_picture_209115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209115.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Don Henley [ex. Eagles] - 6 Albums (1982-2015) Collection [MP3|320 Kbps] <Soft R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209118.jpgsave_picture_209118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209118.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209121.jpgsave_picture_209121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209121.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:762883446304B6D231687C3E65ABE0AFA25AEE22
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209124.jpgsave_picture_209124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209124.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:188CA85C88BC992A6BE1EDD353C65510F18AF633
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209125.jpgsave_picture_209125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209125.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Calcpad 6.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209127.jpgsave_picture_209127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209127.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Firefox Browser ESR 115.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209130.jpgsave_picture_209130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209130.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Draw.io 21.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209131.jpgsave_picture_209131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209131.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Fort Firewall 3.9.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209134.jpgsave_picture_209134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209134.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Hallo northern sky 4.2.15d + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209138.jpgsave_picture_209138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209138.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Auslogics Disk Defrag Pro 11.0.0.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209141.jpgsave_picture_209141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209141.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:FF8F4B55F76765A6194C45A8205D8AD35B77F520
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209143.jpgsave_picture_209143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209143.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:621470F394F824301AA326553D97DC0E0DD0C1B9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209145.jpgsave_picture_209145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209145.jpg" />
 </div>
 
 

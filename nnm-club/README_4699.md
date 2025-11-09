@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147086.jpgsave_picture_147086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147086.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TeleInet 1.2 Portable [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147087.jpgsave_picture_147087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147087.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Memory Optimizer 4.2.0.123 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147088.jpgsave_picture_147088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147088.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147090.jpgsave_picture_147090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147090.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear M
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147092.jpgsave_picture_147092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147092.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:36381591E3BE4018B21762B2DD28279CBBBF3759
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147093.jpgsave_picture_147093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147093.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:53A111A6979D671D50520360CA593B683A100EED
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147094.jpgsave_picture_147094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147094.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:024ADD97A04BAFCD707501DD9D1B02C26C0353EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147095.jpgsave_picture_147095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147095.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:962EB9A9A9786A6B2B67B22A5878334321C046C0
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147096.jpgsave_picture_147096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147096.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:E0BFF512DA750FDE91E8020924F668692A484EE0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147097.jpgsave_picture_147097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147097.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:C118372C3C02A2F141A835D7A9DB5D9EA7B469BC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147100.jpgsave_picture_147100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147100.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Advanced Renamer 3.92.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147101.jpgsave_picture_147101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147101.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Beyond Compare 4 v4.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147102.jpgsave_picture_147102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147102.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Level Up Studio | Видеомонтаж Обучение (2020) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147104.jpgsave_picture_147104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147104.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ ClipGrab 3.5.6 Portable by poni-koni [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147105.jpgsave_picture_147105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147105.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:98C12A648F1F04B7AE2C71917F32BA9E15821789
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147106.jpgsave_picture_147106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147106.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D78BE8840AA9B5080F1E93431A902AE511A0DE76
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147107.jpgsave_picture_147107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147107.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:3BEF56E2A909ADDB0498A66ECEDE7072083F2642
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147108.jpgsave_picture_147108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147108.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147109.jpgsave_picture_147109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147109.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:F9E1C095268DD3D00384CE18FA9027669AD6472A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147111.jpgsave_picture_147111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147111.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:F9E1C095268DD3D00384CE18FA9027669AD6472A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147112.jpgsave_picture_147112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147112.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147113.jpgsave_picture_147113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147113.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147114.jpgsave_picture_147114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147114.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:333781BD6D4EB5EF38FB8A781AD2F883D80BC9AB
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147116.jpgsave_picture_147116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147116.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Udemy, Alexander Batashov | Laravel - Создание Админ Панели. 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147117.jpgsave_picture_147117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147117.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Ashampoo WinOptimizer 26.0.0.20 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147118.jpgsave_picture_147118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147118.jpg" />
 </div>
 
 

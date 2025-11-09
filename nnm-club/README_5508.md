@@ -6,7 +6,7 @@ Auslogics BoostSpeed 13.0.0.6 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170168.jpgsave_picture_170168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170168.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:71775C9A0BE2AAA92CA2DAE4AA47B6DC6DF37346
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170169.jpgsave_picture_170169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170169.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FE12C459B0307957CC8D9CABD0329F2F9B027563
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170170.jpgsave_picture_170170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170170.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MAGIX Video Pro X13 19.0.1.129 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170172.jpgsave_picture_170172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170172.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:92D6B442D6621DE50A83F7DE4B475E23960A0EDB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170173.jpgsave_picture_170173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170173.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Auslogics File Recovery 11.0.0.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170174.jpgsave_picture_170174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170174.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D79374876B82A7778C64714F2A46A7C75894D75D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170175.jpgsave_picture_170175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170175.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2722586DD8E253BCF1E142CF8B3AE7B343EF8141
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170176.jpgsave_picture_170176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170176.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Todd Lammle | Understanding Cisco Networking Technologies: Volume 1 Exam 200-301
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170178.jpgsave_picture_170178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170178.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F7FC65795F7478D66971FD0874EFB2D71D3C8689
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170179.jpgsave_picture_170179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170179.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E2DC3AA651BC713E45010199D96FB618740EE80C
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170180.jpgsave_picture_170180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170180.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Auslogics BoostSpeed 12.0.0.1 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170181.jpgsave_picture_170181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170181.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:CD819FCFA8B4E37E85242644A7F6923DC503B543
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170182.jpgsave_picture_170182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170182.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:C70905A2D2A1956E8A490ECA5DD7A6C78F211082
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170183.jpgsave_picture_170183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170183.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sorcerer - Reign of the Reaper (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170184.jpgsave_picture_170184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170184.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D6E64B4D89B64F8D600A3353E0E5AABF4396FF2C
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170185.jpgsave_picture_170185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170185.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sorcerer - Reign of the Reaper (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170186.jpgsave_picture_170186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170186.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Foxit PDF Editor Pro 12.1.0.15250 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170187.jpgsave_picture_170187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170187.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ JUG Ru Group | DotNext 2021 Moscow. Конференция для .NET-разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170188.jpgsave_picture_170188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170188.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:44687B47BADC3C2B16EFD0086D955B64A1E38AE1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170190.jpgsave_picture_170190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170190.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D8804853FE124B8AAEFBC779A9D246DC385C9D98
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170191.jpgsave_picture_170191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170191.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B0D574750DF4C18CCF1436AF9E743BFE20A902F4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170192.jpgsave_picture_170192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170192.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:ABC649EA13629AC3E12B36D9EF4AA07603A4B7B4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170193.jpgsave_picture_170193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170193.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Auslogics BoostSpeed 13.0.0.6 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170194.jpgsave_picture_170194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170194.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Nvidia DriverPack v.460.79 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170195.jpgsave_picture_170195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170195.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:28A1809B4230FADA618913FA61A7D0878312009E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170196.jpgsave_picture_170196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170196.jpg" />
 </div>
 
 

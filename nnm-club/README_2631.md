@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69156.jpgsave_picture_69156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69156.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dorothy - The Way (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69157.jpgsave_picture_69157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69157.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:EF35C14DECB08180B4C35EBACEB2385FABDFCEB5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69158.jpgsave_picture_69158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69158.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Larva - Prescindibles (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM / Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69159.jpgsave_picture_69159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69159.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Trance Horizons, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69160.jpgsave_picture_69160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69160.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:2D65158477ED0E6FDDC6248635E32D6CC02A6283
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69161.jpgsave_picture_69161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69161.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:C5D8FB32B096BC8E1E9DB2392D750B4E70C3CE08
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69162.jpgsave_picture_69162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69162.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:20A4EFC0F3291AEF051EF9840A7B016EABFFAE50
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69163.jpgsave_picture_69163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69163.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:C391CB350BD886C34F8400E64ED7FFD884FB7D82
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69164.jpgsave_picture_69164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69164.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Tokyo Blade - Time Is the Fire (2025) [FLAC|Lossless|image + .cue] <NWOBHM, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69165.jpgsave_picture_69165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69165.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:94E510DDADCC7DE132002C2E3C9F8643E672D33F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69166.jpgsave_picture_69166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69166.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:550DF8E78237CFA1A6002A7ABD548F0628973861
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69167.jpgsave_picture_69167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69167.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Imminence - The Return of The Black (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69168.jpgsave_picture_69168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69168.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sentenced - Frozen (1998) Reissue, 2016, Century Media [FLAC|24/192|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69169.jpgsave_picture_69169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69169.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:76ECB60708AFB9489D029D806546FE47AFB94CE6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69170.jpgsave_picture_69170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69170.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:D427535C0BA581C60740B124E31D75D65E4FF11C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69171.jpgsave_picture_69171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69171.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:0F1AD9B4FBB0200CD9FBC21294B201C14421791D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69172.jpgsave_picture_69172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69172.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Don Juan Dracula - Burn (SnifferGod Rework) (2025) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69173.jpgsave_picture_69173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69173.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:FE3EBE4EBDD19608B5DFF673C95849DFF10A20D8
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69174.jpgsave_picture_69174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69174.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Capital Press | Коломенский завод. 160 лет труда, тал
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69175.jpgsave_picture_69175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69175.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:82BE846822BEFCDD5EE4B8FF6A5BE7BA4FD703AC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69176.jpgsave_picture_69176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69176.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:7475599A1DD20B57890D7DC6B6A41925A5C322FD
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69177.jpgsave_picture_69177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69177.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ GeoGebra 6.0.878 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69178.jpgsave_picture_69178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69178.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:7851E136BC8B3FB7069657B1BCF9D1E86AD75FE3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69179.jpgsave_picture_69179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69179.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69180.jpgsave_picture_69180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69180.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Helloween - Unarmed - Best Of 25th Anniversary (2009) Japanese Edition, Limited 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69181.jpgsave_picture_69181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69181.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207598.jpgsave_picture_207598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207598.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Music News vol.285 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207599.jpgsave_picture_207599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207599.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Enterclass, Татьяна Анисимова | Pro натюрморт (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207601.jpgsave_picture_207601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207601.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:8EAD495AF8FC87D07B7B6619D65AD019F3C2CC76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207604.jpgsave_picture_207604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207604.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ FamilyGo: семейный геолокатор v5.0.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207608.jpgsave_picture_207608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207608.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:09ACF1FB6149597F0983A30EAD2061F55B0C7547
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207611.jpgsave_picture_207611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207611.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ NYMF: Арт-проект Ню Фотографии 1.5.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207612.jpgsave_picture_207612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207612.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:5DEDA709E0C96BEB94F8B0846F225CB51BF8065B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207615.jpgsave_picture_207615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207615.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B4472731B501482862646385DA94019A15829E7A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207616.jpgsave_picture_207616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207616.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B4472731B501482862646385DA94019A15829E7A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207618.jpgsave_picture_207618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207618.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Udemy, Poly Bot | Unreal Engine 5.1: Advanced Landscape creation (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207622.jpgsave_picture_207622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207622.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Wise Care 365 Pro 6.5.6.629 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207623.jpgsave_picture_207623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207623.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ PureSync 7.2.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207627.jpgsave_picture_207627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207627.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ In-Grid - Chansons D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207628.jpgsave_picture_207628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207628.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ SmartUp, Кирилл Дёмин | Сочный дизайн - 2.0 (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207630.jpgsave_picture_207630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207630.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Udemy, JSFILMZ | Unreal Engine 5 Introduction to Lighting by JSFILMZ (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207632.jpgsave_picture_207632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207632.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:89DDC360D2E1D5803296376795D065035B3E9A49
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207633.jpgsave_picture_207633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207633.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ SmartUP, Кирилл Дёмин | 30 дней / идей для твоего п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207637.jpgsave_picture_207637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207637.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:0E8DCEEC62A053BCBE0FEE7066BAD4DA7AC2BB67
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207639.jpgsave_picture_207639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207639.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ IObit Driver Booster Pro 10.6.0.141 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207640.jpgsave_picture_207640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207640.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ pro.liga.ws, Штефан Ротарь | Autodesk Revit - Создание Ок�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207642.jpgsave_picture_207642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207642.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:32B88B2CBEEC1CC89942804B9368477BCE138097
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207647.jpgsave_picture_207647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207647.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Telegram Desktop 4.8.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207648.jpgsave_picture_207648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207648.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ SD Maid v5.5.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207650.jpgsave_picture_207650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207650.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Aphex Twin - Blackbox Life Recorder 21f In A Room7 F760 (2023) [FLAC|Lossless|WE
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207652.jpgsave_picture_207652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207652.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:353CA379C6081B07EA22B618868EDB05F9BC6EFA
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207655.jpgsave_picture_207655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207655.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9066.jpgsave_picture_9066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9066.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EFFDAB924E386B01F23FA29AC3CA8D13050C0B65
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9067.jpgsave_picture_9067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9067.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6119353EADDC4DE626902ED48977D2A417934B68
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9071.jpgsave_picture_9071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9071.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0BD563DE24447EBA1F610722E5E0BFACF41C0558
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9072.jpgsave_picture_9072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9072.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3B091FC22E1A7F97E829AE3BEEC5D05F52C95913
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9073.jpgsave_picture_9073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9073.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3B091FC22E1A7F97E829AE3BEEC5D05F52C95913
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9074.jpgsave_picture_9074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9074.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9013755B8749755EE4B5A34A8CB9FD475B6B74C2
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9075.jpgsave_picture_9075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9075.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9EE0E1950CF70B0719229AC89F6CB8BD0719E784
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9076.jpgsave_picture_9076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9076.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:582802ADBF16CD10389147CDEB33CA60FB896E79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9077.jpgsave_picture_9077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9077.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9F8CD36B0A214BE6F358D1E7DBEBB0D8F70DB653
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9078.jpgsave_picture_9078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9078.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9079.jpgsave_picture_9079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9079.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9080.jpgsave_picture_9080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9080.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9081.jpgsave_picture_9081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9081.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:42B82CC86A5C1A75B46A3FE5966A98A33560486C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9082.jpgsave_picture_9082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9082.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:42B82CC86A5C1A75B46A3FE5966A98A33560486C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9083.jpgsave_picture_9083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9083.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Necrophosis (2025) [Ru/Multi] (Build 19486897) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9084.jpgsave_picture_9084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9084.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:C1539A23A3C5D5422056DE7993F3495674F0C65C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9085.jpgsave_picture_9085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9085.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:040110EAC9257D0539A2FF2A1E6E206B570A5BF1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9086.jpgsave_picture_9086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9086.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Headquarters: World War II (2024) [Ru/Multi] (1.04.03/dlc) Repack Let'sРlay [Co
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9088.jpgsave_picture_9088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9088.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:74C11DEF80EA9438CAD6439827E0318AB3B05918
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9089.jpgsave_picture_9089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9089.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:080495BFDCB096894194D89D9EB2155E8430A097
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9091.jpgsave_picture_9091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9091.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:080495BFDCB096894194D89D9EB2155E8430A097
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9092.jpgsave_picture_9092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9092.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:D7E89FBF11053F86A05E8D47724B5C1E259A1FF0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9093.jpgsave_picture_9093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9093.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:F492EEA1035177434AA59915614E65C9387B7C58
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9094.jpgsave_picture_9094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9094.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ YT Downloader 9.15.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9095.jpgsave_picture_9095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9095.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:62303B9B55054B13220174E888F92112602181A6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9096.jpgsave_picture_9096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9096.jpg" />
 </div>
 
 

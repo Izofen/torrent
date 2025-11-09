@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81010.jpgsave_picture_81010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81010.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0BD7611D79F06496F2148F7172433C1373FE7E90
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81016.jpgsave_picture_81016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81016.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:23C28E6A3F7AC6B6A0E8A35213DEACEDD294A92D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81022.jpgsave_picture_81022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81022.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:23C28E6A3F7AC6B6A0E8A35213DEACEDD294A92D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81024.jpgsave_picture_81024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81024.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:395799C6ACED38D8C39CB9A2E17BAE3193FBD108
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81025.jpgsave_picture_81025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81025.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:EAF750D680EB2442CBD2A1D05042D80EB86C4085
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81026.jpgsave_picture_81026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81026.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:CD3437358AB7A90ED9A23E303AEBDF51B0FF8907
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81028.jpgsave_picture_81028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81028.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Soundlib - G-Player 1.3.0.3 by ASSiGN [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81029.jpgsave_picture_81029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81029.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81030.jpgsave_picture_81030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81030.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Total Commander SE v.8 (portable) [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81032.jpgsave_picture_81032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81032.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Total Commander SE v.8 (portable) [Русский]
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81033.jpgsave_picture_81033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81033.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:F370ECD561C23B857EB5D9165B5C35666AD7EFE9
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81035.jpgsave_picture_81035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81035.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:F370ECD561C23B857EB5D9165B5C35666AD7EFE9
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81036.jpgsave_picture_81036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81036.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Sabrina - Golden. Disco. Hits (2003) [MP3|320 кб/с]<Disco, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81038.jpgsave_picture_81038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81038.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2A24FB0A60704D29CC1CBA0FE483A74DAB4EB837
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81039.jpgsave_picture_81039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81039.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sweet (The sweet) - 4 альбома (1974-1982) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81042.jpgsave_picture_81042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81042.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81043.jpgsave_picture_81043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81043.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:C66687A10653F15C2EEEB30C4398E8C1ED4F03B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81044.jpgsave_picture_81044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81044.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:C66687A10653F15C2EEEB30C4398E8C1ED4F03B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81046.jpgsave_picture_81046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81046.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:5FD88078756394974B0C506553C637370989989A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81047.jpgsave_picture_81047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81047.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Katty and Bob: Tropical Rush / Кэти и Боб. Вперед домой (P) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81048.jpgsave_picture_81048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81048.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:E41CA8FBA400B50864F8E2DFD2C825A2FAAE2EB5
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81050.jpgsave_picture_81050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81050.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:0AF3D7D0190BD26D61AC452150903ECEB1AC18A1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81051.jpgsave_picture_81051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81051.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:068157EA0D105E9CC72A8D055D4436F4E374E8A2
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81052.jpgsave_picture_81052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81052.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:5302889A129300BA5B7A58DDC307BBF7C53E6A54
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81055.jpgsave_picture_81055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81055.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:5302889A129300BA5B7A58DDC307BBF7C53E6A54
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81060.jpgsave_picture_81060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81060.jpg" />
 </div>
 
 

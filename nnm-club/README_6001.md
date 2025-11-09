@@ -6,7 +6,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188826.jpgsave_picture_188826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188826.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3E786305850900E936FDD22ACFBF10ECAE4FA495
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188827.jpgsave_picture_188827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188827.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F5F765FF109AC3CF53ED3379B6C4F3773732D8F9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188828.jpgsave_picture_188828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188828.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C23526CC63366B2A468739E7CAB6C72C4F68F56C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188829.jpgsave_picture_188829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188829.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dred Buffalo - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Bl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188830.jpgsave_picture_188830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188830.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ AlkaБэнд - 7 Albums (2019-2022) [MP3|320 Kbps] <Punk Rock, Sky Runk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188831.jpgsave_picture_188831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188831.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Aynsley Lister - Along for the Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188832.jpgsave_picture_188832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188832.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ reFuse Software - Bucketverb 1.1.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188833.jpgsave_picture_188833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188833.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Tigersclaw - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188834.jpgsave_picture_188834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188834.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Jay-Jay Johanson - Best of 1996-2013 (2013) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188835.jpgsave_picture_188835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188835.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Telegram Desktop 4.9.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188836.jpgsave_picture_188836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188836.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:DB6CE05D921E8357399CC0B677E402726F3C5827
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188837.jpgsave_picture_188837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188837.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:C97D5BCC76BCC67F4DB160BF5A4FF03ACF98C5EA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188838.jpgsave_picture_188838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188838.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Junko Onishi - Baroque (2010) Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Str
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188839.jpgsave_picture_188839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188839.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:5CD0A93B0715EF33C0685B961715E2001095E9C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188840.jpgsave_picture_188840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188840.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:5A134822D5F854379FDE6DEABC5F37EEA26AD77E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188841.jpgsave_picture_188841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188841.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Henrik Freischlader - Recorded by Martin Meinschäfer II (2022) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188842.jpgsave_picture_188842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188842.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sister Mercy - Honey (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188843.jpgsave_picture_188843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188843.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Audio Hijack 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188844.jpgsave_picture_188844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188844.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Steve Hill - Dear Illusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188845.jpgsave_picture_188845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188845.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ HiPER Calc Pro (Scientific Calculator) 10.3.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188846.jpgsave_picture_188846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188846.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Layla Zoe - The World Could Change (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188847.jpgsave_picture_188847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188847.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:F22DE406FF9E6ED429FA9340A20DA9418DA8B079
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188848.jpgsave_picture_188848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188848.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Tom Portman - Train to Nowhere (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Coun
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188849.jpgsave_picture_188849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188849.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DA5B364A765F5E0C0E3D2EAE48466109DD21AC25
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188850.jpgsave_picture_188850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188850.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ RAR Extractor  - Unarchiver (vip) 6.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188851.jpgsave_picture_188851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188851.jpg" />
 </div>
 
 

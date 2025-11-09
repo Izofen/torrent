@@ -6,7 +6,7 @@ Jerome Godboo - One Monkey (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110372.jpgsave_picture_110372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110372.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110386.jpgsave_picture_110386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110386.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FM - Old Habits Die Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110390.jpgsave_picture_110390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110390.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pagan's Mind - Studio Albums (6 releases) (2000-2011) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110392.jpgsave_picture_110392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110392.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ghost on Mars - Out of Time and Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110406.jpgsave_picture_110406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110406.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sensual Lounge Music Universe - Sexiest Ballads: Smooth Instrumental Erotic Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110407.jpgsave_picture_110407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110407.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sexual Music Collection - Erotic Bath with Jazz (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110415.jpgsave_picture_110415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110415.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Smash Into Pieces - Ghost Code (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110425.jpgsave_picture_110425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110425.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Severed Angel - Skyward (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110428.jpgsave_picture_110428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110428.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpgsave_picture_110454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ In Search Of Sun - Lemon Amigos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110461.jpgsave_picture_110461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110461.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Emitt Rhodes - Rainbow Ends (2016) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110462.jpgsave_picture_110462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110462.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110483.jpgsave_picture_110483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110483.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Preacher Stone - V (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110493.jpgsave_picture_110493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110493.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Grateful Dead - From the Mars Hotel: The Angel's Share (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110508.jpgsave_picture_110508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110508.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Alborosie - Dub Pirate (2024) [FLAC 16/24|Lossless|WEB-DL|tracks] <Reggae. New A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110511.jpgsave_picture_110511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110511.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Writhing Squares - Mythology (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psyched
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110515.jpgsave_picture_110515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110515.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Deep Purple - Portable Door (2024) Single [FLAC 24/48|Lossless|WEB-DL|track] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110545.jpgsave_picture_110545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110545.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Big Star - Radio City (1974) Remastered, 2024, Craft Recordings [FLAC 24/192|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110551.jpgsave_picture_110551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110551.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Maria Chiara Argiro - Closer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110552.jpgsave_picture_110552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110552.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ The Mayfield Four (MF4) - Studio Albums (2 releases) (1998-2001) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110558.jpgsave_picture_110558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110558.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Big Star - #1 Record (1972) Remastered, 2024, Craft Recordings [FLAC 24/192|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110564.jpgsave_picture_110564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110564.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Inter Arma - New Heaven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <doom metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110569.jpgsave_picture_110569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110569.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ After Forever - Studio Albums (5 releases) (2000-2007) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110570.jpgsave_picture_110570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110570.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Walker & Royce - No Big Deal (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110594.jpgsave_picture_110594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110594.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ St. Vincent - All Born Screaming (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110599.jpgsave_picture_110599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110599.jpg" />
 </div>
 
 

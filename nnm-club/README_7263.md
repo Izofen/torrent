@@ -6,7 +6,7 @@ VA - Return To Space (2009) [MP3|224 кб/с]<Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248413.jpgsave_picture_248413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248413.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:31309DEF129252BF822DD17E1E3E91E69B1437B1
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248415.jpgsave_picture_248415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248415.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:21A9704C9D964C2EDD4574252A06ADF1CF15CAEB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248416.jpgsave_picture_248416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248416.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ magnet:?xt=urn:btih:4FD4CA649C0FA95969ADEAFDA343689399FA5081
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248420.jpgsave_picture_248420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248420.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ John Lindberg Trio - Hell Of A Ride (2012) [MP3|~245 кб/с (V0)]<Rockabilly, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248421.jpgsave_picture_248421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248421.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:24299BFC6F23FA6A1D76ACF5832E429CACF932F6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248422.jpgsave_picture_248422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248422.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John Coltrane - The Best of John Coltrane (2009) [FLAC|Lossless]<Bop, Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248424.jpgsave_picture_248424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248424.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Fluxion - Дискография (12 винилов, 6 альбомов) (1998-2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248425.jpgsave_picture_248425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248425.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:346DF3C655E775485753A47A43F7EA11B19B0FDA
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248427.jpgsave_picture_248427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248427.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:346DF3C655E775485753A47A43F7EA11B19B0FDA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248429.jpgsave_picture_248429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248429.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:63BFFAC55A041339922958B918E33B7AA81624F1
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248432.jpgsave_picture_248432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248432.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ali Jackson, Aaron Goldberg, Omer Avital - Yes! (2012) [FLAC|Lossless]<Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248439.jpgsave_picture_248439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248439.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ali Jackson, Aaron Goldberg, Omer Avital - Yes! (2012) [FLAC|Lossless]<Contempor
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248440.jpgsave_picture_248440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248440.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ David Benoit - Full Circle (2006) [FLAC|Lossless]<Contemporary Jazz, Piano Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248441.jpgsave_picture_248441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248441.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Best Of Deep House (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248443.jpgsave_picture_248443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248443.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Jan Gerfast Trio - Electric Blues Power (2012) [FLAC|Lossless]<Blues, Blues-Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248447.jpgsave_picture_248447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248447.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Sunset Del Mar Vol.8 Finest In ibiza Chill (2011) [MP3|320 кб/с]<Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248450.jpgsave_picture_248450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248450.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ K-Lite Codec Pack Update 8.7.5 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248453.jpgsave_picture_248453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248453.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ K-Lite Codec Pack в различных вариантах содержит вс
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248455.jpgsave_picture_248455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248455.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:285E37EFB27A0A251034041506DEC95ED42104F2
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248456.jpgsave_picture_248456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248456.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:285E37EFB27A0A251034041506DEC95ED42104F2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248458.jpgsave_picture_248458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248458.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Клубный Хит в Машину! Vol.1 (2012) [MP3|320 кб/с]<Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248461.jpgsave_picture_248461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248461.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:23587A09C11746AB2404814DD123E34810AD4AD4
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248464.jpgsave_picture_248464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248464.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - The Best Metal Duets (2011) [MP3|320 кб/с]<Gothic Rock, Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248465.jpgsave_picture_248465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248465.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ magnet:?xt=urn:btih:9EE7B6850A536DD68C2C610241A2FB995B6A8BA5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248468.jpgsave_picture_248468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248468.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ VA - Anthology Of Drum & Bass Arena (2012) [MP3|320 кб/с]<Drum and Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248469.jpgsave_picture_248469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248469.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146470.jpgsave_picture_146470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146470.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:73664355A789FE3FFB3F9C81F0CF05C201CE133C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146471.jpgsave_picture_146471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146471.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Rea Garvey - Hy Brasil (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146472.jpgsave_picture_146472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146472.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Wise Disk Cleaner 9.41.655 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146475.jpgsave_picture_146475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146475.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ SamDrivers 21.12 OLD - Сборник драйверов для Windows [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146476.jpgsave_picture_146476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146476.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Legend of the Guardians: The Owls of Ga'Hoole The Videogame (2010) [Xbox360] [Re
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146477.jpgsave_picture_146477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146477.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ CentOS 7.6 (1810) [i386] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146478.jpgsave_picture_146478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146478.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cisdem Document Reader 4 v4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146479.jpgsave_picture_146479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146479.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C4B571109F3F424BF35352408B371A12D8D8DD64
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146480.jpgsave_picture_146480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146480.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ MKVToolNix 9.7.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146481.jpgsave_picture_146481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146481.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:058AC7B7D82939DA39CBBC9783E6DE45C887C118
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146484.jpgsave_picture_146484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146484.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Psychonaut 4 - 5 Albums, 3 Splits, 1 Single (2011-2020) [FLAC|Lossless|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146485.jpgsave_picture_146485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146485.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A71BBDD5815EC2E6769C950FE87494DF91A6E9C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146486.jpgsave_picture_146486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146486.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Media Player Classic Home Cinema 1.8.4 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146487.jpgsave_picture_146487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146487.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0F591D83F1DDFD40639FFA3FBFA5C557B62E7319
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146488.jpgsave_picture_146488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146488.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:C31744223535AD9BB6369DB15B702B04FBC689A3
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146490.jpgsave_picture_146490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146490.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Русское Радио. Лучшее '2021 (25.12.2021) (2021) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146491.jpgsave_picture_146491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146491.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:564A8D84F02CF75EAD2C30B8ADB47A5A1DA5B961
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146492.jpgsave_picture_146492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146492.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ HQ Wallpapers for a desktop (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146493.jpgsave_picture_146493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146493.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:D3073D8EBCA2A02E337D38C71604F77429AE553D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146494.jpgsave_picture_146494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146494.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:45062851AC2AF549BF1E744841313BDE252C9D1C
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146495.jpgsave_picture_146495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146495.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:09B92ADBDA6B8967C0973A32AB733AF92406E97E
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146497.jpgsave_picture_146497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146497.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:630F2DCAAA6789F1720FEBA88B337559DEF6FD11
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146498.jpgsave_picture_146498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146498.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:1FFF70967B3327ED0582C5C38BCA0EC61C7F4CC2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146499.jpgsave_picture_146499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146499.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ New year wallpapers 2013 (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146500.jpgsave_picture_146500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146500.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:AB0904307806880231C5F1B925F9DF6BCE19E2AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146501.jpgsave_picture_146501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146501.jpg" />
 </div>
 
 

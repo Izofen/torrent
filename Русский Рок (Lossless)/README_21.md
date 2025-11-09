@@ -6,7 +6,7 @@ Powder Burns - ... На Горячей Земле (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144043.jpgsave_picture_144043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144043.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:150C43ACBE7510C74E4A60E284FD6D98E9E6B3C0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144709.jpgsave_picture_144709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144709.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:228E6FEBFB838257989CE895AD52D6B96C6701AD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144781.jpgsave_picture_144781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144781.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A2A76582A31168575540B36390C79DFF43CD9C47
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144805.jpgsave_picture_144805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144805.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:BB70FCBD8A7B91F75E939987A1A490AB9357D8F7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145943.jpgsave_picture_145943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145943.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:AE6C420E97155474CAF637594540A82B03899C6B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146023.jpgsave_picture_146023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146023.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:6A4941A4D42C48BB6751AB3876E619E3283960D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146166.jpgsave_picture_146166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146166.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sot-75 - Мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146185.jpgsave_picture_146185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146185.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:30EAD67BB5326074F04B2369200E0DCFBCA6F7AD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146292.jpgsave_picture_146292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146292.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:ABEDCCC07F0607A5FD7C9E707DEEC8BF4DB5BED4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146671.jpgsave_picture_146671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146671.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D36777491D000564CC8C98EB4B247648B3E78EC4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147479.jpgsave_picture_147479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147479.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:91A927327213FBF35E78BED5FCC9D998FC257788
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148522.jpgsave_picture_148522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148522.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:F7908AE455E7E97EC16012133F44BB6CDC766BE0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148585.jpgsave_picture_148585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148585.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Distemper - 25 (2014) [FLAC|Lossless|tracks] <Ska Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150194.jpgsave_picture_150194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150194.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Metaline - Hidden Hand (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150961.jpgsave_picture_150961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150961.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ In Depth Of My Mind - Reflection of Self-Destruction (2022) 2CD [FLAC|Lossless|W
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150974.jpgsave_picture_150974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150974.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:42EC5FBFB0648E6B043885665E2DE897DADD1329
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151007.jpgsave_picture_151007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151007.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:5B68D063FDD61D2EF86015A7D7489FE5CC8F08DB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151188.jpgsave_picture_151188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151188.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:91DE40B3DC8ACDEBB8483D8684066A0BE7F51DF1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153824.jpgsave_picture_153824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153824.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:D49AEFB30F30040EEB12AAAD55384DF6CDF9D8F1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155469.jpgsave_picture_155469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155469.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:80517FE7BF030A8CE31BEBF0ACA264897CA2971B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155497.jpgsave_picture_155497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155497.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Methinks - Будет день опять (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156153.jpgsave_picture_156153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156153.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:91B0388F2EE49E9F7A35285B7DDEFD28BD6AE6B1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156662.jpgsave_picture_156662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156662.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ All The Cold - To The Emerald Land (2020) [FLAC|Lossless|Web-DL|tracks] <Atmosph
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpgsave_picture_157174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpgsave_picture_157441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ magnet:?xt=urn:btih:015E881A6D238A811E75B6BBCA31BCC95BFE7709
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpgsave_picture_157759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157759.jpg" />
 </div>
 
 

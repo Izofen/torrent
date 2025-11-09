@@ -6,7 +6,7 @@ VectorStyler for Mac 1.1.094 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217051.jpgsave_picture_217051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217051.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ George Lynch & Jeff Pilson - Heavy Hitters II (2023) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217057.jpgsave_picture_217057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217057.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ David Byrne & Fatboy Slim - Here Lies Love (2010) 2CD, Remaster, 2023, Nonesuch 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217063.jpgsave_picture_217063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217063.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tony Wessels and the Revolvers - Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217069.jpgsave_picture_217069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217069.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:40E721C7BAF9E2E600FCD6DA93CC411EA0D827B6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217076.jpgsave_picture_217076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217076.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Caskets - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore / Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217114.jpgsave_picture_217114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217114.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Sam Cole - Thoughts and Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217120.jpgsave_picture_217120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217120.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Refuser - Refuser (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217136.jpgsave_picture_217136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217136.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Russell Ballantine - Harpo's Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217148.jpgsave_picture_217148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217148.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Malkasian - The Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217161.jpgsave_picture_217161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217161.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ To Kill Achilles - Recovery (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217171.jpgsave_picture_217171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217171.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Kind - Close Encounters (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217179.jpgsave_picture_217179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217179.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fork 2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217188.jpgsave_picture_217188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217188.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ The Nikhil Korula Power Trio - Crossroads (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217198.jpgsave_picture_217198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217198.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Multitouch 1.27.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217204.jpgsave_picture_217204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217204.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ James Moody - Wail Moody, Wail (1955) 1992, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217214.jpgsave_picture_217214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217214.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Hemina - Romancing The Ether (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217222.jpgsave_picture_217222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217222.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Streetlight - Ignition (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217233.jpgsave_picture_217233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217233.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Divisiv - Burn It Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217243.jpgsave_picture_217243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217243.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Elimination - Echoes of the Abyss (2021) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217254.jpgsave_picture_217254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217254.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Eternal Ascent - Reclamation (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217265.jpgsave_picture_217265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217265.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Sludge Keeper - Slough Of Despair (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217274.jpgsave_picture_217274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217274.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Elimination - Destroyed by Creation (2010) [FLAC|Lossless|image + .cue] <Power, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217283.jpgsave_picture_217283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217283.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PullTube 1.8.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217292.jpgsave_picture_217292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217292.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:D037B9B0D803971044C9ED0BDE846C06842524AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217497.jpgsave_picture_217497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217497.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:DF8703A9F177203D2A8F00366F20B89FC8D47CD6
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217528.jpgsave_picture_217528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217528.jpg" />
 </div>
 
 

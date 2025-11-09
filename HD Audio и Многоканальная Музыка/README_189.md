@@ -6,7 +6,7 @@ Electric Light Orchestra - Discovery (1979) Japanese Edition [DSD128 2.0|5,645 M
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141385.jpgsave_picture_141385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141385.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141592.jpgsave_picture_141592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141592.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141802.jpgsave_picture_141802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141802.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141809.jpgsave_picture_141809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141809.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142401.jpgsave_picture_142401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142401.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142464.jpgsave_picture_142464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142464.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142479.jpgsave_picture_142479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142479.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142499.jpgsave_picture_142499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142499.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dogma - Dogma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard N' Heavy / Fema
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143963.jpgsave_picture_143963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143963.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - The Civil War - Original Soundtrack Recording. Traditional American Songs A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144407.jpgsave_picture_144407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144407.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144425.jpgsave_picture_144425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144425.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Gregorian - Pure Chants (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144831.jpgsave_picture_144831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144831.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:59554D6A882EF8710AA8B52D363DFE3C57D7F3ED
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145212.jpgsave_picture_145212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145212.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2013) The Complete Narra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145599.jpgsave_picture_145599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145599.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146041.jpgsave_picture_146041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146041.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:AC5352D3FC1302D1FEB52ED3AB839E50F51FB247
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146130.jpgsave_picture_146130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146130.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Песни из телефильма ''Тайна Снежной Корол
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146183.jpgsave_picture_146183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146183.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146511.jpgsave_picture_146511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146511.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147033.jpgsave_picture_147033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147033.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dolly Parton - Rockstar (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147324.jpgsave_picture_147324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147324.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Vince Clarke - Songs of Silence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147371.jpgsave_picture_147371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147371.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bob Dylan - The Complete Budokan 1978 (Live) (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147431.jpgsave_picture_147431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147431.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Thea Gilmore - Thea Gilmore (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147439.jpgsave_picture_147439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147439.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Papa Roach - 20/20 (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147477.jpgsave_picture_147477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147477.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Olivia Newton-John - Totally Hot (1978) 45th Anniversary, Remastered, Reissue, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147527.jpgsave_picture_147527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147527.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147635.jpgsave_picture_147635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147635.jpg" />
 </div>
 
 

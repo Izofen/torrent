@@ -6,7 +6,7 @@ Keep It 1.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168347.jpgsave_picture_168347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168347.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:531943527EFFD9A7EC59628D11DB89807474B68E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168348.jpgsave_picture_168348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168348.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9D8DC9E5DB402CB844C22066C5EC0D29C0E9551D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168349.jpgsave_picture_168349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168349.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Viogression - Expound and Exhort (1991) Reissued, 2020, Hammerheart Records [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168350.jpgsave_picture_168350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168350.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:54565D791BB64B9893B9755095B8B5F750204049
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168351.jpgsave_picture_168351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168351.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Eurodance Power Hits For Aerobic Sessions 2022 (2021) [FLAC|Lossless|WEB-DL
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168352.jpgsave_picture_168352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168352.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Irvue 2.7.15 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168353.jpgsave_picture_168353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168353.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Cookie 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168354.jpgsave_picture_168354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168354.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:A9B224469890C755C52B87B88105404AE1FA77AE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168355.jpgsave_picture_168355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168355.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:79E12136AB8E77984356C9C7AB8ED908BB6CB295
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168356.jpgsave_picture_168356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168356.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ RAR Extractor Max-Unzip Winrar 8.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168357.jpgsave_picture_168357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168357.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Blocs 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168358.jpgsave_picture_168358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168358.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:DF979FA9CBFFAFB74FBD64783D7E71FCC842CA70
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168359.jpgsave_picture_168359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168359.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:5C16F672EFCDE8973366CA4B0DCC4B333AF0815B
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168360.jpgsave_picture_168360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168360.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jeanne Lee & Ran Blake - The Newest Sound Around 1961 (2000) RCA Victor [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168361.jpgsave_picture_168361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168361.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:34F7A728929FE1C18C57AEDFD3718D863B6FB994
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168362.jpgsave_picture_168362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168362.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:657443479EF68B61AD4FC4BC699D4F6E6E905388
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168363.jpgsave_picture_168363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168363.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:AD7C6CC601FCAB0D88EEDC88016810EBEAF1550A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168364.jpgsave_picture_168364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168364.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Sanctuary - Sanctuary (1971) Reissue, 2022, Sundazed Music / Modern Harmonic [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168365.jpgsave_picture_168365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168365.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Red Nichols And His Five Pennies - The Jazz Collector Edition 1929 (1991) LaserL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168366.jpgsave_picture_168366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168366.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:7B0F0D0665AA7CEDF5CDE6FADA35144F0E0552EB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168367.jpgsave_picture_168367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168367.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:260DA3C1CE9D79C787F9B3BAB0932EAF42BDAB21
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168368.jpgsave_picture_168368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168368.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:347B0F9A3FE09690EDDB39DC42D7DDB1E73B86EB
 >>Сверхъестественное / Supernatural
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168370.jpgsave_picture_168370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168370.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:16868780BD6600DDAD2A2CD0A1B241AF5D14217F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168371.jpgsave_picture_168371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168371.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:4D90D6FD09D583909C036466917C295F1EECF74E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168372.jpgsave_picture_168372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168372.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:F920E75B13EAC75AA890DEA7E5CC96115B099797
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168373.jpgsave_picture_168373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168373.jpg" />
 </div>
 
 

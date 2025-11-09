@@ -6,7 +6,7 @@ Def Leppard - Vault: Def Leppard Greatest Hits 1980-1995 (1995) [OGG Vorbis|484 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238471.jpgsave_picture_238471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238471.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tyrant - The Lowest Level (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238479.jpgsave_picture_238479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238479.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Queens Of The Stone Age - In Times New Roman​.​.​. (2023) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238485.jpgsave_picture_238485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238485.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tankard - Pavlov's Dawgs (2022) [MP3|320 Kbps] <Hard Rock, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238486.jpgsave_picture_238486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238486.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hexed - Pagans Rising (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238503.jpgsave_picture_238503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238503.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Def Leppard - Retromania (2010) (2CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238512.jpgsave_picture_238512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238512.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Wonder Years - The Hum Goes on Forever (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238518.jpgsave_picture_238518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238518.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Drowning Pool - Strike A Nerve (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238527.jpgsave_picture_238527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238527.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Counterparts - A Eulogy For Those Still Here (2022) [MP3|320 Kbps] <Metalcore, H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238533.jpgsave_picture_238533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238533.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Gloryhammer - Return to the Kingdom of Fife (2023) [MP3|320 Kbps] <Symphonic Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238574.jpgsave_picture_238574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238574.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Skarnet - Fængslet i det fri (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238581.jpgsave_picture_238581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238581.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Various Artists - Nobody New Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238590.jpgsave_picture_238590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238590.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Cynic - ReFocus (2006) Remastered, 2023, Masvidalien Records [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238591.jpgsave_picture_238591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238591.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gloryhammer - Return to the Kingdom of Fife (2023) [FLAC 2.0|48/24|WEB-DL|tracks
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238598.jpgsave_picture_238598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238598.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Avi Rosenfeld & Andre Tulipano - Battle Of Rock (2023) [MP3|320 Kbps] <Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238605.jpgsave_picture_238605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238605.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Corpsepain - Grimmgeflüster (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238611.jpgsave_picture_238611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238611.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Various Artists - In My Head Let's Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238613.jpgsave_picture_238613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238613.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hyperomm - Designing Apocalypse (2023) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238614.jpgsave_picture_238614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238614.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ DRH - Ode To A Firework (2022) [FLAC|Lossless|tracks + .cue] <Math Rock, Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238621.jpgsave_picture_238621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238621.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Bukowski - Bukowski (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Do
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238623.jpgsave_picture_238623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238623.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Agora - Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238625.jpgsave_picture_238625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238625.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Heathen Kings - Fealty to None (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238631.jpgsave_picture_238631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238631.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Various Artists - Hard and Heavy Massive Hits (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238632.jpgsave_picture_238632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238632.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Da Vinci - Ambition Rocks (2017) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238633.jpgsave_picture_238633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238633.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sick Dogs in Trouble - Dead Lovers (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238638.jpgsave_picture_238638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238638.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Corvo - Calamidade (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238639.jpgsave_picture_238639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238639.jpg" />
 </div>
 
 

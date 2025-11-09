@@ -6,7 +6,7 @@ VA - Armin van Buuren - A State Of Trance 1197 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103410.jpgsave_picture_103410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103410.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:05322831652000E8EB833D15E4EEAF8CA2DBC067
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103411.jpgsave_picture_103411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103411.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:B665E8CC4BEAF8C56A8EA224F40D548EF198F868
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103412.jpgsave_picture_103412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103412.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rosalie Cunningham - To Shoot Another Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103413.jpgsave_picture_103413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103413.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Aaron Rimbui - Imani (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103414.jpgsave_picture_103414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103414.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Charles Tolliver - New Tolliver (1977) 2009, BMG [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103415.jpgsave_picture_103415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103415.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:01C866DAE135F76D2BA9AFC789466378502473ED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103416.jpgsave_picture_103416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103416.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:7544F604591F18B905F97B314D1CA2C734E73BFF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103417.jpgsave_picture_103417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103417.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:2F7623F7E6E5C7D5884893644ACFD29331FB61A1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103418.jpgsave_picture_103418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103418.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:B9B37AFB943BB9CB7771CCC2FEA39957F11B8220
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103419.jpgsave_picture_103419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103419.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:4B670FAE4668476733AC3D447562A4C0C1CD6F97
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103420.jpgsave_picture_103420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103420.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Brad Smith - Broken Bones And Bullet Holes (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103421.jpgsave_picture_103421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103421.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:7DD500F18072E64BF0DF769DAFC7C01F16746472
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103422.jpgsave_picture_103422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103422.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:A34733E9B4FB35F9D107FCCC2831F22525ED4AA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103423.jpgsave_picture_103423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103423.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:63AC35FDC45CBBF0B804725A6F0B4B73DF8131BC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103424.jpgsave_picture_103424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103424.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Delusions Of Godhood - Salvation's Withdrawal (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103425.jpgsave_picture_103425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103425.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Avi Rosenfeld & Juan Bach - Bz Dz Purple Snake (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103426.jpgsave_picture_103426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103426.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Various Artists - ANA - Metal for Charity Project (2017) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103427.jpgsave_picture_103427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103427.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:51FF40270256DC8EA9B8C6D510E96E8673CE25D5
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103428.jpgsave_picture_103428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103428.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:6E45724493F57B6FA4D657D1D125124144211389
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103429.jpgsave_picture_103429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103429.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F1E1ED97FB038323BAECEF9F8A87DA1EBC516873
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103430.jpgsave_picture_103430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103430.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:BF8472EC24986BA3321194C370550AA34C9B28D6
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103431.jpgsave_picture_103431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103431.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:AF42ABC65A5965C76C38354D643196B8F101DA07
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103432.jpgsave_picture_103432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103432.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Skillet - Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <christian roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103433.jpgsave_picture_103433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103433.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:7245C911916AB87097B19F0D964A90EB1F23C4B7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103434.jpgsave_picture_103434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103434.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:1F994D6D08BD9D89B5FB97FE4CEFAA4D6D10EB7E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103435.jpgsave_picture_103435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103435.jpg" />
 </div>
 
 

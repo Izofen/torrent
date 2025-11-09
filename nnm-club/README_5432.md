@@ -6,7 +6,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168136.jpgsave_picture_168136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168136.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5095.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168137.jpgsave_picture_168137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168137.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:59994422114511CA211E0D2D61EFDDE318750302
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168138.jpgsave_picture_168138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168138.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EF88E47FA00C879FF323E2BDC291CBBFAF3D8E89
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168139.jpgsave_picture_168139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168139.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Closure In Moscow - Soft Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168140.jpgsave_picture_168140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168140.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ TweakPower 2.031 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168141.jpgsave_picture_168141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168141.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F7FFD43C0F02C8F82CA70134739358D5C5601399
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168142.jpgsave_picture_168142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168142.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ JRiver Media Center 25.0.115 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168143.jpgsave_picture_168143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168143.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:5A951E2F3E7F504B03FF7D4B77CEE47B5A97F7E3
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168144.jpgsave_picture_168144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168144.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Speedtest от Ookla 5.2.2 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168145.jpgsave_picture_168145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168145.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:31F6246B83AEEB5DEB6600A22073DB740D6DE43D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168146.jpgsave_picture_168146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168146.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cursed Fables 2: Twisted Tower (2022) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168147.jpgsave_picture_168147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168147.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - EDM Rave 2020 Electronic Dance Trance Dubstep Techno House (2019) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168148.jpgsave_picture_168148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168148.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ DICE | Артбук по игре Battlefield 2042 / The Art of Battlefield 2042
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168149.jpgsave_picture_168149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168149.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Nicholas Payton - The Couch Sessions (2022) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168150.jpgsave_picture_168150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168150.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:C87D0857DA1B2D1177048355578D73B716BEAED7
 >>Сверхъестественное / Supernatural
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168151.jpgsave_picture_168151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168151.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Sensei 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168152.jpgsave_picture_168152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168152.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:B981D71AAD31C674C68D37CD031AF3F5D3CA6CF2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168153.jpgsave_picture_168153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168153.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Mirillis Action! 4.14.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168154.jpgsave_picture_168154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168154.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Kdenlive 22.12.0 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168155.jpgsave_picture_168155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168155.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Skylark - Divine Gates Part I Gate Of Hell (1999) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168156.jpgsave_picture_168156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168156.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Scapple 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168157.jpgsave_picture_168157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168157.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ MediaHuman Youtube Downloader 3.9.9.29 (build 0412) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168158.jpgsave_picture_168158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168158.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:B28C3773975F1C87AF103C44F21AFE12630AAA7E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168159.jpgsave_picture_168159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168159.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Jeff Lorber Fusion - The Drop (2023) Shanachie [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168160.jpgsave_picture_168160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168160.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:CDB9F2F1175FB288DA1B7C59B8D1FDCDDD2B592F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168161.jpgsave_picture_168161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168161.jpg" />
 </div>
 
 

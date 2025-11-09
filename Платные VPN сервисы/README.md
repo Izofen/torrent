@@ -6,7 +6,7 @@ NoBorderVPN — анонимный и стабильный VPN. 3 дня бес�
 >>Платные VPN сервисы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_675.jpgsave_picture_675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_675.jpg" />
 </div>
 
 

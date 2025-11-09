@@ -6,7 +6,7 @@ Yotto - Odd One Out Radio (001-017) (2024) [MP3|320 Kbps] <Progressive House, Me
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42035.jpgsave_picture_42035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42035.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C632EEF7847EAFA170977E9F1E3B454517022992
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42036.jpgsave_picture_42036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42036.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fast Video Cutter Joiner 6.0.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42037.jpgsave_picture_42037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42037.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kami no Tou: Ouji no Kikan | Tower of God 2nd Season | Башня Бога: Во
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42038.jpgsave_picture_42038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42038.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2AF447473512214710883D480C30634468BC0586
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42039.jpgsave_picture_42039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42039.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:75437D0298A1F7406B51AF3173C2BAAFB6353948
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42040.jpgsave_picture_42040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42040.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:5A44088248094DC4EFCDDB01E16182B6C39DD958
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42041.jpgsave_picture_42041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42041.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ IObit Driver Booster Pro 12.0.0.354 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42042.jpgsave_picture_42042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42042.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ AOMEI Partition Assistant Technician Edition 10.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42043.jpgsave_picture_42043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42043.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:76AF851D77971E9DF925FAA2F6D992F1633B66CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42044.jpgsave_picture_42044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42044.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Dwarven Realms (2022) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42045.jpgsave_picture_42045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42045.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:7957448F825706424E7C410860B37E8B7AE4F933
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42046.jpgsave_picture_42046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42046.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:CABFEDD13AC25D9A4FE1910DDFCE17AF4D7E8B63
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42047.jpgsave_picture_42047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42047.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:41F2C4F9F77FCFC09E662368FAE4EADA8615DA4C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42048.jpgsave_picture_42048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42048.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:034F29A635691FB2DC6BF850C40FD7CD56EAC053
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42049.jpgsave_picture_42049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42049.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Vit Registry Fix Pro 14.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42050.jpgsave_picture_42050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42050.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:522DD6D528029945C2413A8641509269B436C9D2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42051.jpgsave_picture_42051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42051.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:052684FD97630718276109BA340D63C26FFEC4B8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42052.jpgsave_picture_42052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42052.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Tor Browser Bundle 13.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42053.jpgsave_picture_42053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42053.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Shadows of Doubt (2024) [Ru/Multi] (39.07) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42054.jpgsave_picture_42054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42054.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:7D6E84D10E8A82A85B7D0219DEB0541D2B2D5B0A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42055.jpgsave_picture_42055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42055.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:B49AFC22165DAA37D1F0A68319A3E32C7E9D8D32
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42056.jpgsave_picture_42056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42056.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:8DB2258D7FB39B5083EDD77E257F0DDF3BAEB6C6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42057.jpgsave_picture_42057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42057.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Batbarian: Testament of the Primordials (2020) [Ru/Multi] (1.4.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42058.jpgsave_picture_42058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42058.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ E-Rotic - 12 Albums, 6 Compilations, 41 Singles (1994-2024) [MP3|320 Kbps] <Euro
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42059.jpgsave_picture_42059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42059.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0D230DA23701D85812F1C10A50ED0E1F161AC0F1
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42060.jpgsave_picture_42060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42060.jpg" />
 </div>
 
 

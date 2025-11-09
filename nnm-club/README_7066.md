@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241966.jpgsave_picture_241966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241966.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Jazz Dreams (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241967.jpgsave_picture_241967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241967.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Final Cut Pro 10.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241968.jpgsave_picture_241968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241968.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:31ACEB0322DC6010C23B0497610DC388238F147E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241969.jpgsave_picture_241969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241969.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:0941186CED970CD685676DC10488DEC84C4F7863
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241970.jpgsave_picture_241970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241970.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:98379DC73E76B380FF25BD92F57D0907F72E0E5D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241971.jpgsave_picture_241971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241971.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Adorned Brood - Noor (2008) [FLAC|Lossless|image + .cue] <Folk Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241972.jpgsave_picture_241972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241972.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241973.jpgsave_picture_241973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241973.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Craig Connelly - One Second Closer (2017) [FLAC|Lossless|WEB|tracks] <Trance , P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241974.jpgsave_picture_241974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241974.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Uninstall Tool 3.6.0 Build 5681 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241975.jpgsave_picture_241975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241975.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241976.jpgsave_picture_241976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241976.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:1FBF13066A5AE808A7DA962CDD579A90BA0EF9A1
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241977.jpgsave_picture_241977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241977.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:89155E0C544970C2120682725B92DB67EEF3CBFF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241978.jpgsave_picture_241978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241978.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:C66CE5C711C5B448449E216FE8EC7252EB205CB7
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241979.jpgsave_picture_241979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241979.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:CF92D740A1A503B63F2642D2CF068DF5409D6488
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241980.jpgsave_picture_241980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241980.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Vocal Trance Classics 006 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241981.jpgsave_picture_241981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241981.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:9BF0E3083D05EA52E6824F6EE4657AAB53A46E23
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241982.jpgsave_picture_241982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241982.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:07FA6CFC58542E2DED5D39767565C3F85930549F
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241983.jpgsave_picture_241983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241983.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:79689AF9DE5AFC341B6F4EE20BF357D7540278A5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241984.jpgsave_picture_241984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241984.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Comfort Zone - Soft Rock (2023) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241985.jpgsave_picture_241985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241985.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:CF3E5BE3B7758E88C7D61C3A8A6D70AFAD1F11F7
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241986.jpgsave_picture_241986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241986.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:0F1788D2B915D8D5896A630C8258A054EA2A8916
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241987.jpgsave_picture_241987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241987.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ RAM Saver Professional 23.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241988.jpgsave_picture_241988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241988.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:BAE523F51A0DA941DAF983A19DE0C79CC31CEDCC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241989.jpgsave_picture_241989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241989.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Ant Download Manager Pro 2.7.0 Build 80995 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241990.jpgsave_picture_241990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241990.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Walter Beasley - Ready For Love (2007) Heads Up [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241991.jpgsave_picture_241991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241991.jpg" />
 </div>
 
 

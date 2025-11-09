@@ -6,7 +6,7 @@ Space Prison (2024) [Ru/Multi] (1.0.6/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47000.jpgsave_picture_47000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47000.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ My Recycling Center (2024) [Multi] (1.2/dlc) Scene TinyISO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47001.jpgsave_picture_47001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47001.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ A Space for the Unbound (2023) [Multi] (1.0.35.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47007.jpgsave_picture_47007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47007.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47033.jpgsave_picture_47033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47033.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ City of Stories 2: The Professor's Secret / Город историй 2: Сек�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47034.jpgsave_picture_47034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47034.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47051.jpgsave_picture_47051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47051.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cursed Fables 5: A Gilded Rose / Проклятые предания 5: Позо
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47058.jpgsave_picture_47058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47058.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47062.jpgsave_picture_47062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47062.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Hot Lap Racing (2024) [Multi] (1.0.3-0cfd3d1de) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47067.jpgsave_picture_47067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47067.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47070.jpgsave_picture_47070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47070.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47071.jpgsave_picture_47071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47071.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47077.jpgsave_picture_47077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47077.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Zoo Simulator (2024) [Ru/Multi] (1.00.23) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47078.jpgsave_picture_47078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47078.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47090.jpgsave_picture_47090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47090.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Voltaire: The Vegan Vampire (2023) [Multi] (1.03.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47093.jpgsave_picture_47093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47093.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47094.jpgsave_picture_47094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47094.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Smack Studio (2021) [En] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47137.jpgsave_picture_47137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47137.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Taxi Rush (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47175.jpgsave_picture_47175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47175.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47241.jpgsave_picture_47241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47241.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47255.jpgsave_picture_47255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47255.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47258.jpgsave_picture_47258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47258.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (1.3) Scene Tenoke [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47260.jpgsave_picture_47260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47260.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Aerial_Knight's We Never Yield (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47268.jpgsave_picture_47268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47268.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47277.jpgsave_picture_47277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47277.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47278.jpgsave_picture_47278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47278.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47280.jpgsave_picture_47280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47280.jpg" />
 </div>
 
 

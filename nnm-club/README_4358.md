@@ -6,7 +6,7 @@ VA - Poker Lounge (4CD) (2008) [MP3|320 кб/с]<Lounge, Jazzy>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135905.jpgsave_picture_135905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135905.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:E58CC7DB12E9B0C27B9FE1C61EB3BBDC425EDF38
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135906.jpgsave_picture_135906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135906.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Cat Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135907.jpgsave_picture_135907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135907.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:259403BED0ECFF27E40658783261E5D96D775D27
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135908.jpgsave_picture_135908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135908.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A94D452C1E8F46AE1D68B845BC665F66A4D998A1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135909.jpgsave_picture_135909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135909.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:8BBE1BC44CCFE4267EAEFBDDD9A7910B08E73739
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135911.jpgsave_picture_135911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135911.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fantastic Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135919.jpgsave_picture_135919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135919.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D640E81A1D8938DDF15C0FC1D1114486D4D17F7B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135920.jpgsave_picture_135920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135920.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:3743E49682CA2901F430B3B093D0A8E8382177D5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135925.jpgsave_picture_135925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135925.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Monster Trucks Wallpapers (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135928.jpgsave_picture_135928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135928.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ New year wallpapers 2013 (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135930.jpgsave_picture_135930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135930.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Drum & Bass Remixers Vol. 2 (2012) [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135939.jpgsave_picture_135939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135939.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:A94DDF9F7F26825C4C611F943944D3F5DBF96624
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135943.jpgsave_picture_135943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135943.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ New year wallpapers 2013 (20.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135950.jpgsave_picture_135950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135950.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Daily Bread - Iterum (2012) [MP3|320 кб/с] <Indie Rock, Electronic, Dance>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135951.jpgsave_picture_135951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135951.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Desktop Wallpapers (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135953.jpgsave_picture_135953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135953.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ HQ Wallpapers for a desktop (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135954.jpgsave_picture_135954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135954.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:0071452D3427653ECF5585CC0CAE98194E186DC8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135955.jpgsave_picture_135955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135955.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Dragon Wallpapers (20.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135956.jpgsave_picture_135956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135956.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:47C8AECED05B09F51CEC5DFFBEC091CA152B6AFF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135957.jpgsave_picture_135957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135957.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Best HD Wallpapers Pack (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135958.jpgsave_picture_135958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135958.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:F76E98F8FC21B0E062BC0B4C8D39DE96E4F340BF
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135963.jpgsave_picture_135963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135963.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Winter Wallpapers (21.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135964.jpgsave_picture_135964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135964.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ New year wallpapers 2013 (19.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135965.jpgsave_picture_135965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135965.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:97FAB6741C06C14CF454EEB7B00E0DC3AD1B6B7B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135966.jpgsave_picture_135966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135966.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Winter Wallpapers (18.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135967.jpgsave_picture_135967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135967.jpg" />
 </div>
 
 

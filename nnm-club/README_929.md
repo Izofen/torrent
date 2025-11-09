@@ -6,7 +6,7 @@ AIMP 5.40 Build 2668 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24493.jpgsave_picture_24493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24493.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - National Pop Dance Music Vol.100 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24494.jpgsave_picture_24494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24494.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1EED4E3F45E1AC9048F6849E4DB52A73BD2486FC
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24495.jpgsave_picture_24495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24495.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 12.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24496.jpgsave_picture_24496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24496.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:3C12AF46FD92B39EEAD492EF4D2F0DCB21697C97
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24497.jpgsave_picture_24497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24497.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:79CCBDD0A9D4DA1F2C825BCA755C288BE6CBA2E4
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24498.jpgsave_picture_24498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24498.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Auto Sale Life (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24499.jpgsave_picture_24499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24499.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3CD062E2707E60E293903B02A47BD4293F4EB0BF
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24500.jpgsave_picture_24500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24500.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:69E48D8BFE3233B934598978B11CF725B95CDD16
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24501.jpgsave_picture_24501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24501.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Netflix показал первый трейлер седьмого сезона
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24502.jpgsave_picture_24502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24502.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ David Dubnitskiy School - The Secrets of Masterful Erotic Photography - Renault 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24503.jpgsave_picture_24503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24503.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 4.3 Low Poly Guide (2025) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24504.jpgsave_picture_24504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24504.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24505.jpgsave_picture_24505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24505.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:D68979524B660DB789DD841101032297DE991F49
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24506.jpgsave_picture_24506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24506.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:A5AFDBC81F8CE8B2E822FE15A8FCC46B492BFAC2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24507.jpgsave_picture_24507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24507.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:FCD63D0278A2F157395BA3E87E27F1D3E2396312
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24508.jpgsave_picture_24508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24508.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:BD06D81FC9D1885040C79C959FA411A012ED2098
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24509.jpgsave_picture_24509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24509.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24510.jpgsave_picture_24510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24510.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E3090BA32262EF07C764E78B0B2A581BED644169
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24511.jpgsave_picture_24511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24511.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ My Life: Zoo Vet / Моя жизнь: Ветеринар зоопарка (2025)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24512.jpgsave_picture_24512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24512.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:EFF3A1B4F8046ACE494F73BAC62C33A972778567
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24513.jpgsave_picture_24513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24513.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24514.jpgsave_picture_24514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24514.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:FC9593AC88C6A86E9F55B23B051407979A82A2D9
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24515.jpgsave_picture_24515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24515.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ CopyQ 9.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24516.jpgsave_picture_24516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24516.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:52B9F0AD4E949C28296EB70919ABB96391227FBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24517.jpgsave_picture_24517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24517.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ S Rank Monster no "Behemoth" Dakedo, Neko to Machigawarete Elf Musume no Pet to 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24518.jpgsave_picture_24518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24518.jpg" />
 </div>
 
 

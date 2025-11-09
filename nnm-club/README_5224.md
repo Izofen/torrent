@@ -6,7 +6,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162583.jpgsave_picture_162583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162583.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Angel Tyrs - Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162584.jpgsave_picture_162584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162584.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:34DFBE4F8B716BEEF1E2AA500597245E99B127FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162585.jpgsave_picture_162585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162585.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9089278E0A61753C90A7CC3EB3216D2C6CA067E2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162586.jpgsave_picture_162586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162586.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Speedtest от Ookla 5.2.3 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162587.jpgsave_picture_162587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162587.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:5961172A83FE498296979F0395C0DDC59B9B519B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162588.jpgsave_picture_162588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162588.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:4D1CEA8436F599EF853DB2DFC7DEFC555FCEAE1B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162590.jpgsave_picture_162590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162590.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:667C55DFBA0347849BBA46D778100BBD108A3952
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162591.jpgsave_picture_162591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162591.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:58DC4C5FCBB8402164DF50F1E42217A3E3F2053C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162592.jpgsave_picture_162592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162592.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Sandboxie plus 1.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162593.jpgsave_picture_162593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162593.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B6D870CB04D44C9D3595BFC68A5FB23DEA3563E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162594.jpgsave_picture_162594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162594.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:C7AFE7895D407E8C2458B4F8E75870F853F5D6C9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162595.jpgsave_picture_162595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162595.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:9CF0DCE6B14EAF4D13A6186BCEDE14AC1F28A829
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162596.jpgsave_picture_162596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162596.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Recharged 002 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162597.jpgsave_picture_162597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162597.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Трибьют Сектор Газа (2020) [MP3|320 Kbps] <Punk Rock, Rock
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162598.jpgsave_picture_162598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162598.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Compagniet - Juke Joint Sessions '23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162599.jpgsave_picture_162599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162599.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ FreeCAD 0.19.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162600.jpgsave_picture_162600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162600.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешен�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162601.jpgsave_picture_162601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162601.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:1641F697CEB8E19D136EE61D86FCFDF3F9F7A62A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162602.jpgsave_picture_162602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162602.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:51FAEC99D1D41E083ABC3F15AF5F4C9FEAAB9C67
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162603.jpgsave_picture_162603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162603.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:3157E52BA6F91EEC489722B4C4CAE3FA2873DB7A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162604.jpgsave_picture_162604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162604.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:B640DC99D4E54B95A1896ACC5166BFA83FCAEEBF
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162605.jpgsave_picture_162605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162605.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Metal Love Songs (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162606.jpgsave_picture_162606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162606.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:D50D45900EF48D6E701B2276F09141D441D52DBA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162607.jpgsave_picture_162607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162607.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:0F218AF50DFA931AF932ED1DB649C3E69AD76D17
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162608.jpgsave_picture_162608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162608.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Bert Hillesheim - I'm Talking to You (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162609.jpgsave_picture_162609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162609.jpg" />
 </div>
 
 

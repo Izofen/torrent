@@ -6,7 +6,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (2.1.2 R22365/dlc) Repack FitGirl [Essentia
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25533.jpgsave_picture_25533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack FitGirl [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25547.jpgsave_picture_25547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25547.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25550.jpgsave_picture_25550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25550.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.0.18525) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25578.jpgsave_picture_25578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25578.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25585.jpgsave_picture_25585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25585.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Pegasus Expedition (2022) [Ru/Multi] (2025 mar01 patch) License GOG [Grand A
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25593.jpgsave_picture_25593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25593.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25595.jpgsave_picture_25595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25595.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.14955) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25597.jpgsave_picture_25597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25597.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Builders Of Egypt (2025) [Ru/Multi] (1.0408) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25598.jpgsave_picture_25598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25598.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack FitGirl [P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25603.jpgsave_picture_25603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25603.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.9036.0/dlc) Repack seleZen [P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25608.jpgsave_picture_25608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25608.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Laundromat Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25610.jpgsave_picture_25610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25610.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25613.jpgsave_picture_25613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25613.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.0/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25656.jpgsave_picture_25656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25656.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Pacific Drive (2024) [Ru/Multi] (1.8.3-CL28407/dlc) Repack Wanterlude [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25675.jpgsave_picture_25675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25675.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25677.jpgsave_picture_25677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25677.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25685.jpgsave_picture_25685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25685.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.0.ca3e/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25691.jpgsave_picture_25691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25691.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25706.jpgsave_picture_25706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25706.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25758.jpgsave_picture_25758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25758.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Rogue Samurai (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25785.jpgsave_picture_25785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25785.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25789.jpgsave_picture_25789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25789.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack FitGirl [Complete]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25794.jpgsave_picture_25794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25794.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p27.1/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25803.jpgsave_picture_25803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25803.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Rangers In The South (2025) [Ru/Multi] (1.2.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25804.jpgsave_picture_25804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25804.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25810.jpgsave_picture_25810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25810.jpg" />
 </div>
 
 

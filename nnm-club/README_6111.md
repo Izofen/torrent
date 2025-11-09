@@ -6,7 +6,7 @@ CudaText 1.198.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192251.jpgsave_picture_192251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192251.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:44EC4EFEBA502FF190925793099F9D58B84ED32E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192252.jpgsave_picture_192252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192252.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EFEBF733D4D4363674EB4059C5DBCA5CA75D0EE0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192253.jpgsave_picture_192253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192253.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:07707F7A4781AF9862F2FDF415F5451B339D5922
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192254.jpgsave_picture_192254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192254.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:39260D420BC9508E951A6B396A5A802D4BD75DFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192255.jpgsave_picture_192255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192255.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:35D7F6E8425DD88B4D5446AD593E4CF7E06B1792
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192256.jpgsave_picture_192256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192256.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2928 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192257.jpgsave_picture_192257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192257.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:5E1D256BFDDDE82A48F62EF169ED7D1FFD0ACF09
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192258.jpgsave_picture_192258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192258.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Everlasting Fall - Alive (2023) [MP3|320 Kbps] <Alternative Rock, Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192259.jpgsave_picture_192259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192259.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4DBBC6AED6EBD9E1599D93012CE5EAD851061FA2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192260.jpgsave_picture_192260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192260.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ InShot - Фото и видеоредактор 1.960.1416 Mod by maxi123444 [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192261.jpgsave_picture_192261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192261.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ QuickMemoryTestOK 4.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192262.jpgsave_picture_192262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192262.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:2CC619FCB886E3D552032881529012405A62802B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192263.jpgsave_picture_192263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192263.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E1041F9DE05E57C70AD400127FCC3BE4B74F4FD8
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192264.jpgsave_picture_192264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192264.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E920550FE2CCCB83BFCAEEE989A963590530993F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192265.jpgsave_picture_192265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192265.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:55EF9158A6FC04117F4122860FD381A78AA8C672
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192266.jpgsave_picture_192266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192266.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Sex Music - Sex Songs Instrumental Melodies for Sensual Exploration (2021) 3CD [
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192267.jpgsave_picture_192267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192267.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Skype 8.103.0.208 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192268.jpgsave_picture_192268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192268.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:AA307F9C205E20D4FDB6B5AF86FBB14ABB17FF9C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192269.jpgsave_picture_192269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192269.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лице
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpgsave_picture_192270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192271.jpgsave_picture_192271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192271.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:F9F27CCF212A93F957E4C468E96F6AB77232EDA3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192272.jpgsave_picture_192272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192272.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:B51E43275E80AD7E090E21BBE1F72E594693E5E7
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192273.jpgsave_picture_192273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192273.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:1F5E576121C4E6497B2723484E3C2664FFC39544
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192274.jpgsave_picture_192274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192274.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dying Fetus - Make Them Beg for Death (2023) [MP3|320 Kbps] <Extreme death metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192275.jpgsave_picture_192275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192275.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Radio Silence 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192276.jpgsave_picture_192276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192276.jpg" />
 </div>
 
 

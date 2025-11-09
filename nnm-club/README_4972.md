@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155345.jpgsave_picture_155345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155345.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1EAE7A15B9CA19D24D42D47396404127C7420146
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155346.jpgsave_picture_155346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155346.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4839EEB34D4DCDC1E37C7269013914F76AEF4456
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155347.jpgsave_picture_155347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155347.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Wise Disk Cleaner 10.8.2.802 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155349.jpgsave_picture_155349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155349.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:7701EA10F5D8C4ADE8C7DF4BA5EFE3E843A0C882
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155350.jpgsave_picture_155350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155350.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ LDPlayer 9.0.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155351.jpgsave_picture_155351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155351.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Vinnie Moore - Double Exposure (2022) [FLAC|Lossless|image + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155352.jpgsave_picture_155352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155352.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:E629A305F032F5692B9BBD2F0E7B176770D3A432
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155353.jpgsave_picture_155353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155353.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ ESET Smart Security 10.0.386.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155354.jpgsave_picture_155354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155354.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ English For IT, Анна Гандрабура | Английский для те
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155355.jpgsave_picture_155355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155355.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:CC6EA9F8A44D05A780EBFA9DF2C662F97069EFD8
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155356.jpgsave_picture_155356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155356.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ ISO Workshop 12.4 Pro RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155358.jpgsave_picture_155358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155358.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Het Beste Uit De Q Top 1000: Editie (2019), 6CD [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155359.jpgsave_picture_155359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155359.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Cкелетон. Кубок мира 2017-2018. 5-й Этап и Чемпион�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155361.jpgsave_picture_155361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155361.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Affinity Photo Beta 1.10.5.270 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155363.jpgsave_picture_155363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155363.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:2D5703C7F8EF7BE1FEC86A999736CDAD20D6587E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155364.jpgsave_picture_155364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155364.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ FFmpeg Batch AV Converter 3.0.1 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155365.jpgsave_picture_155365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155365.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:DD599C8F69B50BF791216330C670DACD39B46F52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155367.jpgsave_picture_155367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155367.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Edraw Max Pro 8.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155368.jpgsave_picture_155368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155368.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Affinity Designer Beta 1.10.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155369.jpgsave_picture_155369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155369.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:3D3FCD01E82BAEB29CDEB2F98414ABBCFD035E50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155370.jpgsave_picture_155370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155370.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:8ADD39CD711DB0C51C25F5F923C62086012C4E0A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155371.jpgsave_picture_155371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155371.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:B0E6ED4728B2B8999240705A6A0A901FAE88AFC6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155372.jpgsave_picture_155372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155372.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:CD1232FCB96CC7FE4387A8E8C4C8C8DA91061E55
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155373.jpgsave_picture_155373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155373.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:AA4CC81CCD27D18EE9C68F4F6835534015ADA95D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155374.jpgsave_picture_155374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155374.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Millidor (2016) [Ru] (0.9.0.3) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155375.jpgsave_picture_155375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155375.jpg" />
 </div>
 
 

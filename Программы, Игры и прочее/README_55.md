@@ -6,7 +6,7 @@ ToonMe v0.6.106 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119506.jpgsave_picture_119506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119506.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LightX - Фоторедактор v2.2.1 b417 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119530.jpgsave_picture_119530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lumii - Фоторедактор, Фильтры v1.621.148 Mod by maxi123444 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119544.jpgsave_picture_119544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119544.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1BBAE8619C4582C1A49BFE4781FC3829E45C5A71
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119565.jpgsave_picture_119565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119565.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RUTUBE: видео, шоу, трансляции 28.18.2-android Mod by N3k1t4_1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120164.jpgsave_picture_120164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120164.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:73B215DAFEB122F0D3598B599840F32EEDA86238
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120181.jpgsave_picture_120181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120181.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ RUTUBE - видео, шоу, трансляции 28.16.1.TV-androidtv Mod by N3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120192.jpgsave_picture_120192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120192.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ OfficeSuite Pro + PDF 14.2.50872 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120480.jpgsave_picture_120480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120480.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ AirReceiver AirPlay Cast DLNA v5.0.8 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120521.jpgsave_picture_120521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120521.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ My TTS: Text-to-Speech v1.2.2 Mod by Alex.Strannik [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120523.jpgsave_picture_120523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120523.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Strava: бег, велоезда, хайкинг v344.9 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120674.jpgsave_picture_120674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120674.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AR Ruler App: Линейка Рулетка v2.7.8 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121009.jpgsave_picture_121009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121009.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PhotoTune - Улучшитель фото v4.4.9 Mod by maxi123444 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121019.jpgsave_picture_121019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121019.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PictureThis - Plant Identification v3.76.1 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121041.jpgsave_picture_121041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121041.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Plus Messenger (Telegram+) v10.6.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121152.jpgsave_picture_121152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121152.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Carista OBD2 v8.2.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121187.jpgsave_picture_121187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121187.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ MacroDroid v 5.40.4 Pro/Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121200.jpgsave_picture_121200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121200.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ vpnify - Безлимитный VPN 2.1.6 Mod by YouAreFinished [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121211.jpgsave_picture_121211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121211.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:553F207F486FD82084054713C5CDD1E5D0F9C320
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121221.jpgsave_picture_121221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121221.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.13 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121720.jpgsave_picture_121720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121720.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Docs To Go Office Suite v4.004 (b1618) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121748.jpgsave_picture_121748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121748.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Pro Pilkki 2 / Зимняя рыбалка v1.9.3 Mod by Bubalex88 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121756.jpgsave_picture_121756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121756.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VK X 6.8.2 (29200) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121779.jpgsave_picture_121779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121779.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.010.1433 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121841.jpgsave_picture_121841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121841.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Gradient v2.10.12 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121892.jpgsave_picture_121892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121892.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Listen Audiobook Player v5.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121897.jpgsave_picture_121897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121897.jpg" />
 </div>
 
 

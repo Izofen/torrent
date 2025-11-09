@@ -6,7 +6,7 @@ IObit Uninstaller Free 13.4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113975.jpgsave_picture_113975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113975.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Calendar 366 II 2.15.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113976.jpgsave_picture_113976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113976.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A03109C1E7D6162EF2E00DB7184BB87F2215C5DA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113977.jpgsave_picture_113977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113977.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ NextChat for Mac 2.11.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113978.jpgsave_picture_113978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113978.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113979.jpgsave_picture_113979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113979.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Mark Maxwell, Dr. SaxLove - Lofi Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113980.jpgsave_picture_113980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113980.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Smooth Jazz Essence (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113981.jpgsave_picture_113981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113981.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113982.jpgsave_picture_113982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113982.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ One Switch 1.34.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113983.jpgsave_picture_113983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113983.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:9D1E242D0C23F99C2330692CCDFA7A188C69FECC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113984.jpgsave_picture_113984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113984.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:0E337553D9C3EC8405D098E042A530FA2E9C59EB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113985.jpgsave_picture_113985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113985.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Navicat for SQL Server on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113986.jpgsave_picture_113986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113986.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:57617B01C8C8EBDF88A892CFC862E48BB456038D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113987.jpgsave_picture_113987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113987.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Modern Urban Jazz Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113988.jpgsave_picture_113988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113988.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:2D90203B97957355B27324C550FA3ABAD4701530
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113989.jpgsave_picture_113989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113989.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113990.jpgsave_picture_113990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113990.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ SimpleMind − Mind Mapping 2.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113991.jpgsave_picture_113991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113991.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:3186CE22F1A9FAC51CA22C26CD2085568E983573
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113992.jpgsave_picture_113992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113992.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:2E65F4CF4DB41D487F616C29DFAB6130C259671A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113993.jpgsave_picture_113993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113993.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:A4F77BD60B53917924C2BC34C2175B5F85668FF3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113994.jpgsave_picture_113994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113994.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:0526EB86210FD7F2A103D54CFBBF564EFB736A65
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113995.jpgsave_picture_113995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113995.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Nova 11.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113996.jpgsave_picture_113996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113996.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Emerson, Lake & Palmer - Trilogy (1972) 1990-е [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113997.jpgsave_picture_113997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113997.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Prism 10 v.10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113998.jpgsave_picture_113998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113998.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ HWiNFO 7.73 Build 5380 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113999.jpgsave_picture_113999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113999.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:F1186D82C7818D950B61B992EF4B0DABD86807F5
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114000.jpgsave_picture_114000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114000.jpg" />
 </div>
 
 

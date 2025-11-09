@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162771.jpgsave_picture_162771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162771.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:022F560F7BC2F861C11E04038775067BC923540E
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162772.jpgsave_picture_162772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162772.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AB6E658AB677CC8A6B90CE458A9AD9E3E759F4BC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162773.jpgsave_picture_162773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162773.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Topaz Video Enhance AI 1.8.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162774.jpgsave_picture_162774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162774.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:714D11768F095D2FD539F4AEAFF12E9D171A2116
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162775.jpgsave_picture_162775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162775.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:EEBD56C2BCC2A35759B29331ACF57FE5E04E52AC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162776.jpgsave_picture_162776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162776.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FC5A04EB7B566AF1AAD12D28DA4A1C311D0856B5
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162777.jpgsave_picture_162777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162777.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:1A86A46627E491049AD8BF4B2419939AC13A3C62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162778.jpgsave_picture_162778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162778.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:4C4D858CE18FB4D8A06A2AE42007B6D7AEC55513
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162779.jpgsave_picture_162779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162779.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:F07D2F6C6274DDBCCA9FBE374514E652960FA841
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162780.jpgsave_picture_162780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162780.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - В русском ресторане. Оригинальные записи
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162781.jpgsave_picture_162781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162781.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:29B6EAD3840B2438C9D28A5733D715174D40026D
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162782.jpgsave_picture_162782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162782.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1 [FLAC|Lossless]
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162783.jpgsave_picture_162783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162783.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ HD VideoBox Plus v2.31 FIX-20221215 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162784.jpgsave_picture_162784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162784.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:62B2E04453A20023247ADC1B4DD0EE603DCC71A0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162785.jpgsave_picture_162785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162785.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:6E8720172654434C8B02DF01CDE0E718405F9DC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162786.jpgsave_picture_162786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162786.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:BD3BEE7AEF5E3F6BD54A30CBC6EBEEF9243DCF72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162787.jpgsave_picture_162787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162787.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Skillshare, Neil Bettison | Дизайн и рендер стилизованн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162788.jpgsave_picture_162788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162788.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ XnViewMP 0.99.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162789.jpgsave_picture_162789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162789.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Wallpaper Engine 1.4.123 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162790.jpgsave_picture_162790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162790.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:DF75A3170845502DF09AE7FAB869C304E10A8469
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162791.jpgsave_picture_162791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162791.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:A4FD3EA84DAD323F84AB6E0A56C5E537CB3AF6C9
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162792.jpgsave_picture_162792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162792.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162793.jpgsave_picture_162793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162793.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:2F5BA81292C7D8BEAE5AFF2A17433892B2EC86B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162794.jpgsave_picture_162794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162794.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:CAAA5F3927445E691A5372E1FEE09474CE999774
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162795.jpgsave_picture_162795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162795.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:00366344BF84B3485FBCE1F28CD0D2E811838FE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162796.jpgsave_picture_162796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162796.jpg" />
 </div>
 
 

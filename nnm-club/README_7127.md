@@ -6,7 +6,7 @@ Glary Utilities Pro 5.203.0.232 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244239.jpgsave_picture_244239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244239.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ampacity - IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244240.jpgsave_picture_244240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244240.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Viva 2021.3 (2022) [AAC|~329 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244241.jpgsave_picture_244241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244241.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244242.jpgsave_picture_244242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244242.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:674CF7DFEAD1515B3CA0254C798806D590B16E83
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244243.jpgsave_picture_244243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244243.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ DockMate Beta 0.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244244.jpgsave_picture_244244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244244.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:7263BBB5828593C093C6F5AA84DEF2FB0234C862
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244245.jpgsave_picture_244245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244245.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Cosy Lounge Vol.1: Smooth Weekend Tunes (2016) [MP3|320 Kbps] <Downtempo, C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244246.jpgsave_picture_244246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244246.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:0A4651A1D4A54F4BEC55AE4384C6381458B1E68D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244247.jpgsave_picture_244247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244247.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:CB06ABD4E4F2FDD2EEFD13B46C8C1AE48C18EFD0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244248.jpgsave_picture_244248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244248.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - Lounge Atmosphere, Vol. 2 (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244249.jpgsave_picture_244249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244249.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Silhouette - Les retranchements (2022) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244250.jpgsave_picture_244250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244250.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:592BEC9B5487E5243B77EC4E700E8558147A99A0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244251.jpgsave_picture_244251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244251.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:B85AD80F85119E6F35B7A271077C62BAE2519D4A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244252.jpgsave_picture_244252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244252.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:DF42D0C60D20EC93BFF2F7938C0EFDB86ED81115
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244253.jpgsave_picture_244253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244253.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ FastStone Image Viewer 7.6 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244254.jpgsave_picture_244254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244254.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Amartia - Daylight Beauty (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244255.jpgsave_picture_244255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244255.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Ethno Sorcery (2019) [AAC|~321 Kbps] <Deep House, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244256.jpgsave_picture_244256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244256.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Heryos - The Magician (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244257.jpgsave_picture_244257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244257.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:40645B02F80F5C880BDAF4BA42BB97A3B95CB7D2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244258.jpgsave_picture_244258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244258.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Phil Campbell and the Bastard Sons - Live In The North (Live) (2023) [FLAC 2.0|9
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244259.jpgsave_picture_244259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244259.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ WinSnap 6.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244260.jpgsave_picture_244260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244260.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:ED94E5616A34AB45D9175EE7124F6D34334B4588
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244262.jpgsave_picture_244262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244262.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ SamDrivers 23.1 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244263.jpgsave_picture_244263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244263.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Viva 2021.2 (2022) [AAC|~331 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244264.jpgsave_picture_244264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244264.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:EF81DDF5F0D99D6D8A9BB53C1B528D070BBC1306
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244265.jpgsave_picture_244265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244265.jpg" />
 </div>
 
 

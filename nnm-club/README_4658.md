@@ -6,7 +6,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145811.jpgsave_picture_145811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145811.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9ABC4C3E5C7249DB5543082CE73BCF2916E9A77D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145812.jpgsave_picture_145812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145812.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Alsou (Алсу) - Greatest Hits (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tra
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145813.jpgsave_picture_145813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145813.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Immortal Guardian - Psychosomatic (2021) [MP3|320 Kbps] <Progressive, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145815.jpgsave_picture_145815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145815.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Fines de Semana Perezosos (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145816.jpgsave_picture_145816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145816.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ YouTube By Click Premium 2.2.122 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145817.jpgsave_picture_145817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145817.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:91E208E129A515442782F23B8C9DB3947B1343A6
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145818.jpgsave_picture_145818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145818.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Capture The Crown - 'Til Death (2012) [MP3|320 кб/с]<Post-Hardcore | Electron
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145819.jpgsave_picture_145819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145819.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:150FEDCBD20F96F33D27B2EB4A396501C6A32A09
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145820.jpgsave_picture_145820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145820.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:4BC2ABC874617419051A87896CF6365330C06FEC
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145821.jpgsave_picture_145821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145821.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:4BC2ABC874617419051A87896CF6365330C06FEC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145822.jpgsave_picture_145822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145822.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ SZMC - Dark Energy - The Album (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145823.jpgsave_picture_145823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145823.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Udemy, Clyde Matthew | *NEW* JavaScript Complete Grandmaster 2020. Ongoing Updat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145824.jpgsave_picture_145824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145824.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:5406FEF124C0944402225C01FA5E92A124A11122
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145826.jpgsave_picture_145826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145826.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ BBEdit 14.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145827.jpgsave_picture_145827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145827.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.66 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145828.jpgsave_picture_145828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145828.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Black Hole Trance Music 12-18 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145829.jpgsave_picture_145829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145829.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Internet Download Manager 6.36 Build 1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145830.jpgsave_picture_145830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145830.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Ryan Ribot | Stylized Creature Texturing Volume 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145831.jpgsave_picture_145831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145831.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Sincopat 2021 Night Collection (2021) [AAC|~339 Kbps] <Deep House, Tech Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145832.jpgsave_picture_145832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145832.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:EEA96F50399F331DA6ABEDC5637370C1562BDA13
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145833.jpgsave_picture_145833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145833.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3C1D63133F0A77BEB1F0A77EB4C7499B9A105E31
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145834.jpgsave_picture_145834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145834.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:C5C36D2A623400EC3010C922CACDEEDA4B2C5DBC
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145835.jpgsave_picture_145835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145835.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:3DF79E6790C5B4623D0DE2F6E283D9377CFCC268
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145836.jpgsave_picture_145836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145836.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Frank Sinatra - Christmas Dreaming (1987) Columbia [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145837.jpgsave_picture_145837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145837.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Dp-6, Vadim Basov - Re2021view (2021) [AAC|~330 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145838.jpgsave_picture_145838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145838.jpg" />
 </div>
 
 

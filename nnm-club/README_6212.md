@@ -6,7 +6,7 @@ Hira vpn 1.0.4 b24 Mod by AzadNet[Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194993.jpgsave_picture_194993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194993.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1FF901C958D344A6201DFF62A6B26CCA633FBDDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194994.jpgsave_picture_194994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194994.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Volume2 1.1.8.464 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194995.jpgsave_picture_194995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194995.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SnapTube - YouTube Downloader HD Video v7.05.1.7051601 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194996.jpgsave_picture_194996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194996.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FAB7091F863422F6D229862C0F854879BA3CE7DF
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194997.jpgsave_picture_194997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194997.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3A2A928755257770552F6500DC29AF4F6910E071
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194998.jpgsave_picture_194998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194998.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:9D66CA90FF6E64D8E851531A19FA494BE6B1292B
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194999.jpgsave_picture_194999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194999.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:282001A97504A065B5C74487FC329B482F93AA4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195000.jpgsave_picture_195000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195000.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:478B2A98957F92E1484B6EF4E12280C094A87ACB
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195001.jpgsave_picture_195001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195001.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:3CB8E00C0BB32C140428690CCCC40D24553DC739
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195002.jpgsave_picture_195002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195002.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:E6CFB5789F106E1741B4D8C6533234F559D5E146
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195003.jpgsave_picture_195003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195003.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195004.jpgsave_picture_195004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195004.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ simplewall 3.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195005.jpgsave_picture_195005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195005.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719_1750_15
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195006.jpgsave_picture_195006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195006.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:F1F8D6D7C695412545B57C5D600CBB3AA7BBB9D6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195007.jpgsave_picture_195007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195007.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E01DDE3F5C3627589709FFDBCFC0405A3A35B51B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195008.jpgsave_picture_195008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195008.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E702637150D6DA024F1C51CDAC7EBE5F6C7D8D47
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195009.jpgsave_picture_195009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195009.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ OpenVPN 2.6.5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195010.jpgsave_picture_195010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195010.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:7DFDF0F36966578D105D87842E9E17F8BD227030
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195011.jpgsave_picture_195011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195011.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:4D924EE11B1601122678860CCC8B32E4EC3082D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195012.jpgsave_picture_195012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195012.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:EAF0356339340DA0785D4F900565C7E22DA0B10C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195013.jpgsave_picture_195013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195013.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Microsoft Office 2021 for Mac LTSC v.16.75 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195014.jpgsave_picture_195014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195014.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ AIMP 5.11 Build 2434 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195015.jpgsave_picture_195015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195015.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:F240FAA89ADC8A6D09CEA6CFB4DC6A9B6DA55A63
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195016.jpgsave_picture_195016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195016.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Persona: Бьюти-камера v1.6.44 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195017.jpgsave_picture_195017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195017.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:EAE0683A5C6419BE9FC6D3B7CE51A164F8CEB78E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195018.jpgsave_picture_195018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195018.jpg" />
 </div>
 
 

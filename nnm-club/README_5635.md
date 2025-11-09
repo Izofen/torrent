@@ -6,7 +6,7 @@ NovaReign - Legends (2018) [FLAC|Lossless|image + .cue] <Progressive, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173505.jpgsave_picture_173505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173505.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EtreCheck Pro 6.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173506.jpgsave_picture_173506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173506.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:1FCBBA92824D3B29814F143E4CBF8BD2F2285D57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173507.jpgsave_picture_173507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173507.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:C69BE1D8BBAC5D725786619A0B975B46C3D1753E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173508.jpgsave_picture_173508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173508.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Adobe Acrobat Pro DC 23.006.20320 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173509.jpgsave_picture_173509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173509.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:DEB829B889B5888E60CF8B6C1C0E5403D135557A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173510.jpgsave_picture_173510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173510.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Udemy, Mahadi | Create and Publish a Mobile RPG Game with Unreal Engine (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173511.jpgsave_picture_173511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173511.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Slurm (Слёрм), Дмитрий Горчаков | Микросервисы �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173512.jpgsave_picture_173512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173512.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:33C005F74055B0F5ADFFD17F4E002FDBBBC6DF4E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173513.jpgsave_picture_173513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173513.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:69B9273E53E3A2F0391954D926715A57B62A72CA
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173514.jpgsave_picture_173514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173514.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:124F2909DC688772E7675B9D0B0CE8ABB4973F35
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173515.jpgsave_picture_173515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173515.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173516.jpgsave_picture_173516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173516.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.3570]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173517.jpgsave_picture_173517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173517.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:35A7AC8585838D61779A47944194E5EC7839E00F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173518.jpgsave_picture_173518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173518.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:9ED3CD7BD8DC6B1D8634B7F877B6BA940A863908
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173519.jpgsave_picture_173519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173519.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:5A6A1D5ADB20BE6B9FACFD110397B5EDB1BAEF2D
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173520.jpgsave_picture_173520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173520.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:8009BDDC25C372FCD102224D77A0EEC9BBB0097D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173521.jpgsave_picture_173521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173521.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - 25 Years Of Anjuna Mixed by Trance Wax (2025) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173522.jpgsave_picture_173522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173522.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:28F19C444BC35DD33BB78C32F8B13F91C87A5AB7
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173523.jpgsave_picture_173523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173523.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:9B4F88573D20FF229060333616DB164ADB5A8EA9
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173524.jpgsave_picture_173524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173524.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:227F66AF11D73202D809718BAA0C2C2824664205
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173525.jpgsave_picture_173525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173525.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:4CEE9B9DA697527ECCB74EBF3C05BDA3BE7585F4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173526.jpgsave_picture_173526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173526.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:C8DEBC187E277823CF68FDD61BA715690A3C642C
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173527.jpgsave_picture_173527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173527.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ SketchUp Pro 2023 v.23.1.341 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173528.jpgsave_picture_173528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173528.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173529.jpgsave_picture_173529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173529.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:7FFDA20C05CE7E727C371F72F34CA2364CBC172B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173530.jpgsave_picture_173530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173530.jpg" />
 </div>
 
 

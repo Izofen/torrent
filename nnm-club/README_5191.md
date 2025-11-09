@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161715.jpgsave_picture_161715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161715.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2C8A536FB42D82C34030CB1713B8F90A6B9BBAB7
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161716.jpgsave_picture_161716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161716.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - The Yearbook 2021 (2021) [AAC|~337 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161717.jpgsave_picture_161717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161717.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:610194CCF5BAD3C09F15068C3C555FCD7622D6B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161718.jpgsave_picture_161718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161718.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Legacy: Witch Island 3 / Наследие: Остров ведьмы 3 (2020) [R
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161719.jpgsave_picture_161719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161719.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Anjunadeep The Remixes 2021 (2021) [AAC|~327 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161720.jpgsave_picture_161720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161720.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F6E046FDE439872B741A53C8272985976978069A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161721.jpgsave_picture_161721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161721.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Lakeside Chill Sounds - Autumn (2021) [AAC|~323 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161723.jpgsave_picture_161723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161723.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:F6A67ADADD30F482DF0B42459E8A326A2329F0B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161724.jpgsave_picture_161724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161724.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Udemy, Luis Ramirez Jr | Complete Modern PHP Developer Course in 2023 (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161725.jpgsave_picture_161725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161725.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:6C4AEF99C83A56ACF9EE437CDC44D5861B04EE43
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161726.jpgsave_picture_161726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161726.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:C07E71BDD180384BC5C83F451D9157D1101292F5
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161727.jpgsave_picture_161727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161727.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161728.jpgsave_picture_161728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161728.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161729.jpgsave_picture_161729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161729.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:A56F02742039E8E57F79211DCFF25AAAAB06FD54
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161730.jpgsave_picture_161730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161730.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:BC65F3D9AFE69E1FAE459426889C6CF018D9D4B7
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161731.jpgsave_picture_161731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161731.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161732.jpgsave_picture_161732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161732.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:5CF7CA924C30A2A9F04B0B925F92D332FF381153
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161733.jpgsave_picture_161733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161733.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:566530D939E7310A49DA88CEE24961176CEC4303
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161734.jpgsave_picture_161734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161734.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 4 (2021) [AAC|~302 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161736.jpgsave_picture_161736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161736.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:4905A65A62D340A85AAC5E382008D0AF84B673BA
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161737.jpgsave_picture_161737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161737.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Erroll Garner - 1949, Vol.2 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161738.jpgsave_picture_161738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161738.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:1DA35CE0AAA5860DCEC7C596D83914ED96B0FD17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161739.jpgsave_picture_161739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161739.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:096D343EB3284A16CF8C1FBDBAD60BEBEC294229
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161740.jpgsave_picture_161740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161740.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:0A9E7CBFEE5CCF9925FC0FDA07D83284FB51A8B2
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161741.jpgsave_picture_161741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161741.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:258C405E019CE12585D286FEB10790CEC0BAB44F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161742.jpgsave_picture_161742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161742.jpg" />
 </div>
 
 

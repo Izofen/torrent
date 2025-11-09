@@ -6,7 +6,7 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188328.jpgsave_picture_188328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188328.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Shore (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188350.jpgsave_picture_188350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188350.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188363.jpgsave_picture_188363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188363.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188410.jpgsave_picture_188410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188410.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Skye Tales (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188472.jpgsave_picture_188472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188472.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Miasma Chronicles (2023) [Ru/Multi] (1.1.1729.42704) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188636.jpgsave_picture_188636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188636.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188640.jpgsave_picture_188640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188640.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Murder House (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188660.jpgsave_picture_188660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188660.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Zniw Adventure (2020) [Multi] (1.3.4W) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188678.jpgsave_picture_188678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188678.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188683.jpgsave_picture_188683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188683.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188688.jpgsave_picture_188688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188688.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Raiden III x MIKADO MANIAX (2023) [Multi] (1.0/dlc) Scene Tenoke [Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188690.jpgsave_picture_188690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188690.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188697.jpgsave_picture_188697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188697.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Prison City (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188716.jpgsave_picture_188716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188716.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Seven Nights Ghost (2023) [Multi] (1.03) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188720.jpgsave_picture_188720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188720.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Daimon Blades (2025) [Ru/Multi] (114924/dlc) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188776.jpgsave_picture_188776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188776.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (Build 11395309) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189098.jpgsave_picture_189098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189098.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ No Son of Mine (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189113.jpgsave_picture_189113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189113.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189139.jpgsave_picture_189139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189139.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189141.jpgsave_picture_189141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189141.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Immortal Love 9: True Treasure / Бессмертная любовь 9: Наст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189294.jpgsave_picture_189294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189294.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lempo (2023) [Multi] (0.111) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189514.jpgsave_picture_189514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189514.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ ABRISS - build to destroy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189550.jpgsave_picture_189550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189550.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kerbal Space Program (2015) [Ru/En] (1.12.4.03187/dlc) Repack dixen18
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189589.jpgsave_picture_189589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189589.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189604.jpgsave_picture_189604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189604.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ New York Mysteries 5: Power of Art / Загадки Нью-Йорка 5: Сил�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189638.jpgsave_picture_189638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189638.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mozilla Firefox 43.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158192.jpgsave_picture_158192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158192.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2EE47650FCF9B60BE90D54400712334E65275768
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158193.jpgsave_picture_158193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158193.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:831B42929E73F824A943DDBA0E55C20CB6E5C8CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158194.jpgsave_picture_158194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158194.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:73F5AFA67B02331EF337EF65A3C2BC8D9B8EAD44
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158195.jpgsave_picture_158195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158195.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ The Alan Parsons Project - The Turn of a Friendly Card (1980) 2015 2CD Deluxe 35
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158196.jpgsave_picture_158196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158196.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:262200FAC9AB02A3F5604B089549C2747C6E1597
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158197.jpgsave_picture_158197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158197.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:116DEAB14452E33743D4B931AC5D9AAAECA155E9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158198.jpgsave_picture_158198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158198.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Mozilla Firefox ESR 38.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158199.jpgsave_picture_158199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158199.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:02D7748CECFAA0E2E0501BED5128EF3536A90448
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158200.jpgsave_picture_158200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158200.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:3B540C228ABCB71D1495D0BCDB21C40F8AC73F49
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158201.jpgsave_picture_158201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158201.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1EBE6E2D2458473BF1BC458253CFE31AF8E926BF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158202.jpgsave_picture_158202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158202.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:735415B3E45DE809E83B818907590F2CA8DFC6AB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158203.jpgsave_picture_158203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158203.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:353844DB6C88240FC0AC5A30992312AE6423D748
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158204.jpgsave_picture_158204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158204.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ SyMenu 4.14.5796 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158205.jpgsave_picture_158205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158205.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Enigma Dubz - The Journey So Far/Part Two (2015) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158206.jpgsave_picture_158206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158206.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Viasat Nature: Подземный мир Саванны / Six Feet under the Sav
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158207.jpgsave_picture_158207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158207.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mozilla Firefox ESR 38.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158209.jpgsave_picture_158209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158209.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:FA1750BF75C0D41170CDB2CEB9FFC507B9DA617F
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158210.jpgsave_picture_158210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158210.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8DD243A7BC0D17FC7A4456553B4A6684091D9A61
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158211.jpgsave_picture_158211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158211.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:CF87E49ECDD53F060E2F58D698EBB5BA25308457
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158212.jpgsave_picture_158212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158212.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Рок Марафон: Выпуск 12 (2015) [MP3|192-320 кб/с] <Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158213.jpgsave_picture_158213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158213.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:C2A6F607AA7CD52088B860EC5EF4F7B500765239
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158214.jpgsave_picture_158214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158214.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:74C316EC8BA592E3817EC33B3DF41B2B5BB517DE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158215.jpgsave_picture_158215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158215.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:2AA0C7F23C9B0CD7BF7A1D10FE5A9BB67BC64324
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158216.jpgsave_picture_158216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158216.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:2E83075758017916A556B9DD56FA28E76177C124
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158217.jpgsave_picture_158217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158217.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:75531C756E4B3D0386E967C51089020AA1ECF908
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158218.jpgsave_picture_158218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158218.jpg" />
 </div>
 
 

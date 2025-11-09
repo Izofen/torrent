@@ -6,7 +6,7 @@ GRAN TURISMO 5 Prologue Spec III (2007) [PS3] [JAP] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129824.jpgsave_picture_129824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129824.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E3D54437479E6D3BFAC3B6FFCE296CD6AA2567C6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129825.jpgsave_picture_129825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129825.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Proko, Stan Prokopenko | Figure drawing fundamentals (2012) WEBRip [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129827.jpgsave_picture_129827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129827.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7DE39657C421786601EC49D0428F28C152097609
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129828.jpgsave_picture_129828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129828.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - The Best Of Suanda True 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129829.jpgsave_picture_129829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129829.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D4B8034F76BA7D9283E242E80CA549E752FB54E1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129830.jpgsave_picture_129830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129830.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Everdawn - Venera (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129831.jpgsave_picture_129831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129831.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:775E70FF6ADA9C7F0C1C76513BB801094D87053D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129832.jpgsave_picture_129832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129832.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Armin van Buuren - A State Of Trance 1150 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129833.jpgsave_picture_129833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129833.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:83628098F15F59F4E149B46406E4B4CD20283953
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129834.jpgsave_picture_129834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129834.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:352A6BA4468E4547C21427A4258FDC066FD60060
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129835.jpgsave_picture_129835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129835.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Isospin - Aftermath Chronicles (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129836.jpgsave_picture_129836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129836.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:CDA6DA64AD528964E3F28A981502A35C030D09F0
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129837.jpgsave_picture_129837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129837.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:8FFE2CB37A5098431DD5031C64EC7272B279A06E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129838.jpgsave_picture_129838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129838.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:BE68CA53E84DA8C88610A76A0DF18BBFA48AA3B8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129840.jpgsave_picture_129840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129840.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:37F0214561BE2128B6291ECBB179F5BCD80C98AC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129841.jpgsave_picture_129841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129841.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129843.jpgsave_picture_129843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129843.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:F5D42DDB2611E297EA6C18AA575277F4AC550980
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129844.jpgsave_picture_129844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129844.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:A7778F4BA4B99EE1A3A565FE9CE1B91549BCEFE0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129845.jpgsave_picture_129845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129845.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:6F107D2A0E50B64DAD11001FFFD77A98EC406060
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129846.jpgsave_picture_129846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129846.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:184DFD84FA07E448F590F1681903FD9DAB2174DD
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129847.jpgsave_picture_129847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129847.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:5B99A4DEF15551D5EA8C36BE869075D10EAE92BF
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129849.jpgsave_picture_129849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129849.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:FDCE35F447157EE45DB97955CECEEF5C6205AEAB
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129850.jpgsave_picture_129850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129850.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:02430B2A42C5B25540D870A276D431B26EF95410
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129852.jpgsave_picture_129852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129852.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129853.jpgsave_picture_129853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129853.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:62069EC2707535EFBF316E335808041FBDE05B9E
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129855.jpgsave_picture_129855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129855.jpg" />
 </div>
 
 

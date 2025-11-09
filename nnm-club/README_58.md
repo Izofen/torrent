@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1545.jpgsave_picture_1545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1545.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:2F05B71C95A16C25F0B7056AF1AE560BD9703532
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1546.jpgsave_picture_1546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1546.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ MInstAll v.21.09.2025 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1547.jpgsave_picture_1547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1547.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Gachiakuta | Гачиакута [2025, TV, 11 из 24 эп.] WEBRip 720p raw
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1548.jpgsave_picture_1548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1548.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1549.jpgsave_picture_1549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1549.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1550.jpgsave_picture_1550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1550.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:72C315113CFF13133C3BABBDF9216D4E0C8D0797
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1551.jpgsave_picture_1551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1551.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:72C315113CFF13133C3BABBDF9216D4E0C8D0797
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1552.jpgsave_picture_1552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1552.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3DC487A93FFE81EA5901E64B6C5E32C0FCAAFE86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1553.jpgsave_picture_1553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1553.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:1CD7FCCF1F839448F324B1BD806CFBD6165CC36C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1554.jpgsave_picture_1554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1554.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:727DFFE841643C2CE9179BD92196BCC1BB6D2D8C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1555.jpgsave_picture_1555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1555.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Doug MacLeod - Between Somewhere and Goodbye (2025) [FLAC 24/192|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1556.jpgsave_picture_1556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1556.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:EBED2F5BC2B20A21731ED997AAA0CB9648F20766
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1557.jpgsave_picture_1557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1557.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Alice Armstrong - Fury & Euphoria (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1558.jpgsave_picture_1558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1558.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:4A2E8E1B516634CA44FE1FEACC8C678C1DE1B7E5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1559.jpgsave_picture_1559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1559.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ded - Resent (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1560.jpgsave_picture_1560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1560.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Rusty Ends & Hillbilly Hoodoo - Roadhouses, Juke Joints and Honky-Tonks (2025) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1561.jpgsave_picture_1561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1561.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Juri Amicabile - Geared Up (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1562.jpgsave_picture_1562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1562.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:F13344A59DD68E6E5CA65461C0603E21B82557EF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1563.jpgsave_picture_1563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1563.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:C5420C154EF21E9BE45F39D597146BBD08C39343
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1564.jpgsave_picture_1564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1564.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Alan Arena - Deceived (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1565.jpgsave_picture_1565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1565.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:AA261768ACFD821354D57F728B0266903DF23050
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1566.jpgsave_picture_1566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1566.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1567.jpgsave_picture_1567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1567.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:759AA18AF77A6F24901A1AABC1EA42D72A096705
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1568.jpgsave_picture_1568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1568.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Damiano David - FUNNY little FEARS (DREAMS) (2025) [MP3|320 Kbps] <Pop, Pop Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1569.jpgsave_picture_1569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1569.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Ui Kits - UI8 - Travela - Travel & Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1570.jpgsave_picture_1570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1570.jpg" />
 </div>
 
 

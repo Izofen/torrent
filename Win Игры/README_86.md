@@ -6,7 +6,7 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24605.jpgsave_picture_24605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24605.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24626.jpgsave_picture_24626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24626.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24629.jpgsave_picture_24629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24629.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24632.jpgsave_picture_24632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24632.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24635.jpgsave_picture_24635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24635.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24641.jpgsave_picture_24641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24641.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24646.jpgsave_picture_24646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24646.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24649.jpgsave_picture_24649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24649.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Worldless (2023) [Ru/Multi] (1.3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24653.jpgsave_picture_24653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24653.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24655.jpgsave_picture_24655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24655.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24660.jpgsave_picture_24660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24660.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24672.jpgsave_picture_24672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24672.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24673.jpgsave_picture_24673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24673.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Combat Mission: Fortress Italy (2023) [Multi] (2.20.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24683.jpgsave_picture_24683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24683.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Combat Mission: Cold War (2021) [Multi] (1.07.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24684.jpgsave_picture_24684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24684.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24699.jpgsave_picture_24699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24699.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29106/dlc) Scene Run
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24719.jpgsave_picture_24719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24719.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Combat Mission: Final Blitzkrieg (2024) [Multi] (2.11.00/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24721.jpgsave_picture_24721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24721.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Robin Hood: Sherwood Defenders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24732.jpgsave_picture_24732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24732.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Assassin's Creed Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24745.jpgsave_picture_24745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24745.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ ORDER 13 (2025) [Ru/Multi] (1.02) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24746.jpgsave_picture_24746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24746.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.0720.01/dlc) License GOG [Digital Deluxe Bun
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24748.jpgsave_picture_24748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24748.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24756.jpgsave_picture_24756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24756.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24759.jpgsave_picture_24759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24759.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack dixen18 [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24795.jpgsave_picture_24795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24795.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24798.jpgsave_picture_24798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24798.jpg" />
 </div>
 
 

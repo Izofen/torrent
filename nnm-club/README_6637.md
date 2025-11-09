@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219436.jpgsave_picture_219436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219436.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:18DB31C52C0DD6C0233E5214D9F7F984D9F8532C
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219446.jpgsave_picture_219446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219446.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F84EE7AED5FBDEB87906D4ECF5AADE772CE2C9D1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219463.jpgsave_picture_219463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219463.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hybernoid - Advanced Technology (1998) [FLAC|Lossless|image + .cue] <Breakbeat, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219475.jpgsave_picture_219475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219475.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ David Bowie - Never Let Me Down (1987) [FLAC|Lossless|tracks + .cue] <Art Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219483.jpgsave_picture_219483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219483.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Meg Myers - Thank U 4 Taking Me 2 The Disco (2020) EP [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219492.jpgsave_picture_219492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219492.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219500.jpgsave_picture_219500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219500.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - Disco Chelsea (1978) [FLAC|192/24|image + .cue|Vinyl-Rip] <Soul, Funk, Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219510.jpgsave_picture_219510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219510.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:30DD3AB107DF4D912AB786B86DDFB48CD09C2554
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219516.jpgsave_picture_219516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219516.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ James Moody - Return From Overbrook (1958) 1996, GRP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219527.jpgsave_picture_219527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219527.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Moon Boots - Ride Away (Remixed) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Deep House
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219538.jpgsave_picture_219538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219538.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Modern CSV for Mac 2.0.2 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219549.jpgsave_picture_219549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219549.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Peter Matz - Quadraphonic Spectacular (1972) [FLAC|96/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219557.jpgsave_picture_219557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219557.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Syksyn Savelia (1982) [FLAC|96/24|image + .cue|Vinyl-Rip] <Electronic, Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219574.jpgsave_picture_219574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219574.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Lux Perpetua - The Curse Of The Iron King (2017) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219583.jpgsave_picture_219583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219583.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Woven Man - Revelry (In Our Arms) (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219590.jpgsave_picture_219590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219590.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Woven Man - Sardonic Waters (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219599.jpgsave_picture_219599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219599.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Hanoi Rocks - Oriental Beat mix (1982) The 40th Anniversary Re(al)mix 2022, 2023
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219607.jpgsave_picture_219607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219607.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ TechSmith Camtasia 2023 Studio 2023.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219658.jpgsave_picture_219658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219658.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Midnight Phantom - Murder On 42nd Street (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219666.jpgsave_picture_219666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219666.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Distorted Force - Angelic Bloodshed (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219674.jpgsave_picture_219674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219674.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Cathalepsy - Blood and Steel (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219684.jpgsave_picture_219684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219684.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ M.A.G.S. (MAGS) - Destroyer (2023) [FLAC|24/44.1|tracks|WEB-DL] <Alternative & I
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219698.jpgsave_picture_219698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219698.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PhotosRevive for Mac 2.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219705.jpgsave_picture_219705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219705.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ GNOB - 2 Albums (2018-2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Psych, Fuzz, Stone
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219713.jpgsave_picture_219713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219713.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Lasso 1.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219722.jpgsave_picture_219722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219722.jpg" />
 </div>
 
 

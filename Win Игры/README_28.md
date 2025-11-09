@@ -6,7 +6,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.48) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8160.jpgsave_picture_8160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8160.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8161.jpgsave_picture_8161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8161.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/Multi] (9.7/9.40) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8173.jpgsave_picture_8173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8173.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8176.jpgsave_picture_8176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8176.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.06b) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8179.jpgsave_picture_8179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8179.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9356.17132/dlc) Repack Let'sРlay [Supporter Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8185.jpgsave_picture_8185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8185.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8187.jpgsave_picture_8187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8187.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9356.17132) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8188.jpgsave_picture_8188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8188.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Detectives United 8: Vengeance from the Past / Лига детективов 8: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8275.jpgsave_picture_8275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8275.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8293.jpgsave_picture_8293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8293.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8294.jpgsave_picture_8294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8294.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Roottrees are Dead (2025) [Multi] (20250717) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8307.jpgsave_picture_8307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8307.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8322.jpgsave_picture_8322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8322.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.021) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8325.jpgsave_picture_8325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8325.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ RAID: World War II (2017) [Ru/Multi] (25.02/dlc) Repack Let'sРlay [Special Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8333.jpgsave_picture_8333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8333.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8334.jpgsave_picture_8334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8334.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dystopika (2024) [Ru/Multi] (1.5.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8345.jpgsave_picture_8345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8345.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8346.jpgsave_picture_8346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8346.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Heretic + Hexen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8501.jpgsave_picture_8501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8501.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (2.0.1G) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8504.jpgsave_picture_8504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8504.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.408) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8507.jpgsave_picture_8507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8507.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Choo Choo Survivor (2023) [Ru/Multi] (Build 18689660) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8528.jpgsave_picture_8528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8528.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Choo Choo Survivor 2 (2025) [Multi] (Build 20180986) Repack Let'sРlay [Playtest
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8557.jpgsave_picture_8557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8557.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Crossfire Legion (2022) [Ru/Multi] (2.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8565.jpgsave_picture_8565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8565.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Phantom Squad (2025) [Ru/Multi] (1.3.0.24d5ed) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8590.jpgsave_picture_8590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8590.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8591.jpgsave_picture_8591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8591.jpg" />
 </div>
 
 

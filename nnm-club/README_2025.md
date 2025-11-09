@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53017.jpgsave_picture_53017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53017.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:6AF511A2CBDB6195E1020E670D07F29EA850B3C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53018.jpgsave_picture_53018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53018.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DB51FB3A3530909847727621FD1E99A0A2676DCB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53019.jpgsave_picture_53019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53019.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Soft Organizer Pro 9.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53020.jpgsave_picture_53020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53020.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:82EA94E0D1B07DC4ABBB47D50429BFB625F0D838
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53021.jpgsave_picture_53021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53021.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:0B6F9DE8D01338A90E641244D4EF7243126148F4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53022.jpgsave_picture_53022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53022.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:052C8990A33A81139AB3946413058DA2CF07C734
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53023.jpgsave_picture_53023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53023.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:6FF13B40C72809C6F24783A454D0588E25FCC1F8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53024.jpgsave_picture_53024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53024.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53025.jpgsave_picture_53025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53025.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:CC8570C1CF17FFB8B7E52A3478D74587D865224D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53026.jpgsave_picture_53026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53026.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Pro PDF Reader v1.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53027.jpgsave_picture_53027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53027.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53028.jpgsave_picture_53028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53028.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Michael Jackson - Thriller (1982) SACD, Reissue, Remastered, 2022, Mobile Fideli
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53029.jpgsave_picture_53029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53029.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ BYTES: The Reverse Tower Defense (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53030.jpgsave_picture_53030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53030.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:6AF11F9DB4BC93DED0D1745601FB2782C5F40A08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53031.jpgsave_picture_53031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53031.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:04D30E579355385A85D7D02D21E7E3AD16D82DA1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53032.jpgsave_picture_53032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53032.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Super 13 Launcher (Super13 Launcher for Android13) 1.8 Mod by Oflarm [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53033.jpgsave_picture_53033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53033.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Freemake Video Converter 4.1.13.178 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53034.jpgsave_picture_53034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53034.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:24431DF1978BD9B0C3D78A95670EBE9EA2B1ED71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53035.jpgsave_picture_53035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53035.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ WiFi Analyzer Pro 5.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53036.jpgsave_picture_53036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53036.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C5D351A3E16FDC029600FD46B830FE704CFB3540
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53037.jpgsave_picture_53037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53037.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ BIG Launcher 5.3.0 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53038.jpgsave_picture_53038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53038.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ ZD Soft Screen Recorder 11.7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53039.jpgsave_picture_53039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53039.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:07EAADE33136828BEA562CCAFA3799F5C4CEC264
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53040.jpgsave_picture_53040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53040.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:07EAADE33136828BEA562CCAFA3799F5C4CEC264
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53041.jpgsave_picture_53041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53041.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Loser Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53042.jpgsave_picture_53042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53042.jpg" />
 </div>
 
 

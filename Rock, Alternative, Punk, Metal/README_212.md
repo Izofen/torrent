@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133905.jpgsave_picture_133905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133905.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ TodoMal - A Greater Good (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133909.jpgsave_picture_133909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133909.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133926.jpgsave_picture_133926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133926.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sacrifire - The Art of Decay (2023) [MP3|320 Kbps] <Gothic, Melodic, Doom Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133938.jpgsave_picture_133938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133938.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Moto Armonico - Wondering Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133946.jpgsave_picture_133946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133946.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Weeping Silence - Isles of Lore (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133953.jpgsave_picture_133953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133953.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Painful Defloration - Esthetic Research Laboratory (2009) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133980.jpgsave_picture_133980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133980.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134012.jpgsave_picture_134012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134012.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Мешанина или неГолубой огонёк (2CD) (2004) [APE|L
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134020.jpgsave_picture_134020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134020.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Magnum - On The 13th Day (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134120.jpgsave_picture_134120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134120.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Hinder - Welcome To The Freakshow (2012) [MP3|320 кб/с]<alternative rock, pos
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134160.jpgsave_picture_134160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134160.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Twenties Rock Fifty Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134179.jpgsave_picture_134179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134179.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hard Rain - Два альбома (1997 - 1999) [MP3|320 кб/с]<Melodic Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134194.jpgsave_picture_134194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134194.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Sorcerer - Reign Of The Reaper (2023) 2 x CD [FLAC|Lossless|image + .cue] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134199.jpgsave_picture_134199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134199.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Icon In Me - Head Break Solution (2011) [WavPack|Lossless]<Melodic Death Metal /
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134240.jpgsave_picture_134240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134240.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Icon In Me - Head Break Solution (2011) [WavPack|Lossless]<Melodic Death Metal /
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134241.jpgsave_picture_134241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134241.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Radio (Rádio) FM Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134255.jpgsave_picture_134255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134255.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ The Firstborn - From The Past Yet To Come (2000) [WavPack|Lossless]<Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134268.jpgsave_picture_134268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134268.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Imperial Child - Secrets Of The Roman Ghost (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134277.jpgsave_picture_134277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134277.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Monolith - Circulus Novem (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Dje
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134291.jpgsave_picture_134291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134291.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Maelfoy - Failures, Fears and Forgiveness (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134293.jpgsave_picture_134293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134293.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Sleaze Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134297.jpgsave_picture_134297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134297.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Radical Dance Faction & Youth - Welcome to the Edge (2023) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134307.jpgsave_picture_134307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134307.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Princess Thailand - Golden Frames (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134325.jpgsave_picture_134325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134325.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Orange Stable - Nichts für ungut (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska & Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134326.jpgsave_picture_134326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134326.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ Mike Vickers - I Wish I Were A Group Again (1968) Remaster, 1999, Parlophone UK[
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134329.jpgsave_picture_134329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134329.jpg" />
 </div>
 
 

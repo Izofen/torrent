@@ -6,7 +6,7 @@ Pet Shop Boys - Furthermore (New version) (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108943.jpgsave_picture_108943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108943.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MyFitnessPal: Счетчик калорий 24.18.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108944.jpgsave_picture_108944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108944.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Радио новинки 2024, Часть 3 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108945.jpgsave_picture_108945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108945.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:341144F217B74A10F12856E90AA3C7B7F1952880
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108946.jpgsave_picture_108946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108946.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:D12792A0D17144D10E414FCAB96F9EB673AAEE9B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108947.jpgsave_picture_108947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108947.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ The Beach Boys - The Beach Boys: Music From The Documentary (2024) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108948.jpgsave_picture_108948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108948.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ FBackup 9.9.911 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108949.jpgsave_picture_108949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108949.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:337CF50974CD2878A7C816FFCDFDAF098617BB4D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108950.jpgsave_picture_108950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108950.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:68DDD0FB0B65C7EA5D78111BCA26E75E48B72B87
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108951.jpgsave_picture_108951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108951.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ n7player Music Player 3.2.10-3002010 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108952.jpgsave_picture_108952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108952.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Calibre 7.11.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108953.jpgsave_picture_108953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108953.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Sensual Lounge Music Universe - Jazz Saxophone for Sex (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108954.jpgsave_picture_108954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108954.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Chillout Melodies of the Outgoing Summer, Vol. 1 (2021) [MP3|320 Kbps] <Lou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108955.jpgsave_picture_108955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108955.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Ibiza Deep House Megamix 2024 (2024) [MP3|320 Kbps] <House, Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108956.jpgsave_picture_108956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108956.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Sun of Sensei - S.O.S. (2024) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108957.jpgsave_picture_108957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108957.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Русская 30 хитов (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108958.jpgsave_picture_108958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108958.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:D0A82273E284C89140D67A990B4EC182B04DC554
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108959.jpgsave_picture_108959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108959.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Soul Browser 1.4.22 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108960.jpgsave_picture_108960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108960.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Topaz Gigapixel AI 7.1.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108961.jpgsave_picture_108961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108961.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Mud - 6 Albums (1974-1983) Collection [MP3|320 Kbps] <Rock, Pop Rock, Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108962.jpgsave_picture_108962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108962.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:F0141776ABF7BB1827A9A7E9F7D7E2FC8D7105C9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108963.jpgsave_picture_108963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108963.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sandra N. Elbaum | Grammar in Context 3 (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108964.jpgsave_picture_108964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108964.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108965.jpgsave_picture_108965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108965.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:9A4A836B59F538DA20B84DC1B1C02AE811FDDEA8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108966.jpgsave_picture_108966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108966.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Telegram Desktop 5.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108967.jpgsave_picture_108967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108967.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Rosetta Stone: Изучение языков v8.25.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108968.jpgsave_picture_108968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108968.jpg" />
 </div>
 
 

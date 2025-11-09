@@ -6,7 +6,7 @@ Coldness - Poisoned Gift (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102992.jpgsave_picture_102992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102992.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Plague Widow - Plague Widow (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102993.jpgsave_picture_102993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102993.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Psychotomy - Antinomia (2015) [FLAC|Lossless|image + .cue] <Death Metal, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102994.jpgsave_picture_102994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102994.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Carmina - Carmina (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102995.jpgsave_picture_102995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102995.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:24B510EFF6AD84C49905E5FA287901678CA9908B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102996.jpgsave_picture_102996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102996.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:F3BB5B193C832E0DA313C271F29BFC830079C4ED
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102997.jpgsave_picture_102997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102997.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Crossbone Skully - Evil World Machine (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102998.jpgsave_picture_102998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102998.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:9D62A0EAEF0B1424DABEF49A38A7A4ED34013EB1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102999.jpgsave_picture_102999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102999.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:E79F808BB5BD497E31CF8D8BD61C5C14ECEC6061
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103000.jpgsave_picture_103000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103000.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sign Of The Jackal - Heavy Metal Survivors (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103001.jpgsave_picture_103001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103001.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Top 20 Progressive House (2024) [MP3|320 Kbps] <Progressive House, Melodic 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103002.jpgsave_picture_103002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103002.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sultan + Shepard - Circle In Time: The Trilogy (2024) [MP3|320 Kbps] <EDM, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103003.jpgsave_picture_103003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103003.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:AF8525970B3D3B20EB4E4CFAA46F1405143B48F8
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103004.jpgsave_picture_103004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103004.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:058945A3255F34290920A577FB9A8784E6A9C051
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103005.jpgsave_picture_103005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103005.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Rival Sons - Pair of Aces, Pt. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103006.jpgsave_picture_103006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103006.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Pam Tillis - Every Time (1998) CD, HDCD, Album, Club Edition [FLAC|Lossless|trac
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103007.jpgsave_picture_103007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103007.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Glam Serpent - Obscene (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103008.jpgsave_picture_103008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103008.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:02D768904D2B19170E2F390C130F26E3942A3BAA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103009.jpgsave_picture_103009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103009.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Walter Trout - Broken (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103010.jpgsave_picture_103010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103010.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:A7977C3CFA3DEE9D88064FA4CF9B1DAF59E973CE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103011.jpgsave_picture_103011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103011.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Isacaarum - Whorecraft (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103012.jpgsave_picture_103012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103012.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Big Big Train - The Likes Of Us (2024) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103013.jpgsave_picture_103013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103013.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mates of State - Bring It Back (2006) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103014.jpgsave_picture_103014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103014.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Silent Winter - Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103015.jpgsave_picture_103015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103015.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Max Lorens - Танцы под луной (2008) [FLAC|Lossless|tracks + .cue] <
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103016.jpgsave_picture_103016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103016.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:8BE6B014D293F4520FC188A78721C1A10E6703B4
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103017.jpgsave_picture_103017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103017.jpg" />
 </div>
 
 

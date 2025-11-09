@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34805.jpgsave_picture_34805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34805.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8DFE61C18E021EB7DB2E89AC81E491E331418E1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34806.jpgsave_picture_34806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34806.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pro Pool 2025 v1.59 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34807.jpgsave_picture_34807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34807.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Beyond Compare Pro 5.0.4.30422 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34808.jpgsave_picture_34808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34808.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7BFBCAB92908CDB533FC29D42DDC6D7C104C212F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34809.jpgsave_picture_34809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34809.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7BFBCAB92908CDB533FC29D42DDC6D7C104C212F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34810.jpgsave_picture_34810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34810.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1B24299C8E9443B411B6A3677ABBB7668A070347
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34811.jpgsave_picture_34811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34811.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4F01B786055DF5B841385A9F485CCFCEBD2D9053
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34812.jpgsave_picture_34812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34812.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:701E2119384644945B4D566A9EB4FF360537F1EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34813.jpgsave_picture_34813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34813.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B2744F2CB8AB8724AB6B6A7CADF6BA25168D71CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34814.jpgsave_picture_34814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34814.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B2744F2CB8AB8724AB6B6A7CADF6BA25168D71CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34815.jpgsave_picture_34815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34815.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Imagine 1.7.1 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34816.jpgsave_picture_34816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34816.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34817.jpgsave_picture_34817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34817.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:1F1F8F42B8B09267ABAF0E17E3817EE9E53C1285
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34818.jpgsave_picture_34818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34818.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Record Super Chart 07.12.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34819.jpgsave_picture_34819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34819.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:5BF96EE866DC7C5E53974EB27AE66E329666B807
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34820.jpgsave_picture_34820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34820.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ the Gathering - Studio Albums (14 releases) (1992-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34821.jpgsave_picture_34821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34821.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:9F9F569124D39D09264B26A2B1D7FCFF8B55A781
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34822.jpgsave_picture_34822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34822.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:9F9F569124D39D09264B26A2B1D7FCFF8B55A781
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34823.jpgsave_picture_34823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34823.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:56B9D55CC91E882093E8123CA593C94F80CB2720
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34824.jpgsave_picture_34824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34824.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:C1531289D4FB3C58B3FE4EA6FE5399540C2856A9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34825.jpgsave_picture_34825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34825.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34826.jpgsave_picture_34826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34826.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:E8AC0D6613EDC0661E088E66FE61AB39740108C4
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34827.jpgsave_picture_34827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34827.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:C53F599021A4EC14C0240E4C36E69E37DDDFE111
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34828.jpgsave_picture_34828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34828.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ MobaXterm 24.4 build 5258 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34829.jpgsave_picture_34829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34829.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:3CCAB004CFF351DAD3592FD075ED5CB9F3021508
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34830.jpgsave_picture_34830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34830.jpg" />
 </div>
 
 

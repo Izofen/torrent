@@ -6,7 +6,7 @@ VA - Grand Prix 80's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190070.jpgsave_picture_190070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190070.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Viber 20.9.0.9 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190072.jpgsave_picture_190072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190072.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ WiFi Scanner 3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190074.jpgsave_picture_190074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190074.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Romantic Rock Mix (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190076.jpgsave_picture_190076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190076.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ CleanShot X 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190078.jpgsave_picture_190078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190078.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Comodo Dragon 116.0.5845.141 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190080.jpgsave_picture_190080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190080.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Telegram Desktop 4.9.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190082.jpgsave_picture_190082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190082.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ PDF Reader Pro Edition 2.9.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190084.jpgsave_picture_190084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190084.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:387EF58858DAD36E229B1E26770932EFCEB1C90C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190086.jpgsave_picture_190086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190086.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:02E3CB022F3E6ED3162ED2DA04C7F85616DCF716
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190088.jpgsave_picture_190088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190088.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:0F89ED2F57F6C4D012E1A1A6F5151B562E392C86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190090.jpgsave_picture_190090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190090.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:49EA60FD9C3B8CC21C4029BB8468C1FB062DC6AA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190091.jpgsave_picture_190091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190091.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ DxO PhotoLab 6 ELITE Edition 6.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190093.jpgsave_picture_190093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190093.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:768F6B9C27F736CE5E44E161791D326469F49C62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190094.jpgsave_picture_190094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190094.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:79339CE9357222BE9D4FF52165B208B438E315D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190095.jpgsave_picture_190095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190095.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Topaz Video AI for Mac 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190096.jpgsave_picture_190096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190096.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:D6B631A6661856DBBD936D65BF96AE27FEF59007
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190097.jpgsave_picture_190097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190097.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Goblins | Свартхевди - северянин (2023) [MP3, CHUGA]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190099.jpgsave_picture_190099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190099.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Adobe Media Encoder 2023 23.0.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190101.jpgsave_picture_190101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190101.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:E3611B5052EF07B60D03C8A4500F0C6E18C5A5CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190102.jpgsave_picture_190102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190102.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Mirillis Action! 4.37.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190106.jpgsave_picture_190106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190106.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Bloodbound - Rise Of The Dragon Empire (2019) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190108.jpgsave_picture_190108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190108.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:419626243ED3FBB08901DC5DAE49AB452846BF21
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190109.jpgsave_picture_190109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190109.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:C708FFBB44A9F7E5924D8BFE24A06B00B207C596
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190112.jpgsave_picture_190112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190112.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:C6B79B6C60C806C8742EFC25B99541696F5A3239
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190113.jpgsave_picture_190113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190113.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:6D62A52EBA277C3419DFDA69C1FE10D14191D2A2
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190114.jpgsave_picture_190114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190114.jpg" />
 </div>
 
 

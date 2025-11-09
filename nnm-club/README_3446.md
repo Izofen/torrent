@@ -6,7 +6,7 @@ Blazing Eternity - Times and Unknown Waters (2000) Released, 2001, Irond Ltd [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109957.jpgsave_picture_109957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109957.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fretting Obscurity - Das Ungluckliche Bewusstsein (2024) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109958.jpgsave_picture_109958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109958.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bud Freeman - Newport News (1955) 2013, Solid Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109959.jpgsave_picture_109959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109959.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Blaze of Perdition - The Harrowing of Hearts (2020) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109960.jpgsave_picture_109960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109960.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gene Harris - Live At Otter Crest (1981) 2001, Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109961.jpgsave_picture_109961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109961.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Charles McPherson - Charles McPherson (1971) 2017, Solid Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109962.jpgsave_picture_109962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109962.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Maddix Feat. Feles - My Gasoline (2023) [FLAC|Lossless|tracks] <Tech Trance, Pea
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109963.jpgsave_picture_109963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109963.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Deicide - Banished By Sin (2024) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109964.jpgsave_picture_109964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109964.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:AC16B92D67FFEF5F2E2F59845403C434915E92E2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109965.jpgsave_picture_109965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109965.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:4EA62B3FA773BAB7A821A779877B20AB1073AA78
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109966.jpgsave_picture_109966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109966.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vhaldemar - Sanctuary of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109967.jpgsave_picture_109967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109967.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:FC68EA324B573821CD7E8AC01569C597C0C9BC8A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109968.jpgsave_picture_109968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109968.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Marching Band - Is It Too Sharp? (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109969.jpgsave_picture_109969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109969.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Jen Ambrose - Plenty of Nothin' to Do (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109970.jpgsave_picture_109970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109970.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:7F36A41F57D9FB52B93652447E43175DE8D68FCB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109971.jpgsave_picture_109971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109971.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ JP Soars - Brick by Brick (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109972.jpgsave_picture_109972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109972.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ The Veer Union - Life Support 1&2 (2013-2023) (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109973.jpgsave_picture_109973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109973.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:E925384658383F7C05634035F9929E78DECA93D4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109974.jpgsave_picture_109974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109974.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Burning Sleeves - Turning the Light On (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109975.jpgsave_picture_109975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109975.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ The Paddy Boy Zimmermann Band - The Paddy Boy Zimmermann Band (2024) [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109976.jpgsave_picture_109976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109976.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Onus Blues - My Lonely Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109977.jpgsave_picture_109977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109977.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Son Henry - Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109978.jpgsave_picture_109978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109978.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ S.T.D. - Шум и грязь (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Punk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109979.jpgsave_picture_109979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109979.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Richard Dean - Billionaire Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109980.jpgsave_picture_109980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109980.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Bloodbound - The Tales of Nosferatu: Two Decades of Blood (2004-2024) (2024) Liv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109981.jpgsave_picture_109981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109981.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Gary Cain - Outside The Lines (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109982.jpgsave_picture_109982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109982.jpg" />
 </div>
 
 

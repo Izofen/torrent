@@ -6,7 +6,7 @@ Heart Healer - The Metal Opera (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244161.jpgsave_picture_244161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244161.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Dance Floor Autumn Edition (2016) [MP3|320 Kbps] <Dance, Nu Disco, Future B
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244162.jpgsave_picture_244162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244162.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dirty Deep - Trompe l'oeil (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244163.jpgsave_picture_244163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244163.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:CEE16E0DB6C0708A2356B41BD9F1C9FF210CAD85
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244164.jpgsave_picture_244164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244164.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:6312361736143A957A28E8CED25EAD932579635F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244165.jpgsave_picture_244165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244165.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sonible - smart:EQ live 1.0.5 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244166.jpgsave_picture_244166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244166.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Nancy Wilson - From Broadway With Love & Tender Loving Care (1966) 1993, EMI[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244167.jpgsave_picture_244167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244167.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ditto Clipboard Manager 3.24.238.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244168.jpgsave_picture_244168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244168.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Elles Bailey - Shining in the Half Light (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244169.jpgsave_picture_244169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244169.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Void - Horrors of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244170.jpgsave_picture_244170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244170.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Stellarium Plus - Star Map v1.9.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244171.jpgsave_picture_244171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244171.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ iNet Network Scanner 2.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244172.jpgsave_picture_244172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244172.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Lou Mecca - Bridging The Gap (1999) 2003, Jazzbank [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244173.jpgsave_picture_244173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244173.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Trippelganger - Trip to Hell (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, D
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244174.jpgsave_picture_244174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244174.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Benny Carter - 4 Albums From The MusicMasters Catalogue - Set 2 (1990-1995) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244175.jpgsave_picture_244175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244175.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:75D47379BD80DDD460904F1963C9977D8669C0FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244176.jpgsave_picture_244176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244176.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Jay Migliori And Dick Twardzik - Jazz Workshop Quintet (1954) 2020, Fresh Sound 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244177.jpgsave_picture_244177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244177.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ IObit Smart Defrag Pro 8.4.0.274 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244178.jpgsave_picture_244178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244178.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:D23F14EE17FDF4433300B7708628C64EB2B71EFA
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244179.jpgsave_picture_244179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244179.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Mega Hits 2011 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244180.jpgsave_picture_244180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244180.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Allavsoft Video Downloader Converter 3.23.3.7740 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244181.jpgsave_picture_244181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244181.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Музыкальный Заряд 4 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244182.jpgsave_picture_244182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244182.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Кайфуем Лето (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244183.jpgsave_picture_244183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244183.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Jason Freeman - Hex & Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244184.jpgsave_picture_244184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244184.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Ladies In Blue (1934 - 1954) 2CD, 2005, Nocturne [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244185.jpgsave_picture_244185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244185.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:127F1F718F9A907A7623F06928AD346B1184B404
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244186.jpgsave_picture_244186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244186.jpg" />
 </div>
 
 

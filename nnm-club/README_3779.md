@@ -6,7 +6,7 @@ VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118634.jpgsave_picture_118634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118634.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ultra GPS Logger 3.196 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118635.jpgsave_picture_118635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118635.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FileZilla 3.66.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118636.jpgsave_picture_118636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118636.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ DesktopDigitalClock 5.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118637.jpgsave_picture_118637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118637.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ CyberLink PowerDirector 2024 Ultimate 22.1.1.2601.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118638.jpgsave_picture_118638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118638.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:FB0EA07196074A24EA296FE0EB98EF32C7FDD5AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118639.jpgsave_picture_118639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118639.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ MyBible - Библия 5.7.1 Mod by Infiltrovat' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118640.jpgsave_picture_118640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118640.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ FonesGo iPhone Unlocker for Mac 6.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118641.jpgsave_picture_118641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118641.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ FonesGo Android Unlocker for Mac 7.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118642.jpgsave_picture_118642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118642.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ DesktopSnowOK 6.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118643.jpgsave_picture_118643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118643.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:5F9EC546753F512A66B830778E8D997DD3ECAE4F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118644.jpgsave_picture_118644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118644.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118645.jpgsave_picture_118645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118645.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A01F7C877E6C2C92D8E9E579DF46DE2DF9F73B29
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118646.jpgsave_picture_118646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118646.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:75B5DA33A3C5663CF5E2F411DAD19EC783DD2B59
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118647.jpgsave_picture_118647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118647.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:75B5DA33A3C5663CF5E2F411DAD19EC783DD2B59
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118648.jpgsave_picture_118648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118648.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:14A9FA0297618147EE47CAC4CE8F5598A74E04B8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118649.jpgsave_picture_118649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118649.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:5880008433FE9F33B387C7329C3C89F0C1D4996F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118650.jpgsave_picture_118650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118650.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:9F2A9C5A1BD68113B3C03CC0DA59776A984284B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118651.jpgsave_picture_118651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118651.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Depeche Mode - Album Collection (1981-1990) German Press Intercord [APE|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118652.jpgsave_picture_118652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118652.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ JetBrains DataGrip for Mac 2023.3.4 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118653.jpgsave_picture_118653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118653.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Total Commander 11.03 RC5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118654.jpgsave_picture_118654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118654.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:A6519AACD40BB68341D5175D41BC4BBF7CAB3791
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118655.jpgsave_picture_118655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118655.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Adobe Photoshop Express 12.5.284 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118656.jpgsave_picture_118656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118656.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:1E74BE09004FEA37A8ADE9F23D9704B6681731D5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118657.jpgsave_picture_118657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118657.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:35F3D7ED93C12868BB5F569BACD967381CEB1D52
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118658.jpgsave_picture_118658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118658.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Avidemux 2.8.2 Nightly(r240204) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118659.jpgsave_picture_118659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118659.jpg" />
 </div>
 
 

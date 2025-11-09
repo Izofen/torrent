@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136157.jpgsave_picture_136157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136157.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D29C816729D8C6963CF7ADC4D88246DAD5A150AA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136160.jpgsave_picture_136160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136160.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:594DA2F1D41D3287340B19DF353E714BCFB5B5D8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136167.jpgsave_picture_136167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136167.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Desktop Wallpapers (17.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136169.jpgsave_picture_136169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136169.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C36152866E8E4C1E402E74B382C36B589E68B069
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136171.jpgsave_picture_136171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136171.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Ludovico Technique - Some Things Are Beyond Therapy (2012) [MP3|256-320 kbps] <I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136177.jpgsave_picture_136177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136177.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:F4E009B4F91EFE995804B9B07E0794415453EEB5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136179.jpgsave_picture_136179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136179.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Jethro Tull - 20 Years Of J. T. The Definitive Collection (1988) [FLAC 2.0 24/96
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136188.jpgsave_picture_136188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136188.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ DJ Muggs (Cypress Hill) - Sound Boy Killa (2012) EP [MP3|320 kbps] <Dubstep, Hip
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136193.jpgsave_picture_136193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136193.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:52D115B88AA10211FF74AB5ED59C2EF2866E3774
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136194.jpgsave_picture_136194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136194.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:71F9987C049B25AEB6617B9989058E2A55159F9A
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136195.jpgsave_picture_136195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136195.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA-New Age Style - Lounge Cafe (2012) [MP3|320 кб/с]<Chillout, Lounge, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136197.jpgsave_picture_136197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136197.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Music Box of Memories (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136199.jpgsave_picture_136199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136199.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:9B645DEBEA7BDF486243A952A07F26F16268C430
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136201.jpgsave_picture_136201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136201.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136202.jpgsave_picture_136202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136202.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:C479FC16A4D6E870357EE00047EFA332735E8213
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136204.jpgsave_picture_136204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136204.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:426AAFE46C53D04806ABA90AA2076896438863D2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136209.jpgsave_picture_136209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136209.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:2AF5AD9EAEA7D343AE4F68BF895B833C8B15CFD5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136212.jpgsave_picture_136212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136212.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:E0D3E21A385EB4A4286613C532E0F94BB7B444FC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136218.jpgsave_picture_136218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136218.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:B80A38B825C989367A060C793E5DB0629CA2F09C
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136222.jpgsave_picture_136222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136222.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:F6C279038EB93F75AFB6A2C3BD836403B06E9081
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136225.jpgsave_picture_136225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136225.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:BFED92A1BBECA7F2A3BC9E5FBC59C23F2BAF41E8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136226.jpgsave_picture_136226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136226.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Armin Van Buuren - A State Of Trance Yearmix 2012 (2012) [MP3|~257 кб/с 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136227.jpgsave_picture_136227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136227.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Various Artists - Commercial Suicide Is Painless Vol.1 (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136230.jpgsave_picture_136230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136230.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Borgore - Turn Up (2012) EP [MP3|320 Kbps] <Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136236.jpgsave_picture_136236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136236.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:C06036182B27C34A97F35D69787C15C39826ABD6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136240.jpgsave_picture_136240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136240.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Emurasoft EmEditor Professional 24.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115015.jpgsave_picture_115015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115015.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Vivaldi 6.6.3271.45 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115016.jpgsave_picture_115016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115016.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ IObit Driver Booster Pro 11.3.0.43 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115017.jpgsave_picture_115017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115017.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115018.jpgsave_picture_115018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115018.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VueScan Pro 9.8.27 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115019.jpgsave_picture_115019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115019.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:6B5D4B1A990ACC991D6FD292E70D56F6A5114C8B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115020.jpgsave_picture_115020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115020.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Fort Firewall 3.11.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115021.jpgsave_picture_115021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115021.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:5D9EEBFD7706EEAB1978EAB2AF26728F8D11A883
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115022.jpgsave_picture_115022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115022.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:3C7BE6E37A3D48EC5A6755E2D99C8518C20DF2ED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115023.jpgsave_picture_115023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115023.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ HWiNFO 7.73 Build 5375 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115024.jpgsave_picture_115024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115024.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VueScan Pro 9.8.28 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115025.jpgsave_picture_115025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115025.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Army of Lovers - Massive Luxury Overdose (1993 (1991)) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115026.jpgsave_picture_115026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115026.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:150755A436A964C98B5487901B92D73EDA2A024E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115027.jpgsave_picture_115027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115027.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:9EA92F75D705CC54A6AA67D7ED84384F2686A40A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115028.jpgsave_picture_115028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115028.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Los Angeles - Лос Анхелес (1974 (1967)) [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115029.jpgsave_picture_115029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115029.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ornella Vanoni - Collection (1961-1973) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115030.jpgsave_picture_115030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115030.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115031.jpgsave_picture_115031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115031.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:D0E05377358E3EEE51E4987C0F8BDF80AEBCAEDF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115032.jpgsave_picture_115032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115032.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:0C3C16C744DC5B2FED77F282F8647220112976C0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115033.jpgsave_picture_115033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115033.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.6 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115034.jpgsave_picture_115034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115034.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:BFC4A59EE5C1620104A03868D326E7C37DD287DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115035.jpgsave_picture_115035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115035.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:F1CDF6F81335B460C4C259B7CA628EC5E8C07BB9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115036.jpgsave_picture_115036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115036.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:A229F90628C833CF0A2387F84A84812887FD4838
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115037.jpgsave_picture_115037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115037.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VidCoder 9.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115038.jpgsave_picture_115038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115038.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Music News vol.346 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115039.jpgsave_picture_115039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115039.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.6 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115040.jpgsave_picture_115040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115040.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Gothic II: Gold Edition / Готика 2: Золотое издание (2010) [
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143931.jpgsave_picture_143931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143931.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:561DA4F2FB624DA6FDC7876E3B9095154578F12C
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143932.jpgsave_picture_143932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143932.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B31A41D12D477091EBE464E2CE5DFE53E36916A1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143933.jpgsave_picture_143933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143933.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Stats 2.6.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143934.jpgsave_picture_143934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143934.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8D90FD9C74018178030089E8DA820F48ED1CF155
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143935.jpgsave_picture_143935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143935.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Cent Browser 4.3.9.241 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143937.jpgsave_picture_143937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143937.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0ACCB0C47C30A99286B2E1F0A0CDFA97642B9DFC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143938.jpgsave_picture_143938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143938.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:66CBFDDEF17A8E260E0FBE0C22FF17D25B160AA8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143939.jpgsave_picture_143939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143939.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E9A31AA6900A5C33C6F2A2FBA91ABFC4034A683B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143941.jpgsave_picture_143941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143941.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:43ABB216DBC2EAC582146218F93A44B63CD87610
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143942.jpgsave_picture_143942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143942.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:EA2FC31E3988622819948F6E91F4E5663F08D363
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143943.jpgsave_picture_143943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143943.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Randal Collier-Ford + Side Projects (The Temple Of Algolagnia, Black Sun) - Disc
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143945.jpgsave_picture_143945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143945.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - Новогодние хиты. Песни года Выпуск № 6 (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143946.jpgsave_picture_143946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143946.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Native Instruments Kontakt 7.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143947.jpgsave_picture_143947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143947.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Ihara Saikaku Koushoku Ichidai Otoko | The Sensualist | Мужчина, неср
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143948.jpgsave_picture_143948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143948.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ FreeBSD 9.1 RELEASE [amd64] (1xDVD+1xCD+USB IMG+BootOnlyCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143949.jpgsave_picture_143949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143949.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ FreeBSD разрабатывается как целостная операци�
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143950.jpgsave_picture_143950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143950.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ SamDrivers 18.19 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143951.jpgsave_picture_143951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143951.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:DB70A09ACA927C4C20D033015A6B465990C3D55C
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143953.jpgsave_picture_143953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143953.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Vidmore Video Fix for Mac 1.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143954.jpgsave_picture_143954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143954.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:6CB43F00B0AF6C79CFD65E156860935698FC9517
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143955.jpgsave_picture_143955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143955.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ TrustViewer 2.5.1.3988 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143957.jpgsave_picture_143957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143957.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Watashi ga Motete Dousunda / Kiss Him, Not Me / Целуй его, а не ме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143958.jpgsave_picture_143958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143958.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Finder Windows 1.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143959.jpgsave_picture_143959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143959.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:4188B2ED8ED9C0A509F51E6F0189392FCAC466E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143962.jpgsave_picture_143962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143962.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Dogma - Dogma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard N' Heavy / Fema
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143963.jpgsave_picture_143963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143963.jpg" />
 </div>
 
 

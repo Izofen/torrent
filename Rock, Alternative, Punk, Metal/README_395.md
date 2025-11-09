@@ -6,7 +6,7 @@ Garrett Campbell - Skies Of Dragonlight (2023) [MP3|320 Kbps] <Symphonic Power, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232135.jpgsave_picture_232135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232135.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blaze Bayley - Damaged Strange Different and Live (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232137.jpgsave_picture_232137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232137.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pyramaze - Bloodlines (2023) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232144.jpgsave_picture_232144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232144.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:588143903BD26EB09ECD79BD94F60B50DDF480B0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232151.jpgsave_picture_232151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232151.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nexorum - Tongue of Thorns (2023) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232156.jpgsave_picture_232156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232156.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:0168653607B8E38779DC1236F8D9FCAB50B0D319
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232160.jpgsave_picture_232160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232160.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Terranoct - Icon of Ruin (2023) [MP3|320 Kbps] <Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232165.jpgsave_picture_232165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232165.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kalmah - Kalmah (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232170.jpgsave_picture_232170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232170.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nexorum - Death Unchained (2020) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232171.jpgsave_picture_232171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232171.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Talvienkeli - In A World Full Of Clouds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232176.jpgsave_picture_232176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232176.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sculforge - Intergalactic Battle Tunes (2023) [MP3|320 Kbps] <Speed Heavy, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232183.jpgsave_picture_232183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232183.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Marek Arnold's Artrock Project - same (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232190.jpgsave_picture_232190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232190.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D2A23F5C25DEAA638FC5612782FA1A9BBF104689
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232198.jpgsave_picture_232198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232198.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Maegi - Skies Fall (2013) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232203.jpgsave_picture_232203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232203.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Houston - Re-Launch III (2023) [FLAC|Lossless|WEB-DL|tracks] <Vintage-Melodic-Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232206.jpgsave_picture_232206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232206.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Pandrador - Seidr (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232209.jpgsave_picture_232209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232209.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ AmongRuins - Land of the Black Sun (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232210.jpgsave_picture_232210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232210.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Kryptik - A Journey to the Darkest Kingdom (2023) [MP3|320 Kbps] <Black Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232217.jpgsave_picture_232217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232217.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Marco Ragni - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232220.jpgsave_picture_232220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232220.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ DethOps - Myślonur (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232224.jpgsave_picture_232224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232224.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Eleine - We Shall Remain (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232229.jpgsave_picture_232229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232229.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Abstractian - Box Of Frogs (Poison) (2021) [MP3|320 Kbps] <Progressive Metal, Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232230.jpgsave_picture_232230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232230.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Prometheo - Stupor Mundi Vol. I (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232235.jpgsave_picture_232235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232235.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Withering Scorn - Prophets Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232237.jpgsave_picture_232237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232237.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Skuggor - Skogshypnos (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232242.jpgsave_picture_232242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232242.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Accusator - Trial by Fire (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232246.jpgsave_picture_232246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232246.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125686.jpgsave_picture_125686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125686.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B99047E74BEBBECF644EF2DE0F3D42C334374C7B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125687.jpgsave_picture_125687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125687.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DAD3D99D12012F72047510F2D8455CDDF5482491
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125688.jpgsave_picture_125688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125688.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F9DCA42BC825569DF3A47C5E74CAFC71F611EB8C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125689.jpgsave_picture_125689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125689.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C36AB81959B6F9FDCACCE9A7636C96AC36D14C42
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125690.jpgsave_picture_125690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125690.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:525A1B9B81FFDE6C1A2077CB9AE9BC1F0FC52AB2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125691.jpgsave_picture_125691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125691.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:29FE328FB05C53F39884FD4BA6D600E417C5E5E9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125692.jpgsave_picture_125692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125692.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Neil Levin - The SoCal Sound Sessions With Neil Levin (2023) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125693.jpgsave_picture_125693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125693.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ La Blues Band de Granada - The Jumping Boogie (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125694.jpgsave_picture_125694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125694.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:05F0FA74FBDD4818E9F43D67C71F2E045F533F0C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125695.jpgsave_picture_125695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125695.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:AF03751A614A3CC89E8E31CE0B484B4B28E4AB05
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125696.jpgsave_picture_125696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125696.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Joakim Tinderholt & His Band - Deadlines (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125697.jpgsave_picture_125697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125697.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Frank Morgan - Gene Norman Presents Frank Morgan (1955) 1989, Fresh Sound Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125698.jpgsave_picture_125698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125698.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:1F6FA3C37A54368F4807E55BD90BFEFAE6F6B2F9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125699.jpgsave_picture_125699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125699.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ John Hicks - Piece For My Peace (1996) Landmark Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125700.jpgsave_picture_125700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125700.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:DBC023784FD2888CD895CA5018CFB33B05E6E73F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125701.jpgsave_picture_125701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125701.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Kadjo - NewEra (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125702.jpgsave_picture_125702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125702.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:CE4069114CC3BE1BB4B006E06BB6842FAAB6AF16
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125703.jpgsave_picture_125703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125703.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:C1804FF28FF97EF51A1F64FE40078059BF085281
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125704.jpgsave_picture_125704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125704.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:1D2E0BE95C86025069BBDC3E20399097F830648C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125705.jpgsave_picture_125705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125705.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Nemo Blues Band - In the Land of the Blues (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125706.jpgsave_picture_125706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125706.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125707.jpgsave_picture_125707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125707.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ EverLevel - Future (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125708.jpgsave_picture_125708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125708.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ George Hills - Dancing With A Stranger (1991) Reissue, Remastered, 2023, Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125709.jpgsave_picture_125709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125709.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:5FE2DB4BE230DBB25B146FA5AF1101DBAA79D7EE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125710.jpgsave_picture_125710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125710.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:842899B736586261F25C9F2BA450C6F87B500337
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125711.jpgsave_picture_125711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125711.jpg" />
 </div>
 
 

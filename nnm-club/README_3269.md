@@ -6,7 +6,7 @@ Bad Boy - Private Party (1981) Limited Edition, Reissue, Remastered, 2024, Pride
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105355.jpgsave_picture_105355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105355.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ April Fool - Playin' To Win (1989) Reissue, Remastered, 2024, Heaven And Hell Re
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105356.jpgsave_picture_105356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105356.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105357.jpgsave_picture_105357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105357.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:EC5F016E19EB5047255483636EE75EE45EEB0367
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105358.jpgsave_picture_105358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105358.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Freedom Rockets - American Trash (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105359.jpgsave_picture_105359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105359.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Marrgothic - Ten Life Stages (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105360.jpgsave_picture_105360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105360.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Balga, Autumn Tales - Midnight Mystery (2024) [FLAC|Lossless|image + .cue] <Atmo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105361.jpgsave_picture_105361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105361.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ The Spiritual Machines - Lockhearted (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105362.jpgsave_picture_105362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105362.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Dark Embrace - Dark Heavy Metal (2023) [FLAC|Lossless|image + .cue] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105363.jpgsave_picture_105363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105363.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Extinction A.D. - To The Detested (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105364.jpgsave_picture_105364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105364.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Bill Barron - Quintet & Sextet (1961 - 1962) 2CD, 2012, Fresh Sound [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105365.jpgsave_picture_105365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105365.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:2C024EEC97F62FA793AF705A0C5B6839C6A3495F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105366.jpgsave_picture_105366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105366.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Frank Turner - Undefeated (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105367.jpgsave_picture_105367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105367.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Royal Blood - Royal Blood (2014) 10th Anniversary Edition, 2024, Warner Records 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105368.jpgsave_picture_105368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105368.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Black Hole Trance Music 08-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105369.jpgsave_picture_105369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105369.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Armin van Buuren - A State Of Trance 1186 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105370.jpgsave_picture_105370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105370.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Nikolo Kotzev - Nikolo Kotzev's Nostradamus / The Rock Opera (Live In Sofia) (20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105371.jpgsave_picture_105371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105371.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Maria Aurigema - Kindred Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105372.jpgsave_picture_105372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105372.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Marrgothic - Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Female Voc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105373.jpgsave_picture_105373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105373.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ SunSay - Дайвер (2010) Digipack [WavPack|Lossless|image + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105374.jpgsave_picture_105374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105374.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Mick Clarke - Rock and Roll, Hoochie Koo the Collection (2024) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105375.jpgsave_picture_105375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105375.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Black Hole House Music 08-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105376.jpgsave_picture_105376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105376.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mick Clarke - West Coast Connection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105377.jpgsave_picture_105377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105377.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Freedom Rockets - American Trash (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105378.jpgsave_picture_105378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105378.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Dinosaur Jr. - Farm (2009) 15th Anniversary Edition, 2024, Jagjaguwar[FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105379.jpgsave_picture_105379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105379.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Спринт (17.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105380.jpgsave_picture_105380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105380.jpg" />
 </div>
 
 

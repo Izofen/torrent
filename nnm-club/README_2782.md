@@ -6,7 +6,7 @@ Google Sketchup Pro v8.0.3117 Английский и Русский + Vray 1.49
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78262.jpgsave_picture_78262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78262.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Corel Paint Shop Pro Photo X2 Portable RUS 12.0.1.1 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78270.jpgsave_picture_78270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78270.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Corel Paint Shop Pro Photo X2 – наилучший выбор для цифр�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78275.jpgsave_picture_78275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78275.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0410224705340A8A04DEA05B4AC06565F99D1708
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78284.jpgsave_picture_78284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78284.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:08AE66BF3732FFF488D49AD4FF28C21D09347CB0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78291.jpgsave_picture_78291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78291.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0917AFAC8CF15F6FB842553D6B062540961EB97B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78295.jpgsave_picture_78295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78295.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6AE8D1304D87D27463021B448A24D367562C2374
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78298.jpgsave_picture_78298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78298.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:140993288C7757C8E5B0614852B90D2EEE09E078
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78305.jpgsave_picture_78305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78305.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:140993288C7757C8E5B0614852B90D2EEE09E078
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78308.jpgsave_picture_78308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78308.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:5C626516F48E0CB807D560C296804BE83318CA8A
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78310.jpgsave_picture_78310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78310.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Any DVD Converter Professional 4.3.4 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78312.jpgsave_picture_78312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78312.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Any DVD Video Converter также пакетно преобразовывает
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78322.jpgsave_picture_78322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78322.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:9B087728759CA20FEF4638C5045168A95FD55CA9
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78325.jpgsave_picture_78325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78325.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:AF0BF0B5A412173231B200FEC93031178D2F4ED8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78327.jpgsave_picture_78327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78327.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:36625F77ACD316746B50A969ED407A7CF18FFC31
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78331.jpgsave_picture_78331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78331.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D878150284E15FC161DD8F5A0D866183DDB60F9A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78332.jpgsave_picture_78332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78332.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:D878150284E15FC161DD8F5A0D866183DDB60F9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78334.jpgsave_picture_78334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78334.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Killer Tracks - Apocalypse 2012 (2009) [MP3|320 кб/с]<Soundtrack, Trailer mus
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78340.jpgsave_picture_78340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78340.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:FBAC2F33FFBF484E746BEEEC561E6E7526C35DEA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78341.jpgsave_picture_78341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78341.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:009F764353EAC64DCBCABBB852186E6E80A3608F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78345.jpgsave_picture_78345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78345.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:C23BEE46A607D14A1BE102DD06B32A9D76004743
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78350.jpgsave_picture_78350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78350.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:83A29D269E26E17F3F14A5B71C9F8217193E7AFE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78352.jpgsave_picture_78352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78352.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78360.jpgsave_picture_78360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78360.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - A Tribute to "Чёрный Обелиск" (2012) [MP3|192 кб/с]<Heavy M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78361.jpgsave_picture_78361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78361.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:2BA1632E75E355A393923E46CD55BB236D318B88
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78363.jpgsave_picture_78363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78363.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:2BA1632E75E355A393923E46CD55BB236D318B88
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78364.jpgsave_picture_78364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78364.jpg" />
 </div>
 
 

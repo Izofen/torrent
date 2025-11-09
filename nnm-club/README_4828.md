@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151047.jpgsave_picture_151047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151047.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Decrepit Cadaver - Revelations (2022) [FLAC|Lossless|WEB-DL|tracks] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151048.jpgsave_picture_151048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151048.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ GeoGebra 6.0.813.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151049.jpgsave_picture_151049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151049.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:92A4779B5E02369A9F0CA63259EB9FA12CE7D7EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151050.jpgsave_picture_151050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151050.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5041B071B25D8099E4328E7ED2BF20374822F220
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151051.jpgsave_picture_151051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151051.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Reveal Sound - Spire 1.5.5 (build 5130) VSTi, AAX + 850 SoundBanks (x86/x64) ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151053.jpgsave_picture_151053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151053.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:F9574972B455BEF3B27BF323444F88224EE31372
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151054.jpgsave_picture_151054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151054.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ NNM-Club Unmarked Team - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151055.jpgsave_picture_151055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151055.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3497C42C3FA61BFEC2EA7D6D3A40921A80C59865
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151057.jpgsave_picture_151057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151057.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Viasat History: BBC: Железные дороги в годы Первой ми
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151059.jpgsave_picture_151059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151059.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:BA5CE39F595881665F784992802C4D0A6522E72A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151060.jpgsave_picture_151060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151060.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ SupRemo 4.6.0.3024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151061.jpgsave_picture_151061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151061.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Club Hits 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151062.jpgsave_picture_151062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151062.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:20EEB7CD639A233DB04020F36EC599591193E2B9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151063.jpgsave_picture_151063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151063.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:DDE13FD48DB1DBD8584301A5630B9CCF1D959126
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151064.jpgsave_picture_151064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151064.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Desert Voices - Never Ending (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151065.jpgsave_picture_151065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151065.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:3DC31CDF080D93263DBD0277719073D0B1A62CB1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151067.jpgsave_picture_151067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151067.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:EEFA396854425AB46A0831AE267CDE28E68FBDEE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151068.jpgsave_picture_151068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151068.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:A702BFBEF9EC2DBBDAA3D843D2CEAA3FF831FF04
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151069.jpgsave_picture_151069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151069.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Void / Тургор. Голос цвета (2009) [Ru/Multi] (1.0) License G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151070.jpgsave_picture_151070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151070.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151072.jpgsave_picture_151072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151072.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Univention Corporate Server 3.1 [i386 + amd64 +amd64 (U)EFI] (3xDVD)
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151073.jpgsave_picture_151073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151073.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151074.jpgsave_picture_151074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151074.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ OBLADAET - PLAYERS CLUB 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151075.jpgsave_picture_151075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151075.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151076.jpgsave_picture_151076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151076.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:5D1F6061F2F783F64F857B3C1BA9AECBC817058F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151077.jpgsave_picture_151077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151077.jpg" />
 </div>
 
 

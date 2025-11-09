@@ -6,7 +6,7 @@ Elena Malaguti - Jazz Chronicles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118244.jpgsave_picture_118244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118244.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:713C0654F680FBC8F7EBE4D8A11C5E54C7397386
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118245.jpgsave_picture_118245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118245.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0317A40065B0CEDCFD5127BFF4C0A5DF66D4FA1E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118246.jpgsave_picture_118246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118246.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8A514969D7DC2967998635AF8E22DEB70310FD89
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118247.jpgsave_picture_118247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118247.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:265F0B7644F62C2D8A1B509B8ABB5DB42610F8EF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118248.jpgsave_picture_118248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118248.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2A6B6F4295FF5C39E56D584F21B3035342FF6CEF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118249.jpgsave_picture_118249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118249.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Lacuna Coil - Black Anima (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic, A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118250.jpgsave_picture_118250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118250.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Elegant People and Lo Greco Bros - Stories Of Us (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118251.jpgsave_picture_118251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118251.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Enemy of Reality - Studio Albums (3 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118252.jpgsave_picture_118252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118252.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Angelo Debarre with Tim Kliphuis - Live At Djangofest Northwest (2005) Gypsy Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118253.jpgsave_picture_118253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118253.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Cooking Jazz Music Academy, Instrumental Music Ensemble, Calming Jazz Relax Acad
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118254.jpgsave_picture_118254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118254.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Ash - Self-Discovery (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118255.jpgsave_picture_118255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118255.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ ActionDirector - Видеоредактор v7.12.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118256.jpgsave_picture_118256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118256.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Rollywoodland - Dark Fate For Judgement Day (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118257.jpgsave_picture_118257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118257.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Armin van Buuren - A State Of Trance 1159 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118258.jpgsave_picture_118258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118258.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Il Divo - XX (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neo-Classical, Classi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118259.jpgsave_picture_118259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118259.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Petrification - Sever Sacred Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118260.jpgsave_picture_118260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118260.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:A683B9CC12A52F60C5D72C24DF5797E3FD37DC75
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118261.jpgsave_picture_118261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118261.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Persecond for Mac 1.7 U2B [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118262.jpgsave_picture_118262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118262.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ The Mighty Howlers - Back On Track (2024) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118263.jpgsave_picture_118263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118263.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Chill Lounge Music Zone, Jazz Music Collection Zone - Night with Red Wine: A Toa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118264.jpgsave_picture_118264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118264.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:E0ED9AFF1628D59AFC6A10F125741654F4F11DB4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118265.jpgsave_picture_118265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118265.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:97B19C6A13B727CA5EE13A002A3AF4F30273CCA4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118266.jpgsave_picture_118266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118266.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:DF09775FA56BF1FF2C77BFDEAEB89802DC4157CD
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118267.jpgsave_picture_118267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118267.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:055F0C60D4FB15B14C060B71DEC0DD3025254FA7
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118268.jpgsave_picture_118268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118268.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Winter Selection 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118269.jpgsave_picture_118269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118269.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Process Lasso Pro 14.0.1.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62221.jpgsave_picture_62221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62221.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:45A46F5D7A22711DC1656236D3B6EBDD41F3C06D
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62222.jpgsave_picture_62222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62222.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MediaHuman YouTube Downloader 3.9.9.89 (0319) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62223.jpgsave_picture_62223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62223.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - 10's Rock Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62224.jpgsave_picture_62224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62224.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EDCEBF925DFFF4EBCD7758A6482ACDE805EE5C6C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62225.jpgsave_picture_62225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62225.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FCC9545088483D89D9FC9ABF79977F878A237D8D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62226.jpgsave_picture_62226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62226.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ PhotoRoom v4.8.9 b1330 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62227.jpgsave_picture_62227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62227.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ CherryTree 1.1.0.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62228.jpgsave_picture_62228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62228.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Country Blues & Whiskey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Countr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62229.jpgsave_picture_62229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62229.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Waterfox Current G6.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62230.jpgsave_picture_62230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62230.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:88284F66F85281F652E3B028B3A145614137CE6E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62231.jpgsave_picture_62231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62231.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ JetBrains RubyMine for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62232.jpgsave_picture_62232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62232.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Skype 8.115.0.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62233.jpgsave_picture_62233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62233.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ DRmare Audio Capture 2.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62234.jpgsave_picture_62234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62234.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Ocenaudio 3.13.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62235.jpgsave_picture_62235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62235.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Notebooks – Write and Organize 3.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62236.jpgsave_picture_62236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62236.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:6DDC09CE010241A21ED2CFE8EAAF59E200F6F5A5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62237.jpgsave_picture_62237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62237.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ GIF Maker - GIF Editor 1.8.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62238.jpgsave_picture_62238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62238.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - Vocal Trance NNM 2 (2024) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62239.jpgsave_picture_62239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62239.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:87C09959FB98EBCDDDB005603365BB9CEB7448C0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62240.jpgsave_picture_62240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62240.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:70121C4C63E77632709056240B9D12A1F1D2623D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62241.jpgsave_picture_62241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62241.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ JetBrains GoLand for Mac 2023.3.5 ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62242.jpgsave_picture_62242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62242.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:095A1B0AA256ACE65607C08251701D8DD4F6F14A
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62243.jpgsave_picture_62243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62243.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:23B03BBCAA4DBD506AF15ED0B0DA49158077AA6D
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62244.jpgsave_picture_62244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62244.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Movist Pro 2.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62245.jpgsave_picture_62245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62245.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Windows and Office Genuine ISO Verifier 11.15.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62246.jpgsave_picture_62246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62246.jpg" />
 </div>
 
 

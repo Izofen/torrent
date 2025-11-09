@@ -6,7 +6,7 @@ Graham Nash - Now (2023) [FLAC 24/44.1-96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240142.jpgsave_picture_240142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240142.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4AF84ACDABD6AB030BD94071C152049A0F650BF4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240145.jpgsave_picture_240145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240145.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ La Famiglia Degli Ortega - La Famiglia Degli Ortega (1973) 1996, Vinyl Magic [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240150.jpgsave_picture_240150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240150.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Places Around The Sun - Places Around the Sun (2020) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240161.jpgsave_picture_240161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240161.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Пипл про | To Purple. Российско-Белорусское по
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240170.jpgsave_picture_240170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240170.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Giant - Born Again Dead Again (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240173.jpgsave_picture_240173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240173.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240174.jpgsave_picture_240174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240174.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Montagne - Black Waterfall (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240188.jpgsave_picture_240188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240188.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F81083B6553D603B07EF01D3AFF21EF36787A29D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240199.jpgsave_picture_240199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240199.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Various Artists - Rock & Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240211.jpgsave_picture_240211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240211.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hannah Jadagu - Aperture (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240213.jpgsave_picture_240213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240213.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - All Out Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240214.jpgsave_picture_240214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240214.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Vesuvian - Emergence (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240215.jpgsave_picture_240215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240215.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - 00s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240229.jpgsave_picture_240229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240229.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Pistol Kixx - Pistol Kixx (2018) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240239.jpgsave_picture_240239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240239.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Luteoks - Barely True Norwegian Black Metal (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240244.jpgsave_picture_240244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240244.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Celldweller - Satellites (2022) Deluxe Edition, 3CD, 2023, FiXT [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240250.jpgsave_picture_240250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240250.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Lust Witch - Hands Of Filth (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240251.jpgsave_picture_240251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240251.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Billie Eilish - hotline (edit) (2023) Single [FLAC 24/44.1|Lossless|WEB-DL|track
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240252.jpgsave_picture_240252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240252.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Great Unfinished... - Malcontent (2018) [FLAC|Lossless|WEB-DL|tracks] <Glasg
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240253.jpgsave_picture_240253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240253.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Qvintessence - Qvintessence (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240258.jpgsave_picture_240258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240258.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Various Artists - Flower Power - Best Of Love, Peace and Happiness (2023) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240259.jpgsave_picture_240259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240259.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Azeroth - II (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240261.jpgsave_picture_240261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240261.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Dead Don’t Die - Rock Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240262.jpgsave_picture_240262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240262.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Math Marriage Abel and Krell - Откровение (2021) [MP3|320 Kbps] <Extre
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240264.jpgsave_picture_240264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240264.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Evergrey - Escape Of The Phoenix (2021) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240265.jpgsave_picture_240265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240265.jpg" />
 </div>
 
 

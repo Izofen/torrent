@@ -6,7 +6,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3017 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23511.jpgsave_picture_23511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23511.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CherryTree 1.4.0.0 (x64) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23733.jpgsave_picture_23733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23733.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AntiPlagiarism.NET 4.142.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23953.jpgsave_picture_23953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23953.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ChrisPC Win Experience Index 7.25.0318 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24067.jpgsave_picture_24067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24067.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ SupRemo 4.11.4.2831 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24070.jpgsave_picture_24070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24070.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ CCleaner 6.34.11482 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24098.jpgsave_picture_24098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24098.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Total Commander 11.51 LitePack & PowerPack + Portable 2025.3 by SamLab [Multi/Ru
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24128.jpgsave_picture_24128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24128.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ WinTools.net Premium 25.3.1 Premium RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24187.jpgsave_picture_24187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24187.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24241.jpgsave_picture_24241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24241.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by Dodakaedr [Multi/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24313.jpgsave_picture_24313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24313.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Windows Repair Toolbox 3.0.4.6 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24400.jpgsave_picture_24400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24400.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ NetLimiter 5.3.23.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24407.jpgsave_picture_24407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24407.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24421.jpgsave_picture_24421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24421.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Hard Disk Sentinel PRO 6.30 Build 13191 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24429.jpgsave_picture_24429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24429.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WSCC (Windows System Control Center) 10.0.0.5 + Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24812.jpgsave_picture_24812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24812.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ WizFile 3.12 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24898.jpgsave_picture_24898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24898.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ CoolUtils Total PDF Printer 4.1.0.59 RePack (& portable) by elchupacabra [Multi/
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24915.jpgsave_picture_24915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24915.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ FocusWriter 1.8.11 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25122.jpgsave_picture_25122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25122.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Resource Hacker 5.2.8.448 Portable by alexalsp
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25439.jpgsave_picture_25439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25439.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ IceCream Ebook Reader Pro 6.52 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25449.jpgsave_picture_25449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25449.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Resource Hacker 5.2.8.448 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25538.jpgsave_picture_25538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25538.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ USB Image Tool 1.91 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25551.jpgsave_picture_25551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25551.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Vovsoft Speech to Text Converter 5.5 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25574.jpgsave_picture_25574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25574.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Koodo Reader 1.7.4 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25678.jpgsave_picture_25678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25678.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Firefox Browser 136.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25774.jpgsave_picture_25774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25774.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Asus TUF Aura Core (Portable) 2.0.4.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25775.jpgsave_picture_25775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25775.jpg" />
 </div>
 
 

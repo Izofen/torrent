@@ -6,7 +6,7 @@ Campaign Series: Vietnam (2022) [En] (1.00.00) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44973.jpgsave_picture_44973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44973.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C34A22629D4603BC255C4FB8AF9683A82608AB1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44974.jpgsave_picture_44974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44974.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:50D407A67177E3680B294ECA11CB7D0191688AC3
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44975.jpgsave_picture_44975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44975.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Jetbrains IntelliJ IDEA Ultimate 2024.2.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44976.jpgsave_picture_44976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44976.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44977.jpgsave_picture_44977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44977.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44978.jpgsave_picture_44978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44978.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:67E57F1D2E7FD6C4CB1B6C1D36BF2E24303E461C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44979.jpgsave_picture_44979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44979.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Office Tab Enterprise 15.00 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44980.jpgsave_picture_44980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44980.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:44E0629E6B82B1290F00082503E5831CF673331A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44981.jpgsave_picture_44981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44981.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:FC5121D672E2896064BC3FD9C4B8A44699727030
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44982.jpgsave_picture_44982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44982.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:806311B5CF3445457DA94AAE6A82052349EE6EE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44983.jpgsave_picture_44983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44983.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:806311B5CF3445457DA94AAE6A82052349EE6EE0
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44984.jpgsave_picture_44984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44984.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.5.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44985.jpgsave_picture_44985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44985.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:2B6B3E2C8116240243F96B5056814DCFA18CD842
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44986.jpgsave_picture_44986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44986.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:3C769A7A864DA6E3D5EBB0A16FCDB1E501AFD7CE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44987.jpgsave_picture_44987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44987.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:73591BEB266EC5440B528D0FFF2E6D5AC97F076E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44988.jpgsave_picture_44988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44988.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C42A383B27285DBC07CB3DC0BB1C01A81619D6C5
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44989.jpgsave_picture_44989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44989.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:B26E00E0C142F2ECA45592FA1C2F7CA1A8D3F0DB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44990.jpgsave_picture_44990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44990.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:85CD5BA2202A82C0C2470D0078ED31E9B12BB0E2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44991.jpgsave_picture_44991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44991.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:AA42C51BA9893AEAF034824D16461F05CA0253A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44992.jpgsave_picture_44992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44992.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:51FCEC0C31F2DF58F6BE1140ADC97EFF3FFC94DF
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44993.jpgsave_picture_44993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44993.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:3B4C340DFD473AA683A9CCDA26CA21155108780B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44994.jpgsave_picture_44994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44994.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:C92CDF61483B0EB764A3212AE6EF1E1AFB6389B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44995.jpgsave_picture_44995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44995.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Master of Magic (2022) [Multi] (1.09.17/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44996.jpgsave_picture_44996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44996.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:6378631BD4074F47A1079C6DF0DC7EE79A3D6DB3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44997.jpgsave_picture_44997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44997.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:3EF58D374848FE83EA95C923BFAF1A8403406ACB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44998.jpgsave_picture_44998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44998.jpg" />
 </div>
 
 

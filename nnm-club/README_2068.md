@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54135.jpgsave_picture_54135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Fly Summer Hits (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54136.jpgsave_picture_54136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54136.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Holy Mother - Rise (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54137.jpgsave_picture_54137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54137.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Issa - Another World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54138.jpgsave_picture_54138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54138.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:230B8C7F7287E76AB6500F9AAFE42A232B528F54
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54139.jpgsave_picture_54139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54139.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ elkka - Prism of Pleasure (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54140.jpgsave_picture_54140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54140.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54141.jpgsave_picture_54141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54141.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:7404F672808400922D24EFE8BCFD5B94FD99B84D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54142.jpgsave_picture_54142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54142.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Dyscordia - The Road to Oblivion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54143.jpgsave_picture_54143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54143.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Holycide - Towards Idiocracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54144.jpgsave_picture_54144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54144.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54145.jpgsave_picture_54145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54145.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Dyscordia - Words In Ruin (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54146.jpgsave_picture_54146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54146.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Vic Dickenson & Joe Thomas - Mainstream (1958) 2013, Warner [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54147.jpgsave_picture_54147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54147.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Doc Severinsen - & Friends (1992) MCA Special Products [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54148.jpgsave_picture_54148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54148.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dyscordia - Delete / Rewrite (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54149.jpgsave_picture_54149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54149.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Ruby Braff - Ad Lib Blues (1951 - 1954) 2002, Past Perfect [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54150.jpgsave_picture_54150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54150.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Dyscordia - Twin Symbiosis (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54151.jpgsave_picture_54151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54151.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Eggs of Gomorrh - Outpregnate (2019) EP [FLAC|Lossless|image + .cue] <Black, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54152.jpgsave_picture_54152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54152.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54153.jpgsave_picture_54153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54153.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54154.jpgsave_picture_54154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54154.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Magic City Detective 5: The Carnival Begins / Волшебный город 5: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54155.jpgsave_picture_54155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54155.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:909A3FB8C317BC9EE1ACDB36C12F513456FA9F72
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54156.jpgsave_picture_54156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54156.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ KStars 3.7.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54157.jpgsave_picture_54157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54157.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:ADEA43261E1AC3C8C64047ECEC0B25E0F8CAE4FD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54158.jpgsave_picture_54158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54158.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54159.jpgsave_picture_54159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54159.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:3F21CAAAD1E8AF74AD15CA8D152615A1DAB522A1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54160.jpgsave_picture_54160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54160.jpg" />
 </div>
 
 

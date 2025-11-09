@@ -6,7 +6,7 @@ Bulk Crap Uninstaller 5.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26636.jpgsave_picture_26636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26636.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5722CD44EEDC84CB42699D824470BB268D57A1FB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26637.jpgsave_picture_26637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26637.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:06E9120532B82D465395FF9C01A8AC08E8AA70DA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26638.jpgsave_picture_26638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26638.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1F59876CA6269ADDF5B3F06E4D9920807B1F8AF8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26639.jpgsave_picture_26639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26639.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FE03CD1332CD5779044450B679C24B8ECA8CF15C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26640.jpgsave_picture_26640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26640.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8CA4E72CF5E533F7431171343610AF987986A8EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26641.jpgsave_picture_26641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26641.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ NORCO (2022) [Ru/Multi] (1.5.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26642.jpgsave_picture_26642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26642.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:DA2FF660778F1D057B937A741CBA9BB54C374A9E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26643.jpgsave_picture_26643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26643.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26644.jpgsave_picture_26644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26644.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:A1A297823065BC67C99AA6D75B75B5750F55BF68
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26645.jpgsave_picture_26645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26645.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:02D28A715B12849A3A1E00C6C58CCD4EDC69B1D9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26646.jpgsave_picture_26646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26646.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.60.7300 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26647.jpgsave_picture_26647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26647.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ UFO (U.F.O.) - 33 Albums, 7 Box-sets, 107 CD (1970-2024) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26648.jpgsave_picture_26648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26648.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Repack EXROW [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26649.jpgsave_picture_26649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26649.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:FD6209DFC8D305BE7490826EB3C549BD49EBDF9F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26650.jpgsave_picture_26650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26650.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:DCF3C366944C1AD00DDEDC3EF456D75C618BBCF8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26651.jpgsave_picture_26651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26651.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:DCF3C366944C1AD00DDEDC3EF456D75C618BBCF8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26652.jpgsave_picture_26652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26652.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Udemy | Игры со словами на C# (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26653.jpgsave_picture_26653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26653.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:31ED3982F0EA89E941A320CD30BD24EBD07567E5
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26654.jpgsave_picture_26654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26654.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26655.jpgsave_picture_26655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26655.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4F31ACF71C9138CAB910786076E38805167953C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26656.jpgsave_picture_26656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26656.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Rosetta Stone: Learn, Practice 8.31.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26657.jpgsave_picture_26657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26657.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:7DFCA12FBC232CEDBE7A4F812C69DF4EFE2D8FC7
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26658.jpgsave_picture_26658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26658.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Modern 80's - The Best Of Discopop (1998) [AAC|320 Kbps] <Electronic, Pop, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26659.jpgsave_picture_26659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26659.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26660.jpgsave_picture_26660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26660.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:D30E6E6293CAB11631720E9DE49B8FF9610B1920
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26661.jpgsave_picture_26661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26661.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248015.jpgsave_picture_248015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248015.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3746FE9E969233FDB51773ED8E7445622E7A1B86
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248017.jpgsave_picture_248017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248017.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FC0C2A610CC8F2F5BB7C12408B4881B8275DC62B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248018.jpgsave_picture_248018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248018.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Smashing Toys [Ru] (P) 2009
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248020.jpgsave_picture_248020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248020.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A5999A9D01F29388D69D7B1878F5560EE81BD08D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248022.jpgsave_picture_248022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248022.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6F58FF7CAFB046467006DE8AED9169F3D2672232
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248023.jpgsave_picture_248023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248023.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5E64CEBD8A0792C363507FB470C36EA3C8F9000E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248030.jpgsave_picture_248030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248030.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CBA5977640EC19EB984FD761237037C34FC6F361
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248031.jpgsave_picture_248031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248031.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:CBA5977640EC19EB984FD761237037C34FC6F361
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248033.jpgsave_picture_248033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248033.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Pythagoras CAD + GIS 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248034.jpgsave_picture_248034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248034.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Pythagoras CAD + GIS 12
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248039.jpgsave_picture_248039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248039.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:628CC584DD4F8A93E94874FC406D0885E182A03F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248043.jpgsave_picture_248043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248043.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:59511223F1FE20A6FDEEF38762FB90A71CC0D525
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248045.jpgsave_picture_248045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248045.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:C7C3384299A191BA2425A6E258AE17E357FBA8AF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248048.jpgsave_picture_248048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248048.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Street Fighter x Tekken [Ru] (RePack) 2012 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248052.jpgsave_picture_248052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248052.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:7B0A4D66E88FA7853A2A698F2E5AAE4042C5A6AE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248056.jpgsave_picture_248056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248056.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7B0A4D66E88FA7853A2A698F2E5AAE4042C5A6AE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248058.jpgsave_picture_248058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248058.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3B54CC51F5D5F4CDE999243722CAFC8A82BF95AA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248060.jpgsave_picture_248060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248060.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ MariaRo Ragnarok-Online Renewal (P) [En/Ru] 2002 (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248064.jpgsave_picture_248064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248064.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ RuntimePack 12.5.3  [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248065.jpgsave_picture_248065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248065.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ RuntimePack 12.5.3  [Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248067.jpgsave_picture_248067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248067.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B6AC06C216ACB526CD814B896DFD3DDC084C4452
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248069.jpgsave_picture_248069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248069.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:7C68829B7E7F5BD280F7177FF1A7DCF3F7075C23
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248070.jpgsave_picture_248070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248070.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:7C68829B7E7F5BD280F7177FF1A7DCF3F7075C23
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248072.jpgsave_picture_248072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248072.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:7C68829B7E7F5BD280F7177FF1A7DCF3F7075C23
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248073.jpgsave_picture_248073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248073.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Resident Evil: Operation Raccoon [Multi8\+] 2012 | SHARINGAN [Lossless RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248075.jpgsave_picture_248075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248075.jpg" />
 </div>
 
 

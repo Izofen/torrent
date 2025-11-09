@@ -6,7 +6,7 @@ Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3100.jpgsave_picture_3100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3100.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.1.8/dlc) Repack Let'sРlay [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3259.jpgsave_picture_3259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3259.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.03.79909 HF/dlc) Repack Let'sРlay [Reso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3415.jpgsave_picture_3415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3415.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3420.jpgsave_picture_3420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3420.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Look Outside (2025) [Ru/En] (1.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3521.jpgsave_picture_3521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3521.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Shattered Pixel Dungeon (2022) [Ru/Multi] (3.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3533.jpgsave_picture_3533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3533.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3540.jpgsave_picture_3540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3540.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3549.jpgsave_picture_3549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3549.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.67) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3673.jpgsave_picture_3673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3673.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (1.8.8/dlc) Scene Tenoke [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3981.jpgsave_picture_3981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3981.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.0.0.1/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3985.jpgsave_picture_3985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3985.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4233.jpgsave_picture_4233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4233.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4234.jpgsave_picture_4234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4234.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.77/dlc) Repack Let'sРlay [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4508.jpgsave_picture_4508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4508.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4517.jpgsave_picture_4517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4517.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Secrets of Grindea (2024) [En] (1.10h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4596.jpgsave_picture_4596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4596.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4873.jpgsave_picture_4873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4873.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11500) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4891.jpgsave_picture_4891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4891.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4900.jpgsave_picture_4900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4900.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5028.jpgsave_picture_5028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5028.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Abyss Eschaton Survivors (2025) [Ru/Multi] (1.00.10) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5050.jpgsave_picture_5050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5050.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack FitGirl [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5060.jpgsave_picture_5060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5060.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Soulstice (2022) [Ru/Multi] (1.1.0+219971/dlc) Repack Let'sРlay [Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5066.jpgsave_picture_5066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5066.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5257.jpgsave_picture_5257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5257.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Legends of Amberland: The Forgotten Crown (2019) [Ru/Multi] (1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5284.jpgsave_picture_5284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5284.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Knights of the Chalice 2 (2022) [En] (1.91) License GOG [Archmage Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5304.jpgsave_picture_5304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5304.jpg" />
 </div>
 
 

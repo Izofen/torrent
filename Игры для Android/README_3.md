@@ -6,7 +6,7 @@ Mountains of Madness 8.6.161 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33581.jpgsave_picture_33581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33581.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fallout Shelter 1.21.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33588.jpgsave_picture_33588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33588.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dead God Land: Survival Games v0.0.0263 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33614.jpgsave_picture_33614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33614.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Party Hard Go v0.100034 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33646.jpgsave_picture_33646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33646.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Spiritfarer Netflix Edition v1.5.8 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33679.jpgsave_picture_33679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33679.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Pocket Rogues: Ultimate v1.37.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33681.jpgsave_picture_33681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33681.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cozy Grove: Camp Spirit v3.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33688.jpgsave_picture_33688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33688.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ White Day - The School v21.1.109 + v3.1.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33705.jpgsave_picture_33705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33705.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Linea: An Innerlight Game 1.4.15 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33753.jpgsave_picture_33753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33753.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Bounty of One: Premium 1.0.169 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33776.jpgsave_picture_33776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33776.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Midnight Girl 1.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33780.jpgsave_picture_33780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33780.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ RainCity 1.0.20 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33787.jpgsave_picture_33787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33787.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ The Longing v1.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33794.jpgsave_picture_33794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33794.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Art of Rally 1.0.7_b200 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33799.jpgsave_picture_33799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33799.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Scythe: Digital Edition 2.1.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33805.jpgsave_picture_33805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33805.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Thimbleweed Park 1.0.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33806.jpgsave_picture_33806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33806.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Children of Morta v1.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33817.jpgsave_picture_33817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33817.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Stone Age: Digital Edition 1.2.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33878.jpgsave_picture_33878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33878.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Beholder 2 1.7.16102 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33881.jpgsave_picture_33881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33881.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ LUNA The Shadow Dust v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33886.jpgsave_picture_33886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33886.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Concordia: Digital Edition 1.3.6 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33887.jpgsave_picture_33887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33887.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Beholder 2.6.269 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33914.jpgsave_picture_33914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33914.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Hitman: Blood Money — Reprisal 1.2RC13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33928.jpgsave_picture_33928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33928.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ After Inc. v1.0.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33981.jpgsave_picture_33981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33981.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Stardew Valley 1.6.14.11 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33983.jpgsave_picture_33983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33983.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Tiny Room Stories Town Mystery v2.6.26 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33991.jpgsave_picture_33991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33991.jpg" />
 </div>
 
 

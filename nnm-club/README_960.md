@@ -6,7 +6,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25309.jpgsave_picture_25309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25309.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E06F1A9CB186AB61333B8CFEAF42134381091660
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25310.jpgsave_picture_25310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25310.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Picture Mushroom - Mushroom ID v2.9.31 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25311.jpgsave_picture_25311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25311.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 05.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25312.jpgsave_picture_25312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25312.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Lady Gaga - Mayhem (2025) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25313.jpgsave_picture_25313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25313.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D4F801351F0EEBCD77DD7EABF1AF4046B7DA203D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25314.jpgsave_picture_25314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25314.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25315.jpgsave_picture_25315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25315.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:0ADB1A63367C655D1AD09336683502125E9B6229
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25316.jpgsave_picture_25316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25316.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7618453F41C42A38CF0206F9174019BB78BC364E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25317.jpgsave_picture_25317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25317.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:9091B2D05E92BB8CF552793FCBD133CCA842A961
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25318.jpgsave_picture_25318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25318.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:5B5743E2BC7B853334FF475D4D98679F1C91C451
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25319.jpgsave_picture_25319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25319.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CEBDDE4F6F84AAFC77E832B4989BC30FFEAC88E4
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25320.jpgsave_picture_25320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25320.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:EFEEC24280CB2EA0AF13C7C18B5EB90840E1AD41
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25321.jpgsave_picture_25321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25321.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Windows Manager 2.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25322.jpgsave_picture_25322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25322.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25323.jpgsave_picture_25323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25323.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:4D757A0051EA89EE60BA1284AC024417952796BA
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25324.jpgsave_picture_25324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25324.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25325.jpgsave_picture_25325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25325.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:2BA13C7A9821FA5EB491873A1EC7170A168A10EC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25326.jpgsave_picture_25326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25326.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Any Video Downloader Pro 9.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25327.jpgsave_picture_25327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25327.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Photo Editor v11.4 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25328.jpgsave_picture_25328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25328.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:6FAE708B564087EA71842662B9AA02ED15E7F3F7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25329.jpgsave_picture_25329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25329.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25330.jpgsave_picture_25330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25330.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:FA6BF63AB18525E886D78482EA9A3EB5E152CA0B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25331.jpgsave_picture_25331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25331.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25332.jpgsave_picture_25332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25332.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:5625E8BD9E179DC3848A998EF78D38E59BCB12AB
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25333.jpgsave_picture_25333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25333.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:3449DD1260FA332F6AC0F83178F9C988B5EFF686
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25334.jpgsave_picture_25334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25334.jpg" />
 </div>
 
 

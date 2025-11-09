@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17846.jpgsave_picture_17846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17846.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17847.jpgsave_picture_17847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17847.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:27C2843129E0B7390DE051CB764B8FAF88DA3751
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17848.jpgsave_picture_17848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17848.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Beholder: Conductor (2025) [Ru/Multi] (1.0.4.278) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17849.jpgsave_picture_17849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17849.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7A500A58E203DA87CDE0233CD744A9FD52836938
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17850.jpgsave_picture_17850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17850.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEBRip [H.265/1080p] [10-bit]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17851.jpgsave_picture_17851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17851.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A2CB24F113FD9969D86608147B3DE6AFCD782113
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17852.jpgsave_picture_17852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17852.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:5A1444AD37A45861FE4A3AAA257AD6491219F9C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17853.jpgsave_picture_17853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17853.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7218E8715369461D898BC205F1E7ADB2A7E6C344
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17854.jpgsave_picture_17854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17854.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A9397F13EC795CC70A6910A31D516324168C3CDD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17855.jpgsave_picture_17855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17855.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:40CE7C38920D478A2F878110B9B547F317EC3543
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17856.jpgsave_picture_17856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17856.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:40CE7C38920D478A2F878110B9B547F317EC3543
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17857.jpgsave_picture_17857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17857.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:C4C0EB6B850C3205795B19BFB55AFE5E2FFD5EBC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17858.jpgsave_picture_17858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17858.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:E0E0880E0F461EE2513454FA37F269DEE48610F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17859.jpgsave_picture_17859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17859.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:EEF9077B58DECD897523A5AEBACE1C5FB6C2794A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17860.jpgsave_picture_17860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17860.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:552D3F3A2CF9AC92F06AC0372500E0B89B7DDC18
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17861.jpgsave_picture_17861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17861.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:357471C287D3BD76111AD36E0D6370CEA66F2C88
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17862.jpgsave_picture_17862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17862.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:A5BAED51F93B3EEB963117EFE7067DFACF5188E7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17863.jpgsave_picture_17863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17863.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:059D48BDE7675958F0B9D1E375AACD13B5855B08
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17864.jpgsave_picture_17864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17864.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:2E64DB5F07EAF9A682061A0A1743C4683739243C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17865.jpgsave_picture_17865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17865.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:CCB4CFA0D1BEDE492A5B7B4BFDD68AD05E643022
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17866.jpgsave_picture_17866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17866.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17867.jpgsave_picture_17867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17867.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:31979AEA2D822D14450325649FB25CB27588185A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17868.jpgsave_picture_17868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17868.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:E23579618F39E94FE048A35BE7E1449D96419D83
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17869.jpgsave_picture_17869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17869.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [AV1/2160p] [4K, HDR, 1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17870.jpgsave_picture_17870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17870.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:82F072EA37D71B018184D45A88B826FC38744054
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17871.jpgsave_picture_17871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17871.jpg" />
 </div>
 
 

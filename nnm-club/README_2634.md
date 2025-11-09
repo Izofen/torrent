@@ -6,7 +6,7 @@ Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69234.jpgsave_picture_69234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69234.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69235.jpgsave_picture_69235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69235.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Halloween - Psy-Ko (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69236.jpgsave_picture_69236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69236.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:CC3B186A7D24C127E4BE7931AA25847C68161869
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69237.jpgsave_picture_69237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69237.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:CECDC0D9BC1F02CE5EFA045E6B9681AD03A863F1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69238.jpgsave_picture_69238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69238.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:79F9A6C554BFC6F0CC2278722E098DF3F2FB24E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69239.jpgsave_picture_69239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69239.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Fusion Jazz Funk Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69240.jpgsave_picture_69240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69240.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Dorothy - THE WAY (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69241.jpgsave_picture_69241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69241.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mike Anton - New Rhythm & Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69242.jpgsave_picture_69242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69242.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:5EF4196E52612DFA3F5E244FDD355FEB5928555B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69243.jpgsave_picture_69243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69243.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:29A05873857FFA629C57F00078D1E0120AAF3424
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69244.jpgsave_picture_69244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69244.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:21007595382D8412C5AC44B614D184A808975E23
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69245.jpgsave_picture_69245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69245.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:42F4498473B95B1B2AAC7F1E515F0B901DF0B111
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69246.jpgsave_picture_69246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69246.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:B08A85EFA9BF944F9E841EBEFDF35F5C2DC32C15
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69247.jpgsave_picture_69247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69247.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:3DF165243A349756516DACD05429C7E87DCF4119
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69248.jpgsave_picture_69248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69248.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Opertus - Golden Shade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69249.jpgsave_picture_69249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69249.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ MotoGP. Этап 02 из 22. Гран-при Аргентины. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69250.jpgsave_picture_69250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69250.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Esto si es rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69251.jpgsave_picture_69251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69251.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Funky Atmospheres (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69252.jpgsave_picture_69252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69252.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:327E5FC8B763C331B18306D958A57424AC0E299C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69253.jpgsave_picture_69253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69253.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ The Mission (U.K.) - Studio Albums (6 releases) (1996-2016) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69254.jpgsave_picture_69254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69254.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:0293A54AC82F7F78DFBF3B6C550A70E9B24CC1ED
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69255.jpgsave_picture_69255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69255.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:CFF6F8DCC1EF159D930BB916174765170AA54EA3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69256.jpgsave_picture_69256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69256.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:C2D4456D81395FBB3B8C719B4353DBF740808104
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69257.jpgsave_picture_69257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69257.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:822F83D02AA596331A52021666F74CF3FFE5E003
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69258.jpgsave_picture_69258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69258.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:4C1E307F6A29A04B57B26D5986A3314B6DBBCCE1
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69259.jpgsave_picture_69259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69259.jpg" />
 </div>
 
 

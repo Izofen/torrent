@@ -6,7 +6,7 @@ VA - 100% Хиты DFm 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97501.jpgsave_picture_97501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97501.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:A2BC26729AE1DBC26D6D96FE4E36FB2BD718CFBD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97502.jpgsave_picture_97502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97502.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:0471A9C249998177023A2320D257058D48D2C0B6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97506.jpgsave_picture_97506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97506.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A42D15CDBDDECD01696671A9D6667E7B9FE95E9A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97507.jpgsave_picture_97507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97507.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:2BAF8E489E2B4589C29070B9013FE1750E4A8D2E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97509.jpgsave_picture_97509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97509.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:178E3282A4EB4D065D4253379240AE12FD66490B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97510.jpgsave_picture_97510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97510.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:32781070FA4CF81CE4A7E327E5CD1672C0E0ED45
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97513.jpgsave_picture_97513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97513.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:E635F0AEF57C54D5CB7650B55FD2FD7FF701F2EB
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97514.jpgsave_picture_97514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97514.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:B0DF743FE6F99B97C3EAF284D5F2DFF1E5F0D30C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97515.jpgsave_picture_97515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97515.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #78  (2012) [MP3|320 кб/с]<Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97516.jpgsave_picture_97516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97516.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:559B9FD65AD9103D539AF0B126983EE0DB5D1DE5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97518.jpgsave_picture_97518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97518.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:CB96F2EDA4F2FAAD7F86068F76AC564790485174
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97520.jpgsave_picture_97520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97520.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - Держи Ритм На Хит FM 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97523.jpgsave_picture_97523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97523.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D2049D2B2C03310001ABCE1A54347CD2A7DD7A81
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97527.jpgsave_picture_97527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97527.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - XXXL Шоферской Весна (2012) [MP3|256 кб/с]<Шансон>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97529.jpgsave_picture_97529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97529.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Luxurious Cold Lounge (2012) [MP3|320 kbps]<Lounge | Ambient | chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97530.jpgsave_picture_97530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97530.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:1F8F2CD843B0D0BE1A8174B362C7DE0CA82CC836
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97532.jpgsave_picture_97532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97532.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:48CC3EC35A000AF8F01A1E96AA932A723695194E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97533.jpgsave_picture_97533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97533.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Herbie Mann, Phil Woods -(2 альбома) [WMA, MP3|128 - 192 Кбит/сек]
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97536.jpgsave_picture_97536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97536.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:2608B0965A0CA6DB6FF1543B32D27E915AE4BB8C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97539.jpgsave_picture_97539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97539.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:C790B284E590678D95A0E301350A875E5B6CF489
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97541.jpgsave_picture_97541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97541.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:BE6A688D3668EE4AB2DEFF58FF6EC7563E3DAAD8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97542.jpgsave_picture_97542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97542.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:22E6B97D8B980E5ABBEE2D6084DAB4F306381783
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97543.jpgsave_picture_97543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97543.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:CF2D41044D362C542F4A771EEC7C7EA8EA7C15CF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97544.jpgsave_picture_97544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97544.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:237F475001BD7DA51BF7DE760E848D2E84AB7FC0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97545.jpgsave_picture_97545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97545.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - XXXL Best Russian DJ (2012) [MP3|192 kbps]<Club | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97546.jpgsave_picture_97546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97546.jpg" />
 </div>
 
 

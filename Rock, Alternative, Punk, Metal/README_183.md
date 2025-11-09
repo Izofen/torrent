@@ -6,7 +6,7 @@ Ghinzu - 3 альбома (2000 - 2009) [FLAC|Lossless]<Alternative / Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122240.jpgsave_picture_122240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122240.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Overworld Dreams - Geography (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122329.jpgsave_picture_122329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122329.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sound Storm - Vertigo (2016) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122330.jpgsave_picture_122330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122330.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lilith’s Black Lotus - Triple Six Revolution (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122334.jpgsave_picture_122334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122334.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Crossfire - Switch to Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122336.jpgsave_picture_122336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122336.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122337.jpgsave_picture_122337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122337.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Algid - Catasterismi (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122341.jpgsave_picture_122341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122341.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blood Lightning - Blood Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122347.jpgsave_picture_122347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122347.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Chrysis - Borderline (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122348.jpgsave_picture_122348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122348.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8E65E9D2A941854749A13FF38DD1AD4FFE02EF37
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122355.jpgsave_picture_122355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122355.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Subsonica - Realta Aumentata (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122360.jpgsave_picture_122360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122360.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Holy Dragons - Fortress (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122365.jpgsave_picture_122365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122365.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ To The Max! - Midnight Tea (2024) [MP3|320 Kbps] <Heavy Rock'n'Roll, Garage, Sto
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122512.jpgsave_picture_122512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122512.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Magia Nera - Vlad (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122516.jpgsave_picture_122516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122516.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ PowerTribe - Up with the Sword (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122518.jpgsave_picture_122518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122518.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Warmen - Here For None (2023) [FLAC|Lossless|image + .cue] <Melodic Death, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122700.jpgsave_picture_122700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122700.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Varathron - The Crimson Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122706.jpgsave_picture_122706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122706.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Scavenger - Feral (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Prog, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122707.jpgsave_picture_122707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122707.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Kalmankantaja - Kohti valon kuolemaa (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122724.jpgsave_picture_122724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122724.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:22BE9D31248CBE2FDBF734E53F7D56D7A85CE597
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122733.jpgsave_picture_122733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122733.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Elegý - Graveflowers (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122751.jpgsave_picture_122751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122751.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:CAB3DC965059E520D6FB847E88037ED0DA49C03C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122754.jpgsave_picture_122754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122754.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122764.jpgsave_picture_122764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122764.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:2CBBF36295963ACC1E6297DEA0645728288F9C8E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122783.jpgsave_picture_122783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122783.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - Fort Rock Fest (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122789.jpgsave_picture_122789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122789.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Overlorde - Awaken the Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122790.jpgsave_picture_122790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122790.jpg" />
 </div>
 
 

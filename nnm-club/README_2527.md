@@ -6,7 +6,7 @@ Woody Herman - The Fourth Herd & The New World of Woody Herman (1959, 1962) 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66452.jpgsave_picture_66452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66452.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Al Hirt - Cherry Pink And Apple Blossom Wine (2001) High Definition Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66453.jpgsave_picture_66453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66453.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sal Salvador - Sal Salvador (1954) 1991, Toshiba-EMI [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66454.jpgsave_picture_66454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66454.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sal Salvador - A Tribute To The Greats (1957) 1999, Toshiba-EMI [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66455.jpgsave_picture_66455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66455.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Barmy Rote - Injustice For All (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66456.jpgsave_picture_66456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66456.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:CB3246C130FBC5F5910D4F0AEE89BA1B7FE92D99
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66457.jpgsave_picture_66457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66457.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:D9C859EC0E53C9A830F7CA9777A1F5EA148D90EE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66458.jpgsave_picture_66458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66458.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:EB8DF00D83BA464E02C4FC1DEE695E7D953D587B
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66459.jpgsave_picture_66459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66459.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:889E6460A9410A56E380641A952D7E9AB87BBB13
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66460.jpgsave_picture_66460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66460.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Shadow Host - Chaos Unleashed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66461.jpgsave_picture_66461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66461.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Patti Austin - Avant Gershwin (2007) [FLAC|Lossless|tracks + .cue] <Big Band, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66462.jpgsave_picture_66462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66462.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Bongo Boy Records Backroom Blues, Vol. 13 (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66463.jpgsave_picture_66463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66463.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mourning [A] BLKstar - Flowers For The Living (2025) [MP3|320 Kbps] <Soul, afrof
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66464.jpgsave_picture_66464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66464.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Phantom Elite - MANTIS (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66465.jpgsave_picture_66465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66465.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:E0758C06A0BB368B790BE65E8A2400DAC7BD3F5D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66466.jpgsave_picture_66466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66466.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:04142AB9D0E98F935CFD67E5E9126706D4BF1028
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66467.jpgsave_picture_66467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66467.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Jelly Roll Morton - Last Sessions: The Complete General Recordings (1939, 1940) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66468.jpgsave_picture_66468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66468.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Sal Salvador - Shades Of Sal Salvador (1956, 1957) 1999, Toshiba-EMI [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66469.jpgsave_picture_66469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66469.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:CB6565F10B3632DFFAA39BC5A9AF81325BDF0142
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66470.jpgsave_picture_66470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66470.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Anita O'Day - Mello'day (1978) 1992, GNP Crescendo Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66471.jpgsave_picture_66471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66471.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Roger Kellaway - The Roger Kellaway Trio (1965) 1997, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66472.jpgsave_picture_66472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66472.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Barbara Dennerlein - Hot Stuff (1990) Enja Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66473.jpgsave_picture_66473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66473.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ophthalamia - II Elishia II (2019) 2 x CD, Compilation [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66474.jpgsave_picture_66474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66474.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Sal Salvador - Frivolous Sal (1956) 1991, Nippon Columbia [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66475.jpgsave_picture_66475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66475.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:3A5112A0DA0F9099C3C02269EBAB54F5F4285BC9
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66476.jpgsave_picture_66476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66476.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:30A5AB92FFD7268F6141FC6D823A5A2E48AC9BCB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66477.jpgsave_picture_66477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66477.jpg" />
 </div>
 
 

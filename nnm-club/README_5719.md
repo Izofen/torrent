@@ -6,7 +6,7 @@ Gavran - Indistinct Beacon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176332.jpgsave_picture_176332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176332.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0760CF30C56ADD117B6EE1BAF0AD3AF03F299E80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176333.jpgsave_picture_176333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176333.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:10ED9397A96C92B35A6838B3DCC088613487D29B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176335.jpgsave_picture_176335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176335.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C4B0438C0A0FBABC67D70059722F07FFDF88781C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176336.jpgsave_picture_176336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176336.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:591EB8879D8D0E79B02AC8A9999007EF60793BB6
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176337.jpgsave_picture_176337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176337.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:01EED7BC2F737839FF2F00AD8E6F43E2CD4DFF51
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176339.jpgsave_picture_176339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176339.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F01C195A7F7D9D808198A480C473E2C1DA516E8A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176340.jpgsave_picture_176340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176340.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VPN подал в суд на Роскомнадзор за незаконную
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176341.jpgsave_picture_176341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176341.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VPN-сервис HideMy.name (юрлицо — hidemy.network Ltd. из Бели
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176343.jpgsave_picture_176343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176343.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:EE1637DB70E734801325A5FFAD9F9D59FE33EE46
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176344.jpgsave_picture_176344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176344.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Iron Dungeon (2023) [Ru/En] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176346.jpgsave_picture_176346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176346.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176348.jpgsave_picture_176348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176348.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:EF0B99F12EE625D0820A6C3FADB694B75A43FD64
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176349.jpgsave_picture_176349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176349.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ uTorrent Pack 1.2.3.76 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176351.jpgsave_picture_176351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176351.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:4D4AF1A9D11E165DA73C7F6C3C7CFE0564DB20AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176352.jpgsave_picture_176352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176352.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:3B6FC33DCA61F73351C6982B9BAD76C3FF9EEA75
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176354.jpgsave_picture_176354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176354.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:C6BA0AA965A06982539434F8729FC89FCB529DA9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176355.jpgsave_picture_176355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176355.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:9D4B1A2100D625B77837A0CC18DFB4C8D3A5E92B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176357.jpgsave_picture_176357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176357.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:C6E58954FDE717801A20E4BFBEA97D57A880B9D6
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176358.jpgsave_picture_176358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176358.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Rebrain, Алексей Рябов | HashiCorp Vault (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176360.jpgsave_picture_176360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176360.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:3A59DFB139E10E1849B7EC8E81386DF3ABA91A8D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176361.jpgsave_picture_176361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176361.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:89FB8AC5B2127881DCA4399022665BEAC5D29537
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176362.jpgsave_picture_176362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176362.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:78116AB2D74CCF2BE6A87E2EFE1B58906871C335
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176363.jpgsave_picture_176363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176363.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:F5ACFA893FE5D9E5AC8CF9574BB0342E524A06AE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176365.jpgsave_picture_176365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176365.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Windows 10 Manager 3.3.7.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176366.jpgsave_picture_176366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176366.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:6BE73E347EC590D2F14AF95DF65DCF92811E0665
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176367.jpgsave_picture_176367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176367.jpg" />
 </div>
 
 

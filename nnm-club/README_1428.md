@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37483.jpgsave_picture_37483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37483.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:349517AC711DF6222498E0B85166EC9955FAB6D8
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37484.jpgsave_picture_37484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37484.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7005A01F6973BFDC423A62C4334BD6E402CB5B39
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37485.jpgsave_picture_37485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37485.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Deep House Chill 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37486.jpgsave_picture_37486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37486.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ FileZilla 3.68.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37487.jpgsave_picture_37487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37487.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37488.jpgsave_picture_37488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37488.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Warm Snow (2022) [Ru/Multi] (3.1.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37489.jpgsave_picture_37489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37489.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Farming Simulator 25 (2024) [En] (1.2.1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37490.jpgsave_picture_37490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37490.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6A379D5206E22099BEF47A4B17CB4F19C25F0A36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37491.jpgsave_picture_37491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37491.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:8B56F688F7AC3F15B78C273A1724B4F9FF1507BE
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37492.jpgsave_picture_37492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37492.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A0ACDA4C45A9769EA8510DF1C449B43209A0D18F
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37493.jpgsave_picture_37493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37493.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:8C11A8483BAFD929662BA657DF6A49B3A31D2FD6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37494.jpgsave_picture_37494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37494.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Aiseesoft Screen Recorder 3.0.92 RePack (& Portable) by elchupacabra (x64) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37495.jpgsave_picture_37495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37495.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.512/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37496.jpgsave_picture_37496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37496.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1914C198556ECFB4B91714AD16938029E168666F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37497.jpgsave_picture_37497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37497.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ TikTok 37.2.6 Mod by Dmitry Nechiporenko + Plugin 1.58 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37498.jpgsave_picture_37498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37498.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:DCD0DD5938EA4EC7A97E29EC3F4262E06F112E11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37499.jpgsave_picture_37499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37499.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ FileZilla Server 1.9.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37500.jpgsave_picture_37500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37500.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:782AB7A89442DE18C7FA8F6748D371930FA8F17F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37501.jpgsave_picture_37501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37501.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:541A30ADE0CACF66B7F59FA68D9D3509448CE273
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37502.jpgsave_picture_37502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37502.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Melancholic Rock Blues (2024) [MP3|320 Kbps] <Rock, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37503.jpgsave_picture_37503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37503.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ EssentialPIM Pro 12.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37504.jpgsave_picture_37504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37504.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Linkin Park - From Zero (2024) [MP3|~245 Kbps (V0)] <Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37505.jpgsave_picture_37505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37505.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Joplin 3.1.24 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37506.jpgsave_picture_37506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37506.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37507.jpgsave_picture_37507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37507.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37508.jpgsave_picture_37508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37508.jpg" />
 </div>
 
 

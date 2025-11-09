@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137683.jpgsave_picture_137683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137683.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MultiTimer: МультиТаймер v1.2.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137684.jpgsave_picture_137684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137684.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137685.jpgsave_picture_137685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137685.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Stranger Blues (2018) [MP3|320 Kbps] <Blues, Soul, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137686.jpgsave_picture_137686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137686.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137687.jpgsave_picture_137687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137687.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5E77349931E1D7A344EFFFE48908A151AA367D52
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137688.jpgsave_picture_137688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137688.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:AB61D31862D8C0618ED76AED334170519B37CEFA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137689.jpgsave_picture_137689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137689.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:2C8F7192F38DF4A18FCF4B6457C89E6EA489ADBA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137690.jpgsave_picture_137690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137690.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:2EAC81D5271F0B9255289146ACE0EA59D33E2514
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137691.jpgsave_picture_137691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137691.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Enterclass, Сергей Курбатов | Тихая река (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137692.jpgsave_picture_137692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137692.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:43B5D15CA87154BFF6BAB272371D2D082B5014B3
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137693.jpgsave_picture_137693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137693.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Memoirs of Murder 3: Behind the Scenes / Воспоминание об убий�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137694.jpgsave_picture_137694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137694.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Rockets - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137695.jpgsave_picture_137695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137695.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Glary Utilities Pro 5.199.0.228 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137697.jpgsave_picture_137697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137697.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ reaConverter Pro 7.468 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137698.jpgsave_picture_137698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137698.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137699.jpgsave_picture_137699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137699.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137700.jpgsave_picture_137700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137700.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:CCC511DE1239ED0C893FC52ECE8D514528D3B53E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137702.jpgsave_picture_137702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137702.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Punto Switcher 4.1.9 Build 903 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137703.jpgsave_picture_137703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137703.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Tommy Dorsey - Tenderly: The Best Of The Decca Years (1950 - 1953) 3CD, 2018, Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137704.jpgsave_picture_137704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137704.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ninja Gaiden Sigma Plus (2012) [PSVita] [EUR] [HENkaku] [Unofficial] [Ru] | R.G.
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137705.jpgsave_picture_137705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137705.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Loftschool, Дмитрий Полос | Разработка сайта на CMS
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137706.jpgsave_picture_137706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137706.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Calibre 7.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137708.jpgsave_picture_137708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137708.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:63D062ED2B9461A8CE497437ACEC73D64E156B62
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137709.jpgsave_picture_137709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137709.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:23972438106F4AF2A2DC1051C45379421CDC0572
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137710.jpgsave_picture_137710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137710.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:61C1B25150A0245BC91D6ECDA02AC802592153EA
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137711.jpgsave_picture_137711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137711.jpg" />
 </div>
 
 

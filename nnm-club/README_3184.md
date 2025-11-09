@@ -6,7 +6,7 @@ Tubesnakes - Navasota TX (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103122.jpgsave_picture_103122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103122.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:403FCDC2F9490957B1E3E2696A6388DA04A05FAC
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103123.jpgsave_picture_103123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103123.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Feelgooders - Soul & Imagination (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103124.jpgsave_picture_103124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103124.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MotoGP. Этап 20 из 20. Гран-при Барселоны. Гонка (17.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103125.jpgsave_picture_103125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103125.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Solon Fishbone - Better Late (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103126.jpgsave_picture_103126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103126.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ The Damned - Darkadelic (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk Rock, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103127.jpgsave_picture_103127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103127.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:704DA9259AF2DB1252DF5F4C38F13500E19A1866
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103128.jpgsave_picture_103128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103128.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.1 (1952, 1953) Blue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103129.jpgsave_picture_103129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103129.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Times Of Grace - Studio Albums (2 releases) (2011; 2021) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103130.jpgsave_picture_103130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103130.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:85C939975E79CECAEAEA0F2576B171B65512C58F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103131.jpgsave_picture_103131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103131.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:C39FE98A0B2834126208775A19E977294BD6EF07
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103132.jpgsave_picture_103132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103132.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Blues Rock Generations - Blues Rock Generations No.5 (2024) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103133.jpgsave_picture_103133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103133.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:A737285C504CE4334EFFF2D5FB5DCCA913A3974F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103134.jpgsave_picture_103134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103134.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Don Henley (Eagles) - Building The Perfect Beast (1984) Remastered 2024 [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103135.jpgsave_picture_103135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103135.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:9D8B0807EE653AC114CFE1B567CE40AE015F328A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103136.jpgsave_picture_103136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103136.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:57253DA799D9D743408CC3B688FD4CE75AE37514
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103137.jpgsave_picture_103137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103137.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:7BC00CEF0A20228BB658B87C411C4248703D4DC4
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103138.jpgsave_picture_103138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103138.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Lonerider - Down In The Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103139.jpgsave_picture_103139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103139.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103140.jpgsave_picture_103140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103140.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:A98D5A636FA01394E62AA34716B06055B77D9B13
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103141.jpgsave_picture_103141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103141.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Kenny 'Blues Boss' Wayne - Ooh Yeah! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103142.jpgsave_picture_103142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103142.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:EEF3CB348685AF43B664E24E4D8E50925293E95B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103143.jpgsave_picture_103143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103143.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ MotoGP. Этап 20 из 20. Гран-при Барселоны. Спринт (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103144.jpgsave_picture_103144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103144.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:B52BF9B909408C3E1E1079DA33E67A80E1D7EFAF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103145.jpgsave_picture_103145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103145.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Hard Shine - Cold Shot (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103146.jpgsave_picture_103146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103146.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103147.jpgsave_picture_103147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103147.jpg" />
 </div>
 
 

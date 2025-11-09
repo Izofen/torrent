@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59335.jpgsave_picture_59335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59335.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D755683A958DB42C7E0FA8F586ECB5EF3C975CE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59336.jpgsave_picture_59336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59336.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:48DC9DF1CF92DF288FAB952F4F0110122B190F3D
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59337.jpgsave_picture_59337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59337.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8A18C92E8DFA31C66F737FA370921E081D0606E7
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59338.jpgsave_picture_59338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59338.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:646C89B6FE783DEEF0FE5630EBC097FD2DDFF477
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59339.jpgsave_picture_59339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59339.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Open Transport Tycoon Deluxe / OpenTTD (2004) [Ru/Multi] (14.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59340.jpgsave_picture_59340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59340.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ CCleaner 6.23.11010 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59341.jpgsave_picture_59341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59341.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B78BBD3D8DB18322B4E59B8E20FDD19238ACA004
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59342.jpgsave_picture_59342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59342.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:1F99323587DE57E5BB1B5A1E3DB57152648C87CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59343.jpgsave_picture_59343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59343.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5AB218C7998B79916314A7B001F46677EABEC412
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59344.jpgsave_picture_59344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59344.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:5AB218C7998B79916314A7B001F46677EABEC412
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59345.jpgsave_picture_59345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59345.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:261D152BA6EBBAF15E553F6475F8203D4A26B223
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59346.jpgsave_picture_59346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59346.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:23DDC75FA01DE53139D18132EE7780613B0C36DB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59347.jpgsave_picture_59347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59347.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:EAD3CCD187C33AAD286F4931718DF3E2D5574A63
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59348.jpgsave_picture_59348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59348.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:76264AF886F1D10AAFB1034F218B4871F301A268
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59349.jpgsave_picture_59349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59349.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:40B7595E624CA532E34051EA94761FD6C03CCFE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59350.jpgsave_picture_59350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59350.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AOMEI Backupper Technician Plus 7.3.5 Repack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59351.jpgsave_picture_59351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59351.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:EF5FFF39794552A4059826C9BE45E1DC72860834
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59352.jpgsave_picture_59352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59352.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:EF5FFF39794552A4059826C9BE45E1DC72860834
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59353.jpgsave_picture_59353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59353.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:A63C6D2EFD27D313759B15347DA8C527AE400C57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59354.jpgsave_picture_59354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59354.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Die Again (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59355.jpgsave_picture_59355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59355.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:01C9B506C8FAE40B36751FE585BD5851BB6DD44C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59356.jpgsave_picture_59356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59356.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:01C9B506C8FAE40B36751FE585BD5851BB6DD44C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59357.jpgsave_picture_59357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59357.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:27B604576044EFB7E60553DC7C0F3E6036B35BB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59358.jpgsave_picture_59358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59358.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft Windows 11 [10.0.22631.3447], Version 23H2 (Updated April 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59359.jpgsave_picture_59359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59359.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F497F0698A5D455F8788F4E177E60DDD0D2E695F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59360.jpgsave_picture_59360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59360.jpg" />
 </div>
 
 

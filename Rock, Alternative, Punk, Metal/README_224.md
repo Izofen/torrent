@@ -6,7 +6,7 @@ Everfrost - Blue Eyed Emotion (2015) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143760.jpgsave_picture_143760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143760.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Child - Child (1969) [MP3|320 кб/с] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143765.jpgsave_picture_143765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143765.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:92B7F8C97A92D1A0CF85AB8E649D6BA362B2E0B4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143782.jpgsave_picture_143782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143782.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eyes Of Gaia - The Power Of Existence (2015) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143825.jpgsave_picture_143825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143825.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Polydeluxe - Behind The Backdoor (2015) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143843.jpgsave_picture_143843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143843.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Warnerbeast - Rewrite History (2015) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143851.jpgsave_picture_143851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143851.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jasanel - The Universe Can Sing (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpgsave_picture_143853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:52F7C49E69372A40D6E36ACEE05D9F586A8BF7B8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpgsave_picture_143901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143901.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:166621B7FD1CB8DC0FACE46B9C05B056741F5C2F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143943.jpgsave_picture_143943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143943.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ohmwork - In Hindsight (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal, Stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143971.jpgsave_picture_143971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143971.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Aurora View - SHMR (2022) Deluxe, 2023, Aurora View [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143984.jpgsave_picture_143984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143984.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ KYPCK - Ниже (2011) [FLAC|Lossless|tracks + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143997.jpgsave_picture_143997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143997.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Nostalgica - Nostalgica (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144006.jpgsave_picture_144006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144006.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mammoth WVH - Mammoth II (2023) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144008.jpgsave_picture_144008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144008.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Bullet-Proof - Cell Xix (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144031.jpgsave_picture_144031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144031.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Powder Burns - ... На Горячей Земле (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144043.jpgsave_picture_144043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144043.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ RSO - Rise (2017) EP, Orianthi feat. Richie Sambora [MP3|320 Kbps] <Pop Rock, Gu
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144054.jpgsave_picture_144054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144054.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dogma (CL) - Superfix (Live) (2000) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144091.jpgsave_picture_144091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144091.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Sutratma - Realms of Eternal Immolation (2023) [FLAC|Lossless|WEB-DL|tracks] <Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144095.jpgsave_picture_144095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144095.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Walk The Moon - The Liftaway (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144103.jpgsave_picture_144103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144103.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Poseydon - Through The Gate Of Hatred And Aversion (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144108.jpgsave_picture_144108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144108.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Metallica - 30 Years of Justice (2018) Live [MP3|320 kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144112.jpgsave_picture_144112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144112.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Interitus - Návrat (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144175.jpgsave_picture_144175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144175.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Panda Kingdom - Panda Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144184.jpgsave_picture_144184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144184.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ In Flames - The Mirror’s Truth (2008) EP [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144195.jpgsave_picture_144195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144195.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Juggernaut - La Bestia (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144201.jpgsave_picture_144201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144201.jpg" />
 </div>
 
 

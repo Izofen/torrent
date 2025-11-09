@@ -6,7 +6,7 @@ Void War (2025) [Ru/En] (1.0.1d) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12307.jpgsave_picture_12307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12307.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12308.jpgsave_picture_12308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12308.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ White Knuckle (2025) [En] (b0.43j) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12312.jpgsave_picture_12312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12312.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12336.jpgsave_picture_12336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12336.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tales Beyond The Tomb - White Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12354.jpgsave_picture_12354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12354.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack Yaroslav98
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12355.jpgsave_picture_12355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12355.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12356.jpgsave_picture_12356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12356.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Disney Dreamlight Valley (2022) [Ru/Multi] (1.17.0.7420/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12371.jpgsave_picture_12371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12371.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12380.jpgsave_picture_12380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12380.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12385.jpgsave_picture_12385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12385.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Echo Paradox (2025) [En] (19081580) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12387.jpgsave_picture_12387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12387.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12391.jpgsave_picture_12391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12391.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dreadful River (2023) [En] (0.9.1.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12392.jpgsave_picture_12392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12392.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12395.jpgsave_picture_12395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12395.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Shatterline (2022) [Multi] (98.0.36.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12403.jpgsave_picture_12403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12403.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Heart of the Machine (2025) [Multi] (0.660.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12404.jpgsave_picture_12404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12404.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Songs of Conquest (2022) [Ru/Multi] (1.6.3/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12405.jpgsave_picture_12405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12405.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12410.jpgsave_picture_12410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12410.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.48188/dlc) Repack Let'sРlay [Complete Editio
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12412.jpgsave_picture_12412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12412.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ City Enigma (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12428.jpgsave_picture_12428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12428.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12450.jpgsave_picture_12450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12450.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12451.jpgsave_picture_12451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12451.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Assault On Proxima (2023) [En] (1.02) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12458.jpgsave_picture_12458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12458.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12466.jpgsave_picture_12466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12466.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ship of Fools (2022) [Ru/Multi] (1.5.2.613fe2f3/dlc) Repack Let'sРlay [Aquapoca
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12481.jpgsave_picture_12481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12481.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Paranormal Torment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12497.jpgsave_picture_12497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12497.jpg" />
 </div>
 
 

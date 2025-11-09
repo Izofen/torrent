@@ -6,7 +6,7 @@ Tony Spinner - Love Is The Answer (2020) [FLAC|Lossless|image + .cue] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165070.jpgsave_picture_165070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165070.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dimmu Borgir - Alive In Torment (2001) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165071.jpgsave_picture_165071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165071.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:2F6BB991053D8BB927944C9782BA850AA240019B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165072.jpgsave_picture_165072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165072.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:F8C02E0B74FFC1DB3B4A2CDD6FDE2574DB086F20
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165073.jpgsave_picture_165073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165073.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:8C3FCA6B95B54201DBBDDD9887E5471ADC29791D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165074.jpgsave_picture_165074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165074.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lee Aaron - Almost Christmas (2020) Reissue, 2021, Big Sister Records [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165075.jpgsave_picture_165075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165075.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Harry James - 1940 - 1941 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165076.jpgsave_picture_165076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165076.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Rename Expert 5.31.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165077.jpgsave_picture_165077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165077.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:2ADEB5044824A7C35F7FE2BC622BD84CA7E58A8A
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165078.jpgsave_picture_165078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165078.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nova 10.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165079.jpgsave_picture_165079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165079.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Mozilla Thunderbird 68.3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165080.jpgsave_picture_165080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165080.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ CyberLink PowerDirector Ultimate 22.0.2213.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165081.jpgsave_picture_165081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165081.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Thermal Noise - Legends (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165082.jpgsave_picture_165082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165082.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Coronatus - 10 Albums (2007-2021) [FLAC, WavPack|Lossless|image + .cue, tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165083.jpgsave_picture_165083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165083.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:6E4951358D7E77FAD18C7DAD4C0E66810B721577
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165084.jpgsave_picture_165084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165084.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ WinTools.net Premium 23.11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165085.jpgsave_picture_165085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165085.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:54F2F35DA6FF8864A304AF114C04B42D41EAC7C5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165086.jpgsave_picture_165086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165086.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wondershare PDFelement Pro OCR 9.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165087.jpgsave_picture_165087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165087.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ JRiver Media Center 26.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165088.jpgsave_picture_165088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165088.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:B420C73AB0CE405EC42A82F35389EBB4EDD678CA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165089.jpgsave_picture_165089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165089.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ CloudBeats: Cloud Music Player 1.8.3 PRO [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165090.jpgsave_picture_165090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165090.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165091.jpgsave_picture_165091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165091.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:902EC44F55E952D9C4F0A2469DEF12AA112C06B4
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165092.jpgsave_picture_165092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165092.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:A14DB282EC1412A247CB44A82BEB48FAA52FE72D
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165093.jpgsave_picture_165093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165093.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Record Super Chart 11.12.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165094.jpgsave_picture_165094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165094.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Rhinoceros 7 v.7.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165095.jpgsave_picture_165095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165095.jpg" />
 </div>
 
 

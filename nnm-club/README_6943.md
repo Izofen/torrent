@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238317.jpgsave_picture_238317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238317.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Corel VideoStudio Ultimate 2022 25.1.0.472 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238318.jpgsave_picture_238318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238318.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ TunesKit Screen Recorder 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238319.jpgsave_picture_238319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238319.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Siren - A Mercenary's Fate (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238320.jpgsave_picture_238320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238320.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:91A2ECD8AE8E88BB8F5A9837D3FCFB2DB88CC274
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238321.jpgsave_picture_238321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238321.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:5087BF3847A7ED9BE540FD13947884E141D13497
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238322.jpgsave_picture_238322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238322.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Duplicate Manager Pro 1.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238323.jpgsave_picture_238323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238323.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Bravo Hits 106 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238324.jpgsave_picture_238324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238324.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Balabolka 2.15.0.849 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238325.jpgsave_picture_238325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238325.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:340A296AD4F057B1C73EB1980CE61DF69C2E089F
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238326.jpgsave_picture_238326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238326.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Stats 2.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238327.jpgsave_picture_238327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238327.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:8CFE1BA8FD93F0F70E7AEF11E3A60A9B63E9CECB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238328.jpgsave_picture_238328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238328.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Def Leppard - Mirror Ball - Live & More (2011) (2 CD) [OGG Vorbis|484 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238329.jpgsave_picture_238329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238329.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Plist Converte‪r‬ 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238330.jpgsave_picture_238330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238330.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Perfectly Clear WorkBench 4.5.0.2519 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238332.jpgsave_picture_238332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238332.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:F69B4104B8BB51C1626A2CC644EC1AF1EC759D1B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238338.jpgsave_picture_238338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238338.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Deliver 2.6.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238342.jpgsave_picture_238342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238342.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Carrion Vael - Abhorrent Obsessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238343.jpgsave_picture_238343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238343.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ WiFi Explorer Pro 3 v.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238344.jpgsave_picture_238344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238344.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:85B233BF7B4FEECA428E0D559A5CA40C654F5FE6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238347.jpgsave_picture_238347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238347.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Rock Remakes - Non Stop (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238348.jpgsave_picture_238348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238348.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Wynton Marsalis - Jodi (1980) 2005, Memo Music [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238349.jpgsave_picture_238349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238349.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Solid Gold Hits (2022) [MP3|320 Kbps] <New Wave, Euro Disco, Rhythm & Blues
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238351.jpgsave_picture_238351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238351.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ FSNotes 5.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238353.jpgsave_picture_238353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238353.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ CrystalDiskInfo 8.17.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238354.jpgsave_picture_238354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238354.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238355.jpgsave_picture_238355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238355.jpg" />
 </div>
 
 

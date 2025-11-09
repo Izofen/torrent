@@ -6,7 +6,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38419.jpgsave_picture_38419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38419.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BC5ED3EE330384F1B2E0B12E32B8CF952C11817D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38420.jpgsave_picture_38420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38420.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2EE76C96AEE89CC1FC9B5F7D290FE8D4A6F619B8
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38421.jpgsave_picture_38421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38421.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AE6A874BCBA029166D19CFB1F4D685D7487CA35C
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38422.jpgsave_picture_38422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38422.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cleaner for WhatsApp / Очиститель для WhatsApp v2.9.6 Mod by TryRoo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38423.jpgsave_picture_38423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38423.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38424.jpgsave_picture_38424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38424.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:1BEBF20952459273F298011956079C5E04778BA1
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38425.jpgsave_picture_38425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38425.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ No Man's Sky (2016) [Ru/Multi] (5.12/dlc) Repack seleZen [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38426.jpgsave_picture_38426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38426.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C1E205F64283CE859DA454C1E531C2C18A2C7F43
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38427.jpgsave_picture_38427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38427.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Eclipse - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38428.jpgsave_picture_38428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38428.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B3483E7A5A6EF7B57D75FD435BCC3FF643701201
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38429.jpgsave_picture_38429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38429.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:C92188BC5E0ADED4FF0723F429FB99E266700E37
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38430.jpgsave_picture_38430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38430.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:7A92FBCECAB0D26B921167FC564E2DAAC8D7E1CE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38431.jpgsave_picture_38431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38431.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8E96EADF46DBED339C411942085E8D23C2959B3C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38432.jpgsave_picture_38432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38432.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:675B0165A20EECCDB270D684EA6E76991A0B7296
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38433.jpgsave_picture_38433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38433.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C76CAB54E85E2A4AC6CB7878BB1B3D7C543E489A
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38434.jpgsave_picture_38434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38434.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:55E5858D70EB15EF65C5A33E32C67B6C782BC3CE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38435.jpgsave_picture_38435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38435.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:B31C58243216E58A005DEF9BA782D6F17496458F
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38436.jpgsave_picture_38436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38436.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:A3E9EAC080245C8EB1476D02BC81BEEA718474B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38437.jpgsave_picture_38437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38437.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:C8F5B910956511F0797904AF637CDD3EE3E31239
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38438.jpgsave_picture_38438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38438.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E7BCD4626F645175DD927159F95E132D9978304F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38439.jpgsave_picture_38439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38439.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38440.jpgsave_picture_38440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38440.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A1B089D87EC835C2446AC91448680A2CD44BC78D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38441.jpgsave_picture_38441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38441.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:9E69118210F585B3C3A7DD8ECED1E8EEEBDBD80C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38442.jpgsave_picture_38442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38442.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Scene Razor1911 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38443.jpgsave_picture_38443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38443.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:764974257938719A2D95CA2F3A6C03ED66793F91
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38444.jpgsave_picture_38444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38444.jpg" />
 </div>
 
 

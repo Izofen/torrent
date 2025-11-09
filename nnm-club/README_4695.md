@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146964.jpgsave_picture_146964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146964.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146965.jpgsave_picture_146965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146965.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WSCC (Windows System Control Center) 7.0.0.3 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146966.jpgsave_picture_146966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146966.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Waking Mars [En] (L) 2012 | -JAGUAR-
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146967.jpgsave_picture_146967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146967.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E496CC8A4DFBF9D59DCBEA77147DE2BA34DCCFFF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146969.jpgsave_picture_146969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146969.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1F2E1AEBB02CF89BFE10C64DD0262AA28AAA2B29
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146970.jpgsave_picture_146970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146970.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:479F32F9D9E882C572702968D18524885CD765D9
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146971.jpgsave_picture_146971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146971.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:7DC9B47ACA0FC3EB34FA7012E90F2CE498D25887
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146972.jpgsave_picture_146972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146972.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:7DC9B47ACA0FC3EB34FA7012E90F2CE498D25887
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146973.jpgsave_picture_146973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146973.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Shift Work Calendar (FlexR Pro) v7.12.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146974.jpgsave_picture_146974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146974.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Hollower - Forking Paths (2016) EP [MP3|320 Kbps] <Progressive, Technical Metalc
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146976.jpgsave_picture_146976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146976.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:A0160836242662C09229940F0607C86FBB31C719
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146977.jpgsave_picture_146977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146977.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ WinTools.net Premium 22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146979.jpgsave_picture_146979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146979.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Total Commander 11.02 (19.11.2023) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146981.jpgsave_picture_146981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146981.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:3FDDF294A7A13BFD30BB31E7589CD2A96E958610
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146982.jpgsave_picture_146982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146982.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:9A68E3083B840190A47192B24EBD51E6E59A28C3
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146983.jpgsave_picture_146983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146983.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Cosy Winter Lounge, Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146984.jpgsave_picture_146984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146984.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:B3F66AA1B18BAA113C580D85B795B9EC98A820FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146985.jpgsave_picture_146985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146985.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:B8C665DC3D33D7F10633A99B14DC110FF5232B20
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146986.jpgsave_picture_146986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146986.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Sensual Lounge Stage Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146987.jpgsave_picture_146987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146987.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:0820B5ED03AB7969C7783E12777ADC73512E2DB5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146988.jpgsave_picture_146988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146988.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ mp3DirectCut 2.35 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146989.jpgsave_picture_146989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146989.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:0656757F0F5368908347C44F88A954F77B596BC8
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146990.jpgsave_picture_146990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146990.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ OkayFreedom VPN FREE [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146991.jpgsave_picture_146991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146991.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ OkayFreedom VPN - Хорошее программное обеспечение �
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146992.jpgsave_picture_146992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146992.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:B4CF0858E2D61E367B674B990E971712B015F5A5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146993.jpgsave_picture_146993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146993.jpg" />
 </div>
 
 

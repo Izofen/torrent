@@ -6,7 +6,7 @@ Wildways - Симптомы (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244685.jpgsave_picture_244685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244685.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Deconstruct - Ashen Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244686.jpgsave_picture_244686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244686.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Amplifier - Hologram (2023) [MP3|320 Kbps] <Psychedelic, Space Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244691.jpgsave_picture_244691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244691.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pink Floyd - The Dark Side Of The Moon (Live at Wembley 1974) (2023) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244692.jpgsave_picture_244692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244692.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Psycho Hill - Psycho Hill (2023) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244703.jpgsave_picture_244703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244703.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kenny Loggins - Playing with the Boys (1986) US 12" Single [MP3|320 Kbps] <Pop R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244705.jpgsave_picture_244705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244705.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:06AD15E9D7ED8EA8F63C164E7734E252F8C8003A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244709.jpgsave_picture_244709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244709.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Clouds Taste Satanic - 2 Albums (2021-2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244715.jpgsave_picture_244715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244715.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Dzetta - 5 Albums (2018-2020) [MP3|320 Kbps] <Electronic Rock, Rap Rock, Male & 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244720.jpgsave_picture_244720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244720.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Sanguisugabogg - Homicidal Ecstasy (2023) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244745.jpgsave_picture_244745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244745.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Disturbed - The Lost Children (2011) Compilation [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244748.jpgsave_picture_244748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244748.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Pantheon - Empire In Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244751.jpgsave_picture_244751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244751.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Poslanie - Котлован (2023) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244761.jpgsave_picture_244761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244761.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Cradle Of Filth - Trouble and Their Double Lives (2023) [FLAC 2.0|44/24|WEB-DL|t
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244764.jpgsave_picture_244764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244764.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ashen Horde - Antimony (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244781.jpgsave_picture_244781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244781.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Ashen - Ritual of Ash (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244792.jpgsave_picture_244792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244792.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244796.jpgsave_picture_244796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244796.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Eliptic - Evolve Or Die (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244797.jpgsave_picture_244797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244797.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Anzillu - Ex Nihilo (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244803.jpgsave_picture_244803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244803.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Adrian Benegas - Arcanum: El Mantra Secreto De Los Espíritus (2023) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244805.jpgsave_picture_244805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244805.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Ashen Horde - Fallen Cathedrals (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244811.jpgsave_picture_244811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244811.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Ashen Horde - Nine Plagues (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244822.jpgsave_picture_244822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244822.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Aisles - Beyond Drama (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Ne
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244831.jpgsave_picture_244831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244831.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Rise of the Northstar - Showdown (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244845.jpgsave_picture_244845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244845.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Mgzavrebi - Kamara (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244846.jpgsave_picture_244846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244846.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Viva - Das ist die Wahrheit (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244853.jpgsave_picture_244853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244853.jpg" />
 </div>
 
 

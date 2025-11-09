@@ -6,7 +6,7 @@ Process Explorer 17.02 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189620.jpgsave_picture_189620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189620.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9A03B895907ABC7B25CF41D38F5A210D237B54EC
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189621.jpgsave_picture_189621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189621.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ G20 разрабатывает международный стандарт в с
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189622.jpgsave_picture_189622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189622.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Udemy, Abbass Masri | Mastering Jetpack Compose: Building Dynamic User Interface
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189623.jpgsave_picture_189623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189623.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0E9B75521F441753427A4E84FCB08CB0912E108A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189624.jpgsave_picture_189624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189624.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ AIDA64 Engineer Edition 6.92.6600 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189625.jpgsave_picture_189625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189625.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:EDBBC9874D17D1B0676708714F01B682C423DCDF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189626.jpgsave_picture_189626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189626.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ HitPaw Watermark Remover 2.0.2.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189627.jpgsave_picture_189627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189627.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:DD2FFBA6D6B0A5311EE94B1C443CB37E2F04CA29
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189628.jpgsave_picture_189628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189628.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:31BF90BB6466FBE7F50D0A63F14D5F21248F0A47
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189629.jpgsave_picture_189629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189629.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1E572AB6663E6203FA10670A33B868A58FACF08F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189630.jpgsave_picture_189630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189630.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:41B612B80769311D27DD49CB9B2D1601686C8713
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189631.jpgsave_picture_189631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189631.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1EBFF0B1F93E5261DC4B2297078BFC576EF48427
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189632.jpgsave_picture_189632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189632.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CCleaner Pro: ПО для очистки 23.18.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189633.jpgsave_picture_189633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189633.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:BE6B87B2E14ACAF8CEFD0394AEE8CFFEDC9AC862
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189634.jpgsave_picture_189634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189634.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:1B4F47DF92D97D4F73CB692B5A8F28A1E8E98533
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189635.jpgsave_picture_189635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189635.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1C41D950279F00B4F60C6F2CF14736E546D8FD44
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189636.jpgsave_picture_189636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189636.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Glarysoft Malware Hunter PRO 1.158.0.775 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189637.jpgsave_picture_189637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189637.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ New York Mysteries 5: Power of Art / Загадки Нью-Йорка 5: Сил�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189638.jpgsave_picture_189638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189638.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:012D336A0CB47A711F32536A6B4761EB4F942740
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189639.jpgsave_picture_189639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189639.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:F868FE851006861B3DB9E88DCD850A31A5889C50
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189640.jpgsave_picture_189640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189640.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Magical Arabian Night (2022) [MP3|320 Kbps] <Arabic Lounge, Downtempo, Ethn
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189641.jpgsave_picture_189641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189641.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:A8ABF261395819D794779C8D5CBF636A748B14E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189642.jpgsave_picture_189642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189642.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:1CF7F8F5AF0D4DB8A711BDE6A33B67808A54FF5F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189643.jpgsave_picture_189643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189643.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Поколение Брат (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189644.jpgsave_picture_189644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189644.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Kaspersky Lab Products Remover 1.0.2686.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189645.jpgsave_picture_189645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189645.jpg" />
 </div>
 
 

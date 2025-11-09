@@ -6,7 +6,7 @@ System software for Windows v.3.6.2 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51681.jpgsave_picture_51681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51681.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7BEF2A3D528DA8FAD346CFCA5F72323A25EB2E75
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51682.jpgsave_picture_51682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51682.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Long Zu | Dragon Raja | Дракон Раджа [2022, Web, 16 эп.] WEBRip 720
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51683.jpgsave_picture_51683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51683.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ableton - Live 12 Suite 12.0.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51684.jpgsave_picture_51684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51684.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ GoodbyeDPI 0.2.2 Launcher 7.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51685.jpgsave_picture_51685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51685.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Adobe Acrobat Pro 2024.002.20857 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51686.jpgsave_picture_51686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51686.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:07971E8D2B701061CDC01713AAC9F84AE785D494
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51687.jpgsave_picture_51687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51687.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:E8D345212AADC4ACB9EF658AD16FB807A16E5C47
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51688.jpgsave_picture_51688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51688.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Ghostboy (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51689.jpgsave_picture_51689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51689.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:97B212B26C99D608A17F15366538FB944E1CAE25
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51690.jpgsave_picture_51690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51690.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:B18FB468A8D6ABBD7832A94D41A448DA2C154D1E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51691.jpgsave_picture_51691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51691.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:3B15A4508D5B140D85BF1AAD4812F9FC598C8377
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51692.jpgsave_picture_51692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51692.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51693.jpgsave_picture_51693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51693.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51694.jpgsave_picture_51694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51694.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:9BA3221EAF4FF78D5E92C518383DF585C52336B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51695.jpgsave_picture_51695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51695.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ LibreWolf 127.0.2-2+ Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51696.jpgsave_picture_51696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51696.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ London Music Works - The Story of Wick: Music From the John Wick Movies (2024) O
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51697.jpgsave_picture_51697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51697.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Adobe Acrobat Pro 2024.002.20857 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51698.jpgsave_picture_51698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51698.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:FEF490E088270F8A9FF06E838FA0CEDF7EE6E9C5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51699.jpgsave_picture_51699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51699.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:EACB23BF4F42303BBA03F510392E6071C8CFCC72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51700.jpgsave_picture_51700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51700.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:EACB23BF4F42303BBA03F510392E6071C8CFCC72
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51701.jpgsave_picture_51701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51701.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:1D6A1D0B857EB4A5AB149752D3746D01D2EF7607
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51702.jpgsave_picture_51702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51702.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:4B8F9696CDC68D415F0A5636592F7B9CFE13D634
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51703.jpgsave_picture_51703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51703.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:6AD7D012261D9DA2A7385A3562D54F2139AA848D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51704.jpgsave_picture_51704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51704.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ PotPlayer 240618 (1.7.22266) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51705.jpgsave_picture_51705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51705.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Imagine Dragons - Loom (2024) [MP3|320 Kbps] <Pop Rock, Indie Rock, Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51706.jpgsave_picture_51706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51706.jpg" />
 </div>
 
 

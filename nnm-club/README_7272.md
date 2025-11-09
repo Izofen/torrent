@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248871.jpgsave_picture_248871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248871.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248872.jpgsave_picture_248872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248872.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Oscar Peterson - Exclusively For My Friends 6CD +1CD (1993 & 1996) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248874.jpgsave_picture_248874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248874.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Oscar Peterson - Exclusively For My Friends 6CD +1CD (1993 & 1996) [FLAC|Lossles
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248876.jpgsave_picture_248876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248876.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:1B7E3E70A8B51550D37B2D47F19AF2AF8CEB939A
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248877.jpgsave_picture_248877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248877.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WinZip Pro 16.0.9715 x86-x64 16.0.9715 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248878.jpgsave_picture_248878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248878.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ WnSoft PicturesToExe Deluxe 7.0.5 Portable x32/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248879.jpgsave_picture_248879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248879.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ PicturesToExe - программа с помощью которой вы мож�
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248882.jpgsave_picture_248882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248882.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:9D747CE79E673F9F002824FF127D26E8717C7AC9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248883.jpgsave_picture_248883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248883.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Windows Repair 1.7.3 [Английский] x32/x64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248886.jpgsave_picture_248886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248886.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Windows Repair - инструмент все-в-одном для ремонта
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248888.jpgsave_picture_248888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248888.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Windows Repair - инструмент все-в-одном для ремонта
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248891.jpgsave_picture_248891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248891.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Windows Repair - инструмент все-в-одном для ремонта
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248893.jpgsave_picture_248893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248893.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Windows Repair - инструмент все-в-одном для ремонта
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248894.jpgsave_picture_248894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248894.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Windows Repair - инструмент все-в-одном для ремонта
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248902.jpgsave_picture_248902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248902.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Rival Realms (P) [Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248904.jpgsave_picture_248904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248904.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:85BCA4CE2ACFA04AF79A5EF8EE7F9506D127CD98
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248905.jpgsave_picture_248905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248905.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - День победы (2012) [MP3|174-320 кб/с]<Военная песн�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248908.jpgsave_picture_248908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248908.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - День победы (2012) [MP3|174-320 кб/с]<Военная песн�
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248911.jpgsave_picture_248911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248911.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:19D681FD5917E7A96DC71E65365F0A2F72B9DAE7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248912.jpgsave_picture_248912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248912.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:19D681FD5917E7A96DC71E65365F0A2F72B9DAE7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248913.jpgsave_picture_248913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248913.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9E68FB5FBD8153060A599DD5BEE6726F4BFF8169
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248915.jpgsave_picture_248915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248915.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:C1AA1EFA02BCBFC994DA7CD60B9B34200EADAA28
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248919.jpgsave_picture_248919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248919.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C1AA1EFA02BCBFC994DA7CD60B9B34200EADAA28
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248920.jpgsave_picture_248920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248920.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:88819692A604AD90D636AC201D539A46AF24994D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248922.jpgsave_picture_248922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248922.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:88819692A604AD90D636AC201D539A46AF24994D
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248924.jpgsave_picture_248924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248924.jpg" />
 </div>
 
 

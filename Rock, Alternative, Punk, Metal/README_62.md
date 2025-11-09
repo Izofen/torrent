@@ -6,7 +6,7 @@ Sandy Denny - Gold Dust (The Final Concert) (1998) Japanese Edition, SHM-CD, Rei
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66916.jpgsave_picture_66916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66916.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gravecloud - A Tear in the Veil (2025) [MP3|320 Kbps] <Symphonic, Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66954.jpgsave_picture_66954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66954.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hersir - Hateful Draugar from the Underground (2025) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66957.jpgsave_picture_66957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66957.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Psykosis - Mind Games (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66958.jpgsave_picture_66958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66958.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Random Hatred - Random Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66959.jpgsave_picture_66959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66959.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Opia - I Welcome Thee, Eternal Sleep (2025) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66964.jpgsave_picture_66964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66964.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Statement - Sinister Thing (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66965.jpgsave_picture_66965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66965.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tokyo Blade - Time Is the Fire (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66966.jpgsave_picture_66966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66966.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dawn Of Ouroboros - Bioluminescence (2025) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66967.jpgsave_picture_66967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66967.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Praetor - The Spiral of Addiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66970.jpgsave_picture_66970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66970.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gedanken toten Lebens - Essenz der Urwunde (2025) [MP3|320 Kbps] <Atmospheric Bl
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66977.jpgsave_picture_66977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66977.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ghost - Skeletá (2025) [MP3|320 Kbps] <Heavy Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66992.jpgsave_picture_66992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66992.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ephors - A Mad Shade of Yellow (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66999.jpgsave_picture_66999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66999.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Gaia Metal - Pentandra (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67002.jpgsave_picture_67002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67002.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Area - Crac! (1975) Japanese Edition, Reissue, 2007, Strange Days Records [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67003.jpgsave_picture_67003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67003.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Epic Death - The Seer (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67013.jpgsave_picture_67013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67013.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Morcolac - Sanguinaria (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67015.jpgsave_picture_67015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67015.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Inherited - No Regret (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67017.jpgsave_picture_67017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67017.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Slizard - Wicked Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67020.jpgsave_picture_67020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67020.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67023.jpgsave_picture_67023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67023.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Dessiderium - Keys to the Palace (2025) [MP3|320 Kbps] <Melodic, Progressive Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67026.jpgsave_picture_67026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67026.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dredge the Lethe - Blood Metal (2025) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67028.jpgsave_picture_67028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67028.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Death Kommander - Pro Patria Mori (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67029.jpgsave_picture_67029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67029.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Gormoth - Oh My Bitter Addictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67034.jpgsave_picture_67034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67034.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Changeling - Changeling (2025) [MP3|320 Kbps] <Progressive, Technical Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67037.jpgsave_picture_67037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67037.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Night Eternal - Fatale (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67040.jpgsave_picture_67040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67040.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Anita Ganeri | Amazing Earth (2021) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107562.jpgsave_picture_107562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107562.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:3A423C3B507DDBA37BE34CF92D379A937877DA4F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107567.jpgsave_picture_107567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107567.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8E6EC597507A6A8C582BDC8A3BC45CD1F788B16F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107568.jpgsave_picture_107568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107568.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:07E72557700981B153A42D8F0EDB9FCC2DC6A1E4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107572.jpgsave_picture_107572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107572.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Mitsuko Maeda-nye, Shizuro Okada | 15-Minute Japanese. Learn in just 12 weeks (2
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107721.jpgsave_picture_107721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107721.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Yeşim Aksan, Mustafa Aksan | A Frequency Dictionary of Turkish (2017) [PDF] [EN
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108066.jpgsave_picture_108066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108066.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Mike Thacker, Casimir Angelo | Essential French Grammar (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108067.jpgsave_picture_108067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108067.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ James Dean Brown, Christine Coombe (еditors) | The Cambridge Guide to Research 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108352.jpgsave_picture_108352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108352.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Larry Ferlazzo, Katie Hull-Sypniesk | The ESL / ELL Teacher's Survival Guide (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108433.jpgsave_picture_108433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108433.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Adrian Wallwork | Word Games, Riddles and Logic Tests (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108453.jpgsave_picture_108453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108453.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Brian Tomlinson (editor) | Materials Development in Language Teaching. Second Ed
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108511.jpgsave_picture_108511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108511.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Ed Swick | English Problem Solver (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108598.jpgsave_picture_108598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108598.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Rod Ellis | Understanding Second Language Acquisition (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108632.jpgsave_picture_108632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108632.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Pamela J. Sharpe | Barron's TOEFL iBT. Fourteenth edition (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108635.jpgsave_picture_108635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108635.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Andrew William | ESL Classroom Games: 180 Educational Games and Activities for T
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108762.jpgsave_picture_108762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108762.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108765.jpgsave_picture_108765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108765.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Alex Forero | ESL Conversation Lessons (2016) [EPUB] [EN]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108770.jpgsave_picture_108770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108770.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Diane Larsen-Freeman, Marti Anderson | Techniques and Principles in Language Tea
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108829.jpgsave_picture_108829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108829.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:5719691AEE22CCAB10F86697A3091DFEEC0E3CCD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108830.jpgsave_picture_108830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108830.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Sandra N. Elbaum | Grammar in Context 3 (2015) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108964.jpgsave_picture_108964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108964.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:B472457BE0A0326F54AE672900310E50AFBA1B13
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109028.jpgsave_picture_109028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109028.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109035.jpgsave_picture_109035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109035.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109068.jpgsave_picture_109068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109068.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:FEE2F644B80AE9144FEA55062CA6E070E542DEA6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109143.jpgsave_picture_109143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109143.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:83417B2E781CF87AAE941F6CFCE8886C74827C5D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109223.jpgsave_picture_109223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109223.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:23217A817DA2F8BED5980FD5089895F3A3BA7E63
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109851.jpgsave_picture_109851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109851.jpg" />
 </div>
 
 

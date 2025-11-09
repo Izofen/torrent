@@ -6,7 +6,7 @@ Uriah Heep - The Best of Uriah Heep. Wizards (2CD) (2011) [MP3|320 кб/с]<Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89042.jpgsave_picture_89042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89042.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:306D02532CB02F5A6F796A72E3447A638635A4C1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89044.jpgsave_picture_89044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89044.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C48A9A91C34FF748127E6571A187C167D4ED7FEF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89046.jpgsave_picture_89046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89046.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D923E61F74FD2656532407D1C3B63DFBE527F8BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89047.jpgsave_picture_89047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89047.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Инструментальная музыка (2012) vol. № 07 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89050.jpgsave_picture_89050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89050.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:0A5827042703A0026899D319CF80E73CAD761822
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89051.jpgsave_picture_89051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89051.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0A5827042703A0026899D319CF80E73CAD761822
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89052.jpgsave_picture_89052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89052.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Детские Песни (2006) [MP3|224 кб/с]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89053.jpgsave_picture_89053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89053.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:DCDF015BB5C64CA400F965DF0C4EAD9242201A07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89056.jpgsave_picture_89056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89056.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Gigi D'Agostino - L'Amour Toujours (1999) 2CD [FLAC|Lossless]<House, Euro House,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89057.jpgsave_picture_89057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89057.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Gigi D'Agostino - L'Amour Toujours (1999) 2CD [FLAC|Lossless]<House, Euro House,
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89058.jpgsave_picture_89058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89058.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:5A5FD1872FF2B0896B6A0D17C2F1AFB8505BD3BB
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89064.jpgsave_picture_89064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89064.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89070.jpgsave_picture_89070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89070.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89072.jpgsave_picture_89072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89072.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89079.jpgsave_picture_89079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89079.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89080.jpgsave_picture_89080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89080.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89081.jpgsave_picture_89081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89081.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Waves Lab | Руководство для пакета плагинов Waves 7 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89083.jpgsave_picture_89083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89083.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89084.jpgsave_picture_89084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89084.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:8452FE0337B2775FB8A5852E4363407E8E1DAE2C
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89085.jpgsave_picture_89085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89085.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:AFCA133E1E42F222F0425C784A955AACD7C78EB0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89086.jpgsave_picture_89086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89086.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ openSUSE 12.1-2 Education Li-f-e [i686] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89087.jpgsave_picture_89087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89087.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:48DC16FD77A15A235E4A5A62CAF10627440E4880
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89088.jpgsave_picture_89088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89088.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:48DC16FD77A15A235E4A5A62CAF10627440E4880
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89089.jpgsave_picture_89089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89089.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:666ADCE4476403920B995DE88DAE56EED9004DFB
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89091.jpgsave_picture_89091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89091.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Skype 5.9.66.114 Business Edition RePack by Boomer [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89093.jpgsave_picture_89093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89093.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38003.jpgsave_picture_38003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38003.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1EBA5CBB7893DFBE241327FC79D2ADAA3455803B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38004.jpgsave_picture_38004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38004.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Photoleap: Photo Editor / AI Art v1.63.2 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38005.jpgsave_picture_38005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38005.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38006.jpgsave_picture_38006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38006.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38007.jpgsave_picture_38007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38007.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:81D6D5A4CF3891D5B4502B0AA11641875774F125
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38008.jpgsave_picture_38008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38008.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6CB824C3495EB955EB5B7F096EE800CFC504DDAB
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38009.jpgsave_picture_38009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38009.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PingPlotter Pro 5.25.7.9052 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38010.jpgsave_picture_38010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38010.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:168C8E0D16EDAC327925385C786F07A4E792E01D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38011.jpgsave_picture_38011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38011.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38012.jpgsave_picture_38012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38012.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0B5CC85B89C7D6B0961C19BEB995A57B7B954A44
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38013.jpgsave_picture_38013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38013.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinToUSB Free / Pro / Enterprise / Technician 9.2.0 RePack (& Portable) by Dodak
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38014.jpgsave_picture_38014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38014.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:E37F85E1072BB6A1E0A869A9648BC2F0EE3D10D0
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38015.jpgsave_picture_38015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38015.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CPU-Z 2.12.0 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38016.jpgsave_picture_38016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38016.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:63DAEFEFA7608A53EF9DB8D0812CBF3480E8976E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38017.jpgsave_picture_38017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38017.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:D484BB3D88EF552FB47EC574FF49E04C4AECC391
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38018.jpgsave_picture_38018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38018.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ IObit Uninstaller Pro 14.0.1.19 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38019.jpgsave_picture_38019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38019.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38020.jpgsave_picture_38020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38020.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:5CB5374964F46B39086ABA513D3FE18454955183
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38021.jpgsave_picture_38021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38021.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:4EF9A2B6538ED5211C69D2EF3E68EC413581F70A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38022.jpgsave_picture_38022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38022.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:85422EA1958382F29835F0A67A9B07D13C8E478C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38023.jpgsave_picture_38023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38023.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.1 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38024.jpgsave_picture_38024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38024.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Macrorit Partition Extender 2.4.3 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38025.jpgsave_picture_38025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38025.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:9FE2C333AD3736ECA78CC275B1BCB20AEF26A83D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38026.jpgsave_picture_38026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38026.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38027.jpgsave_picture_38027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38027.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38028.jpgsave_picture_38028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38028.jpg" />
 </div>
 
 

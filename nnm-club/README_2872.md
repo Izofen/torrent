@@ -6,7 +6,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 SP1 WPI Boot by OVGorskiy® 20.03.2012 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84012.jpgsave_picture_84012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84012.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Q: Загадка женщины / Q (2011) DVDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84013.jpgsave_picture_84013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84013.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ CodeVisionAVR V2.05.3 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84014.jpgsave_picture_84014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84014.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ CodeVisionAVR включает в себя следующие компонент
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84016.jpgsave_picture_84016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84016.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ CodeVisionAVR включает в себя следующие компонент
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84017.jpgsave_picture_84017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84017.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ CodeVisionAVR включает в себя следующие компонент
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84018.jpgsave_picture_84018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84018.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ CodeVisionAVR включает в себя следующие компонент
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84019.jpgsave_picture_84019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84019.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:CF8D27ED2ADD7419DB7B3CA4F6EB324B64787197
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84020.jpgsave_picture_84020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84020.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:10024C2FA43979DC154AC351B895A090321897C1
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84022.jpgsave_picture_84022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84022.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:1889F3AD2BEF3D771A558AAC07E0AEAF3C76B006
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84025.jpgsave_picture_84025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84025.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:BB3839FF1668313302CACC92C7AE6302090EB2D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84028.jpgsave_picture_84028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84028.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84029.jpgsave_picture_84029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84029.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Electro Life 16 (by ZiP) (2012) [MP3|256-320 kbps] <Electro House, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84031.jpgsave_picture_84031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84031.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ VA - Seventy Dubstep - Electronic Essentials (2012) [MP3|320 кб/с]<Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84034.jpgsave_picture_84034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84034.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Trance Top 100 Vol 12 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84040.jpgsave_picture_84040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84040.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:82DB8FA2B8F8E2B01474F20871C420B2DFEC1C83
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84041.jpgsave_picture_84041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84041.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Progressive House. The Best World Club Music (2012) [MP3|192 кб/с]<Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84043.jpgsave_picture_84043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84043.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:839094FDF92C20875AF9B58A046865EE07857CCF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84044.jpgsave_picture_84044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84044.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:5F2D32CFA50A60F7D3A297A20DDFB7EA650B8855
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84046.jpgsave_picture_84046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84046.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:93BD89A6A0419CF692E34B2F0DE6D8914ABFB4ED
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84048.jpgsave_picture_84048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84048.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84049.jpgsave_picture_84049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84049.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Roxette - Travelling (2012) [MP3|~224~283 кб/с]<Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84051.jpgsave_picture_84051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84051.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA-Hard Dance Awards 2012 (Mixed by Kutski, Zatox & Steve Hil) (2012) [MP3|320 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84052.jpgsave_picture_84052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84052.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:3690E5E3283726F522198F89D407DD6D3434EF3C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84053.jpgsave_picture_84053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84053.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Phenomenon: City of Cyan (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84055.jpgsave_picture_84055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84055.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ magnet:?xt=urn:btih:B1142BF1125465B4568CA5DF6AE48582B9D30B55
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84057.jpgsave_picture_84057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84057.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Simpsons Game (2007) [PS3] [USA] 1.93 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26298.jpgsave_picture_26298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26298.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:537EE26DD2BEFD248D6F11FA408FCB28D319B15D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26299.jpgsave_picture_26299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26299.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26300.jpgsave_picture_26300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26300.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6867D2B0DA72A7759B6C1321B93F57D38B21BC0F
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26301.jpgsave_picture_26301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26301.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:05999883E13D85344A4BBB3218B3CBFA4637831E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26302.jpgsave_picture_26302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26302.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1096A36574C9CCC937FD62F916E4C7B9F04C0968
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26303.jpgsave_picture_26303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26303.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6563772994C5991189F7E3C033D212B0461057B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26304.jpgsave_picture_26304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26304.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B60C11B6ED1BE32CAAF70EC2F3920C2AD02AFC3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26305.jpgsave_picture_26305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26305.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Sleeping Dogs (2014) [Ru/Multi] (1.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26306.jpgsave_picture_26306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26306.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:C4BFBF59D3E6573974ADDB9F49617837AA952505
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26307.jpgsave_picture_26307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26307.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ FxSound 1.1.30.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26308.jpgsave_picture_26308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26308.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:971F587508D86FC72A5FA515F285A25A96D693EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26309.jpgsave_picture_26309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26309.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AyuGram - неофициальный клиент Telegram 11.5.3 Mod by NURIK [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26310.jpgsave_picture_26310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26310.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Ninja Five-O (2025) [Multi] (1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26311.jpgsave_picture_26311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26311.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:5E050DD1034014B1D6FF86E3B1273A997E4187F7
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26312.jpgsave_picture_26312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26312.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MiniTool Power Data Recovery 12.4 Full (Standard-Deluxe-Enterprise-Technician) R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26313.jpgsave_picture_26313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26313.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:24D528171ED2BDA04E5D981BF1C341D14207A115
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26314.jpgsave_picture_26314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26314.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack EXROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26315.jpgsave_picture_26315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26315.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Mortal Kombat vs DC Universe (2008) [PS3] [EUR] 2.50 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26316.jpgsave_picture_26316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26316.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ CPU Temp 1.7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26317.jpgsave_picture_26317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26317.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:99FA3669B5F5B6B3D8CB49BB69D06DE7D154B0A8
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26318.jpgsave_picture_26318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26318.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Free Hex Editor Neo 7.50.04.8813 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26319.jpgsave_picture_26319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26319.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ FurMark 2.6.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26320.jpgsave_picture_26320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26320.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:7E4F926F17012B35B8C9393433ADCD1C8A9FD33D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26321.jpgsave_picture_26321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26321.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:1065CC504BDF2548767ABC81E09A7992953B3E4D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26322.jpgsave_picture_26322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26322.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:BE5FF24494AF0B5F813FC42D0ADD89EFF10CA3F4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26323.jpgsave_picture_26323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26323.jpg" />
 </div>
 
 

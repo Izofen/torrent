@@ -6,7 +6,7 @@ Chet Baker - Riverside Profiles (1958, 1959) 2CD, 2006, Riverside Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113221.jpgsave_picture_113221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113221.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9DD15102AAF701E1E825A17C13A3AE5F7877116E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113222.jpgsave_picture_113222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113222.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Expiatoria - Shadows (2022) [FLAC|Lossless|image + .cue] <Gothic, Doom, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113223.jpgsave_picture_113223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113223.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:590B6EF12403337E544149BADECA9C21C610C8A4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113224.jpgsave_picture_113224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113224.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Phish - Sigma Oasis (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113225.jpgsave_picture_113225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113225.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:A1F8E8E198870A064883D7281C43E980F0CE7B1E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113226.jpgsave_picture_113226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113226.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Navicat Charts Creator for Mac 1.2.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113227.jpgsave_picture_113227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113227.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:FEE4B6DBB120AFBD2D3DF6B7BA2CB6E5D0519A18
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113228.jpgsave_picture_113228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113228.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Guadalquivir & Friends - Ole Corea! (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113229.jpgsave_picture_113229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113229.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Coil - Moon's Milk (In Four Phases) (2002) 5CD Boxset, 2024, Dais Records[FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113230.jpgsave_picture_113230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113230.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Reza Khan - Mystical (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113231.jpgsave_picture_113231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113231.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Carlos Camilo - Love Affair (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113232.jpgsave_picture_113232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113232.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Expiatoria - Shadows (2022) [MP3|320 Kbps] <Gothic, Doom, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113233.jpgsave_picture_113233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113233.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:6DD5A23C3A82C6915566A74B78E14D7E4C95F3D5
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113234.jpgsave_picture_113234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113234.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sacha Perry, Ben Street & Kresten Osgood - Low Tide (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113235.jpgsave_picture_113235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113235.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Sol Anahata - Syncretic Sovereignty (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113236.jpgsave_picture_113236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113236.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Bernhard Ludescher & Loktor - Almost (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113237.jpgsave_picture_113237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113237.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:CF795B033FDE94726B8ADCEDEE9F55A97F013044
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113238.jpgsave_picture_113238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113238.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Triplicity - Onibaba (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113239.jpgsave_picture_113239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113239.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:04EEE890E100DBBC46C91CA9F4999DC5B56570C4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113240.jpgsave_picture_113240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113240.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:7FAA0C09B6E1009F767B58CDD830CF50B5B47EBE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113241.jpgsave_picture_113241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113241.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Early Moods - A Sinner's Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113242.jpgsave_picture_113242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113242.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:20603633723707F9EE4DB9281917060E9455B5D8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113243.jpgsave_picture_113243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113243.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:4762E609AD4270905A27F5ABEB14AEF2733D29D2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113244.jpgsave_picture_113244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113244.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ The Rebel Saints - The Rebel Saints (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113245.jpgsave_picture_113245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113245.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:532190A0D6587877B0C7CF12014F4E07FDC0167C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113246.jpgsave_picture_113246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113246.jpg" />
 </div>
 
 

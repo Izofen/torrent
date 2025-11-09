@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252247.jpgsave_picture_252247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252247.jpg" />
 </div>
 
 

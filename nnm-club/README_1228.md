@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32283.jpgsave_picture_32283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32283.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F0D9EA74CA259044B00E3D2D07578FFA8AC5B81F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32284.jpgsave_picture_32284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32284.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BADDAFEDD7BE0AE0A76847A490A061FA7113D01B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32285.jpgsave_picture_32285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32285.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Melon Top 100 (2024-11-30) [MP3|320 Kbps] <K-Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32286.jpgsave_picture_32286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32286.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:88977E755287ABC9F5CF1E50B4CCDDB4811FA73D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32287.jpgsave_picture_32287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32287.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Gigi D'Agostino, Luca Noise - Total Eclipse (2024) EP [FLAC|Lossless|WEB-DL|trac
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32288.jpgsave_picture_32288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32288.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:01150A83FDFFC2B5C81856F8947283D5AAB90EF7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32289.jpgsave_picture_32289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32289.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2025 (2025) [FLAC|Lossles
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32290.jpgsave_picture_32290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32290.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:09E74C80C9E92ED53E0EBD5C57EF4A45C7CD3595
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32291.jpgsave_picture_32291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32291.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Joggen 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32292.jpgsave_picture_32292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32292.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Schwarz & Funk - Topas Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32293.jpgsave_picture_32293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32293.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Chillout Winter Session 2024 (2024) [MP3|320 Kbps] <Downtempo, Chillout, El
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32294.jpgsave_picture_32294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32294.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:926A54EC4D96C5A165499765EADB0C61833AAF55
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32295.jpgsave_picture_32295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32295.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:01CE6069E7969A7770D87A7455B793ABCFC93193
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32296.jpgsave_picture_32296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32296.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:74BB45DCE5C2F3E53AA0DD87C9B6AF588542D977
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32297.jpgsave_picture_32297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32297.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Derek Caruso & the Blues Fuse - To Memphis & Back (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32298.jpgsave_picture_32298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32298.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:3729AB7BF661B1A81C6BD18B34E5B7DCF2B8730B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32299.jpgsave_picture_32299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32299.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Christmas Trance (Best for the Year 2025) (Happy New Year 2025) (2025) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32300.jpgsave_picture_32300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32300.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dave Hobbs - Opus One (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32301.jpgsave_picture_32301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32301.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:ECB5D6CCDB0536A1C8F465BE52063CD2DF1796B5
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32302.jpgsave_picture_32302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32302.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:BAB06A67D5209976EC81958757FC694F7C741949
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32303.jpgsave_picture_32303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32303.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Marvin J. Galaxy - Mean Ways (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32304.jpgsave_picture_32304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32304.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Stranger Vision - FAUST Act I: Prelude To Darkness (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32305.jpgsave_picture_32305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32305.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Matteo Lombardi, Vittorio Iannucci, Marty Zylstra - Warrior Anthems (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32306.jpgsave_picture_32306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32306.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:3B09903CEDA49B344C100BB163339A281F2A9E7C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32307.jpgsave_picture_32307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32307.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Полигон Records. Лучшее 2024 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32308.jpgsave_picture_32308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32308.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245010.jpgsave_picture_245010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245010.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Amon Amarth - Тhе Рursuit Оf Vikings (2018) Live [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245011.jpgsave_picture_245011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245011.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ R.A.F. - Restless Spirit (1986) [MP3|320 Kbps] <AOR, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245029.jpgsave_picture_245029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245029.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245030.jpgsave_picture_245030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245030.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Parasite - Parasite (1984) Mini-Album, Reissue, 2018, No Remorse [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245041.jpgsave_picture_245041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245041.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Leatherwolf - Kill The Hunted (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245046.jpgsave_picture_245046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245046.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Winger - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245051.jpgsave_picture_245051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245051.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245061.jpgsave_picture_245061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245061.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245069.jpgsave_picture_245069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245069.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245078.jpgsave_picture_245078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245078.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Riverside - ID.Entity (2023) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245083.jpgsave_picture_245083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245083.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ David Cross - Crossing The Tracks (2018) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245087.jpgsave_picture_245087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245087.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ WICCA - Bloodrush (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245089.jpgsave_picture_245089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245089.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Vass/Katsionis - Cynical Silence (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245105.jpgsave_picture_245105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245105.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Odessa - L'Alba Della Civiltà (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245111.jpgsave_picture_245111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245111.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Coiotes S.A. - Daqui Pra Frente Eh Nois (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245113.jpgsave_picture_245113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245113.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Vas' - Быстрее послушать (2021) [MP3|320 Kbps] <Indie-Rock / Pop
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245114.jpgsave_picture_245114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245114.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245118.jpgsave_picture_245118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245118.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ WolloW - Tales of WolloW - Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245126.jpgsave_picture_245126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245126.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Re-Animator - Re-Animator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard'N'Heavy>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245130.jpgsave_picture_245130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245130.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Powerhouse - Powerhouse (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Classic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245150.jpgsave_picture_245150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245150.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Darkhold - Tales from Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245177.jpgsave_picture_245177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245177.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ King Moonracer - Hello To Kings (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245182.jpgsave_picture_245182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245182.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Oliva - Raise the Curtain (2013) Limited Edition Digipak [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245185.jpgsave_picture_245185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245185.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:4839E4FA26A53CC6C160A5A257430434C5D51BCA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245186.jpgsave_picture_245186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245186.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Herman Brood & His Wild Romance - Yada Yada (1988) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245189.jpgsave_picture_245189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245189.jpg" />
 </div>
 
 

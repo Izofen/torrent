@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228603.jpgsave_picture_228603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228603.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B33A0E346DE19A16780B165A4FBA3ED467FA3E54
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228604.jpgsave_picture_228604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228604.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MassTube Plus 16.0.0.600 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228607.jpgsave_picture_228607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228607.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Anna Fiori - Magna Mater (2013) 10th Anniversary, Remixed & Remastered, 2023, An
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228608.jpgsave_picture_228608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228608.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное Короле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228609.jpgsave_picture_228609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228609.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:72A69657C81B8F006C86F7F5D979864AE98CE533
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228610.jpgsave_picture_228610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228610.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2EA8C5B6F575FBC8B2FCCAA21693F4B0E0B210E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228611.jpgsave_picture_228611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228611.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:74917843537E197FA08235EF774995CE3D991CA4
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228612.jpgsave_picture_228612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228612.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E8EAB97C8B557755F49287224E7ECAE9E0705556
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228613.jpgsave_picture_228613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228613.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Opera 91.0.4516.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228614.jpgsave_picture_228614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228614.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:7561665014E60ACC6B50162874013A03B2EAFD6C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228616.jpgsave_picture_228616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228616.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Cavalera Conspiracy - 2 Albums (2023) [FLAC|24/48|tracks|WEB-DL] <Groove Thrash 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228617.jpgsave_picture_228617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228617.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Nik Complete 2 Collection by DxO 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228618.jpgsave_picture_228618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228618.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:556E7C4FE2E6811D8E22D4167494E2696ABB7813
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228620.jpgsave_picture_228620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228620.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:BF622B4028EF8B0A5A7759E43361CB5352EA3287
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228622.jpgsave_picture_228622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228622.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ U.D.O. - The Legacy (2022) 2CD, Compilation [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228623.jpgsave_picture_228623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228623.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:88E13EDC106E0A05DB1932E784100524F5F5125F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228624.jpgsave_picture_228624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228624.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:2EB807D0DB30F87DE87759302D2EF1150EC1683B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228626.jpgsave_picture_228626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228626.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Little Feat - Dixie Chicken (1973) 2CD, Deluxe Edition, Remaster, 2023, Rhino - 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228627.jpgsave_picture_228627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228627.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Firefox Browser 83.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228628.jpgsave_picture_228628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228628.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:943AA50A3F73D180C3EB84B628D9A92051CE67FC
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228629.jpgsave_picture_228629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228629.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:D0D0039A837BD97D423B8283E552FBCBF435C6D8
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228632.jpgsave_picture_228632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228632.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Chillout Hits (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228633.jpgsave_picture_228633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228633.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:234B6A7CF0F1D6E2AFCB67FCC2B9516EFBB79189
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228635.jpgsave_picture_228635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228635.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:D9BF2219520A6C33ECC2035A2271B841DE530DE8
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228636.jpgsave_picture_228636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228636.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228637.jpgsave_picture_228637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228637.jpg" />
 </div>
 
 

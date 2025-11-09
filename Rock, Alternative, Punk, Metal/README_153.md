@@ -6,7 +6,7 @@ VA - трибьют Пурген (2024) [MP3|320 Kbps] <Rock, Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112549.jpgsave_picture_112549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112549.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Moving Sidewalks - The Complete Collection (2012) 2 x CD [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112552.jpgsave_picture_112552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112552.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Eisenwut - Die Herrschaft der Leere (2017) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112556.jpgsave_picture_112556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112556.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fatal Fire - Arson (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112558.jpgsave_picture_112558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112558.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ne Obliviscaris - Exul (Deluxe) (2023) 2024, Season of Mist [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112559.jpgsave_picture_112559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112559.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|image + .cue] <Celtic Folk, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112564.jpgsave_picture_112564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112564.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Smorrah - Welcome to Your Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112568.jpgsave_picture_112568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112568.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Skiltron - The Highland Way (2010) [FLAC|Lossless|image + .cue] <Celtic Folk, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112569.jpgsave_picture_112569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112569.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Deep Purple - Montreux '71 (Live At The Casino, Montreux / 1971) (2024) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112572.jpgsave_picture_112572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112572.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Skiltron - The Clans Have United (2006) [APE|Lossless|image + .cue] <Celtic Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112625.jpgsave_picture_112625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112625.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Brother Cane - 3 Albums (1993 - 1998) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112628.jpgsave_picture_112628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112628.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Finger-Picking Masters (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112637.jpgsave_picture_112637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112637.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tribuzy - Execution (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112640.jpgsave_picture_112640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112640.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Skiltron - Beheading the Liars (2008) [APE|Lossless|image + .cue] <Celtic Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112644.jpgsave_picture_112644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112644.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - I Love Rock 'N' Roll: Anthems for Hard Times (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112647.jpgsave_picture_112647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112647.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Stars In Toledo - Ascendance (2024) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112650.jpgsave_picture_112650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112650.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Father's Day: Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112657.jpgsave_picture_112657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112657.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Happy Father's Day - Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112659.jpgsave_picture_112659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112659.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Cure - Paris (Live At Le Zenith 1992 - 30th Anniversary Expanded Edition) (2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112664.jpgsave_picture_112664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112664.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Shadow Matter - Shadow Matter (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112703.jpgsave_picture_112703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112703.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Satra - Sand of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112710.jpgsave_picture_112710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112710.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Beyond the Hate - Darkest Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112712.jpgsave_picture_112712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112712.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Shadow Matter - All this Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112724.jpgsave_picture_112724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112724.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Abya - Prayer Of Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112729.jpgsave_picture_112729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112729.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Tommy (Original Soundtrack Recording) (1975) 2 x CD, 1993, Polydor [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112771.jpgsave_picture_112771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112771.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Maypole - The Real (1971) Reissue, 2005, Gear Fab Records [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112772.jpgsave_picture_112772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112772.jpg" />
 </div>
 
 

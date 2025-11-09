@@ -6,7 +6,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36027.jpgsave_picture_36027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36027.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Light Image Resizer 7.1.2.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36028.jpgsave_picture_36028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36028.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Music News For Forum vol.046 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36029.jpgsave_picture_36029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36029.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Firefox Browser ESR 115.18.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36030.jpgsave_picture_36030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36030.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Korolova - Live @ Bali, Indonesia (2024-11-22) [MP3|320 Kbps] <Progressive House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36031.jpgsave_picture_36031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36031.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2547BF00B17D64EA13CBB50B98DDE66E79B7A280
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36032.jpgsave_picture_36032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36032.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8B2B7F621CBBAEA9D3FB776A872C803336606761
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36033.jpgsave_picture_36033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36033.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ RegCool 2.017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36034.jpgsave_picture_36034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36034.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ XYplorer 26.70.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36035.jpgsave_picture_36035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36035.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Beat Hazard Ultra (2010) [Multi] (1.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36036.jpgsave_picture_36036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36036.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2DDC1C4ACABA9838092C876D920AE19BC9E363E6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36037.jpgsave_picture_36037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36037.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Самые новые песни о любви 7 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36038.jpgsave_picture_36038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36038.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:AB1530DB3F6009B416946C4AB83320058BE01144
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36039.jpgsave_picture_36039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36039.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ V.A. - Lounge & Wine, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36040.jpgsave_picture_36040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36040.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:F5ACC73B6ECE5F7DC7FDEE23110CB76DC9E9A91B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36041.jpgsave_picture_36041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36041.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:2904EFD4FCB5A6DD7358BE3CE203B20821FF8B97
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36042.jpgsave_picture_36042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36042.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Firefox Browser ESR 128.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36043.jpgsave_picture_36043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36043.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:4A25249EB76506F005C3CFA0330350A0B0E6848A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36044.jpgsave_picture_36044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36044.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ V.A. - Bossa Nova International Pop Hits (Bossanova Jazz Covers of Popular Songs
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36045.jpgsave_picture_36045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36045.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Rock Women - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36046.jpgsave_picture_36046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36046.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:1565584D1672DE5A3E10CBF1AC2EC8E8335EBDA1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36047.jpgsave_picture_36047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36047.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Marillion - This Strange Engine (Deluxe Edition) (1997) 4 x CD, Compilation, Rem
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36048.jpgsave_picture_36048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36048.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:20CAA55CEEDA8E002A415AAFA72353BAAC499BFF
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36049.jpgsave_picture_36049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36049.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:79A0099C222AEB52C3ACB544591B9A87AC4162D1
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36050.jpgsave_picture_36050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36050.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:67323F23EBB632850DA7F28DD723565FCAD8E9A9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36051.jpgsave_picture_36051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36051.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:1B039770C7DD36CFC7E913D43AEE203D2708ECFD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36052.jpgsave_picture_36052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36052.jpg" />
 </div>
 
 

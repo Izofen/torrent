@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14636.jpgsave_picture_14636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14636.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ B.C. Вернодубенко, А.С. Новосёлов | Выживание л
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14637.jpgsave_picture_14637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14637.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:61E938DFC4EEB01865AD9BFB674D433402FC414A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14638.jpgsave_picture_14638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14638.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0DABF67C424815BF16749F5FCF4A6C1C390BEA93
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14639.jpgsave_picture_14639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14639.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EAC9D7E99140D9070A254823751E54156BF57CCE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14640.jpgsave_picture_14640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14640.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5662E6194A876D55EE1997D570C112A5B81E4D98
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14641.jpgsave_picture_14641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14641.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:99BCEBCD4325BA73F2E0E73A813F15AFE3CD1225
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14642.jpgsave_picture_14642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14642.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0C501023530910765FCC5633E457E38D218F0793
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14643.jpgsave_picture_14643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14643.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:7D297A1D6F799E2E90A17A4597459EEFAE96C6E1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14644.jpgsave_picture_14644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14644.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14645.jpgsave_picture_14645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14645.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ MassTube Ultra 20.1.6.133 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14646.jpgsave_picture_14646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14646.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ MediaHuman YouTube Downloader 3.9.14 (1306) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14647.jpgsave_picture_14647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14647.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:8E5D8A8634BDA62550A281E3A1DFDA28F79C8768
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14648.jpgsave_picture_14648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14648.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C0DC1B0EB91C2EF42E28455967F76C4984EF03E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14649.jpgsave_picture_14649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14649.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mortal Kombat (2013) [Ru] (1.0.7) Repack EXROW [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14650.jpgsave_picture_14650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14650.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:979044012C994E3F8639D1986BCDC24C78452C2A
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14651.jpgsave_picture_14651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14651.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:07C9461709EAA82F52ACCF0067A76E0A48ACD5B8
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14652.jpgsave_picture_14652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14652.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:2EA925F8EA1C18CB4F0E1D7EDC02000D7D8FA80D
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14653.jpgsave_picture_14653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14653.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:B3B1B25F63FB68F48089B8A3ADAA0AEAD4FFEB30
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14654.jpgsave_picture_14654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14654.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:3DBE7D48EFDA177FB3D1D6B4E903CD76206FC6EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14655.jpgsave_picture_14655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14655.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Placebo - Sleeping With Ghosts (2003) Japanese Edition [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14656.jpgsave_picture_14656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14656.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:300190FD700EDC90008D5E9960553DF3DC562E47
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14657.jpgsave_picture_14657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14657.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14658.jpgsave_picture_14658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14658.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ iTubeGo YouTube Downloader 10.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14659.jpgsave_picture_14659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14659.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A01AC143A58769AC1A8029EE103EFEA990197C75
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14660.jpgsave_picture_14660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14660.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14661.jpgsave_picture_14661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14661.jpg" />
 </div>
 
 

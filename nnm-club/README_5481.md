@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169447.jpgsave_picture_169447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169447.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:498A05A93AC2E1B29AB5B7518A114C021D5D9BAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169448.jpgsave_picture_169448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169448.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Firewind - Still Raging (Live At Principal Club Theater) (2023) 2 x CD [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169449.jpgsave_picture_169449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169449.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0A8561B20CE9F4A916B212613B6F6C6C71D7B59B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169450.jpgsave_picture_169450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169450.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ TechSmith Snagit 2022.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169451.jpgsave_picture_169451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169451.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Frank Leguen - Rockin' the Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169452.jpgsave_picture_169452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169452.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - 40 Top Workout Mixes 2021: Motivation Training Music (2021) [AAC|~321 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169453.jpgsave_picture_169453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169453.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:43C3CE594B4A06649B6E59B25C979D6E0206F18E
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169454.jpgsave_picture_169454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169454.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:259A1520629E77D3DD49E279B49DDE4F56706F2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169455.jpgsave_picture_169455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169455.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Transmit 5.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169456.jpgsave_picture_169456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169456.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:FC4678B23AD0226737AB8D7B11A3DD7A86F62D27
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169457.jpgsave_picture_169457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169457.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Keyboard Maestro 10 v10.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169458.jpgsave_picture_169458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169458.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Death - Leprosy (1988) [FLAC|24/96|tracks|Vinyl-Rip] <Death Metal, Progressive D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169459.jpgsave_picture_169459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169459.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ NecroBouncer (2022) [Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169460.jpgsave_picture_169460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169460.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Infrasonic Autumn Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169461.jpgsave_picture_169461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169461.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:8AA97A54F066C4E131F99DFF18519986CB45A558
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169462.jpgsave_picture_169462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169462.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - 50 Chart Hits of 2021.1: The Workout Motivation Album (2021) [AAC|~333 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169463.jpgsave_picture_169463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169463.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pacome (Pacôme) Rotondo - World of Confusion (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169464.jpgsave_picture_169464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169464.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - 50 Chart Hits of 2021.3: The Workout Motivation Album (2021) [AAC|~331 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169465.jpgsave_picture_169465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169465.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:90C7933E4F85D3142B9325EDE7A96C5951E495BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169466.jpgsave_picture_169466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169466.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Scooter - Music For A Big Night Out (2012) [FLAC|Lossless|image + .cue] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169467.jpgsave_picture_169467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169467.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:DF9C2A5E46F9C977D7759528378155CC1A6D3193
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169468.jpgsave_picture_169468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169468.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Love Blues (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169469.jpgsave_picture_169469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169469.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:A89C3896567F367C8A1DAE0D6E2B4022DB6732E5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169470.jpgsave_picture_169470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169470.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Manico 2.10.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169471.jpgsave_picture_169471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169471.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:923695F89B6AB900A29AECF04E4973A2B5378649
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169472.jpgsave_picture_169472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169472.jpg" />
 </div>
 
 

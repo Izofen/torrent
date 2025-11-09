@@ -6,7 +6,7 @@ Zолушка (2012) [H.264] DVDRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85445.jpgsave_picture_85445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ridge Racer Unbounded [Multi6/+] (L) 2012
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85446.jpgsave_picture_85446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85446.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4B8340E1647FD51580D0BCFC3CD71080A86339DC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85450.jpgsave_picture_85450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85450.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4B8340E1647FD51580D0BCFC3CD71080A86339DC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85451.jpgsave_picture_85451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85451.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Ridge Racer Unbounded [Multi6/+] (L) 2012 l SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85452.jpgsave_picture_85452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85452.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:BEA96021E9EF61AA2121FBA0B43012115FADD11C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85453.jpgsave_picture_85453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85453.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:BEA96021E9EF61AA2121FBA0B43012115FADD11C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85454.jpgsave_picture_85454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85454.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:AD73A62F8412709404B97FFD8F3AA143FCD40305
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85458.jpgsave_picture_85458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85458.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - TOP 100 Зайцев.нет (29.03.2012) (2012) [MP3|126-320 kbps]<Pop|Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85459.jpgsave_picture_85459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85459.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:25F1D86D4B113E0F6EFDBEC7487F33F258E09D27
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85462.jpgsave_picture_85462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85462.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ VA - The Electro Swing Revolution Vol.2 (2011) [APE|Lossless]<Electro Swing, Nu 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85463.jpgsave_picture_85463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85463.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ VA - The Electro Swing Revolution Vol.2 (2011) [APE|Lossless]<Electro Swing, Nu 
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85464.jpgsave_picture_85464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85464.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85467.jpgsave_picture_85467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85467.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Jack Lee & Bob James - Botero (2009) [FLAC|Lossless]<Jazz, Acoustic, Fusion>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85469.jpgsave_picture_85469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85469.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:C5C0E66654B15B34213593374BE4604DC0BFC8E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85470.jpgsave_picture_85470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85470.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - The Ultimate Chilled Album (2008) [FLAC|Lossless]<Chillout, Lounge, Ambient
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85471.jpgsave_picture_85471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85471.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Orbital - Wonky (2012) [MP3|256 кб/с]<Techno, Big-Beat>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85472.jpgsave_picture_85472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85472.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Русский Рэп 9 (2012) [MP3|256 кб/с]<Рэп>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85475.jpgsave_picture_85475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85475.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Frugalware Linux 1.6 [x86_64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85478.jpgsave_picture_85478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85478.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Uriah Heep - Logical Revelations (2012) [MP3|320 кб/с]<Hard rock, Progressive
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85482.jpgsave_picture_85482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85482.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:563740F81F61ADBEB3F70FF2ED44A03A39AD2766
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85485.jpgsave_picture_85485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85485.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:563740F81F61ADBEB3F70FF2ED44A03A39AD2766
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85487.jpgsave_picture_85487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85487.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Mega House Top 100 WEB (2012) [FLAC|Lossless]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85488.jpgsave_picture_85488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85488.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ CD 1:
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85489.jpgsave_picture_85489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85489.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - Лучший Русский Шансон (2012) [MP3|256 кб/с]<Шанс�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85494.jpgsave_picture_85494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85494.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ magnet:?xt=urn:btih:9F7AFE50769400CCA34BF24E1499B758F4CFA741
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85495.jpgsave_picture_85495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85495.jpg" />
 </div>
 
 

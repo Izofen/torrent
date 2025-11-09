@@ -6,7 +6,7 @@ Jimmy Lewis and Peggy Scott-Adams - Christmas With Miss Butch Records (2023) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126421.jpgsave_picture_126421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126421.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PhotoRoom 4.7.9 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126422.jpgsave_picture_126422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126422.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Must Die - Праздники прошли... (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126423.jpgsave_picture_126423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126423.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:46D417C96B58FA9E915597CA35319D22EE5A720D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126424.jpgsave_picture_126424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126424.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:58907473C9ACA49DBCF8477031A3EEFF01C7160E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126425.jpgsave_picture_126425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126425.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Level - Level (1982) Reissue, 2023, MelodicRock Classics [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126426.jpgsave_picture_126426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126426.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Tamarillo - Seraphin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126427.jpgsave_picture_126427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126427.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:695511CC443E9B89198961EEBB0FC64B41FB6546
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126428.jpgsave_picture_126428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126428.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Jay Doe & The Blues Preachers - Bluestime (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126429.jpgsave_picture_126429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126429.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Bill Evans - You Must Believe In Spring (1977) 2022, Craft Recordings [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126430.jpgsave_picture_126430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126430.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:2D3D07D6F4779CDA801A2ACC6BD0AD030E011161
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126431.jpgsave_picture_126431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126431.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ The Stan Getz Quartet - Pure Getz (1982) Concord Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126432.jpgsave_picture_126432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126432.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:8DBE6E9727F15ACCD864664FBF113CD0B5E4FCA3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126433.jpgsave_picture_126433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126433.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Third Eye - Vengeance Fulfilled (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126434.jpgsave_picture_126434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126434.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Black Hole Recordings - Best Of 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126435.jpgsave_picture_126435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126435.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:C74320393654EEFF7BE21B3FFE1F42DDB228B754
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126436.jpgsave_picture_126436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126436.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Deathmonger - Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126437.jpgsave_picture_126437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126437.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:B222DEAD07E85BE621A7AE006A39929A6B35B651
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126438.jpgsave_picture_126438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126438.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:8665CDBD017B3ED3E5398B0CE0A5DA57D2FBBA41
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126439.jpgsave_picture_126439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126439.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ PhotoRoom v4.7.9 b1216 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126440.jpgsave_picture_126440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126440.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:7580CB6D77A11F0B513078124F6F935F90270361
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126441.jpgsave_picture_126441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126441.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:7580CB6D77A11F0B513078124F6F935F90270361
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126442.jpgsave_picture_126442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126442.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Markus Schulz - Global DJ Broadcast Year in Review (2023) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126443.jpgsave_picture_126443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126443.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - The best of Tecnomind 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126444.jpgsave_picture_126444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126444.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Vlad Inside - Ferrum City (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126445.jpgsave_picture_126445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126445.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ A Crime Called... - Primal Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126446.jpgsave_picture_126446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126446.jpg" />
 </div>
 
 

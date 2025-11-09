@@ -6,7 +6,7 @@ Red Eye Temple - Vortex (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129766.jpgsave_picture_129766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129766.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ektomorf - Vivid Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Groov
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129772.jpgsave_picture_129772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129772.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Crusade of Bards - Tales of the Seven Seas (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129774.jpgsave_picture_129774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129774.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Beyond God - The Great Divide (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129779.jpgsave_picture_129779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129779.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pig - The Swining - Red Raw & Sore (1999) Remastered, 2023, Cleopatra Records [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129785.jpgsave_picture_129785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129785.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Strike Master - Up For The Massacre X Anniversary Edition (2006) Reissue, 2016, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129789.jpgsave_picture_129789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129789.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ magnet:?xt=urn:btih:A484A780D7F2B44AB1619713F2D652903A65658E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129801.jpgsave_picture_129801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129801.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Karmamoi - Strings From The Edge of Sound (2023) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129802.jpgsave_picture_129802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129802.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Soft Rock Mix (Female Singer-Songwriters Vol. 1) (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129817.jpgsave_picture_129817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129817.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Big Pink - Future This (2012) [MP3|320 кб/с]<Folk, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129820.jpgsave_picture_129820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129820.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Isospin - Aftermath Chronicles (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129836.jpgsave_picture_129836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129836.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Tarja Turunen - All I Want For Christmas Is You (2023) EP [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129869.jpgsave_picture_129869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129869.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Dimmu Borgir - Inspiratio Profanus (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129881.jpgsave_picture_129881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129881.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - A Very Metal Christmas (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129889.jpgsave_picture_129889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129889.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Dan McCafferty - In Memory of Dan McCafferty - No Turning Back (2023) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129939.jpgsave_picture_129939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129939.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Old Gods of Asgard - Rebirth - Greatest Hits (2023) Music from the Games 'Alan W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129947.jpgsave_picture_129947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129947.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ David Gilmour - About Face (1984) Japanese Edition, Reissue, Remastered, 2020, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129952.jpgsave_picture_129952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129952.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Voodoma - Hellbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129999.jpgsave_picture_129999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129999.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Arch/Matheos - Sympathetic Resonance (2011) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130028.jpgsave_picture_130028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130028.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Cenotaph - Epic Rites (9 Epic Tales & Death Rites) (1996) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130040.jpgsave_picture_130040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130040.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Windom End - Perspective Views (2020) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130059.jpgsave_picture_130059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130059.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Wonderworld - Live Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130061.jpgsave_picture_130061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130061.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC 2.0|44.1/24|tracks|Web-DL] <Melodic H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130070.jpgsave_picture_130070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130070.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ The Jesus and Mary Chain - Live at Barrowland (2022) Live [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130089.jpgsave_picture_130089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130089.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Twelve Foot Ninja - Vengeance (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130093.jpgsave_picture_130093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130093.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Recon - Behind Enemy Lines (1990) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130101.jpgsave_picture_130101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130101.jpg" />
 </div>
 
 

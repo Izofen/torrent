@@ -6,7 +6,7 @@ Champlin Williams Friestedt - CWF3 (2024) Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103937.jpgsave_picture_103937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103937.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Midnight Force - Severan (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103941.jpgsave_picture_103941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103941.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jimi Jamison - Jimmy Wayne Jamison (2024) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103944.jpgsave_picture_103944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103944.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mike Tramp - Songs Of White Lion Vol. II (2024) Japanese Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103953.jpgsave_picture_103953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103953.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103972.jpgsave_picture_103972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103972.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103983.jpgsave_picture_103983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103983.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:DE07B5CCDC7E5F5B13ADAB722CEC9393656FEC1A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103986.jpgsave_picture_103986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103986.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103995.jpgsave_picture_103995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103995.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:78D80331D39C286292C6D5754E137676E48667D8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103996.jpgsave_picture_103996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103996.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Find Me - Nightbound (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104016.jpgsave_picture_104016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104016.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:44ED752F2FF467D58C7225F5E9C25F79401926A3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104021.jpgsave_picture_104021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104021.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ LeadBreaker - Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104039.jpgsave_picture_104039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104039.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Whisky of Blood - Diablesse Of Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104041.jpgsave_picture_104041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104041.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Virgin Steele - Guardians Of The Flame (1983) Reissue, Remastered, 2024, Steamha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104049.jpgsave_picture_104049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104049.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Eradicator - The Paradox (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104101.jpgsave_picture_104101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104101.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Airstrike - S*x Sells (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104112.jpgsave_picture_104112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104112.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fighter V - Heart Of The Young (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104113.jpgsave_picture_104113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104113.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Massacration - Metal Is My Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104115.jpgsave_picture_104115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104115.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Stryper - To Hell With The Amps (2024) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104118.jpgsave_picture_104118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104118.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dreadsight - Conspiracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104122.jpgsave_picture_104122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104122.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stryper - When We Were Kings (2024) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104123.jpgsave_picture_104123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104123.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:BD5B1D659E009A30D9EE95B9C36F464ABA3F4718
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104165.jpgsave_picture_104165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104165.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:9690CF86C94703DAD65F691F93181C7F7577BAC1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104170.jpgsave_picture_104170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104170.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sinner's Blood - Dark Horizons (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104203.jpgsave_picture_104203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104203.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Vision Divine - Blood And Angels' Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104206.jpgsave_picture_104206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104206.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Neptune - End Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104207.jpgsave_picture_104207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104207.jpg" />
 </div>
 
 

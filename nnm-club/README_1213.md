@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31893.jpgsave_picture_31893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31893.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 14 December 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31894.jpgsave_picture_31894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31894.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:ABC447C9B269FD1DDAA220AF47D0D608050C02BB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31895.jpgsave_picture_31895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31895.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Megafauna - I Owe This Land a Body (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Am
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31896.jpgsave_picture_31896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31896.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Pink Floyd - Live At Empire Pool (Wembley, London, UK, 15 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31897.jpgsave_picture_31897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31897.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 13 December 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31898.jpgsave_picture_31898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31898.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:7231767DA4C22D7823342E8916E4CA286050C4A3
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31899.jpgsave_picture_31899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31899.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31900.jpgsave_picture_31900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31900.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31901.jpgsave_picture_31901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31901.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:639AD88E5BCA31E16900B1B21649FDC0A6000FDC
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31902.jpgsave_picture_31902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31902.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31903.jpgsave_picture_31903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31903.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:C8C58AF76E20C5FF641C8855864596A7CE1F7BE8
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31904.jpgsave_picture_31904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31904.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:13636DBCF7D9B76FEB1652BEBA21C9EBB880554E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31905.jpgsave_picture_31905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31905.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31906.jpgsave_picture_31906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31906.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:6E788D7BC53AFC8B43C52A490CEBA33DB0FB0304
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31907.jpgsave_picture_31907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31907.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:742B72FADD0135AA18BB43F8546ECED8B46845FE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31908.jpgsave_picture_31908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31908.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:3FC150383B974A333CA913C289117CC40BCEB3E9
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31909.jpgsave_picture_31909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31909.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31910.jpgsave_picture_31910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31910.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0EFE39ADDBF2C165B9693EED635EED7EBC038C4E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31911.jpgsave_picture_31911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31911.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31912.jpgsave_picture_31912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31912.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:3EFE8401F39EFBF7147FB12DD1340280CF09A872
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31913.jpgsave_picture_31913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31913.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:C7A31542FB825C6E46249E8590784FE6845FCB2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31914.jpgsave_picture_31914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31914.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 5 November 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31915.jpgsave_picture_31915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31915.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:9D909266FAA1F6E7744BC6B5EAC9E0AEDA628AA8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31916.jpgsave_picture_31916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31916.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:72870D7929308517DED5BE77CAC51B1371C1ECB8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31917.jpgsave_picture_31917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31917.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Шансон премьера 2024 (Лучшие песни) (2025) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31918.jpgsave_picture_31918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31918.jpg" />
 </div>
 
 

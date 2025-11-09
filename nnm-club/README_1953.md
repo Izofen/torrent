@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51135.jpgsave_picture_51135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FA249EB6C0D13AB967A2F0C25E25E53C5E69D117
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51136.jpgsave_picture_51136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51136.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Auslogics BoostSpeed 13.0.0.8 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51137.jpgsave_picture_51137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51137.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AIDA64 Extreme Edition 7.30.6914 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51138.jpgsave_picture_51138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51138.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51139.jpgsave_picture_51139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51139.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3FAD629E883B104FD4C3A6746E7E55A55854FEC5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51140.jpgsave_picture_51140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51140.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6AF70F138B459EE25C87B7D823040F57B398D194
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51141.jpgsave_picture_51141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51141.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dr.Web CureIt! (04.07.2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51142.jpgsave_picture_51142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51142.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Kaspersky Virus Removal Tool (KVRT) 20.0.11.0 (04.07.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51143.jpgsave_picture_51143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51143.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:25C03E40DFC20C1504423390836D8970D5DAE439
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51144.jpgsave_picture_51144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51144.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SlavicPunk: Oldtimer (2023) [Ru/Multi] (1.3.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51145.jpgsave_picture_51145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51145.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ FlashBack 2 (2023) [Multi] (20240521) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51146.jpgsave_picture_51146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51146.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:630159C543696A2713C6B1B62359D70349755579
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51147.jpgsave_picture_51147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51147.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:140ACDDEBD10526D8F9F2B63A54FE31E1D97150B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51148.jpgsave_picture_51148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51148.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:225E1851997CC0C0E8EB9977D2CA46FFA67966D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51149.jpgsave_picture_51149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51149.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Good Company (2020) [Ru/Multi] (1.1.01/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51150.jpgsave_picture_51150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51150.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ KUNAI (2020) [Ru/Multi] (1.0.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51151.jpgsave_picture_51151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51151.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Winkeltje: The Little Shop (2022) [Ru/Multi] (10793/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51152.jpgsave_picture_51152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51152.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:3A0DAD4B90CBDA6C5183B1E1BBAB9C8AF6731E80
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51153.jpgsave_picture_51153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51153.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:4A498508C4F7985C0246D0F398FEE972ADCA1A0A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51154.jpgsave_picture_51154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51154.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ IXION (2022) [Ru/Multi] (1.0.7.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51155.jpgsave_picture_51155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51155.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51156.jpgsave_picture_51156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51156.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:BCA8D94878C8CADBF47EF19DF8CB97031043B62C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51157.jpgsave_picture_51157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51157.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:F85B748D242BDCAE132047B7EDD69A9CB90BC169
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51158.jpgsave_picture_51158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51158.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:5FAE038EC606737C4CCF39F4964B708D3EC31FF8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51159.jpgsave_picture_51159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51159.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:5FAE038EC606737C4CCF39F4964B708D3EC31FF8
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51160.jpgsave_picture_51160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51160.jpg" />
 </div>
 
 

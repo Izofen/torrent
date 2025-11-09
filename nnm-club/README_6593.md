@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211456.jpgsave_picture_211456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211456.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Antivirus Removal Tool 2023.06 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211457.jpgsave_picture_211457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211457.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ StartAllBack 3.6.7 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211458.jpgsave_picture_211458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211458.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E0F81D9BEF366A0C6DAC3180EFA95016D784D403
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211462.jpgsave_picture_211462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211462.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:15CF4923988923361F8B4543B33543220021F7B7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211463.jpgsave_picture_211463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211463.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Microsoft .NET 7.0.7 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211465.jpgsave_picture_211465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211465.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:936ACF1002DE9229DD34CB85494D81D3737CAD7A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211468.jpgsave_picture_211468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211468.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Graebert ARES Commander 2024.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211469.jpgsave_picture_211469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211469.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Google Chrome 114.0.5735.134 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211470.jpgsave_picture_211470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211470.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpgsave_picture_211473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1406) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211474.jpgsave_picture_211474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211474.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Total Commander 11.00 beta7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211477.jpgsave_picture_211477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211477.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ OCCT 12.0.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211481.jpgsave_picture_211481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211481.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - 80s & 90s Party Hits (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211483.jpgsave_picture_211483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211483.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D40B077CA6E8D04E3B985DF5566CE0170208109F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211485.jpgsave_picture_211485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211485.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ LDPlayer 9.0.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211486.jpgsave_picture_211486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211486.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:35F6074B01FADCE57AACC92F1D2A01AE24EC2C9B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211492.jpgsave_picture_211492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211492.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Winaero Tweaker 1.53 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211494.jpgsave_picture_211494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211494.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ StartAllBack 3.6.7 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211495.jpgsave_picture_211495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211495.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ RisohEditor 5.7.7 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211498.jpgsave_picture_211498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211498.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:7B91A0F87386CD6DDF4A24963CD9E88E06F8237D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211500.jpgsave_picture_211500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211500.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ XYplorer 24.50.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211503.jpgsave_picture_211503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211503.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ StartAllBack 3.6.6 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211506.jpgsave_picture_211506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211506.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:28A0A4F8B119567D78F3F82A59CF04A188D0D080
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211510.jpgsave_picture_211510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211510.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Dynasty - Step By Step (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211511.jpgsave_picture_211511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211511.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:07AA1FA041E3C5E8E4C6FEBF4C8F1293D69A74B6
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211513.jpgsave_picture_211513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211513.jpg" />
 </div>
 
 

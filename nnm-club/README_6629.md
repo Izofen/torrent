@@ -6,7 +6,7 @@ VA - WORKOUT: Allenamento Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216284.jpgsave_picture_216284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216284.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Raven - All Hell's Breaking Loose (2023) [FLAC|Lossless|image + .cue] <NWOBHM, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216291.jpgsave_picture_216291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216291.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Heaven's Edge - Get It Right (2023) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216304.jpgsave_picture_216304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216304.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vypera - Race Of Time (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216313.jpgsave_picture_216313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216313.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ GNP - Safety Zone (1989) Reissue, Remastered, 2023, MelodicRock Classics [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216322.jpgsave_picture_216322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216322.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Later Sons - Rise Up (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216327.jpgsave_picture_216327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216327.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ DJ Mix Pads 2 - Remix Version 5.5.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216334.jpgsave_picture_216334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216334.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Urne - A Feast On Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216355.jpgsave_picture_216355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216355.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:447AA3D1E2260281F43E00C78822FFF25750506F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216460.jpgsave_picture_216460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216460.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:515EC453873C789425101A3EF2F5B45AAFAC3A10
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216487.jpgsave_picture_216487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216487.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:7E2B4DD219C76E10F9E0B13C525DD9B05AA41FF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216494.jpgsave_picture_216494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216494.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:F6B6B30CD58CF075DABA55D4E71BC01DFD5557C6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216516.jpgsave_picture_216516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216516.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:9FBF4348C7F13B6B52EE2336C319D462603B471E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216541.jpgsave_picture_216541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216541.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:792CAC15F0FC5FCAAC9D2BDA1F8E0C6D3519F22A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216554.jpgsave_picture_216554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216554.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216573.jpgsave_picture_216573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216573.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Windows 7 (3in1) x64 by Updated Edition (10.08.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216580.jpgsave_picture_216580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216580.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:68E034F36AAAF64B703D8E4A625942F90E93EBF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216598.jpgsave_picture_216598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216598.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Party Nacht 2024 (2023) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216691.jpgsave_picture_216691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216691.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:1F93956C52D57D49BECEF15AD8A93854A4465085
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216704.jpgsave_picture_216704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216704.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hanoi Rocks - Up Around the Bend: The Definitive Collection (2004) 2CD, Compilat
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216713.jpgsave_picture_216713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216713.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ DesktopOK 11.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216720.jpgsave_picture_216720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216720.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:36FDB9FAAF6AECB09C2174A6435C3765C69A9FAE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216725.jpgsave_picture_216725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216725.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Room Arranger 9 v.9.7.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216738.jpgsave_picture_216738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216738.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:D45A853FC3155451D214C372E203F3BCAA108965
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216750.jpgsave_picture_216750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216750.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:57B1A0C7CEE18458D6B30CD4D51E8E295782761A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216758.jpgsave_picture_216758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216758.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Tarja Turunen - Rocking Heels (Live at Metal Church) (2023) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216763.jpgsave_picture_216763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216763.jpg" />
 </div>
 
 

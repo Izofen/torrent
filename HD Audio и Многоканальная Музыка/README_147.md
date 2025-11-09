@@ -6,7 +6,7 @@ U.D.O. - Mastercutor (2007) Released, 2010, Night Of The Vinyl Dead Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110914.jpgsave_picture_110914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110914.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kickin Valentina - Star Spangled Fist Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110917.jpgsave_picture_110917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110917.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Accept - Humanoid (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110927.jpgsave_picture_110927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110927.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Shawn Kellerman - Kell's Kitchen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110961.jpgsave_picture_110961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110961.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Brace For War - Chromium Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110965.jpgsave_picture_110965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110965.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110968.jpgsave_picture_110968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110968.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jean-Jacques Milteau - Key To The Highway (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110970.jpgsave_picture_110970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110970.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Roy Poulton Blues Band - Bluesbeard (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110971.jpgsave_picture_110971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110971.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grackles - Grackles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110972.jpgsave_picture_110972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110972.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mike Fisher - 12 Days of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110974.jpgsave_picture_110974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110974.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110975.jpgsave_picture_110975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110975.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Brian Stoltz - New World Rising (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110977.jpgsave_picture_110977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110977.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Nicholas Alexander - Lil Hoochie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110978.jpgsave_picture_110978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110978.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Scott H. Biram - The One & Only Scott H. Biram (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110980.jpgsave_picture_110980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110980.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bronze - In Chains and Shadows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110982.jpgsave_picture_110982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110982.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ U.D.O. - Thunderball (2004) Released, 2012, Night Of The Vinyl Dead Records [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111022.jpgsave_picture_111022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111022.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chicago Mike Beck - LOVE! It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111035.jpgsave_picture_111035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111035.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Vanessa Peters - Flying On Instruments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111036.jpgsave_picture_111036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111036.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Praying Mantis - Defiance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111039.jpgsave_picture_111039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111039.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Pontchartrain Shakers - Pontchartrain Shakers (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111040.jpgsave_picture_111040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111040.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Arne Skage - Rootwork (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111043.jpgsave_picture_111043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111043.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Guenna - Peak of Jin'Arrah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111044.jpgsave_picture_111044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111044.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Die Ballista - Burial Bell (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <doommet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111045.jpgsave_picture_111045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111045.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mayinbo - Poetry in Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111053.jpgsave_picture_111053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111053.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ U.D.O. - Holy (1999) [APE|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111059.jpgsave_picture_111059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111059.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Angela Grey - Prisoner of Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111060.jpgsave_picture_111060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111060.jpg" />
 </div>
 
 

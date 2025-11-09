@@ -6,7 +6,7 @@ Martha Reeves - Gotta Keep Moving (1980) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231112.jpgsave_picture_231112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231112.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Keep It 2.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231114.jpgsave_picture_231114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231114.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:97FD589CA18C2154EC511FFEA34F081C0C6DBB08
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231115.jpgsave_picture_231115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231115.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:949A9ED58A27DB1AAE427EDC5D460417EC54173B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231116.jpgsave_picture_231116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231116.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Cardhop 2.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231117.jpgsave_picture_231117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231117.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Telegram Desktop 4.8.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231118.jpgsave_picture_231118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231118.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1E2E5BA7953D795CF49368B6354D98F353567EC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231119.jpgsave_picture_231119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231119.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:BFC124B1652F94470DFF07E6B04FD90A3D33D480
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231121.jpgsave_picture_231121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231121.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VueScan Pro 9.8.03 (01.06.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231122.jpgsave_picture_231122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231122.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Nessa Barrett - hell is a teenage girl (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231123.jpgsave_picture_231123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231123.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ AI Transcription 1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231124.jpgsave_picture_231124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231124.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ WinUtilities Professional 15.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231126.jpgsave_picture_231126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231126.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Rocky Pamplin - Rock (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231127.jpgsave_picture_231127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231127.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:368981ABAED5CB9CA47022AF8DCCEDC0EC7189EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231129.jpgsave_picture_231129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231129.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Sung - Metal Age (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dar
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231130.jpgsave_picture_231130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231130.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lachaise - In a State of Oblivion (2012) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231131.jpgsave_picture_231131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231131.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:F1CA71098D77A2E824E71AAE1E6E0AB9A130EEB1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231133.jpgsave_picture_231133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231133.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Decimator - Carnage City State Mosh Patrol (1989) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231135.jpgsave_picture_231135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231135.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Sophie Ellis-Bextor - HANA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231136.jpgsave_picture_231136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231136.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Luminous - Poweramp Skin 8.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231137.jpgsave_picture_231137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231137.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Mystfall - Celestial Vision (2023) [MP3|320 Kbps] <Symphonic Metal, Gothic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231138.jpgsave_picture_231138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231138.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Pixelmator Pro 3.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231139.jpgsave_picture_231139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231139.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Crossing Eternity - The Rising World (2018) [FLAC|Lossless|image + .cue] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231142.jpgsave_picture_231142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231142.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ghost Buster Pro 2.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231143.jpgsave_picture_231143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231143.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Oxbow - Love's Holiday (2023) [MP3|320 Kbps] <Art-Rock, Post-Rock, Noise Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231144.jpgsave_picture_231144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231144.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:E8A933E4DABCE2D7787B6601D50A776C7E56DB8C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231145.jpgsave_picture_231145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231145.jpg" />
 </div>
 
 

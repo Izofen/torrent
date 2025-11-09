@@ -6,7 +6,7 @@ Capture One 23 Pro 16.2.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211518.jpgsave_picture_211518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211518.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:AE755FCBC64E85C6A833693E10C8BC24BD9CADEA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211521.jpgsave_picture_211521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211521.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:CEF7543D648BED8C4AC80BF80385E8CF761AD7C7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211522.jpgsave_picture_211522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211522.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E2969D51C486CE7D25007B22B1F608139736839A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211524.jpgsave_picture_211524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211524.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D3195A585F7AC52BB374E8E68F306F94005F9A26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211526.jpgsave_picture_211526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211526.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:D864ABF86E6AA3D73042B17E5D390BAF2400440B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211529.jpgsave_picture_211529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211529.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ NVIDIA GeForce Desktop Game Ready 536.23 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211531.jpgsave_picture_211531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211531.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:5812BE2A51A7B9B227000BE4D8A9001E9B15C16D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211532.jpgsave_picture_211532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211532.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ LibreOffice 7.5.4.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211536.jpgsave_picture_211536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211536.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Google Chrome 114.0.5735.134 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211538.jpgsave_picture_211538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211538.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PrivaZer Pro 4.0.75 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211540.jpgsave_picture_211540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211540.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Icecream Screen Recorder PRO 7.25 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211542.jpgsave_picture_211542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211542.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:D95530F3FD989BA95F6E2AFE91E05FF2C7FA0F40
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211543.jpgsave_picture_211543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211543.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:5D76F5E110EBCA861A933135B61CCE3A343A29A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211547.jpgsave_picture_211547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211547.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:FBE6C65ADD15B298D2F0BB88E1FA749231CC5854
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211550.jpgsave_picture_211550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211550.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:7F53FF2AE264B5A9AB691A02A4291A034187BF62
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211552.jpgsave_picture_211552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211552.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:36A06D85D1B74AB91244D084D3E291D9BF971D83
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211555.jpgsave_picture_211555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211555.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ WinToUSB Technician 8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211556.jpgsave_picture_211556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211556.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ DAEMON Tools Lite 11.2.0.2080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211558.jpgsave_picture_211558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211558.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Windows 11 Manager 1.2.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211560.jpgsave_picture_211560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211560.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B96223412C7BD0374B797D3A26CBEAD25C806075
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211562.jpgsave_picture_211562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211562.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Imminent Reign - The Legend of Prometheus (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211565.jpgsave_picture_211565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211565.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Play - Rock Ballads (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211566.jpgsave_picture_211566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211566.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:B1552907FA60CF5E8A77A819600D15B68C4FDDDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211569.jpgsave_picture_211569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211569.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Topaz Video AI 3.2.9 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211571.jpgsave_picture_211571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211571.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:C2909EF8414BB6FBFA13D4E76544C71DF17B2A75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211572.jpgsave_picture_211572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211572.jpg" />
 </div>
 
 

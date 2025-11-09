@@ -6,7 +6,7 @@ City Navigator Thailand NT 2017.40 (Dual) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137990.jpgsave_picture_137990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137990.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5ECECF8F4AC54BD51EE855AEDC7BFE1B02A53DF2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137991.jpgsave_picture_137991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137991.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ William Shatner - Shatner Claus (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137992.jpgsave_picture_137992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137992.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MiniTool Partition Wizard Technician 12.3 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137993.jpgsave_picture_137993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137993.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:163D47C5175CB2207CA059EA3284750F283843EA
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137994.jpgsave_picture_137994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137994.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9161BFA4E1DB358A6980D14810C55262D0168BAF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137995.jpgsave_picture_137995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137995.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ High-Logic FontCreator Professional 15.0.0.2951 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137996.jpgsave_picture_137996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137996.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B1C15929CFFA7A343BFE62F3026DE6079AC089F9
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137997.jpgsave_picture_137997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137997.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B6E43265D74DABFCE2D98A2AD759225F70C70DF7
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137998.jpgsave_picture_137998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137998.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B9DF0B17E6DD0B06DAA5387A2F512A37CE65B9A8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138001.jpgsave_picture_138001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138001.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Comedy Woman. Новогодний выпуск (2016.12.31) WEB-DL [H.264/720p-
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138002.jpgsave_picture_138002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138002.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:230A230F899A4193A9D2B8DD5564D240D7DDBFDA
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138003.jpgsave_picture_138003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138003.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:3933455167D7D0C888459366E046A70CC6CBA9B3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138004.jpgsave_picture_138004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138004.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ PictureThis - Plant Identification v3.70 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138005.jpgsave_picture_138005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138005.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Iron Goddess: Experimental (2018) [MP3|320 Kbps] <Ambient, Electronic, Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138006.jpgsave_picture_138006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138006.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:6CAE5691E46D32437E2BB3E5D21C9951971442E7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138007.jpgsave_picture_138007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138007.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AA097802944A6C20A95DEF71EAFD203DBC7AA901
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138008.jpgsave_picture_138008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138008.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:69F22D16A0F708F3CEE98EB7882AEB2BF405F5D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138009.jpgsave_picture_138009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138009.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:123DB8F2BB5F0466343489B1D49AAA6D3FBBA3C7
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138011.jpgsave_picture_138011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138011.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:CB6DEFD6ACA52F865CC35F7F276D63F177334D23
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138012.jpgsave_picture_138012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138012.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:7E6AB173D8209830EAB8687336CDD0FD3760D0F3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138013.jpgsave_picture_138013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138013.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:08CDB3B01133F7774218F22FB77387E3EE0598F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138014.jpgsave_picture_138014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138014.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ The Shapeshifters - Let Loose (2022) Deluxe Edition, 2023, Glitterbox Recordings
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138018.jpgsave_picture_138018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138018.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:EC10AB3CAC5EFB2ECA89DBFEA4E2DC95E46E25A4
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138019.jpgsave_picture_138019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138019.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:FDC59E6B52FF80AC91ECB69FBDE1AEE8DA66731C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138020.jpgsave_picture_138020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138020.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:ABD30127B5461BA9705742DF059BE70D724C0240
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138021.jpgsave_picture_138021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138021.jpg" />
 </div>
 
 

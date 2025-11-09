@@ -6,7 +6,7 @@ Firefox Browser ESR 102.11.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244504.jpgsave_picture_244504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244504.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Paw (HTTP & REST Client) 3.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244505.jpgsave_picture_244505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244505.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Laurent de Wilde - The Present (2006) Nocturne[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244506.jpgsave_picture_244506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244506.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5690F08CDB350ADF69BFF8780BE94D4817B3A736
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244507.jpgsave_picture_244507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244507.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ The Cash Box Kings - Oscar's Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244509.jpgsave_picture_244509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244509.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Antim Grahan - Goat Legion (2023) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244510.jpgsave_picture_244510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244510.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:9387C4B06D163AF7CD5BD30FDD89EEE76EC32127
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244511.jpgsave_picture_244511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244511.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:BA501CAF2B4F02AE453776CD0B64C50FEAB344AE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244512.jpgsave_picture_244512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244512.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ RadioMaximus 2.31.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244513.jpgsave_picture_244513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244513.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Freshly Brewed Vol.1 (Fresh Lounge & Chill Tunes) (2016) [MP3|320 Kbps] <Ba
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244514.jpgsave_picture_244514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244514.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Glary Tracks Eraser 5.0.1.258 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244515.jpgsave_picture_244515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244515.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:BBF40592F6CA7A8A853DB3A164D2E67F43F67096
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244516.jpgsave_picture_244516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244516.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Самые сливки шансона (2001) [FLAC|Lossless|tracks + .cue]
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244517.jpgsave_picture_244517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244517.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Spotify 1.1.90.859 Portable by JolyAnderson [En/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244518.jpgsave_picture_244518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244518.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Marco Garau's Magic Opera - 2 Albums (2021-2023) [MP3|320 Kbps] <Symphonic Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244519.jpgsave_picture_244519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244519.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:C8A81EE261DD548EBFB203F0F47302E296318B72
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244520.jpgsave_picture_244520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244520.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Jon Oliva's Pain - 'Tage Mahal (2004) Japan [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244521.jpgsave_picture_244521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244521.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Mystera (1998) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244522.jpgsave_picture_244522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244522.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:DA5A48CD6021808015B1BE2D1C02C739617DA6BE
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244523.jpgsave_picture_244523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244523.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ JJOS - Discography 94 Releases (2011-2022) [MP3|320 Kbps] <Ambient, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244524.jpgsave_picture_244524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244524.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:3DA8893F3A23815B7F5635B50F9FA9333AEA4479
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244525.jpgsave_picture_244525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244525.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:AD60B5FDC8F34BB37232BE600CDEC8CD7AD29588
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244526.jpgsave_picture_244526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244526.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Sonny Criss - The Beat Goes On! (1968) 2000, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244527.jpgsave_picture_244527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244527.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - German Top 100 Single Charts 11.02.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244528.jpgsave_picture_244528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244528.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Elmo Hope - Trio And Quintet (1953 - 1957) 1991, Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244529.jpgsave_picture_244529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244529.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Equipoise - Demiurgus (2019) [MP3|320 Kbps] <Technical Death Metal, Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244530.jpgsave_picture_244530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244530.jpg" />
 </div>
 
 

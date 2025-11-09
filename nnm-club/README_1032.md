@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27182.jpgsave_picture_27182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27182.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D463760AA32CAE4955BE74467664FA7C42B6D008
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27183.jpgsave_picture_27183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27183.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C66F155C7ABC7C0482E76A8421DDE25DB5106BC1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27184.jpgsave_picture_27184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27184.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows Server [10.0.25398.1425], version 23H2 (Updated February 2025) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27185.jpgsave_picture_27185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27185.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vertical Kingdom (2024) [Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27186.jpgsave_picture_27186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27186.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C5711D5FCFFADF28D6187DAD79B13820946A07AC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27187.jpgsave_picture_27187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27187.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0881BF5F14444FC87F3E7063193817E8A28A325B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27188.jpgsave_picture_27188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27188.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ JUG Ru Group | Java-конференция для опытных разрабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27189.jpgsave_picture_27189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27189.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Grand Mountain Adventure 2 v1.010 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27190.jpgsave_picture_27190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27190.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A03C613981BDAEB6A7BB9F28C5FF29FC1F03F450
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27191.jpgsave_picture_27191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27191.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:202A395EB7138EE47DEA35A645304BDA45B861E1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27192.jpgsave_picture_27192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27192.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microsoft Windows 11 [10.0.22631.4890], Version 23H2 (Updated February 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27193.jpgsave_picture_27193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27193.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:21F8A949356D85C54E8EE07458823AE794C4F5C4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27194.jpgsave_picture_27194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27194.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27195.jpgsave_picture_27195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27195.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:07162D7BE0C1F068EEE364AA1D6139AB76BFB5D3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27196.jpgsave_picture_27196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27196.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:1B129E4B1B06F4F2F9811F011A8EAA25CA7D0965
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27197.jpgsave_picture_27197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27197.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:9EA200A232AFE60C00582E08E655D46290F86353
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27198.jpgsave_picture_27198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27198.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:F4EA65E0FED5967240D76E7E703B65F039C6DE24
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27199.jpgsave_picture_27199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27199.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Blondie & Deborah Harry - Compilation (1976-2017) [MP3|320 Kbps] <New wave, Pop 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27200.jpgsave_picture_27200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27200.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:E95143029E03609D7BE1F2D31029339180EDB8A7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27201.jpgsave_picture_27201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27201.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:DA96BBA8AB94E17DDA37CF4E604888C2EC619D25
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27202.jpgsave_picture_27202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27202.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Serial Cleaner v1.1.8 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27203.jpgsave_picture_27203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27203.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:083C3BC8BBDDECA771E3EDB447073DB837F7177D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27204.jpgsave_picture_27204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27204.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:0F0462A0533DFDF993E84B5B5984F595F2E3C763
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27205.jpgsave_picture_27205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27205.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Castle Crashers (2012) [Ru/Multi] (2.9/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27206.jpgsave_picture_27206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27206.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:CFAC107121B88DCF2D7F18F222D394F67DD17710
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27207.jpgsave_picture_27207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27207.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ SpeakMe 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153664.jpgsave_picture_153664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153664.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D2FFF85D22F5212E5A51BBF6F2A1FAD3FDF8FD7
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153665.jpgsave_picture_153665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153665.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:60EE46C6A52F72E3A68338B4F9CBE96BB03507ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153666.jpgsave_picture_153666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153666.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5B2E1699174BF06F7B7CA833024769D8905E2060
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153667.jpgsave_picture_153667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153667.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ DropDMG 3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153668.jpgsave_picture_153668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153668.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:76BDFA0C0301CBCDFD442FE29964D86B2616B633
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153669.jpgsave_picture_153669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153669.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153670.jpgsave_picture_153670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153670.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8B0047C7A01048C0FBE36258994E1910CFD19A93
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153671.jpgsave_picture_153671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153671.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:209D9723721CF95AB7778C959C43CFC034EC86D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153672.jpgsave_picture_153672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153672.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Autonauts (2019) [Ru/Multi] (140.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153673.jpgsave_picture_153673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153673.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Nisus Writer Pro 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153674.jpgsave_picture_153674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153674.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:BF2FAA552D2CDDA884FD1079E676251087921337
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153675.jpgsave_picture_153675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153675.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:437FBAC18E6A0263BCA27A31738DDB691D9A2B3C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153676.jpgsave_picture_153676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153676.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:68D427C90225CA288BE8F72C86FD8F578A70E186
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153677.jpgsave_picture_153677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153677.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:FFF13783802D163040968D49B3C0AA119D6AED26
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153678.jpgsave_picture_153678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153678.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:0063D3F4CE1E3DE53F03AD89E0C3A30EEA777D17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153679.jpgsave_picture_153679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153679.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Aversion To Life - Ritualized Murder (2006) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153680.jpgsave_picture_153680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153680.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.14986 - Оригинальные
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153681.jpgsave_picture_153681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153681.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Pink Floyd - Live at the Rainbow Theatre, London 1972-02-19 (1972) [FLAC 2.0|44/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153682.jpgsave_picture_153682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153682.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Currency Assistant 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153683.jpgsave_picture_153683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153683.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:4C9CF71A5BF53FF821CCC0F8872EA6968C3B015F
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153684.jpgsave_picture_153684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153684.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Total Commander 11.02 Final - Titan v31 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153686.jpgsave_picture_153686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153686.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:7A35E1451A670888BF9F028CFF048B3A813B67D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153687.jpgsave_picture_153687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153687.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ InfoClick 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153688.jpgsave_picture_153688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153688.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ MAGIX Vegas Pro 19.0.0.458 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153689.jpgsave_picture_153689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153689.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:90210DB9527156A4D7A8B12E17DED4DE3F1D1D5D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153690.jpgsave_picture_153690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153690.jpg" />
 </div>
 
 

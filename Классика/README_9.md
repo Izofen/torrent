@@ -6,7 +6,7 @@ VA - The Best 50 of Romantic Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241503.jpgsave_picture_241503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241503.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Relaxing Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241831.jpgsave_picture_241831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241831.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rudolf Buchbinder, Strauss, Schubert, Schumann, Beethoven, Chopin - Soirèe De V
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244009.jpgsave_picture_244009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244009.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Johann Sebastian Bach, Bernard Foccroulle - Toccaten & Passacaglia (2008) Reissu
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245218.jpgsave_picture_245218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245218.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249458.jpgsave_picture_249458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249458.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [F
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251122.jpgsave_picture_251122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251122.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Nebelkorona - 3 albums (2006-2010) [FLAC|Lossless] <Neoclassical, Ambient, Neofo
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251123.jpgsave_picture_251123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251123.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Ne
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251372.jpgsave_picture_251372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251372.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252326.jpgsave_picture_252326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252326.jpg" />
 </div>
 
 

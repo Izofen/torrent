@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124256.jpgsave_picture_124256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124256.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6DD9F1E3BBDDEF349A8DF2CEE4FD37B531D5332B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124257.jpgsave_picture_124257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124257.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E387216ADFC5B09689F67E28A823FA9B07F4E0C8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124258.jpgsave_picture_124258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124258.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2E1D30B09F1A560D5774752006E7BB2FDBE6818C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124259.jpgsave_picture_124259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124259.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:44CE007B368A209900A0C12762FE371FDCC29848
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124260.jpgsave_picture_124260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124260.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Scott Pilgrim Takes Off | Скотт Пилигрим жмёт на газ [2023
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124261.jpgsave_picture_124261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124261.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Volume2 1.1.8.465 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124262.jpgsave_picture_124262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124262.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:B44F58D2A9FF24FE1898E499C924BE3BF8300AC5
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124263.jpgsave_picture_124263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124263.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Camera Translator / Переводчик камеры v2.1.6 Mod by vadj [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124264.jpgsave_picture_124264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124264.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ SnapEdit - AI photo editor 5.5.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124265.jpgsave_picture_124265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124265.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mashafotoblog, Маша | Мобильная фотосъемка и обраб�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124266.jpgsave_picture_124266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124266.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B98D41FC0F5B67F31215175713347533D1ACB6FC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124267.jpgsave_picture_124267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124267.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Defender Remover Portable 12.6.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124268.jpgsave_picture_124268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124268.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DefenderKiller 11.0.9 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124269.jpgsave_picture_124269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124269.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:E3BFDF8F5F3EDC064C42D4AFC3524868612F4EA9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124270.jpgsave_picture_124270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124270.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:5C9EA6679C98AB549B8721135AB327D5534885B2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124271.jpgsave_picture_124271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124271.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:EA5EAEBBB4DDD3609C5D55D4DADBC72100C0368D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124272.jpgsave_picture_124272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124272.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AEA0110F0AF590C53F3884D0B7C6CD8E5CB35A31
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124273.jpgsave_picture_124273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124273.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:504752F0837364DC8968CCCED126841BA24ED08E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124274.jpgsave_picture_124274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124274.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:AA4DC0382AA43C35DC6EE14DD344557BD16046F0
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124275.jpgsave_picture_124275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124275.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:A664C3D3579D42035CBFC654A6580F5AF8673DCB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124276.jpgsave_picture_124276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124276.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:4F4296AC16BCD662FC42E894237CE7D9E4B21C41
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124277.jpgsave_picture_124277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124277.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:22F8C7146078FE26E93B73569B8EB733AB863A0E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124278.jpgsave_picture_124278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124278.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:9540142F415379873DB532D936D05D98FB3F3F27
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124279.jpgsave_picture_124279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124279.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ PortScan & Stuff 1.97 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124280.jpgsave_picture_124280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124280.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Megacubo 17.3.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124282.jpgsave_picture_124282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124282.jpg" />
 </div>
 
 

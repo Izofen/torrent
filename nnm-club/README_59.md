@@ -6,7 +6,7 @@ Bad Wolves - Die About It (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1571.jpgsave_picture_1571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1571.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brandon Isaak - Walkin' With The Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1572.jpgsave_picture_1572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1572.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sakura - Матрос на стройке (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1573.jpgsave_picture_1573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1573.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Band Of Friends - Ballroom Of Dreams - Band Of Friends - Ballroom Of Dreams (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1574.jpgsave_picture_1574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1574.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jelusick - Apolitical Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1575.jpgsave_picture_1575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1575.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Daisychain - All In A Name (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1576.jpgsave_picture_1576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1576.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:1C994CB40A96B8EFF4E201BDAF971E648039D5D7
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1577.jpgsave_picture_1577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1577.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sleepwell Citizen - This Is Only A Test (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1578.jpgsave_picture_1578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1578.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:ACAE3BA81F5B03A1533E2EE3183A4F46EA1BB9BF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1579.jpgsave_picture_1579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1579.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1580.jpgsave_picture_1580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1580.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Few Miles On - Mother Lode (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1581.jpgsave_picture_1581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1581.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Take it Down - Культ (2025) [MP3|320 Kbps] <technical deathcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1582.jpgsave_picture_1582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1582.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mike Tramp - Songs Of White Lion, Vol. III (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1583.jpgsave_picture_1583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1583.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Damiano David - FUNNY little FEARS (DREAMS) (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1584.jpgsave_picture_1584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1584.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Robin Ross - Robin Ross & The Bluesberry Jam (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1585.jpgsave_picture_1585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1585.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1586.jpgsave_picture_1586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1586.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1587.jpgsave_picture_1587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1587.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1588.jpgsave_picture_1588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1588.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a008, Bonus] (2012-2025) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1589.jpgsave_picture_1589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1589.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [b003, Bonus] (2012-2025) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1590.jpgsave_picture_1590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1590.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:DAC2D74636EBB855DDB971F817223D77747D822B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1591.jpgsave_picture_1591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1591.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a004] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1592.jpgsave_picture_1592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1592.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:1F51571DC21FAC75819C7979C4DF591CA7FCB615
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1593.jpgsave_picture_1593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1593.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a005] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1594.jpgsave_picture_1594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1594.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a006] (2012-2025) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1595.jpgsave_picture_1595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1595.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:A499D5CA632AC7339B67CC7D07B24019E2DAA324
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1596.jpgsave_picture_1596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1596.jpg" />
 </div>
 
 

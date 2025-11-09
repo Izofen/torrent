@@ -6,7 +6,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22023.jpgsave_picture_22023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22023.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C37BDB123B1F90B15BBE6CC463AA0CDA1740F6BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22024.jpgsave_picture_22024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22024.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10407.714/dlc) Repack seleZen 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22025.jpgsave_picture_22025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22025.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rufus 4.7 (Build 2231) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22026.jpgsave_picture_22026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22026.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5737 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22027.jpgsave_picture_22027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22027.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:001AFE0C40C3EC5904BDB7C1572170A2F9FDCB9A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22028.jpgsave_picture_22028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22028.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2C9C384A8040AB08307B3BF0BA8DF409569224FE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22029.jpgsave_picture_22029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22029.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:CA775792755EA6D303E479CD9323231AC07864A3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22030.jpgsave_picture_22030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22030.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BCF91E0E11B930E5FAA8913D3FC2519C69A110B4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22031.jpgsave_picture_22031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22031.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:BCF91E0E11B930E5FAA8913D3FC2519C69A110B4
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22032.jpgsave_picture_22032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22032.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:380BDFCFC4AFAE8D88053D31DCC31A6147927735
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22033.jpgsave_picture_22033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22033.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:24BB4B49089B89306876047A08BC3BB2CB9C3AF7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22034.jpgsave_picture_22034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22034.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3F5A45FD8FA1DE96A5001C5D9BD763CD000C0A5A
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22035.jpgsave_picture_22035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22035.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:86927A18633247823FC911A1E12E875DEB326272
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22036.jpgsave_picture_22036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22036.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22037.jpgsave_picture_22037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22037.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C43ADC01682BE6FC85FAAC148A93FE8BB879EFC2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22038.jpgsave_picture_22038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22038.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:590035FACC10E7FF7ADCE056254F3C330ACEA111
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22039.jpgsave_picture_22039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22039.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:D251468FB89E2BDA02BFEEA3F4906F0CAF899A32
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22040.jpgsave_picture_22040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22040.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Factory Outlet Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22041.jpgsave_picture_22041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22041.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:2C8129B133B8895638192928D7B691B39C51B2DA
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22042.jpgsave_picture_22042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22042.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:00754FB30CF5705F0E54C939CFAE5E7634EA8320
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22043.jpgsave_picture_22043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22043.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:638802F175E6D1D7CFDF692F6A95D618597BD235
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22044.jpgsave_picture_22044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22044.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:2F2D2D2807BC2DA144E534A6A5051A5C40B8FE75
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22045.jpgsave_picture_22045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22045.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:912FA1377E621C4880C6B75B17DC34C51BFA906B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22046.jpgsave_picture_22046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22046.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 3 | Thunderbolt Fantasy: Sword Seekers 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22047.jpgsave_picture_22047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22047.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Shazam v15.16.0-250327 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22048.jpgsave_picture_22048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22048.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ IObit Driver Booster Pro 11.1.0.26 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165096.jpgsave_picture_165096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165096.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E3C7FDA06E3AD25FB29E2228FE5CB119D3787E4B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165097.jpgsave_picture_165097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165097.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9996E1C6224F0D5EE25FA480EA82D0D0E036C925
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165098.jpgsave_picture_165098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165098.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ GProject Blues Band - We're Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165099.jpgsave_picture_165099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165099.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1BA43D42897D0A231F650A048A3D645CD7CD28D0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165100.jpgsave_picture_165100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165100.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Firefox Browser ESR 102.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165101.jpgsave_picture_165101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165101.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CF014C3E93EC3238B88331C50E6D7358FB32F400
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165102.jpgsave_picture_165102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165102.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FD7CF2A7B3EE0E2F1CDFF0235106075701F9C402
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165103.jpgsave_picture_165103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165103.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:858EA4BE6808B0F0DD8B9B8E991A7E4FD625F9CF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165104.jpgsave_picture_165104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165104.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Richard Madden - Second Nature (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165105.jpgsave_picture_165105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165105.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Microsoft PowerToys 0.75.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165106.jpgsave_picture_165106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165106.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - MNM Big Hits - Best Of 2019 (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165107.jpgsave_picture_165107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165107.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cristiano Filippini's FLAMES OF HEAVEN - The Force Within (2020) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165108.jpgsave_picture_165108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165108.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bello Band - Who Cares...? (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165109.jpgsave_picture_165109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165109.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Easy Data Transform 1.38.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165110.jpgsave_picture_165110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165110.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ IObit Driver Booster Pro 11.1.0.26 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165111.jpgsave_picture_165111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165111.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:97882B3E7BEDD63B71250EECEDDAA579A6C0D033
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165112.jpgsave_picture_165112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165112.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Enhanced Music Best Of (Mixed by Tritonal) (2022) [MP3|320 Kbps] <Trance, P
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165113.jpgsave_picture_165113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165113.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VideoDuke 1.5 (build 257) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165114.jpgsave_picture_165114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165114.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165116.jpgsave_picture_165116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165116.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Moderator - The Mosaics (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumen
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165117.jpgsave_picture_165117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165117.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Room Arranger 9.6.0.621 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165118.jpgsave_picture_165118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165118.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:07144151CACD034F5EDC883CC328CC99D6850607
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165119.jpgsave_picture_165119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165119.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Black Hole Trance Music 12-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165120.jpgsave_picture_165120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165120.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Ve
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165121.jpgsave_picture_165121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165121.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:94B3132B01F181B3FA59E88A80044E89DB8D3F74
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165122.jpgsave_picture_165122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165122.jpg" />
 </div>
 
 

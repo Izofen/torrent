@@ -6,7 +6,7 @@ Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126863.jpgsave_picture_126863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126863.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126864.jpgsave_picture_126864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126864.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BA0A416D32B47335542B674AAA5ED3A91CFF0809
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126865.jpgsave_picture_126865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126865.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gluecifer - B Sides and Rarities 1994-2005 (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126866.jpgsave_picture_126866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126866.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:4AE84B632F574DD130CB69E57B34179138F13B82
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126867.jpgsave_picture_126867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126867.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Pharoah Sanders Quartet - Live at Fabrik, Hamburg (1980) 2023, Jazzline [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126868.jpgsave_picture_126868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126868.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126869.jpgsave_picture_126869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126869.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Rock Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126870.jpgsave_picture_126870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126870.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:BAD40613E4B5BE4CC9D9FA93021CAC77798C248D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126871.jpgsave_picture_126871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126871.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:914577EA535F104BF87505FF7C9C787088C4C854
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126872.jpgsave_picture_126872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126872.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Sunday Night Blues, Pt.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126873.jpgsave_picture_126873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126873.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:C00AB5256C68AED4DAC86106093613202432DCED
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126874.jpgsave_picture_126874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126874.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:6F6AB7449E452C5BBD35BFC1D8A70358E4CD8506
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126875.jpgsave_picture_126875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126875.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:0A7016F686165BAFB60BDEA3B1D0C33D8B67A8A5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126876.jpgsave_picture_126876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126876.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ TV Girl - French Exit (2014) Digital Album [MP3|320 Kbps] <Hypnotic Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126877.jpgsave_picture_126877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126877.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:5195E8950A7958002B4FE2AE13A19D34B98A34EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126878.jpgsave_picture_126878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126878.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:9D7F843FFE9162C9F592BFC79742417C3C93D81D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126879.jpgsave_picture_126879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126879.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Stilz - Vision (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126880.jpgsave_picture_126880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126880.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Electus - Episode IV (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126881.jpgsave_picture_126881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126881.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Natalie Antares - Выдохнуть (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126882.jpgsave_picture_126882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126882.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ George Gee Swing Orchestra - Winter Wonderland (2023) Self-Released [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126883.jpgsave_picture_126883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126883.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:E5188D509535CEE5AA4A1D82D56CAF192E7A7DDE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126884.jpgsave_picture_126884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126884.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:6D5BDC387F541EC71350065B18BED78445E2CAD5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126885.jpgsave_picture_126885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126885.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Electus - Episode IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126886.jpgsave_picture_126886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126886.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Christian Sands - Christmas Stories (2023) Mack Avenue Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126887.jpgsave_picture_126887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126887.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Jollo - Ведьма (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126888.jpgsave_picture_126888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126888.jpg" />
 </div>
 
 

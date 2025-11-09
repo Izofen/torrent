@@ -6,7 +6,7 @@ MaxCommander 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148719.jpgsave_picture_148719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148719.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3D3D60746A3FACC75F520D0B4876B02FAB33EA48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148720.jpgsave_picture_148720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148720.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1AD91091A0660D43A8E7F45D57F59E5887BBEE11
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148722.jpgsave_picture_148722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148722.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3C7A8456D325FB394AF5F73DD9A0928E4E4AC4C0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148723.jpgsave_picture_148723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148723.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ QuarkXPress 2019 15.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148724.jpgsave_picture_148724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148724.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Money Pro 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148725.jpgsave_picture_148725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148725.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Disk Clean Pro 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148726.jpgsave_picture_148726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148726.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B764FE6E23AD022E2FDBE5B0B33F8188D5E76847
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148727.jpgsave_picture_148727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148727.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:629657E2F876DD73BCDCA95B377A9DC50A485745
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148728.jpgsave_picture_148728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148728.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:5798CCCBED0E4E04F9FE3ACFDE2ADF5EB48E3187
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148729.jpgsave_picture_148729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148729.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D82775F59F402C5E0B45ABFEBEFE82FB53E122DA
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148730.jpgsave_picture_148730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148730.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Speed is not for everyone (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148731.jpgsave_picture_148731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148731.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148732.jpgsave_picture_148732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148732.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148733.jpgsave_picture_148733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148733.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:4F68958C895AAC78D1D1C0AA430CAFE6732D04C9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148734.jpgsave_picture_148734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148734.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:8C1CBB4502886A7B3FD9B8BA1F7E84213A0BCA78
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148736.jpgsave_picture_148736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148736.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ AnyMP4 Mac Blu-ray Player 6.3.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148737.jpgsave_picture_148737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148737.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - The Ratpack At Christmas (2012) [MP3|320 Kbps] <Jazz, Pop, Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148738.jpgsave_picture_148738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148738.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:9D56494D672B2EE90DAF0DE0C0CB9847F06EDC63
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148739.jpgsave_picture_148739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148739.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:8A5D9B79A44943B8E315123822C56EE894645D28
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148740.jpgsave_picture_148740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148740.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:976F9D70A0A915C16CA235EBFDBA8096460C0D6E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148741.jpgsave_picture_148741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148741.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:976F9D70A0A915C16CA235EBFDBA8096460C0D6E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148742.jpgsave_picture_148742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148742.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Nicky Romero & Laidback Luke - Live @ Avicii Tribute Concert, Friends Arena Stoc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148743.jpgsave_picture_148743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148743.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148744.jpgsave_picture_148744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148744.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:59F1C9528934CB0B072C3F5B2822144A19095F92
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148745.jpgsave_picture_148745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148745.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ The Michael Brecker Band - Live (1993) Jazz Door [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148746.jpgsave_picture_148746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148746.jpg" />
 </div>
 
 

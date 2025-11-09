@@ -6,7 +6,7 @@ Hardwell - Hardwell On Air 095 (21.12.2012) [MP3|320 кб/с]<Trance, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134256.jpgsave_picture_134256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134256.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ A Better Finder Rename 12.04 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134257.jpgsave_picture_134257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134257.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134259.jpgsave_picture_134259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134259.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Kane Roberts - Unsung Radio (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134260.jpgsave_picture_134260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134260.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134261.jpgsave_picture_134261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134261.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ magnet:?xt=urn:btih:483EB623B39D422E76A6590012C39452C33B4603
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134262.jpgsave_picture_134262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134262.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ magnet:?xt=urn:btih:0E8F008008E6220C5DCD2DE4E79E78422A52EFDD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134263.jpgsave_picture_134263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134263.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Vinegar 2.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134264.jpgsave_picture_134264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134264.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:AF9879B8CE3FA05DC7EBCFFC851AE31CD5106244
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134265.jpgsave_picture_134265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134265.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Skysurfer - Chill to the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134266.jpgsave_picture_134266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134266.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Firstborn - From The Past Yet To Come (2000) [WavPack|Lossless]<Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134268.jpgsave_picture_134268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134268.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Firstborn - From The Past Yet To Come (2000) [WavPack|Lossless]<Melodic Deat
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134269.jpgsave_picture_134269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134269.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134272.jpgsave_picture_134272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134272.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:94AABA7CEECCEAD0CFC017E039FDFB29B9396A10
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134273.jpgsave_picture_134273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134273.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Inherit Disease - 2 Альбома (2006-2010) Дискография [MP3|320 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134274.jpgsave_picture_134274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134274.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134275.jpgsave_picture_134275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134275.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Dalindeo - Open Scenes (2007) [MP3|320 кб/с]<Nu Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134276.jpgsave_picture_134276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134276.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Imperial Child - Secrets Of The Roman Ghost (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134277.jpgsave_picture_134277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134277.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:2356BB5B6A365FCDD0B9B6062F3564F28B355490
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134278.jpgsave_picture_134278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134278.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Baking Soda for Mac 1.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134279.jpgsave_picture_134279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134279.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134281.jpgsave_picture_134281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134281.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Need for Speed ProStreet [Ru/En] (Repack/1.1)  2007 l R.G. Games
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134282.jpgsave_picture_134282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134282.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Swinsian 3.0 Preview 10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134283.jpgsave_picture_134283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134283.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Pro Evolution Soccer 2013 [Ru/En/Multi6] (Repack/1.02/3 DLC) 2012 l Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134284.jpgsave_picture_134284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134284.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ TechSmith Camtasia 2022 Studio 2022.6.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134285.jpgsave_picture_134285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134285.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:2C78A0F156D7E63A0D1F05F9C24220EF4E367405
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134287.jpgsave_picture_134287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134287.jpg" />
 </div>
 
 

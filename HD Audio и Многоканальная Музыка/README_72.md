@@ -6,7 +6,7 @@ Smith/Kotzen - Black Light / White Noise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68331.jpgsave_picture_68331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68331.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Butcher Brown - Letters From The Atlantic (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68336.jpgsave_picture_68336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68336.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aretha Franklin - The Electrifying (1962) Remastered, 2025, ZOROTY [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68338.jpgsave_picture_68338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68338.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Allegaeon - The Ossuary Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Technic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68341.jpgsave_picture_68341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68341.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Memphis May Fire - Shapeshifter (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68347.jpgsave_picture_68347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68347.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Skrillex - F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3 (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68351.jpgsave_picture_68351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68351.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jessie Frye - Otherworld (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electroni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68353.jpgsave_picture_68353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68353.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Lola Indigo - Nave Dragon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Latin Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68356.jpgsave_picture_68356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68356.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Perfume Genius - Glory (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Ar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68358.jpgsave_picture_68358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68358.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Polo & Pan - 22:22 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop, Down
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68359.jpgsave_picture_68359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68359.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Red Rocks Worship - The King Is Coming (Live) (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68367.jpgsave_picture_68367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68367.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B1899155C3DECDACBE64A80164B3A48EF44F232C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68389.jpgsave_picture_68389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68389.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68418.jpgsave_picture_68418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68418.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68419.jpgsave_picture_68419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68419.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Aeonian Sorrow - Studio Albums (4 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68420.jpgsave_picture_68420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68420.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Nightwish - Amaranth (2007) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68435.jpgsave_picture_68435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68435.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Einherjer - Dragons of the North XX (1996) Released, 2016, Circle Of The 111 Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68466.jpgsave_picture_68466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68466.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Einherjer - Av oss, for oss (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68467.jpgsave_picture_68467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68467.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Occult - Prepare to Meet Thy Doom (1994) Released, 2016, Cosmic Key Creations [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68469.jpgsave_picture_68469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68469.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Humpe Humpe - Humpe Humpe (1985) 40th Anniversary Edition, Remaster, 2025, Warne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68482.jpgsave_picture_68482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68482.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Nightwish - End Of An Era (2006) Live, Reissue, 2018, Nuclear Blast [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68486.jpgsave_picture_68486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68486.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Nomy - Saviour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68508.jpgsave_picture_68508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68508.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Nothing More - CARNAL (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68509.jpgsave_picture_68509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68509.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Mumford & Sons - Rushmere (2025) [FLAC 16,24/44,1,96|Lossless|WEB-DL|tracks] <Fo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68511.jpgsave_picture_68511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68511.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Janiva Magness - Back For Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68513.jpgsave_picture_68513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68513.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Ginevra - Beyond Tomorrow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68514.jpgsave_picture_68514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68514.jpg" />
 </div>
 
 

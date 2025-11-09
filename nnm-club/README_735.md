@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19436.jpgsave_picture_19436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19436.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0DF07ED524F56FEEA60EB5F0E464928C3FF9C72B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19437.jpgsave_picture_19437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19437.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:23A4E3B7B4AAC42A47C43A1D4EA788950600F699
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19438.jpgsave_picture_19438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19438.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CCD7E99EF9E5B0E1979B8448F72DBDD8F9F3BF31
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19439.jpgsave_picture_19439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19439.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:17AE5348BC29DFDD9F9315BEB45CB299F73E1A92
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19440.jpgsave_picture_19440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19440.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:7EE67D761A645D9E44B789B9CAEFD05F3F64EB0E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19441.jpgsave_picture_19441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19441.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:C35301040FBE3BB78999D2FF6FB76EA7071CD2EA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19442.jpgsave_picture_19442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19442.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:80C93B2E658A88E290132ADF92BC7E6D93AF9D53
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19443.jpgsave_picture_19443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19443.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:B79C9696B546099DEEA456E71613336FB4000364
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19444.jpgsave_picture_19444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19444.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:5602D7B74B36FA8FE7415B0BFDE0C2E4E5FED4E7
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19445.jpgsave_picture_19445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19445.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:600EDE3CEA629C335D7335BDE6813BB5D6454DBB
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19446.jpgsave_picture_19446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19446.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Suzanne Vega - Flying with Angels (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Fol
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19447.jpgsave_picture_19447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19447.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Midnight Chills (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19448.jpgsave_picture_19448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19448.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:F1B9AE09BAF5538803B63D1A7E9AD27A9E7CDEF1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19449.jpgsave_picture_19449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19449.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ My Party Needs An Alchemist (2025) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19450.jpgsave_picture_19450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19450.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ A Haunting Novel 2: Surfaced Secrets (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19451.jpgsave_picture_19451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19451.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:99BF12ED98A32416943C7FDC1EC0499B8F4FE7D2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19452.jpgsave_picture_19452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19452.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:7AC0F450C2C106E433445B761AF981EDD9B6F0B3
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19453.jpgsave_picture_19453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19453.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:DB6D68B99FA3EBA64D182EEB62BD46C51DBC844F
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19454.jpgsave_picture_19454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19454.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:FAFBB4E7BE6FF07D989148F9AAC52D19730D3645
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19455.jpgsave_picture_19455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19455.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:AC3DD59C09536E60DCD7A64659180607AD917401
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19456.jpgsave_picture_19456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19456.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:A622B7D76B48406678F7F582B0209F118FEDFCEE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19457.jpgsave_picture_19457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19457.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:E6D823E261F7019BD7967EDAEFCF928832AF5C59
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19458.jpgsave_picture_19458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19458.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:9C85C3B21490CD75CB992ADD0D0D597E30A23FA9
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19459.jpgsave_picture_19459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19459.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Iron Maiden - The First Ten Years I (1990) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19460.jpgsave_picture_19460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19460.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (build 18316498/dlc) Repack sel
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19461.jpgsave_picture_19461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19461.jpg" />
 </div>
 
 

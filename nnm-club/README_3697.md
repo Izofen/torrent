@@ -6,7 +6,7 @@ Eynomia - Break Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116497.jpgsave_picture_116497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116497.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bokassa - All Out of Dreams (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116498.jpgsave_picture_116498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116498.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116499.jpgsave_picture_116499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116499.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116500.jpgsave_picture_116500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116500.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Motorowl - This House Has No Center (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116501.jpgsave_picture_116501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116501.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Chris Plunkett Band - Origins (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116502.jpgsave_picture_116502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116502.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Markdown + 3.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116503.jpgsave_picture_116503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116503.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:35F73139DDFFFEFA393105F1CFC8D7FB32177BB2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116504.jpgsave_picture_116504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116504.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Avenue Of Electric Sound - The Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116505.jpgsave_picture_116505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116505.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:E62D4CB5A4C5D60AA291CD29804A4F3CEE1B2727
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116506.jpgsave_picture_116506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116506.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ File & Image Uploader 8.4.1 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116507.jpgsave_picture_116507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116507.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Romuvos - Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Folk, Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116508.jpgsave_picture_116508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116508.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FireAlpaca 2.11.16 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116509.jpgsave_picture_116509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116509.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Capture One 23 Enterprise 16.3.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116510.jpgsave_picture_116510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116510.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ JixiPix Artista Impresso Pro 1.8.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116511.jpgsave_picture_116511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116511.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:C54114DA702447F822278E4A0F8B4D78793E8687
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116512.jpgsave_picture_116512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116512.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Skype 8.113.0.210 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116513.jpgsave_picture_116513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116513.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:B48463E293B9E3629FF9025D2ECC2F77B0BE80B2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116514.jpgsave_picture_116514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116514.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ GeoGebra 6.0.826.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116515.jpgsave_picture_116515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116515.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Albert Cummings - Strong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116516.jpgsave_picture_116516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116516.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ PhotoDirector v18.10.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116517.jpgsave_picture_116517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116517.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:FA366D006A0F55BEE06CE24593533FB37790388A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116518.jpgsave_picture_116518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116518.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:D3A93482FCEDB87381C382310EB1CDF78E5AE57B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116519.jpgsave_picture_116519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116519.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:87444156526B01778A95C32EEFA1C23347BE0095
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116520.jpgsave_picture_116520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116520.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:14980268F135D19603EB3948731912378730BEE1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116521.jpgsave_picture_116521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116521.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:B6C1EE65A7FFA659196F5829D893C82CC65B0496
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116522.jpgsave_picture_116522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116522.jpg" />
 </div>
 
 

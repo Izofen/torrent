@@ -6,7 +6,7 @@ VA - Keep It Trance Vol. 23 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106395.jpgsave_picture_106395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106395.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106396.jpgsave_picture_106396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106396.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106397.jpgsave_picture_106397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106397.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rampant Beast - Into The Infernal Pyre (2024) [MP3|320 Kbps] <Black, Speed, Thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106398.jpgsave_picture_106398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106398.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nikolo Kotzev - Nikolo Kotzev's Nostradamus - The Rock Opera (2001) Reissue, 202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106399.jpgsave_picture_106399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106399.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Neaera - All Is Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106400.jpgsave_picture_106400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106400.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Orange Goblin - Science, Not Fiction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106401.jpgsave_picture_106401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106401.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Golgotha - Spreading The Wings Of Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106402.jpgsave_picture_106402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106402.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Junior Mance - Harlem Lullaby & I Believe To My Soul (1967, 1968) 2000, Collecta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106403.jpgsave_picture_106403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106403.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106404.jpgsave_picture_106404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106404.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:950CD286E0E1E6664F806E70DD74B1FEBD071FF2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106405.jpgsave_picture_106405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106405.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:33DB5A1C69ECEBBD2B9835E3EBEA730E38D4E3DC
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106406.jpgsave_picture_106406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106406.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:9F74B7D75D5AE8E5C189B8F5E5B6A9D8A512976F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106407.jpgsave_picture_106407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106407.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ George Benson & The Robert Farnon Orchestra - Dreams Do Come True: When George B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106408.jpgsave_picture_106408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106408.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:01F1AE8398BEE446123AD48B30E98E43ADEC0C16
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106409.jpgsave_picture_106409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106409.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:2A3FDF9046E91825436843CFBABB3325134A6DB5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106410.jpgsave_picture_106410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106410.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:9C6B66795AB8B674AD851C82D7434C41F9643F49
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106411.jpgsave_picture_106411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106411.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:DBD5D651B94E2C555134D0C0FBF477CFD2E5B475
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106412.jpgsave_picture_106412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106412.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Ray Orion - Sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106413.jpgsave_picture_106413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106413.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Perfectly Clear WorkBench 4.6.1.2675 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106414.jpgsave_picture_106414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106414.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:500742570CFBBD43AA0D0263BD24D7DCA23F2089
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106415.jpgsave_picture_106415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106415.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Reunion in the Black Forest (The Sounds of MPS Vol. II) (2024) [FLAC 24/88.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106416.jpgsave_picture_106416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106416.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ XYplorer 26.20.0300 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106417.jpgsave_picture_106417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106417.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Falcon Trails - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106418.jpgsave_picture_106418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106418.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106419.jpgsave_picture_106419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106419.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106420.jpgsave_picture_106420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106420.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Blacksmith Tales - Pathway to Hamlet’s Mill (2024) [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40766.jpgsave_picture_40766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40766.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ezra Collective - Dance, No One's Watching (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40767.jpgsave_picture_40767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40767.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John Lennon - Mind Games (Meditation Mixes) (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40772.jpgsave_picture_40772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40772.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Smoothies - Velvet Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40776.jpgsave_picture_40776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40776.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Summer Jazz Paradise, Instrumental Jazz Music Ambient and Swing Background - Sum
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40781.jpgsave_picture_40781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40781.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Smoothies - Soulful Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40783.jpgsave_picture_40783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40783.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Smoothies - Echoes of Velvet: A Journey Through (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40785.jpgsave_picture_40785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40785.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Suspenders - Funkology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40786.jpgsave_picture_40786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40786.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Inertia - Estranged Icon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industria
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40787.jpgsave_picture_40787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40787.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mario Le Mole - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40788.jpgsave_picture_40788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40788.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Chickens - Fused Minds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40789.jpgsave_picture_40789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40789.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Crossbone Skully - High On You (feat. Nikki Sixx) (2024) (EP) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40791.jpgsave_picture_40791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40791.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ E-Rotic - The Hits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Eurodance, Euro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40805.jpgsave_picture_40805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40805.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Suspenders - Funky Love Affair (Starry Night Fever) (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40811.jpgsave_picture_40811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40811.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ The Smile - Cutouts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40867.jpgsave_picture_40867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40867.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Smoothies - SoulFingers (Soul Velvet Nights) (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40871.jpgsave_picture_40871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40871.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Juke Joint, The Everblades - Can’t Slow Me (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40875.jpgsave_picture_40875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40875.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Steve Roach - One Day of Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Amb
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40876.jpgsave_picture_40876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40876.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Drowning Pool - Studio Albums (7 releases) (2001-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40997.jpgsave_picture_40997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40997.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40998.jpgsave_picture_40998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40998.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Soror Dolorosa - Mond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth Rock, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41152.jpgsave_picture_41152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41152.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41178.jpgsave_picture_41178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41178.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:86E7DA3B618BC8F621E193B3807E684CAEB3BC64
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41198.jpgsave_picture_41198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41198.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Judas Priest - Дискография (26 releases) (1974-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41235.jpgsave_picture_41235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41235.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Coldplay - Moon Music (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41371.jpgsave_picture_41371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41371.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Autumn Bride - Bedtime Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41570.jpgsave_picture_41570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41570.jpg" />
 </div>
 
 

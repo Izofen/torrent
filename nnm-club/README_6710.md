@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230726.jpgsave_picture_230726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230726.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230727.jpgsave_picture_230727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230727.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B706798D4F42DBFD9C256761E0C00AAB5617AB3C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230729.jpgsave_picture_230729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230729.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D8964373E6ACDBC87C405E6758DEEDB13BDF4D6D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230730.jpgsave_picture_230730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230730.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ LaunchControl 2.4 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230732.jpgsave_picture_230732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230732.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:AACDD0EF6E78E5A64D17A368C8DF574EC6EF6084
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230733.jpgsave_picture_230733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230733.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Inteam - Точёный пик (2023) [MP3|320 Kbps] <Comedy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230734.jpgsave_picture_230734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230734.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EE8D613C3380223664D8E1270605BE4985AF1EFA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230736.jpgsave_picture_230736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230736.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:AF719500574B38D0EF1C46EF5F503A1A99D885DA
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230737.jpgsave_picture_230737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230737.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Live Wallpaper & Themes 4K Pro 17.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230739.jpgsave_picture_230739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230739.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Task Office 8.15 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230741.jpgsave_picture_230741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230741.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:137F0C6A6FFFE776278AFBF1A629D65D4FAA7EEC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230742.jpgsave_picture_230742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230742.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:5E9656AEE3555CC52E04C22CC59A3CC14498E44E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230743.jpgsave_picture_230743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230743.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:2856C4F42D181A59154CB1E3CEBDB9772A4EC703
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230745.jpgsave_picture_230745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230745.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Музыка для машины Vol.24 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230746.jpgsave_picture_230746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230746.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2001,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230747.jpgsave_picture_230747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230747.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:3D24CE1DC7EF7E4DC2776160B9BDCED8434DC480
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230748.jpgsave_picture_230748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230748.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ CloudMounter 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230751.jpgsave_picture_230751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230751.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Right Said Fred - The Singles (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230752.jpgsave_picture_230752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230752.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:32A57F4448FE55C4FB1DFAED2C12C4792651DB50
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230754.jpgsave_picture_230754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230754.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Для ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230755.jpgsave_picture_230755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230755.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:1C9F7326645609E0369E28359E41C510E440853C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230757.jpgsave_picture_230757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230757.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:46D325089902420B90EC40C2ABE4D1F3BDFFA301
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230758.jpgsave_picture_230758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230758.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ iBarcoder 3.14.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230759.jpgsave_picture_230759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230759.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:B53C0B82B1EAA2BA0269AC75E5D224D4BA55D867
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230760.jpgsave_picture_230760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230760.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ RAR Extractor Max-Unzip File 11.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230763.jpgsave_picture_230763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230763.jpg" />
 </div>
 
 

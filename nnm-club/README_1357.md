@@ -6,7 +6,7 @@ VA - Music News For Forum vol.048 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35637.jpgsave_picture_35637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35637.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:14D2541A981D2229726CC8069B3F657AD991A2BC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35638.jpgsave_picture_35638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35638.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8B2A9427138E1AD58AC564281328E781B3E13693
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35639.jpgsave_picture_35639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35639.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35640.jpgsave_picture_35640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35640.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:11F4020E261A78E8F6CDA5DF8B8968F05B58E043
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35641.jpgsave_picture_35641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35641.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Status Quo - Driving to Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35642.jpgsave_picture_35642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35642.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:51429DAA39CA1ED042A16D83E99C249C2BEDDD69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35643.jpgsave_picture_35643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35643.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DA9878EDD962538CD8E5110947AC768F1E7BF126
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35644.jpgsave_picture_35644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35644.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7826170A5D952ACCC56D11FF9490F1D3F30E9516
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35645.jpgsave_picture_35645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35645.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:41525A10786849F994D33F59F45F032909BAFB7C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35646.jpgsave_picture_35646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35646.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.6 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35647.jpgsave_picture_35647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35647.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:C58B247921BA7B885FE04884DBBB4153107DEEBF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35648.jpgsave_picture_35648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35648.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:D32A60C6B6BA194D9B04096576AE5EEFAAD8F35A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35649.jpgsave_picture_35649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35649.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35650.jpgsave_picture_35650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35650.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sleep Cycle: Sleep Tracker v4.24.46 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35651.jpgsave_picture_35651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35651.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Abelssoft PC Fresh 2025 v11.01.58277 Portable by zeka.k [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35652.jpgsave_picture_35652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35652.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Digiarty AIArty Image Matting 2.0 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35653.jpgsave_picture_35653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35653.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Long Drive (2019) [Ru/En] (2024.11.26b test) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35654.jpgsave_picture_35654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35654.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:ECF052264A682EBFC0D3F3ED2F4BA9702D663EF6
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35655.jpgsave_picture_35655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35655.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35656.jpgsave_picture_35656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35656.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:08FC845AF7E430ED636C64798C803FE04B52453C
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35657.jpgsave_picture_35657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35657.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Grand Blue | Необъятный океан [ТВ-1] [2018, TV, 12 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35658.jpgsave_picture_35658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35658.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3693C9A0BC2EEE5506E8D02E373973731DBFAEA6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35659.jpgsave_picture_35659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35659.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.156 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35660.jpgsave_picture_35660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35660.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Half Billion: Love Choice (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35661.jpgsave_picture_35661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35661.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Wayfinder (2023) [Multi] (1.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35662.jpgsave_picture_35662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35662.jpg" />
 </div>
 
 

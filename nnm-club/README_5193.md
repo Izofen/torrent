@@ -6,7 +6,7 @@
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161769.jpgsave_picture_161769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161769.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Antares - AVOX 4 v4.2.0 VST, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161770.jpgsave_picture_161770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161770.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6DFADBDA7BEC4F7C21A476F201F46468F1A42791
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161771.jpgsave_picture_161771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161771.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:1D0C389E34D734C9A4AD1558B2CE2050CA4881B4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161772.jpgsave_picture_161772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161772.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:127F5E2DC1114CD5629AE89D4BA0D63ACCF036F5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161773.jpgsave_picture_161773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161773.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:AD4D0CCA1294F6DBA59E14214F46FC8B0D54F8F8
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161774.jpgsave_picture_161774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161774.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ HIM - Studio Albums (10 releases) (1997 - 2013) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161775.jpgsave_picture_161775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161775.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161776.jpgsave_picture_161776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161776.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A1917DABB4F37F58BF262D631C9E774DAE076BFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161777.jpgsave_picture_161777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161777.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ BELOFF [dp] 2020.12.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161778.jpgsave_picture_161778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161778.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:DFCD062768A26A31377E381C56899BCF3C11ED12
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161779.jpgsave_picture_161779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161779.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:671E0D8EF3394F2087C538BED5F440B69518F63C
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161780.jpgsave_picture_161780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161780.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:5EFC0020B04506C41969BA6E00168DB0F2D1D264
 >>Доктор Хаус / House M.D.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161781.jpgsave_picture_161781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161781.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:D3AEAC341355B39955EE52ABEC9EF52F24B3B38C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161782.jpgsave_picture_161782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161782.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:C5690F4187332792C117D43379E0762548BE322D
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161783.jpgsave_picture_161783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161783.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:256F1CE68ED6EEC4AB9C82FE5077871DB68824F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161784.jpgsave_picture_161784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161784.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Windows 11 получит голосовое управление, будет с
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161785.jpgsave_picture_161785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161785.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - 20 Золотых мелодий (2000) [FLAC|Lossless]<Retro|Pop>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161786.jpgsave_picture_161786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161786.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:E2D1B178F264CDBA84A124735437E8E1FF9A301D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161787.jpgsave_picture_161787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161787.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:34DA1497CDC7FDD685765926DA20F467177C74D2
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161788.jpgsave_picture_161788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161788.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:BCBD534AB4FD421910028A5BE8D93ED610E95048
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161789.jpgsave_picture_161789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161789.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:CF2B032238F69CC8EAB9541319B6EB1865CAD244
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161790.jpgsave_picture_161790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161790.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:F9202D027319960E5D8A870C723FF94B92F56A7B
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161791.jpgsave_picture_161791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161791.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Dark Deity II (2) (2025) [En] (1.14) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161792.jpgsave_picture_161792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161792.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.376]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161793.jpgsave_picture_161793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161793.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:1FEFFD26F1934681D488633D3D814F4586D8C64F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161794.jpgsave_picture_161794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161794.jpg" />
 </div>
 
 

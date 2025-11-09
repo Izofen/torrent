@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84905.jpgsave_picture_84905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84905.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84906.jpgsave_picture_84906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84906.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84907.jpgsave_picture_84907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84907.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3DABD4ECD16F3E0ACCC46D391B912781A7CC257D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84908.jpgsave_picture_84908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84908.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:993185F3C0838746FFA836BA9BD77C56C0BC1565
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84909.jpgsave_picture_84909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84909.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E5ED0870340A0442FC67B9FBA1090B47CA010729
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84915.jpgsave_picture_84915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84915.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ RU-Center выплатит 239 млн за захват интернет-име�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84916.jpgsave_picture_84916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84916.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - XXXL Золотые 80-е Зарубежный (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84919.jpgsave_picture_84919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84919.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:4209C991F8BFF39FEF910936A7B4482D1367B08B
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84920.jpgsave_picture_84920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84920.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Beverley Craven - Promise Me - The Best Of Beverley Craven (2011) [MP3|320 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84921.jpgsave_picture_84921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84921.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:E14A701E96B50F435CED8CDFF134222102DF2E89
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84923.jpgsave_picture_84923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84923.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:7B7169E2F6086BF150E83988D82AF3959651EA2C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84924.jpgsave_picture_84924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84924.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:7B7169E2F6086BF150E83988D82AF3959651EA2C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84925.jpgsave_picture_84925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84925.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:60D67E749A6CE82F58D2DC8063FB66B4189C63BA
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84927.jpgsave_picture_84927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84927.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:60D67E749A6CE82F58D2DC8063FB66B4189C63BA
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84930.jpgsave_picture_84930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84930.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:82028D39E094B3578E7899F2B5A6013FE95D6232
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84931.jpgsave_picture_84931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84931.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:57057310BCBB9DE89FDB31A5C1DFA1A4284DA983
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84932.jpgsave_picture_84932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84932.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Burn Zombie Burn! (P) [Ru/En] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84933.jpgsave_picture_84933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84933.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84939.jpgsave_picture_84939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84939.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:30F1B1D93C5EC67326741A32FFD3A23AFE704E6A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84940.jpgsave_picture_84940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84940.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:30F1B1D93C5EC67326741A32FFD3A23AFE704E6A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84941.jpgsave_picture_84941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84941.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:644223CA29F6C91B08C3B3BC8C952ABF170C2A0B
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84942.jpgsave_picture_84942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84942.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:644223CA29F6C91B08C3B3BC8C952ABF170C2A0B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84944.jpgsave_picture_84944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84944.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:FE0F0B20BAD912CA7003EA6CA100A30A3D2A1534
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84945.jpgsave_picture_84945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84945.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ LinPlug - Organ VSTi v3.1.5 x86/x64 by AiR [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84947.jpgsave_picture_84947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84947.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Organ 3 - является продолжением имитатора элек�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84949.jpgsave_picture_84949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84949.jpg" />
 </div>
 
 

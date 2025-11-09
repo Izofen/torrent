@@ -6,7 +6,7 @@ The Magician - Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <deep house, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32829.jpgsave_picture_32829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32829.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D34C132681E138870D029334560C69FC3AE3005D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32830.jpgsave_picture_32830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32830.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PowerDirector – Video Editor v14.7.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32831.jpgsave_picture_32831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32831.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:60EA5730824BAAC88104F1B1089D5841BF2F2A55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32832.jpgsave_picture_32832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32832.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ CoolUtils Total PDF Converter 6.5.0.336 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32833.jpgsave_picture_32833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32833.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:B32675373D43D5CC8105717C11F452489DDA2F1E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32834.jpgsave_picture_32834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32834.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ De/Vision - Devolution (Limited Edition) 2CD (2003)  [FLAC|Lossless|tracks + .cu
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32835.jpgsave_picture_32835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32835.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ YT Downloader 9.11.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32836.jpgsave_picture_32836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32836.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:1C19D02F75AD7D0BE4CD8AA99A844F2CCF5A6F6E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32837.jpgsave_picture_32837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32837.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Enigmatic World (2024) [MP3|320 Kbps] <Enigmatic, New Age, Electro>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32838.jpgsave_picture_32838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32838.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:21C5C98E27E915C34DF64930893F9BAF0BD91039
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32839.jpgsave_picture_32839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32839.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:0461B4C388E2147A9D526F7582110474919D1AD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32840.jpgsave_picture_32840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32840.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:0461B4C388E2147A9D526F7582110474919D1AD9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32841.jpgsave_picture_32841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32841.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Magic Eraser / Магический ластик v2.16.2 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32842.jpgsave_picture_32842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32842.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Thomas Anders & Florian Silbereisen - Nochmal! (2024) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32843.jpgsave_picture_32843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32843.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Unforeseen Incidents v1.0.90 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32844.jpgsave_picture_32844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32844.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32845.jpgsave_picture_32845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32845.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:466F368E49E2CAB76B8395F968CA8017A7D32B02
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32846.jpgsave_picture_32846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32846.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:EC3016E41CFCD06083376AA13432CED917BFA3D9
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32847.jpgsave_picture_32847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32847.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:A295EAC8BABFAED6434171C87E7998E22CAD0F42
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32848.jpgsave_picture_32848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32848.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:1CD12A798C30EEFEDFE124317BF4C7A9F75C4224
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32849.jpgsave_picture_32849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32849.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Happy New Year Party 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32850.jpgsave_picture_32850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32850.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:F12BC85A77578ABEB1225A04144D4468C75E5301
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32851.jpgsave_picture_32851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32851.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:AF2A9077803DECE418CD02DAD3DD9C0DDF7EDACD
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32852.jpgsave_picture_32852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32852.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:20F7FF301C80DCE592783FE5BD1CD3A87C786E96
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32853.jpgsave_picture_32853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32853.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:F4BF72C76D59BD11130E9E8E3624360F76B0913B
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32854.jpgsave_picture_32854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32854.jpg" />
 </div>
 
 

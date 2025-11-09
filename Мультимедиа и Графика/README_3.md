@@ -6,7 +6,7 @@ AMS ФотоМОНТАЖ 4.5 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4151.jpgsave_picture_4151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4151.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FOTO projects 3D professional 1.12.04285 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4200.jpgsave_picture_4200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4200.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FOTO projects 3D professional 1.12.04285 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4201.jpgsave_picture_4201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4201.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B62678BB0109AC5FF32F9104EA8699DAFA447C90
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4208.jpgsave_picture_4208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4208.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Pulsar Modular - Q Sahara 1.0.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4426.jpgsave_picture_4426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4426.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Diamond Cut Forensics Audio Laboratory 11.08 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4469.jpgsave_picture_4469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4469.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ iZotope - Ozone 12 Advanced 12.0.0 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4565.jpgsave_picture_4565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4565.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Fast Video Cutter Joiner 6.9.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4669.jpgsave_picture_4669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4669.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Fast Video Cutter Joiner 6.9.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4672.jpgsave_picture_4672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4672.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ AMS PhotoDiva 5.0 RePack by KaktusTv [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4690.jpgsave_picture_4690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4690.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ FL Studio Producer Edition 25.1.4.4951 - All Plugins Edition + Addons + FLEX Pac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4856.jpgsave_picture_4856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4856.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Wondershare UniConverter 16.7.0.368 RePack (& Portable) by elchupacabra [Multi/R
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4864.jpgsave_picture_4864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4864.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Hallmark Card Studio 2023 Deluxe 23.0.1.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4980.jpgsave_picture_4980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4980.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Radiant Photo 2.1.0.756 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5002.jpgsave_picture_5002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5002.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PhotoFiltre Studio X 11.7.0 [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5007.jpgsave_picture_5007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5007.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ AMS ФотоМАСТЕР 21.0 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5048.jpgsave_picture_5048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5048.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Wise ImageX 1.5.1.17 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5234.jpgsave_picture_5234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5234.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ AMS Мой Дом 3D 4.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5237.jpgsave_picture_5237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5237.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ CorelDRAW Technical Suite 2025 26.2.0.170 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5270.jpgsave_picture_5270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5270.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Room Arranger 10.2.0.732 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5273.jpgsave_picture_5273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5273.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ AMS ФотоМАСТЕР 21.0 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5275.jpgsave_picture_5275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5275.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5282.jpgsave_picture_5282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5282.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Light Image Resizer 7.3.0.120 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5385.jpgsave_picture_5385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5385.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Perfectly Clear WorkBench 4.8.0.2846 + Addons [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5395.jpgsave_picture_5395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5395.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ DigiKam 8.7.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5409.jpgsave_picture_5409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5409.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ XnView Classic 2.52.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5412.jpgsave_picture_5412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5412.jpg" />
 </div>
 
 

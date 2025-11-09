@@ -6,7 +6,7 @@ Aura - Hallucinations (2023) [MP3|320 Kbps] <Progressive Rock, Prog Related>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165411.jpgsave_picture_165411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165411.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Display Maestro 4 v4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165413.jpgsave_picture_165413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165413.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Nu Cool Covers 4: Pop Classics ReStyled (2021) [AAC|~315 Kbps] <Lounge, Nu 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165414.jpgsave_picture_165414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165414.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:72EBDE49B947074FEF66A46AEB2F837B3F367BFC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165415.jpgsave_picture_165415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165415.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ File List Export 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165416.jpgsave_picture_165416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165416.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ DGM - Tragic Separation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165417.jpgsave_picture_165417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165417.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:584311E08528C64FED8854D83F3CC5B28E56DACE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165418.jpgsave_picture_165418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165418.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Alarm Clock Pro 13 v13.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165419.jpgsave_picture_165419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165419.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Maxon Cinema 4D Studio R21.115 (RB297076) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165420.jpgsave_picture_165420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165420.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Ely Bruna, Papik - In Sweet Harmony (2021) [AAC|~303 Kbps] <Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165421.jpgsave_picture_165421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165421.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:870F143F83C0732322713B835885BD4F55A091FD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165422.jpgsave_picture_165422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165422.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ CCleaner 6.07.10191 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165423.jpgsave_picture_165423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165423.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:7BC35B70E8E5189D00C745D69007CB4A425C43E8
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165424.jpgsave_picture_165424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165424.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Serial 2 v.2.0.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165425.jpgsave_picture_165425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165425.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:81FC8629E719D64FE440CFA63473583AE7C916DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165426.jpgsave_picture_165426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165426.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Duplicate File Finder Pro 6.11.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165427.jpgsave_picture_165427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165427.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Windows 7 Enterprise SP1 x64 Rus by OneSmiLe [15.12.2022]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165428.jpgsave_picture_165428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165428.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Arthur Brown - Dance (1975) Expanded Edition, 2023, Esoteric [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165429.jpgsave_picture_165429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165429.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Winter Lounge 2021 (2021) [AAC|~330 Kbps] <Lo-Fi, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165430.jpgsave_picture_165430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165430.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Librarian Pro 6 v6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165431.jpgsave_picture_165431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165431.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:6ED9CA26CD97A39E8199F7F46A8B73CB0174570C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165432.jpgsave_picture_165432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165432.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.2364]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165433.jpgsave_picture_165433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165433.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Solarcycles - Lunar (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk / Pagan
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165434.jpgsave_picture_165434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165434.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ RSS Button for Safari 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165435.jpgsave_picture_165435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165435.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Ex Deo - The Thirteen Years Of Nero (2021) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165436.jpgsave_picture_165436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165436.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ HistoryHound 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165437.jpgsave_picture_165437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165437.jpg" />
 </div>
 
 

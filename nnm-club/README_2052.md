@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53719.jpgsave_picture_53719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53719.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Summer Dance Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53720.jpgsave_picture_53720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53720.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Aes Dana - Far & Off (2016) Remastered, 2024, Ultimae Records [FLAC|Lossless|WEB
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53721.jpgsave_picture_53721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53721.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Breezy Weather - прогноз погоды 5.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53722.jpgsave_picture_53722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53722.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dying Fetus - Reign Supreme (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Brutal 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53723.jpgsave_picture_53723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53723.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:5A05C117D3C3086A4E3F4E531719CFF8481F4461
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53724.jpgsave_picture_53724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53724.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:ACFCC11640A15FA4373F6F62A1FCD3E440187AF9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53725.jpgsave_picture_53725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53725.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Marc Korn x Semitoo x Abrissgebeat - Crying At The Discoteque (Extended Mix) (20
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53726.jpgsave_picture_53726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53726.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:5B2FFD7F3932D571025F5A95E2872895B10257F1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53727.jpgsave_picture_53727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53727.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:C405E313E86DD35190B92098623CCA7CC243C584
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53728.jpgsave_picture_53728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53728.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Jeff Healey - Road House (The Lost Soundtrack) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53729.jpgsave_picture_53729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53729.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Windfinder Pro: Wind & Weather 3.30.2 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53730.jpgsave_picture_53730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53730.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:16FE15133E68BD1CD94F96EF38EBE1EEF68FF36A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53731.jpgsave_picture_53731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53731.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:8C16495FCB4A06D1CF0A3717BC0D2A8DBD58E6F8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53732.jpgsave_picture_53732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53732.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Gone til Winter - Hiding from the Sun (2024) [MP3|320 Kbps] <Gothic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53733.jpgsave_picture_53733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53733.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:772ED40FA16B0C818E9C1726E48DD09E4A17E6C3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53734.jpgsave_picture_53734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53734.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:31B7F566A08E58C4229F4DC28CCEC668EB580964
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53735.jpgsave_picture_53735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53735.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:C9D95ECAB670ABE902EA20EDAB9C78CC03F9D574
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53736.jpgsave_picture_53736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53736.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ TechSmith Camtasia 2024 24.0.0 (Build 1041) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53737.jpgsave_picture_53737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53737.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:E4B5B535BFEF986799EADCED9F2C7E1D59FFFF6A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53738.jpgsave_picture_53738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53738.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:5DC3E873D2B49D8C972E662AD6F375ECE4ED233E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53739.jpgsave_picture_53739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53739.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Bruce Stirling | Pre-TOEFL Guide. Academic English Practice (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53740.jpgsave_picture_53740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53740.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Clime: Прогноз погоды и Радар / Clime: NOAA Weather Radar Liv
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53741.jpgsave_picture_53741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53741.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Weatherzone: Weather Forecasts 7.3.0 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53742.jpgsave_picture_53742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53742.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:A224711D742D189B6B4BFCEAE3318628986CD40B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53743.jpgsave_picture_53743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53743.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:FEDA57B09639347225BA1ADB380C4E0BF49E0E95
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53744.jpgsave_picture_53744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53744.jpg" />
 </div>
 
 

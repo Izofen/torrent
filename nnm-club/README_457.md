@@ -6,7 +6,7 @@ VA - Jazz Bello Fresco (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12124.jpgsave_picture_12124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12124.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The New Old School - Mississippi Black Police Chief Sykes (2025) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12125.jpgsave_picture_12125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12125.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anger Machine - Human Error (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12126.jpgsave_picture_12126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12126.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Gravel Project - Find What You Need (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12127.jpgsave_picture_12127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12127.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Muthas - They Come (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, America
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12128.jpgsave_picture_12128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12128.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tomas Lindqvist featuring Per Lindvall and Lars Larry Danielsson - Can´t wait (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12129.jpgsave_picture_12129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12129.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jon O'Bir - Ascendancy (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12130.jpgsave_picture_12130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12130.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Skip House - Big Daddy Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12131.jpgsave_picture_12131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12131.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Music News For Forum vol.110 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12132.jpgsave_picture_12132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12132.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:473F140B6379D7E8E46ABB5313456D84395B8CD5
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12133.jpgsave_picture_12133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12133.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:E50BEE8D3DFD63A9D1D64A138B7DE28919350774
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12134.jpgsave_picture_12134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12134.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12135.jpgsave_picture_12135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12135.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:61DE005C53ABAFFB98E9C1FAAF5D1A61CE8D6FC4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12136.jpgsave_picture_12136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12136.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Pet Shop Boys - Discography - Complete Singles Collection (1991) [MP3|320 Kbps] 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12137.jpgsave_picture_12137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12137.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:23AB4168D58F85ABBD0311B54EC0575C1C8BF3D1
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12138.jpgsave_picture_12138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12138.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - 25 Indie Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock/Rock po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12139.jpgsave_picture_12139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12139.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:23AC6FD01A9C3B16D19FA16063A77D6BD9249693
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12140.jpgsave_picture_12140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12140.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Road Trip Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12141.jpgsave_picture_12141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12141.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Summer Rock Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12142.jpgsave_picture_12142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12142.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - #1 Hits of the 50s, Vol. 2 (2001) CD, Compilation [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12143.jpgsave_picture_12143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12143.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:1F045336C8973D5B2CEF2E190D4DC53DB82FBFC4
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12144.jpgsave_picture_12144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12144.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:CFD3F26FE34E63CDA6B718C6F5572C01FDE8B458
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12145.jpgsave_picture_12145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12145.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:BCE7F3369527E2B28FF93F8A8184AE56DCC5B2D1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12146.jpgsave_picture_12146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12146.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:F72DA1C0BB7E9F42052FCDA0146D8AC77541D5F0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12147.jpgsave_picture_12147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12147.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Seogi - Nap (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12148.jpgsave_picture_12148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12148.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:C1CB8B7FEB24A8638D6FD9C84DE8E81E9BD42CDF
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12149.jpgsave_picture_12149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12149.jpg" />
 </div>
 
 

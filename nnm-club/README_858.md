@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22647.jpgsave_picture_22647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22647.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 10 PRO 22H2 19045.3324 (х64) remaked as Windows 7/Windows Vista by wind
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22648.jpgsave_picture_22648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22648.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Autodesk Revit 2026 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22649.jpgsave_picture_22649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22649.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3ACC20B4A11CD5DFED6944115E12F2D9D1DBE869
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22650.jpgsave_picture_22650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22650.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:3ACC20B4A11CD5DFED6944115E12F2D9D1DBE869
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22651.jpgsave_picture_22651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22651.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E46A8EF7F12E7AA3B3D4627131E3725C61666DD0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22652.jpgsave_picture_22652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22652.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:D504EF0919C7A4C21CF7CCD1314A4C1EE5D224FE
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22653.jpgsave_picture_22653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22653.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:32311FE4F2C30FBEE4856F96DA9FAE781A8CD2C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22654.jpgsave_picture_22654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22654.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ SD Maid 2/SE v1.4.3-beta0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22655.jpgsave_picture_22655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22655.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:84484152E11405994218AE180E4421F38CE42764
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22656.jpgsave_picture_22656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22656.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Adobe Photoshop 2024 25.12.2.1009 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22657.jpgsave_picture_22657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22657.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:4DFCD20D709DA75B3953475F722279C3CF6D929E
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22658.jpgsave_picture_22658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22658.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Adobe Photoshop 2024 25.12.2.1009 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22659.jpgsave_picture_22659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22659.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:AD696F84DDB0E88C3A4FA9667432FB3113DCD750
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22660.jpgsave_picture_22660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22660.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A6CE7D00D07E67998C35217BDA0CDB5AB4A9119D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22661.jpgsave_picture_22661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22661.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Arafou Otoko no Isekai Tsuuhan / The Daily Life of a Middle-Aged Online Shopper 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22662.jpgsave_picture_22662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22662.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:2AFCF2B23F6C17477CE7414723F8E4D10ABA7513
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22663.jpgsave_picture_22663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22663.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adobe Premiere Pro 2025 25.2.0.147 (x64) Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22664.jpgsave_picture_22664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22664.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9ED9FA29D1E290660DD08497E044F7453C2B8DF0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22665.jpgsave_picture_22665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22665.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:E43FCE4CDCFED8E5076BEE7D6D625ECB0A998875
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22666.jpgsave_picture_22666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22666.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Haste: Broken Worlds (2025) [Ru/Multi] (1.0.b) Repack Wanterlude
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22667.jpgsave_picture_22667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22667.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ MassTube Ultra 20.1.3.126 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22668.jpgsave_picture_22668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22668.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:71F475751313C84928FA31FE6DA385B4CCC5785A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22669.jpgsave_picture_22669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22669.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ TechSmith Camtasia 25.0.1 Build 8344 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22670.jpgsave_picture_22670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22670.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:1E43A167BDB5804F5987E28A970CDBBB6EB33C86
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22671.jpgsave_picture_22671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22671.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ WinTools.net 25.4.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22672.jpgsave_picture_22672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22672.jpg" />
 </div>
 
 

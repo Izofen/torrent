@@ -6,7 +6,7 @@ Ri (Rī) Wolf - Rī Wolf & The Prairie Hawks (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122745.jpgsave_picture_122745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122745.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6DD7606D96775B8B96DCA105E9B78EFA3E55CCD0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122746.jpgsave_picture_122746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122746.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Magic Disk Cleaner 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122747.jpgsave_picture_122747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122747.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Chris O'Leary - The Hard Line (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122748.jpgsave_picture_122748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122748.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Disk Xray 4.1.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122749.jpgsave_picture_122749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122749.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ HitPaw Watermark Remover for Mac 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122750.jpgsave_picture_122750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122750.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Elegý - Graveflowers (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122751.jpgsave_picture_122751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122751.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ KCNcrew Pack 01-15-24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122752.jpgsave_picture_122752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122752.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Chris Rea - La Passione (1996) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122753.jpgsave_picture_122753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122753.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:DB51B54E7E4B7F971D8ECFC8FEFD11346C0855F5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122754.jpgsave_picture_122754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122754.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:B208D5E81839436F64ADC9C3D71FE2346CCFCEB3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122755.jpgsave_picture_122755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122755.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:EFF9BB73CA467DC2A141932E025538546BBAA3FC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122756.jpgsave_picture_122756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122756.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:9EE917937D063C9B75876FF0FCCFF4E580CBC729
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122757.jpgsave_picture_122757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122757.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:378CAE78A89D37420DEAC203AB07B62B48B6C0F3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122758.jpgsave_picture_122758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122758.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Chris Rea - Espresso Logic (1993) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122759.jpgsave_picture_122759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122759.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Charles Aznavour/Шарль Азнавур - Поёт Шарль Азнавур 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122760.jpgsave_picture_122760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122760.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Q-Dir 11.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122761.jpgsave_picture_122761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122761.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Pro Audio Converter 1.9.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122762.jpgsave_picture_122762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122762.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:921DA12C1A4F3CEDA8A0BF004EBA9D61F97BDB07
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122763.jpgsave_picture_122763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122763.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Twists [A Visitor Arrives] - Kreidler (2024) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122764.jpgsave_picture_122764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122764.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Jashin-chan Dropkick: Seikimatsu Hen | Дропкик злого духа (2023)
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122765.jpgsave_picture_122765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122765.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:52AD029B48D273354BF8DA9D9D408EE465A6857F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122766.jpgsave_picture_122766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122766.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Fort Firewall 3.10.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122767.jpgsave_picture_122767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122767.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:D5E2BB0FB5CBF7107D3174594A08F772C0E3B3A0
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122768.jpgsave_picture_122768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122768.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:4F06E81A6858D7FF30E4F96B1DE437F84334407B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122769.jpgsave_picture_122769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122769.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ DaisyDisk 4.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122770.jpgsave_picture_122770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122770.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Exclusives HGM: DnB Collection (2021) [MP3|320 Kbps] <Drum & Bass, Bassline
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239330.jpgsave_picture_239330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239330.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Crimson Sunsets - A Furore Normannorum Libera Nos Domine (Demo) (1997) Reissue, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239334.jpgsave_picture_239334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239334.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Calexico - Feast of Wire (2023) 20th Anniversary Deluxe Edition [FLAC 24/44.1|Lo
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239335.jpgsave_picture_239335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239335.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Smart Driver Manager Pro 6.1.797 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239336.jpgsave_picture_239336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239336.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Infuse PRO 7.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239337.jpgsave_picture_239337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239337.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Downcast 2.9.58 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239338.jpgsave_picture_239338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239338.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Opera 76.0.4017.175 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239339.jpgsave_picture_239339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239339.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Page 99 - For Imagination's Sake (2022) [FLAC|Lossless|image + .cue] <AOR, Westc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239340.jpgsave_picture_239340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239340.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:AACE671C31C370C3965E4FA1A728013F03715687
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239341.jpgsave_picture_239341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239341.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:8DAC617D1EC80748B9355CEFEC355717467AEBC3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239343.jpgsave_picture_239343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239343.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Ian Hunter - Defiance Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239344.jpgsave_picture_239344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239344.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Michael Dease - Give It All You Got (2021) Posi Tone Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239346.jpgsave_picture_239346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239346.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:9654991C38808F6E2BBDC92301494FB689CB37AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239348.jpgsave_picture_239348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239348.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Titanskull - Titanomachy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239349.jpgsave_picture_239349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239349.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:AA767E6B99F145898D56B44170630374FD77F0BE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239350.jpgsave_picture_239350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239350.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:EC30D2FF4454A1E33DA7625DFD48076D862F42A7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239351.jpgsave_picture_239351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239351.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239353.jpgsave_picture_239353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239353.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Brunorock - War Maniacs (2009) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239356.jpgsave_picture_239356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239356.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Gia Margaret - Romantic Piano (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239357.jpgsave_picture_239357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239357.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Lostly - Fav Tracks Mix (Mixed And Comliped By Jerbi) (2023) WebDLRip [MP3|320kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239358.jpgsave_picture_239358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239358.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Dawn of Creation - Self-Destructive Matters (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239359.jpgsave_picture_239359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239359.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ TextSoap 8 v8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239361.jpgsave_picture_239361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239361.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:6D39FC185EE6C625920EBC5E3E5ED218FB3EC0C5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239362.jpgsave_picture_239362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_239362.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:ACE92AB1065BA6F759668E89192C410D087BFE06
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239363.jpgsave_picture_239363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239363.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:29337A63B74097A1762357A756370F911B516793
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239365.jpgsave_picture_239365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239365.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Mozart Gabriel - Sign Me Up 4 The Apocalypse (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239366.jpgsave_picture_239366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239366.jpg" />
 </div>
 
 

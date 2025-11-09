@@ -6,7 +6,7 @@ VA - Take Your Time (Chill Vibe) (2016) [MP3|320 Kbps] <Chillout, Lounge, Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244053.jpgsave_picture_244053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244053.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Otto Knows - Tomorrowland Friendship Mix (2022-03-10) [MP3|320 Kbps] <Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244099.jpgsave_picture_244099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244099.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Timmy Trumpet - Live @ kineticFIELD, EDC Mexico (2022-02-27) [MP3|320 Kbps] <Big
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244113.jpgsave_picture_244113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244113.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Underground Heroes Of Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244156.jpgsave_picture_244156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244156.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Doubtingthomas - The Changes (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244197.jpgsave_picture_244197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244197.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ V.A. - Lounge & Coffee, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244218.jpgsave_picture_244218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244218.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Ibiza Winter (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244229.jpgsave_picture_244229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244229.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Cosy Lounge Vol.1: Smooth Weekend Tunes (2016) [MP3|320 Kbps] <Downtempo, C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244246.jpgsave_picture_244246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244246.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Amsterdam Dance Night (2023) [MP3|320 Kbps] <Electronica, Melodic House & T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244308.jpgsave_picture_244308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244308.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - House Nation Clubbing - Miami (2023) [MP3|320 Kbps] <House, Funky House, So
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244346.jpgsave_picture_244346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244346.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Get 2gether Deep House Vol.3 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244354.jpgsave_picture_244354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244354.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ I/O - Calm (2001) Room40 [FLAC|Lossless|tracks+.cue] <Ambient, Minimal, Experime
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244359.jpgsave_picture_244359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244359.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Flaminia - Illusion In Fire (2018) Metempsychosis Records [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244368.jpgsave_picture_244368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244368.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kainté Kountix (Kainte Kountix) - Assortiments (2019) EP [FLAC|Lossless|tracks 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244383.jpgsave_picture_244383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244383.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Freshly Brewed Vol.1 (Fresh Lounge & Chill Tunes) (2016) [MP3|320 Kbps] <Ba
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244514.jpgsave_picture_244514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244514.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ JJOS - Discography 94 Releases (2011-2022) [MP3|320 Kbps] <Ambient, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244524.jpgsave_picture_244524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244524.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Night City Ambient (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244532.jpgsave_picture_244532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244532.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ TV Players - Big City Visions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244559.jpgsave_picture_244559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244559.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Ibiza Sunset Chill Vol.3 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244608.jpgsave_picture_244608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244608.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Ambient Top Summer 2016 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244634.jpgsave_picture_244634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244634.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Aura Minimum - Fragments (2021) Strange Key [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244647.jpgsave_picture_244647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244647.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Chillout Macchiato (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244681.jpgsave_picture_244681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244681.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Time For Chillout Vol.2 (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244693.jpgsave_picture_244693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244693.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Lounge Future: Sunrise (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244713.jpgsave_picture_244713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244713.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Evidence Of Intense Beauty (2016) [MP3|320 Kbps] <Ambient, Drone>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244721.jpgsave_picture_244721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244721.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - 10 Years Of Suanda Music - Mixed by Roman Messer (2023) [MP3|320 Kbps] <Upl
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244731.jpgsave_picture_244731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244731.jpg" />
 </div>
 
 

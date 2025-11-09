@@ -6,7 +6,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185408.jpgsave_picture_185408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185408.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:364FFD1F50AB1501DC91A847205E54DF9C0FFF9F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185409.jpgsave_picture_185409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185409.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Banktivity 7 v7.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185412.jpgsave_picture_185412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185412.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ HWiNFO 7.63 Build 5220 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185413.jpgsave_picture_185413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185413.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Magic Disk Cleaner 1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185414.jpgsave_picture_185414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185414.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Shakatak - All Around The World - 40th Anniversary Edition (2020) [AAC|~315 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185416.jpgsave_picture_185416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185416.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Tokio Hotel - 2001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185417.jpgsave_picture_185417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185417.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ AutoHideDesktopIcons 6.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185419.jpgsave_picture_185419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185419.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:E1549052D7770F54646C64AD456A8B75FEC6FF0A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185422.jpgsave_picture_185422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185422.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ C.C. Catch - Star Collection - Back Seat Of Your Cadillac (1991) [OGG Vorbis|480
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185423.jpgsave_picture_185423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185423.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ MediaHuman YouTube Downloader 3.9.9.86 (2209) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185424.jpgsave_picture_185424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185424.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:BB31FEBB66B34B5D3262047E27BC35B9908F8448
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185426.jpgsave_picture_185426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185426.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:DBBBA90DAF47FA2D51054A10CEEE343A0550CD16
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185427.jpgsave_picture_185427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185427.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:BE45C6DEF2CCF7FA604BB84981D63C2BF9DB0E83
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185429.jpgsave_picture_185429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185429.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Q-Dir 11.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185430.jpgsave_picture_185430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185430.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:ADC1D5C8892EBEF8FAA779F95746C0405A2D080A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185431.jpgsave_picture_185431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185431.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:62CAA552C4F491AEDCF3F9391209B67C1BD9B0F1
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185433.jpgsave_picture_185433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185433.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:22270A3C9CADCB83E4B5EE891C0381F58249923F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185435.jpgsave_picture_185435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185435.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185436.jpgsave_picture_185436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185436.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Our Last Night - Disney Goes Heavy (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185438.jpgsave_picture_185438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185438.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Stonehand - Rock n Roll Wizards (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185439.jpgsave_picture_185439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185439.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpgsave_picture_185442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Headcat 13 - Headcat 13 (2020) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185443.jpgsave_picture_185443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185443.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:4E6380FAB8BF1625D684F39F00F5CDE3C0BCD8D6
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185444.jpgsave_picture_185444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185444.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:5311414133E5BB4C82A3A0E7A1ACD1E6CBD6E3BA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185447.jpgsave_picture_185447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185447.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185448.jpgsave_picture_185448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185448.jpg" />
 </div>
 
 

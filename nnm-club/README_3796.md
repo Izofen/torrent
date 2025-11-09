@@ -6,7 +6,7 @@ Running Wild - Gates To Purgatory (1984) [APE|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119076.jpgsave_picture_119076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119076.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Madder Mortem - Old Eyes, New Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119077.jpgsave_picture_119077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119077.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ South Of Sundays - Honey Tongue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119078.jpgsave_picture_119078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119078.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119079.jpgsave_picture_119079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119079.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Hit The Ground Runnin' - Control Yourself (2000) Reissue, Remastered, 2023, Prid
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119080.jpgsave_picture_119080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119080.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Black Paisley - Perennials (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119081.jpgsave_picture_119081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119081.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119082.jpgsave_picture_119082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119082.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Sacred Darkness - Dark Depth (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119083.jpgsave_picture_119083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119083.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Bookends 14.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119084.jpgsave_picture_119084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119084.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Modern Witchcraft - Modern Witchcraft (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119085.jpgsave_picture_119085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119085.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Soulless - Isolated (2011) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119086.jpgsave_picture_119086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119086.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Scrutiny 12.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119087.jpgsave_picture_119087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119087.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ n-Track Studio Suite 10.0.0 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119088.jpgsave_picture_119088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119088.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Ribspreader - Reap Humanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119089.jpgsave_picture_119089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119089.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:5DBE4FD3DCF92F5CB01863A5BD967054030A324F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119090.jpgsave_picture_119090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119090.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:A47165E1831C78179CDAF20CC973A8781AE786C9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119091.jpgsave_picture_119091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119091.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:572F79B3D3667C35261CA834ABD8AAC5906B74EF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119092.jpgsave_picture_119092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119092.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E6FF70F832327052A3C96B3741A0F237B5C82DC1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119093.jpgsave_picture_119093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119093.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Millennium - The Sign Of Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119094.jpgsave_picture_119094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119094.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Glary Tracks Eraser 6.0.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119095.jpgsave_picture_119095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119095.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:4FE356A15F71965A93A7FA9033DA973C7C06CB41
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119096.jpgsave_picture_119096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119096.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Lara Fabian - Lara Fabian (1991) [OGG Vorbis|480 Kbps] <Pop, Chanson, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119097.jpgsave_picture_119097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119097.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Code Elektro - Metal Heart (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119098.jpgsave_picture_119098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119098.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:D835B8CE20D3BEA2A63C5BEE74C87085E34D759A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119099.jpgsave_picture_119099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119099.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:FDD89E558502DF049B3D4613B6C36D219F336A1E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119100.jpgsave_picture_119100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119100.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Tipard DVD Creator for Mac 3.2.50 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119101.jpgsave_picture_119101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119101.jpg" />
 </div>
 
 

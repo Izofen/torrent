@@ -6,7 +6,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24802.jpgsave_picture_24802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24802.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Love, Money, Rock'n'Roll / Любовь, Деньги, Рок-н-Ролл (2022)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24819.jpgsave_picture_24819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24819.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ House of Caravan (2015) [Ru/Multi] (1.0.1) Scene PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25009.jpgsave_picture_25009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25009.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25081.jpgsave_picture_25081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25081.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MainFrames (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25188.jpgsave_picture_25188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25188.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25212.jpgsave_picture_25212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25212.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25214.jpgsave_picture_25214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25214.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ UNCURSED (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25248.jpgsave_picture_25248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25248.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dark Return (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25263.jpgsave_picture_25263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25263.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Split Fiction (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25280.jpgsave_picture_25280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25280.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Biohazard: Siberia (2025) [En] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25290.jpgsave_picture_25290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25290.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Romance Club - Stories I Play (2023) [Ru/Multi] (1.0.39200) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25315.jpgsave_picture_25315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25315.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Split Fiction (2025) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25338.jpgsave_picture_25338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25338.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (Build 811.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25373.jpgsave_picture_25373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25373.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25381.jpgsave_picture_25381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25381.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.811.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25451.jpgsave_picture_25451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25451.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25473.jpgsave_picture_25473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25473.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lyndaria Lust Adventure (2024) [Ru/Multi] (1.2.b/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25481.jpgsave_picture_25481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25481.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Peaks of Yore (2023) [En] (1.9.7a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25492.jpgsave_picture_25492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25492.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25499.jpgsave_picture_25499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25499.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25513.jpgsave_picture_25513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25513.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25595.jpgsave_picture_25595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25595.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ My Hotel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25820.jpgsave_picture_25820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25820.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26228.jpgsave_picture_26228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26228.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26229.jpgsave_picture_26229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26229.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26241.jpgsave_picture_26241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26241.jpg" />
 </div>
 
 

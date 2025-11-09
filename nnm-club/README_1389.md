@@ -6,7 +6,7 @@ RetroVision - More Bass More Good, ADE, Netherlands (2024-10-18) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36469.jpgsave_picture_36469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36469.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mell Vf - Queen Of My Castle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36470.jpgsave_picture_36470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36470.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mur - Mur (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36471.jpgsave_picture_36471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36471.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Music News For Forum vol.045 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36472.jpgsave_picture_36472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36472.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 - 4 (2024)
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36473.jpgsave_picture_36473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36473.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:1B3E29F5D1C793242EBD052B2A59D9E94C011F03
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36474.jpgsave_picture_36474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36474.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete E
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36475.jpgsave_picture_36475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36475.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Android (Marc Hartman and Imro van Hetten) - Spaceman's Return (2022) [FLAC|Loss
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36476.jpgsave_picture_36476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36476.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:F8E2B942F279AF691276800D46D84FF6FC4454D2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36477.jpgsave_picture_36477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36477.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:891D46D38464BFA20AA5F5B053532EEA333DC273
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36478.jpgsave_picture_36478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36478.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ U2 - How To Dismantle An Atomic Bomb (Re-Assemble Edition) (2004) Remastered, 20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36479.jpgsave_picture_36479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36479.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:398426CFBC4103A085D89981645DC71918DD5CC7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36480.jpgsave_picture_36480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36480.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:641EBC96EBDB4DF1CA769F618ABECB3D7558BD55
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36481.jpgsave_picture_36481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36481.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Soft Jazz Mood - Erotic Daydreaming: Romantic Sexy Relaxation (2024) [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36482.jpgsave_picture_36482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36482.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Die for my Sins - Scream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36483.jpgsave_picture_36483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36483.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:C65556F91FE8D78D4C9ED916DFB4AB937FD8C547
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36484.jpgsave_picture_36484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36484.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Chicago - Live At 55 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36485.jpgsave_picture_36485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36485.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Michael Kiwanuka - Small Changes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36486.jpgsave_picture_36486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36486.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Samson - Survivors (1979) Japanese Edition, Reissue, 1990, Jimco Records [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36487.jpgsave_picture_36487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36487.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:149E6359B17C7567442CFE6399379DD6A6062FEA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36488.jpgsave_picture_36488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36488.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Crossbone Skully - Evil World Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36489.jpgsave_picture_36489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36489.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:B2E9F1690B90538E7AC16C791D6E3414C959FA82
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36490.jpgsave_picture_36490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36490.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:6C0E32A59238993A094A7AA62E6BBEE4F5D15751
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36491.jpgsave_picture_36491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36491.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:C6A54C362117F166F6AA79AA6EA72C7F89A6B7D4
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36492.jpgsave_picture_36492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36492.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:58AF6474D83A6AB9F9DC9C476D7A77B703FD0D20
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36493.jpgsave_picture_36493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36493.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:D1AE7B7BEFE6A5F15596AE9C5C14C685C441F663
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36494.jpgsave_picture_36494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36494.jpg" />
 </div>
 
 

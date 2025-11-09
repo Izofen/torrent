@@ -6,7 +6,7 @@ Group | Stand Up Сезон 8 (2018) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144298.jpgsave_picture_144298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144298.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PROMT for Microsoft Office 11 Build 9.0.556 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144299.jpgsave_picture_144299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144299.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DFFE5FA4109D2A6FF8BB2F08BB9CB319B1DC00A3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144300.jpgsave_picture_144300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144300.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A7FE9CCDA82DAD6C2D2FE8AF45701C0C1D9BF7FA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144301.jpgsave_picture_144301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144301.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EE0258D8FAEF0FDDA9674981CBB6BFDF8A586E85
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144302.jpgsave_picture_144302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144302.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:85D94B85573F052D94AA73E2A835073CD181E7DE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144303.jpgsave_picture_144303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144303.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:20AB24EFEF016453F6003EACADBEEB1B2FA8A685
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144304.jpgsave_picture_144304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144304.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Deep Glow Electro House (2020) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144305.jpgsave_picture_144305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144305.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Dropshare 5 v.5.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144306.jpgsave_picture_144306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144306.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:ECF3F081AEF35B7789D962381D02A9E51CA75ECA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144307.jpgsave_picture_144307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144307.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8FAD427C74241C8CBCA7681DDF9F0939A449E0E3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144309.jpgsave_picture_144309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144309.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D37E0C2724F444CDBF763BC9F17E1A57DDBB6B72
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144310.jpgsave_picture_144310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144310.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144311.jpgsave_picture_144311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144311.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ NCH DreamPlan Plus 8.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144312.jpgsave_picture_144312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144312.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7136F2DFD332F431393F430EFE29084A8717B1FD
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144313.jpgsave_picture_144313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144313.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Rose Bialo: Italiano Classico Vocale (2020) [MP3|320 Kbps] <Vocal, Pop, Cla
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144314.jpgsave_picture_144314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144314.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:D6AA926E0673865101226E1EEBFB6A85A0CBB66B
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144315.jpgsave_picture_144315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144315.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:DEDB3DA05DA7C2564528583DF22BBBB1C2200EDE
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144316.jpgsave_picture_144316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144316.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Process Lasso Pro 9.0.0.548 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144318.jpgsave_picture_144318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144318.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Lindi Ortega (Линди Ортега) - Fall From Grace (2007) Last Gang Record
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144319.jpgsave_picture_144319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144319.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:3C0EE9CF47215D66DDA5FE799B496EC11CF0E0C4
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144320.jpgsave_picture_144320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144320.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Adobe Flash Player 20.0.0.267 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144321.jpgsave_picture_144321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144321.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:0DD1B858D5331BF1CC3A97AAA91D1E1A64EEF680
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144323.jpgsave_picture_144323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144323.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144324.jpgsave_picture_144324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144324.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Maxthon Browser 5.1.5.200 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144325.jpgsave_picture_144325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144325.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:226A0C77B4A3F0AD1AD00A0D4F95E6F0CB4E4A8F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144326.jpgsave_picture_144326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144326.jpg" />
 </div>
 
 

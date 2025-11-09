@@ -6,7 +6,7 @@ OneCommander Pro 3.79.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56787.jpgsave_picture_56787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56787.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DCC76FDB8EF0D077DCD10930C4769D367154B89B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56788.jpgsave_picture_56788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56788.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Merab Amzoevi - This is Merab Amzoevi (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56789.jpgsave_picture_56789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56789.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:94276201480A90CB9C4D7D35D5E80590DA098FD3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56790.jpgsave_picture_56790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56790.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:5A2316167516110C5AFE548A3B0EF637145FA697
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56791.jpgsave_picture_56791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56791.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Kmfdm Vs. Pig - Sin Sex & Salvation (1994) Deluxe 2024, Armalyte Industries [FLA
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56792.jpgsave_picture_56792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56792.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VirusTotal Mobile 2.5 Lite-Mod by cvvar00 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56793.jpgsave_picture_56793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56793.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ A'Studio - Лучшие Песни (2008) [WavPack|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56794.jpgsave_picture_56794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56794.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Mother: Saigo no Shoujo Eve | Глаза Марса [1993, Movie] VHSRip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56795.jpgsave_picture_56795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56795.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:F5F0B44E9C2447A6871DCBD02BF00C6C24428797
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56796.jpgsave_picture_56796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56796.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:4CBB78EE4D989BE86C040B22C31EB688992E2B52
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56797.jpgsave_picture_56797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56797.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ PrivaZer Pro 4.0.85 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56798.jpgsave_picture_56798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56798.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ DVDInfo 1.3.7 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56799.jpgsave_picture_56799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56799.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:2D30CB99B87F10DC4538F93EC75A6F17F699940D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56800.jpgsave_picture_56800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56800.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Blender K-Cycles RTX 2024 4.1.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56801.jpgsave_picture_56801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56801.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:426237B0D5EB4EBFC358F010DED16C1DD8BDFF3B
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56802.jpgsave_picture_56802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56802.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:65DF2E6C9AE99CB1043FA63DA41862A81309AC52
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56803.jpgsave_picture_56803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56803.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Mists of Noyah (2022) [Multi] (1.0.2) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56804.jpgsave_picture_56804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56804.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Psiphon 3 build 183 (08.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56805.jpgsave_picture_56805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56805.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:FD13BD5CD73179441CC1DAE442BD273B54AA0101
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56806.jpgsave_picture_56806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56806.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:363868CFA4326DCECD2B9C85198EEA8DED0C7CF7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56807.jpgsave_picture_56807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56807.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:3C5C17CB2FCA42DE1848A5BA36F94168F087C11F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56808.jpgsave_picture_56808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56808.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:E66C495B7EFF292DE4A30B78E55C8B901C96FCC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56809.jpgsave_picture_56809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56809.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:1C3FCEDD08F9F61EBBBAAD2B42D4DC421BB43D46
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56810.jpgsave_picture_56810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56810.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:18C5F7BF79557BB9D9914A1FBB7678FF853ECF18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56811.jpgsave_picture_56811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56811.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Wise Care 365 Pro 6.7.2.646 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56812.jpgsave_picture_56812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56812.jpg" />
 </div>
 
 

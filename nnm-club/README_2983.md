@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89153.jpgsave_picture_89153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89153.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CD4193AE0588F63D42476F32DE24B88F5A08D67D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89154.jpgsave_picture_89154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89154.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:DE5481809664EB3095978AEB23A0734040461BEF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89161.jpgsave_picture_89161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89161.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:3C0769E6C3A68F8913D08701E160CD7BC81D8AD1
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89162.jpgsave_picture_89162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89162.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:4EBDBAB73009A3AF23945B88BFD53BFBBD7F894F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89164.jpgsave_picture_89164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89164.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:B558C844CA8AF0B39B34E1E3A4BCDA8F1F9D90ED
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89165.jpgsave_picture_89165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89165.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:AA1F72FE529D22CB1161CEF4474FA05398A7BC82
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89168.jpgsave_picture_89168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89168.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Michael Jackson: Smooth Criminal (2010) DVDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89172.jpgsave_picture_89172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89172.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:5B6CDBF3BC59A043881254BF1C02A48D3791627D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89178.jpgsave_picture_89178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89178.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3E325C15BB4DEC6C9C16A2E2CBECEB2FEE6BD136
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89179.jpgsave_picture_89179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89179.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Paradise Lost - Tragic Idol (2012) [FLAC|Lossless]<Doom / Gothic Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89181.jpgsave_picture_89181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89181.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ MKVToolnix 5.5.0.437 + Portable [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89188.jpgsave_picture_89188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89188.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Любовь Жива. Песни для души (2012) [MP3|256 кб/с]<
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89190.jpgsave_picture_89190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89190.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:DE9D2282E722EA37AA7F7C4572600FE65FB22B9C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89196.jpgsave_picture_89196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89196.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:C609812017D7DC66C70742604648EDB855C8E48A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89197.jpgsave_picture_89197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89197.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Trans-Siberian Orchestra - Beethoven's Last Night (2012) [MP3|320 кб/с]<Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89205.jpgsave_picture_89205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89205.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:D48A851BDA6DC491F240D4C0A4BBEB41431BF285
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89211.jpgsave_picture_89211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89211.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:4E72293B508F4A0DEF954FA4B6A410A5BDBB4F94
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89222.jpgsave_picture_89222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89222.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Codec Pack All in 1 6.0.3.0 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89223.jpgsave_picture_89223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89223.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Codec Pack All in 1 это один из самых лучших пакетов 
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89225.jpgsave_picture_89225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89225.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:7FF89C0DBF8AECBFAC3AF5EADC1A18B46A11BFBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89227.jpgsave_picture_89227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89227.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:2D6D2F2C6789F8128F040E3DCB4BD96FC88DF256
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89229.jpgsave_picture_89229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89229.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:E89C1A5A1CE189897E578DFD765706E272F03405
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89233.jpgsave_picture_89233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89233.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:16D05CEC39C9276F5DE4A678A9A1A5477006601F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89234.jpgsave_picture_89234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89234.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Песни о Великой войне (2005) [MP3|320 kbps]<Военна�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89236.jpgsave_picture_89236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89236.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:3CB88DE276DC71EF101ED472EB6B8EF70F236F18
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89247.jpgsave_picture_89247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89247.jpg" />
 </div>
 
 

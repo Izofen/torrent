@@ -6,7 +6,7 @@ Shing Lyu, Andrew Rzeznik | Practical Rust Projects, 2nd Edition (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188195.jpgsave_picture_188195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188195.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52976C819F190DBA46E9E89EC7DD62E8CE97DE3E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188196.jpgsave_picture_188196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188196.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SamDrivers 23.9 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188197.jpgsave_picture_188197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188197.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2EBA2A7B4C4392F86A8231274DF7C6AB09662D98
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188198.jpgsave_picture_188198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188198.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CCCC8578A4339C378B415A3CE56AB07E22EACC6E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188199.jpgsave_picture_188199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188199.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5D67A1282B269A6FFFE6C3004A7F183E180FA4B0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188200.jpgsave_picture_188200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188200.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7E61AE11035D6600C864DB0B41193AA198A94701
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188201.jpgsave_picture_188201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188201.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:612B5CB9989DD6D52A8D60945B0FED997798665C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188202.jpgsave_picture_188202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188202.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Guitar Instrumentals - Deepest Guitar Blues & Stories (2023) [MP3|320 Kbps] <Ins
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188203.jpgsave_picture_188203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188203.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D17FFFF1341F25BEE11A9C5005957E37325A215E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188204.jpgsave_picture_188204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188204.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:443BD793A27607993275E88A007FA3026BBBC878
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188205.jpgsave_picture_188205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188205.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:6433469DA3111304504FA07100ABB4D8D32757A5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188206.jpgsave_picture_188206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188206.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ DiskWarrior 5.3.1 (Standalone) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188207.jpgsave_picture_188207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188207.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Pale Moon 32.4.0.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188208.jpgsave_picture_188208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188208.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ John M. Stewart, Michael Mommert | Python for Scientists, 3rd Edition (2023) [PD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188209.jpgsave_picture_188209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188209.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Digital Emotion - Digital Emotion & Outside In The Dark (2002) [OGG Vorbis|480 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188210.jpgsave_picture_188210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188210.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PortableApps.com Platform 26.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188211.jpgsave_picture_188211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188211.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:17E236083F059C4A2569E40B4A3F2ABAD83F2011
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188212.jpgsave_picture_188212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188212.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Sufyan bin Uzayr | Mastering SQL: A Beginner’s Guide (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188213.jpgsave_picture_188213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188213.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:14DCC4FC2B7C4BB11C074AA1F469A800B28C699E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188214.jpgsave_picture_188214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188214.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Pedro Igor Silva | Keycloak – Identity and Access Management for Modern Applic
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188215.jpgsave_picture_188215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188215.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Otonari ni Ginga | A Galaxy Next Door | Галактика по соседств
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188216.jpgsave_picture_188216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188216.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - 80's Revolution - Disco Pop Volume 02 (2012) 2 CD [OGG Vorbis|480 Kbps] <El
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188217.jpgsave_picture_188217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188217.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:F6C92240EC86B4AB20612B86090600C94CDD088A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188218.jpgsave_picture_188218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188218.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:D23B254D5415B5A92FC3878B42065DE0527F7716
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188219.jpgsave_picture_188219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188219.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:08D95E3B357C21986DE24B38FB7A63ACC5AECF6A
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188220.jpgsave_picture_188220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188220.jpg" />
 </div>
 
 

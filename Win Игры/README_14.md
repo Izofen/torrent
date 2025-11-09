@@ -6,7 +6,7 @@ Detective Club 2: Gallery of Shadows / Детективный клуб 2: Гал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4283.jpgsave_picture_4283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4283.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4302.jpgsave_picture_4302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4302.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Enshrouded (2024) [Ru/Multi] (729115) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4322.jpgsave_picture_4322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4322.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.10.370/dlc) Repack FitGirl [Inne
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4332.jpgsave_picture_4332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4332.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831/dlc) Repack FitGirl [Deluxe Edi
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4342.jpgsave_picture_4342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4342.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4347.jpgsave_picture_4347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4347.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4352.jpgsave_picture_4352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4352.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4357.jpgsave_picture_4357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4357.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PowerSlave Exhumed (2022) [Multi] (1.0.1659) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4362.jpgsave_picture_4362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4362.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack seleZen [Premium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4366.jpgsave_picture_4366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4366.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4368.jpgsave_picture_4368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4368.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Valheim - The Bog Witch (2021) [Ru/Multi] (0.221.4) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4371.jpgsave_picture_4371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4371.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87547) License GOG [Collect
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4376.jpgsave_picture_4376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4376.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4404.jpgsave_picture_4404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4404.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Central Bank / Центральный Банк (2025) [Ru/Multi] (0.99b) Scene T
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4446.jpgsave_picture_4446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4446.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28324) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4451.jpgsave_picture_4451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4451.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Down in Bermuda (2021) [Ru/Multi] (1.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4455.jpgsave_picture_4455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4455.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250831_2044-321866/dlc) Repack Decepti
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4466.jpgsave_picture_4466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4466.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4467.jpgsave_picture_4467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4467.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4480.jpgsave_picture_4480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4480.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Neyyah (2025) [Ru/Multi] (Build 19847679) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4487.jpgsave_picture_4487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4487.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4488.jpgsave_picture_4488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4488.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4495.jpgsave_picture_4495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4495.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Vault of the Void (2022) [Ru/Multi] (2.6.55.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4497.jpgsave_picture_4497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4497.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack SE7EN
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4506.jpgsave_picture_4506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4506.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.77/dlc) Repack Let'sРlay [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4508.jpgsave_picture_4508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4508.jpg" />
 </div>
 
 

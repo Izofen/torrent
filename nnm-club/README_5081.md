@@ -6,7 +6,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158812.jpgsave_picture_158812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158812.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9E89D10E2AF6303257451622023D731778A437AC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158814.jpgsave_picture_158814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158814.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:26B64D3F2E5A41B15D6FEB55F1E94B7C15AE6B4C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158815.jpgsave_picture_158815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158815.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Udemy, Frank Anemaet | Python Desktop Apps with Tkinter (2018) WEB-DL [EN, RU / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158816.jpgsave_picture_158816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158816.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Maxon ZBrush 2022.0.6 (x64) RePack by OctaneS [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158817.jpgsave_picture_158817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158817.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:EF6B4BF67E47CAB76EC4D58367FC54DF9A815CB5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158818.jpgsave_picture_158818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158818.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158819.jpgsave_picture_158819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158819.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ CGMA, Behnam Shafiebeik | Nuke Compositing for 3D Artists (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158820.jpgsave_picture_158820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158820.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:686C637616B8CC3257B7690C6F46739BA2BD5E99
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158821.jpgsave_picture_158821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158821.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:00878BDF05DF951C1C357E8EB5653E732965465F
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158822.jpgsave_picture_158822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158822.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3D0F43A6F5E43F1BA976907D2B93D826B941311F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158823.jpgsave_picture_158823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158823.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:4F4C33E51E1FABECF61B3D7A756E36E9777A9519
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158824.jpgsave_picture_158824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158824.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:7AFEBC1E33B597E99376C0ED02A6991DA0CFB486
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158825.jpgsave_picture_158825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158825.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:F4AF481D54B7E55D54D8CAE915067AC5C2DC1C6D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158826.jpgsave_picture_158826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158826.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:F14E571ADD79FEC53300C1DBB871B8B28C66A22C
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158827.jpgsave_picture_158827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158827.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Slurm (Слёрм), Иван Чувашов | DWH на основе GreenPlum (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158828.jpgsave_picture_158828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158828.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:0AEA5E14F8801660056CE65EC56D9426DD5A4022
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158829.jpgsave_picture_158829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158829.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:8EFC65B9B1BD11589D5FAE53769E62754B163E5F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158830.jpgsave_picture_158830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158830.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MetaProducts Offline Explorer Enterprise 8.5.0.4972 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158831.jpgsave_picture_158831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158831.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:8B2275B90C360B26138E61F715FED442870D2EBC
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158832.jpgsave_picture_158832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158832.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:66D7496A562AB21EE4B9E252A7BDCE0148041BBA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158833.jpgsave_picture_158833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158833.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Doro & Warlock - Studio Albums (18 releases) (1984-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158834.jpgsave_picture_158834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158834.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WidsMob AI Retoucher 2.3.0.112 RePack by OctaneS [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158835.jpgsave_picture_158835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158835.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:F701E29E773905CF6295F8838D84F9DCE566F9BE
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158836.jpgsave_picture_158836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158836.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:C671DD9A125DA6E8A2FDAF8107133E9EA8737CCC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158837.jpgsave_picture_158837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158837.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:9B2CB10679C3602DBC8E2339DB887141A7511448
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158838.jpgsave_picture_158838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158838.jpg" />
 </div>
 
 

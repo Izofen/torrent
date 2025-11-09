@@ -6,7 +6,7 @@ Microsoft Windows 10.0.19044.1466, Version 21H2 (Updated January 2022)  - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129870.jpgsave_picture_129870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129870.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Microsoft Windows 10.0.19042.1466, Version 20H2 (Updated January 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130419.jpgsave_picture_130419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130419.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows 10.0.19043.1466, Version 21H1 (Updated January 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130432.jpgsave_picture_130432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130432.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Windows 10.0.19042.1466, Version 20H2 (Updated January 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130457.jpgsave_picture_130457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130457.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Windows 11 [10.0.22000.434], Version 21H2 (Updated January 2022) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130492.jpgsave_picture_130492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130492.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Windows 10.0.19043.1466, Version 21H1 (Updated January 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130494.jpgsave_picture_130494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130494.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Windows Server, Version 20H2 (10.0.19042.1466) (Updated January 2022) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130508.jpgsave_picture_130508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130508.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Microsoft Windows 11 [10.0.22000.434], Version 21H2 (Updated January 2022) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130526.jpgsave_picture_130526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130526.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Microsoft Windows 10.0.19044.1466, Version 21H2 (Updated January 2022)  - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130546.jpgsave_picture_130546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130546.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.469 (Updated January 2022) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130553.jpgsave_picture_130553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130553.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:FCCB9F76E33FD8177A0AA502EBF5CF2605DEE43E
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133987.jpgsave_picture_133987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133987.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Microsoft® Windows® 11 Professional VL x64 25H2 RU by OVGorskiy 10.2025
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136752.jpgsave_picture_136752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136752.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Windows 10 Pro 22H2 19045.3324 (x64) — Windows 7/Vista Style Edition by Window
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136773.jpgsave_picture_136773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136773.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.6899 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136801.jpgsave_picture_136801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136801.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6456 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136907.jpgsave_picture_136907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136907.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Windows 7 SP1 7601.27974 x64 3in1 by OneSmiLe [15.10.2025] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136947.jpgsave_picture_136947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136947.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.6899 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136948.jpgsave_picture_136948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136948.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Microsoft Windows 11 [10.0.22621.2715], Version 22H2 (Updated November 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140736.jpgsave_picture_140736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140736.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.2113 (Updated November 2023) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141000.jpgsave_picture_141000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141000.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Windows 8.1 with Update 3 [November 2014] - Оригинальные образ�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141502.jpgsave_picture_141502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141502.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Recovery USB-Flash for HP 15-ay512ur / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141650.jpgsave_picture_141650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141650.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Windows 7 Профессиональная SP1 x86 (OA CIS and GE) 6.1.7601.1751
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141982.jpgsave_picture_141982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141982.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Microsoft Windows 10.0.19045.3693, Version 22H2 (Updated November 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142838.jpgsave_picture_142838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142838.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Microsoft Windows 10.0.19045.3693, Version 22H2 (Updated November 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144771.jpgsave_picture_144771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144771.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Microsoft Windows 11 [10.0.22621.2715], Version 22H2 (Updated November 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144866.jpgsave_picture_144866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144866.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Recovery USB-flash for Asus X555 LN / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146192.jpgsave_picture_146192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146192.jpg" />
 </div>
 
 

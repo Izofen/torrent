@@ -6,7 +6,7 @@ VA - Jazz Night: Urban Chillout Music (2022) [AAC|~311 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234932.jpgsave_picture_234932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234932.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0D3BE26DA5724E6E566A4505A392FD307C3DD6E4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234934.jpgsave_picture_234934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234934.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Chillhop Guitar - Soothing Routine (2021) [AAC|~324 Kbps] <Chill Out, Smooth Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234936.jpgsave_picture_234936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234936.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CamScanner 6.43.0.2306240000 Mod by maxi123444, youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234937.jpgsave_picture_234937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234937.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:8891F48CB2232D3E71D4897A108FF515F78F12DA
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234938.jpgsave_picture_234938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234938.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Eddie Heywood - The Touch Of Eddie Heywood (1957) 1999, RCA [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234939.jpgsave_picture_234939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234939.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Chillhop Guitar - Lazy Mood (2021) [AAC|~308 Kbps] <Chill Out, Smooth Jazz, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234940.jpgsave_picture_234940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234940.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:C4BDEFE43E138D3E21C5F0142FF81E00FB44F905
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234942.jpgsave_picture_234942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234942.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Perpetual Etude - Now Is The Time (2021) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234943.jpgsave_picture_234943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234943.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:E3FD9AD107AA6C083A61A286FF31F7600641309F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234944.jpgsave_picture_234944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234944.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:9AFCA1FE9D141F10C420A1E363CBCB9CF3FB2AE9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234945.jpgsave_picture_234945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234945.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Glary Disk Cleaner 5.0.1.292 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234946.jpgsave_picture_234946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234946.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 1 (2021) [AAC|~328 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234948.jpgsave_picture_234948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234948.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ LDPlayer 9.0.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234949.jpgsave_picture_234949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234949.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Ronnie Atkins - Make It Count (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234950.jpgsave_picture_234950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234950.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Scrutiny 12.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234951.jpgsave_picture_234951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234951.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Windows 10 21H2 (19044.1706) x64 (6in1) by Brux [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234952.jpgsave_picture_234952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234952.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:BDC29FA3AB77BFC25456DB1083A727794FF51E42
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234954.jpgsave_picture_234954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234954.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ ExtraDisks 23.5.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234955.jpgsave_picture_234955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234955.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Sleep Braids - Improvised Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <pop punk, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234956.jpgsave_picture_234956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234956.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Sonny Stitt - With The New Yorkers (1957) 2002, Roost [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234957.jpgsave_picture_234957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234957.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1460AB55577969BBC75DB511A83C9680F5B480B0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234959.jpgsave_picture_234959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234959.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:DB143F88D83E78A80D31CC6BBC41775871CEF87F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234960.jpgsave_picture_234960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234960.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:1CC1ACFB3CE371FD00B4D651409641CB817D5D65
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234961.jpgsave_picture_234961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234961.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Integrity Pro 12.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234962.jpgsave_picture_234962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234962.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ WhatsApp 2.2216.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234963.jpgsave_picture_234963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234963.jpg" />
 </div>
 
 

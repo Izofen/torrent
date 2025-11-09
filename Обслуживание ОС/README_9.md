@@ -6,7 +6,7 @@ BleachBit 4.6.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160791.jpgsave_picture_160791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160791.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer Pro 4.0.113 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161939.jpgsave_picture_161939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161939.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ PrivaZer Pro 4.0.113 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161942.jpgsave_picture_161942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161942.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Elcomsoft System Recovery 8.31.1157 Professional Edition (BootCd) [Ru/En/De]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169658.jpgsave_picture_169658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169658.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Glary Utilities Pro 5.212.0.241 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172797.jpgsave_picture_172797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172797.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ WinTools.net Premium 25.11.1 Premium RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173593.jpgsave_picture_173593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173593.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ BleachBit 5.0.2 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173768.jpgsave_picture_173768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173768.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Auslogics Registry Cleaner Pro 10.0.0.4 RePack (& Portable) by TryRooM [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175257.jpgsave_picture_175257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175257.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Auslogics BoostSpeed 13.0.0.5 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175962.jpgsave_picture_175962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175962.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ R-WipeClean  20.0.2380 Portable by AlexYar [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179208.jpgsave_picture_179208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179208.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Total Uninstall Portable (Ultimate, Professional, Essential) 7.5.0.655 x64 by re
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181154.jpgsave_picture_181154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181154.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Total Uninstall Ultimate Portable 7.4.0.650 x64 by remek002 [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181173.jpgsave_picture_181173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181173.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Cyotek CopyTools 1.4.5.215 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181394.jpgsave_picture_181394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181394.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ IObit Uninstaller Pro 13.1.0.3 [Multi/Ru] (акция Comss)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186394.jpgsave_picture_186394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186394.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ RAM Saver Professional 25.10.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187873.jpgsave_picture_187873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187873.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Display Driver Uninstaller 18.1.3.7 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187987.jpgsave_picture_187987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187987.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ WinUtilities Professional 15.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190397.jpgsave_picture_190397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190397.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Geek Uninstaller 1.5.2 Build 165 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191404.jpgsave_picture_191404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191404.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Auslogics BoostSpeed Pro 13.0.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191728.jpgsave_picture_191728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191728.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WinUtilities Professional Edition 15.89 RePack (& Portable) by Dodakaedr [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191794.jpgsave_picture_191794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191794.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ IObit Uninstaller Pro 15.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193352.jpgsave_picture_193352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193352.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Advanced SystemCare Pro 19.0.1.158 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193704.jpgsave_picture_193704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193704.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ SophiApp 1.0.97 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195127.jpgsave_picture_195127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195127.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Total Uninstall 7.4.0 Professional RePack (& Portable) by elchupacabra [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195392.jpgsave_picture_195392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195392.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Auslogics Windows Slimmer 4.0.0.3 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195901.jpgsave_picture_195901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195901.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Ashampoo Driver Updater 1.6.0.0 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196574.jpgsave_picture_196574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196574.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40240.jpgsave_picture_40240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40240.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8666EB424547469A38B5CDEAB55E7D3E703320EB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40241.jpgsave_picture_40241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40241.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EE81D0AE6BBBC1090063E85EAEA40158228805AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40242.jpgsave_picture_40242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40242.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bill Wyman & The Rhythm Kings - 17 альбомов, 2 Box Set (1997 - 2018) 26 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40243.jpgsave_picture_40243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40243.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Macrium Reflect 8.1.8017 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40244.jpgsave_picture_40244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40244.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ KMSAuto++ Portable 1.9.9 b05 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40245.jpgsave_picture_40245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40245.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:AF48E7ED73EA9C082BFB850408089509664B784D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40246.jpgsave_picture_40246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40246.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:BED3852AB641AEFE9FAF83918BA0476AA0FA307B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40247.jpgsave_picture_40247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40247.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.0.1) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40248.jpgsave_picture_40248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40248.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40249.jpgsave_picture_40249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40249.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:A512ADF4E8AD69C9FA489373924C114A1E542445
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40250.jpgsave_picture_40250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40250.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CE1EC30C1573C9591808CA0005C9DBC44F34FFB8
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40251.jpgsave_picture_40251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40251.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:FF2969F3731D8E87A9D30BFE65B14B93E38F9A60
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40252.jpgsave_picture_40252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40252.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Elasto Mania II (2017) [En] (1.02) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40253.jpgsave_picture_40253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40253.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:C68754FBFC98053E8D2C96BC963D3A8645665397
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40254.jpgsave_picture_40254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40254.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:8715E2E551A6F8702D63D5F7ED8FC5377888D507
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40255.jpgsave_picture_40255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40255.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Stage of Reality - Digital God (2024) [MP3|320 Kbps] <Melodic Progressive Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40256.jpgsave_picture_40256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40256.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Ibiza Closing 2024 (Chillout & Lounge Music) (2024) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40257.jpgsave_picture_40257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40257.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:2E2912EEA34525F4EA44EF77FFD5600F4A039DF6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40258.jpgsave_picture_40258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40258.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Cnvx (CoNVeX) - Unfolding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40259.jpgsave_picture_40259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40259.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:6655C435ED4FC48E7051F294C53B5946D3FCD428
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40260.jpgsave_picture_40260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40260.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ La Femme - Rock Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40261.jpgsave_picture_40261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40261.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:BB4AB0D2AA75FE3C112977B8036EA12898FF1A7B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40262.jpgsave_picture_40262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40262.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:4E36EC4000724DB2F533BFAC4DEF44935A881284
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40263.jpgsave_picture_40263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40263.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:7FDDE7E1DFC09986A2556FAC69920B6BA8442E0D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40264.jpgsave_picture_40264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40264.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Nocturna (Italy) - Studio Albums (2 releases) (2022-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40265.jpgsave_picture_40265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40265.jpg" />
 </div>
 
 

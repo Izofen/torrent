@@ -6,7 +6,7 @@ Gibbscam 2024 v24.0.71 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46507.jpgsave_picture_46507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46507.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A22A0BDB492445D3EA1E605030D87313E4241443
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46508.jpgsave_picture_46508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46508.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4173373AE61AA02AECB494D1C3DF18204032ABDB
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46509.jpgsave_picture_46509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46509.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FC082896F631ABDAF7803F48B4750A876371DBB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46510.jpgsave_picture_46510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46510.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3657DB290A0FF48BC0FC4F8638B2B34592A2C076
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46511.jpgsave_picture_46511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46511.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:851ABC2EB4674633C8100325DD6C8CC413512233
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46512.jpgsave_picture_46512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46512.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E9B671E9316762182096E6029B7BA38C2F741836
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46513.jpgsave_picture_46513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46513.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46514.jpgsave_picture_46514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46514.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Wondershare PDFelement 11.0.5.3099 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46515.jpgsave_picture_46515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46515.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:96E63AB4D5CA78402E7242ABE4A9ECE848183C1C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46516.jpgsave_picture_46516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46516.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:D359220653D7712E30BABF31B463A0B4E86D5EE3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46517.jpgsave_picture_46517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46517.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:B23A54D694C5D20D68BF1E97A3F1B43F9490D399
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46518.jpgsave_picture_46518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46518.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:02FE5ED1AD31319A428110623A90FA2B15FF01E9
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46519.jpgsave_picture_46519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46519.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Falling In Reverse - Popular Monster (2024) [FLAC 24/44.1,96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46520.jpgsave_picture_46520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46520.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E71306EE1C91261431E0DCDBB02DE55AC3495394
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46521.jpgsave_picture_46521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46521.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Inversion (2012) [Ru] (5.48) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46522.jpgsave_picture_46522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46522.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7F9C0D9157E7A468B6C24DF72CF51AB62B55068D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46523.jpgsave_picture_46523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46523.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Isekai Suicide Squad | Отряд самоубийц в другом мире [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46524.jpgsave_picture_46524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46524.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C4182662046564E2A724DDD0810F515BA779B9E5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46525.jpgsave_picture_46525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46525.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:4C78B480A874A5E9602A1D595AB162AAB13A6471
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46526.jpgsave_picture_46526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46526.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46527.jpgsave_picture_46527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46527.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2D93E62B8D2C4F218EB32CC38B06A35C655EFD23
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46528.jpgsave_picture_46528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46528.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Intravenous 2 (2024) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46529.jpgsave_picture_46529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46529.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:FBD822C0E61D530BD87885CD46D20201A01DC606
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46530.jpgsave_picture_46530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46530.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46531.jpgsave_picture_46531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46531.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:7CFB24141D41E007BBFF28C812BDCB94691CBE6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46532.jpgsave_picture_46532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46532.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Ibiza Lounge 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18296.jpgsave_picture_18296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18296.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Roman Messer - Serendipity (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18303.jpgsave_picture_18303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18303.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Nothing But... Late Night Deep House, Vol. 01 (2025) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18409.jpgsave_picture_18409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18409.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - The Perfect Lounge Balearic Session (2025) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18513.jpgsave_picture_18513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18513.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - A State of Trance - Classics Top 10, Vol. 3 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18517.jpgsave_picture_18517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18517.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Relax & Unwind: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18817.jpgsave_picture_18817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18817.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Downtempo Reflection: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19019.jpgsave_picture_19019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19019.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Beach Lounge 2025 (Deep Strips Records ) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19131.jpgsave_picture_19131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19131.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F014EFCD5E33D9D0C11FE69B32483BF7ED4B49DA
 >>IDM
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19250.jpgsave_picture_19250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19250.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Midnight Chills (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19448.jpgsave_picture_19448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19448.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Afro Beats Summer Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19552.jpgsave_picture_19552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19552.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - The Sound of 2025, Chapter 4: Paris (Day Mix) (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19553.jpgsave_picture_19553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19553.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Deep Trance Showcase V (2025) [MP3|320 Kbps] <Trance, Progressive, Electron
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19556.jpgsave_picture_19556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19556.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 4 (2025) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19557.jpgsave_picture_19557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19557.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Made2Chill 1 (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Downtempo, A
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19558.jpgsave_picture_19558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19558.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Armin van Buuren - A State Of Trance 1223 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19560.jpgsave_picture_19560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19560.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Blacktree - The Sexual Revolution (2015) [FLAC|Lossless|image + .cue] <Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19562.jpgsave_picture_19562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19562.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Markus Schulz - The Rabbit Hole Circus (Extended Mixes) (2025) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19570.jpgsave_picture_19570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19570.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - So you... (Mixed and compiled by Kaatée) (2022) [MP3|320 Kbps] <Deep House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19654.jpgsave_picture_19654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19654.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Chill Electronica (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19763.jpgsave_picture_19763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19763.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19764.jpgsave_picture_19764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19764.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Chill Out Tempel (Ambient Chill Out Tunes), Vol. 2 (2025) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19765.jpgsave_picture_19765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19765.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Summer Pool Party 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19842.jpgsave_picture_19842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19842.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Trance Top 100, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19861.jpgsave_picture_19861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19861.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Golden Hour Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20161.jpgsave_picture_20161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20161.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Italian Restaurant Chill Music Vol. 2 (Beats to relax) (2022) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20278.jpgsave_picture_20278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20278.jpg" />
 </div>
 
 

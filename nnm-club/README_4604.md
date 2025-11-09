@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144115.jpgsave_picture_144115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144115.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E19676933DE6BBA558BC67B81CE86D4DF376F3D0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144116.jpgsave_picture_144116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144116.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:ED2E0D01E58EC346BF7A1DF5DDC9EE441B6193EE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144117.jpgsave_picture_144117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144117.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4235165345267D924847F18F4B84EB34816BF52B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144118.jpgsave_picture_144118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144118.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:FB3B4391CB0FE59975BF11866C8E7057FA0DFFCB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144119.jpgsave_picture_144119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144119.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:AB586376F3671376337141722AB00F90F5DDB0A7
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144120.jpgsave_picture_144120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144120.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:53C87284AA53D1D4D595D10692356D51B96CFA40
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144121.jpgsave_picture_144121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144121.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F82D8CAE941F163FB779B82A2A2C4E91B873A64E
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144122.jpgsave_picture_144122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144122.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:F82D8CAE941F163FB779B82A2A2C4E91B873A64E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144123.jpgsave_picture_144123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144123.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Fantastique - Fantastique (1982) 2006 [FLAC|Lossless|image + .cue] <Disco, Hi-NR
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144124.jpgsave_picture_144124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144124.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Mozilla Thunderbird 52.5.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144126.jpgsave_picture_144126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144126.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Retro Megadance Party (2009) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144127.jpgsave_picture_144127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144127.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Never Alone / Kisima Ingitchuna (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144128.jpgsave_picture_144128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144128.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144129.jpgsave_picture_144129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144129.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:F99893C66707F901A14E29ABA4B8201EA656958A
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144130.jpgsave_picture_144130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144130.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C7913386C723CCAFE02F69FEFB41B973D8FE0EBC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144131.jpgsave_picture_144131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144131.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:FE73B5DF8957045AA4497BCEBC3A6F0C5DB1A471
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144132.jpgsave_picture_144132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144132.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Office 2019 Professional/ProPlus + Visio Standard/Pro + Project Standa
 >>Оригинальные версии Office
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144133.jpgsave_picture_144133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144133.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:EDBBDC586FD371D25CBF54E3352D0DFF76A66561
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144136.jpgsave_picture_144136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144136.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:78C92B826100BFA3986866B51E16D24DA7B726E5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144137.jpgsave_picture_144137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144137.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:C12505D5F2FA7FC2A66A7045E6E95658E1364FA0
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144138.jpgsave_picture_144138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144138.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144139.jpgsave_picture_144139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144139.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:51FF8CC50CF42B508D3E3D63841D080932C2A70E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144140.jpgsave_picture_144140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144140.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Lee Morgan - Expoobident (1960) 1995, Charly Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144141.jpgsave_picture_144141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144141.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144142.jpgsave_picture_144142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144142.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:F8DE54F5CDA097992E93FE8191C2130A4630122C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144144.jpgsave_picture_144144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144144.jpg" />
 </div>
 
 

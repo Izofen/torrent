@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31685.jpgsave_picture_31685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31685.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RegCool 2.020 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31686.jpgsave_picture_31686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31686.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31687.jpgsave_picture_31687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31687.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Firefox Browser ESR 128.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31688.jpgsave_picture_31688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31688.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E6C66050D1E9E1A62188C5C5398BA4E394C82AEF
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31689.jpgsave_picture_31689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31689.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Blue Lock | Синяя тюрьма: Блю Лок [ТВ-1] [2022, TV, 24 из 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31690.jpgsave_picture_31690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31690.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1BB25B9D59F5160B8C6C18CC6A4F19283DF8A2B6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31691.jpgsave_picture_31691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31691.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Imagine 1.7.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31692.jpgsave_picture_31692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31692.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:948708E70DA6EFC4CDC2C08C415D75F7DCE0F702
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31693.jpgsave_picture_31693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31693.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Process Lasso Pro 15.0.4.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31694.jpgsave_picture_31694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31694.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ TapinRadio 2.16.002 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31695.jpgsave_picture_31695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31695.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B80CD537737AA997E875B93D95B6D3CE5A2DE0A0
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31696.jpgsave_picture_31696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31696.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31697.jpgsave_picture_31697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31697.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - Pure Bliss Vocals Vol. 3 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31698.jpgsave_picture_31698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31698.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:C90A93100FD05C2CB0415636E83E18BE137CB2C3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31699.jpgsave_picture_31699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31699.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Pure Bliss Vocals Volume 5 (2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31700.jpgsave_picture_31700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31700.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:8AA155EE25AF9C9B29DBAACC541476A566DF3D79
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31701.jpgsave_picture_31701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31701.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ KAT Blue & The True Believers - START BELIEVIN' (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31702.jpgsave_picture_31702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31702.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Pure Vocal Trance Hits Vol. 2 (2016) [MP3|320 кб/с] <Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31703.jpgsave_picture_31703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31703.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ KAT Blue & The True Believers - Start Believin'... (2024) [MP3|320 Kbps] <Blues,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31704.jpgsave_picture_31704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31704.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Vocal Trance Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31705.jpgsave_picture_31705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31705.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:AFA56D0B45E27B37F066E8A13F538C1E6C7C3C15
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31706.jpgsave_picture_31706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31706.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Atri: My Dear Moments | Atri -My Dear Moments- | Атри [2024, TV, 13 из 13]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31707.jpgsave_picture_31707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31707.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Vocal Anthems Amsterdam (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31708.jpgsave_picture_31708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31708.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:4135FB40CEB969BEC4E92A59AB049E6FA47FEE28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31709.jpgsave_picture_31709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31709.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:924A37B361D31234DB323EFF3EBEFEAA22D2B20B
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31710.jpgsave_picture_31710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31710.jpg" />
 </div>
 
 

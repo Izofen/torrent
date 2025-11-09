@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188516.jpgsave_picture_188516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188516.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:01004E7CE5A889AE4B6F42EA17FEAD7E0C18532F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188517.jpgsave_picture_188517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188517.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:55B170A620E15A80984CC522374E98CED66EFA18
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188518.jpgsave_picture_188518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188518.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FC53A1F7301219E8D73B8F8C74AA42B1B7E26BBE
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188519.jpgsave_picture_188519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188519.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Moxy The Band - Dream Feeling (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188520.jpgsave_picture_188520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188520.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Downie 4 v.4.5.11(4455) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188521.jpgsave_picture_188521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188521.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ D-Mad Devil - One With the Darkness (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188522.jpgsave_picture_188522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188522.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:021935761644F1FD0A4A0DF13906CE969DA5B216
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188523.jpgsave_picture_188523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188523.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Butterfly Temple - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188524.jpgsave_picture_188524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188524.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Black Hole Trance Music 09-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188525.jpgsave_picture_188525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188525.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ The Korea - Vorratokon (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188526.jpgsave_picture_188526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188526.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:BF2832AC6965A1399ED883EAE7B0D9B95C51ACD3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188527.jpgsave_picture_188527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188527.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:645C80908053E50DFB94913A0A7A7C4B25FBE564
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188528.jpgsave_picture_188528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188528.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ ZEDGE 8.17.0-beta Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188529.jpgsave_picture_188529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188529.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:83C16A2CF8847016BF14670BD622154F87CAD884
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188530.jpgsave_picture_188530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188530.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Lucky Patcher 10.9.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188531.jpgsave_picture_188531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188531.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:B5D8962DE755B108DB53B814A20D84F2D42BD496
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188532.jpgsave_picture_188532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188532.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Illvilja - Endless Rivers (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188533.jpgsave_picture_188533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188533.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Brave Browser 1.58.124 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188534.jpgsave_picture_188534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188534.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Wizards - Seven (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188535.jpgsave_picture_188535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188535.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:AD54E00EF714E950FB1E8DB69906D168111279FD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188536.jpgsave_picture_188536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188536.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ever Since Eve - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188537.jpgsave_picture_188537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188537.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:33C5BFE3E3361CD24D1716625EA0523ED31E3CDF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188538.jpgsave_picture_188538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188538.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Speedtest от Ookla 5.1.1 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188539.jpgsave_picture_188539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188539.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Desert Dragon - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188540.jpgsave_picture_188540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188540.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ The Grey Curtain - The Florist (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188541.jpgsave_picture_188541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188541.jpg" />
 </div>
 
 

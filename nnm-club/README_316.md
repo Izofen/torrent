@@ -6,7 +6,7 @@ K-Lite Codec Pack 19.1.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8310.jpgsave_picture_8310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8310.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D6DD80F2DB3C6041D9728806896A82F0ABEF0B8B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8311.jpgsave_picture_8311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8311.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Heretic + Hexen (2025) [Ru/Multi] (4577-c7e7b84-170) License GOG
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8312.jpgsave_picture_8312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8312.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Heretic + Hexen (2025) [Ru/Multi] (4577-c7e7b84-170) License GOG
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8313.jpgsave_picture_8313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8313.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:372584387B2CEEAC10D0B7FC793F8537C080DF43
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8314.jpgsave_picture_8314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8314.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows 11 (v24h2) x64 PRO by KulHunter v3 (esd) [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8315.jpgsave_picture_8315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8315.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8B3E8B5AF8C58FD5AD25FA3B951CD7816AE6EDD6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8316.jpgsave_picture_8316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8316.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:24AFF0E1BC0399352276E1AA722ACDB7B9DA9F5A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8317.jpgsave_picture_8317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8317.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:BE6AFC3F7D4D6F797600B1C8996A4C842B6D6765
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8318.jpgsave_picture_8318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8318.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D699AEA5482139C781C0811FD03C44230862437C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8319.jpgsave_picture_8319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8319.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B321F127A1DB9EACFF09EC38BDDB61769ED1DCE2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8320.jpgsave_picture_8320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8320.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ V-Ray 7.20.00 for 3ds Max 2021-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8321.jpgsave_picture_8321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8321.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8322.jpgsave_picture_8322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8322.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:09D5A81410FFEA07B9E245560A7ED6156428F96A
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8323.jpgsave_picture_8323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8323.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ HWiNFO 8.30 Build 5800 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8324.jpgsave_picture_8324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8324.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Chinese Frontiers (2025) [Ru/Multi] (1.021) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8325.jpgsave_picture_8325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8325.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:28B5F73BB86E735DB96C335CE24975C70E0DCA91
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8326.jpgsave_picture_8326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8326.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (12.08.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8327.jpgsave_picture_8327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8327.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Flyoobe 1.0.104 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8328.jpgsave_picture_8328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8328.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:37A21DA60EC144B7DD71CA59DAEB0BCC380DE0CC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8329.jpgsave_picture_8329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8329.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:AB0DB9E9F1348247F450123A62EB137E07C38C80
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8330.jpgsave_picture_8330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8330.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:38ED12A6FF6E5CD0C24172FA8E2425BAF321A08D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8332.jpgsave_picture_8332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8332.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ RAID: World War II (2017) [Ru/Multi] (25.02/dlc) Repack Let'sРlay [Special Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8333.jpgsave_picture_8333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8333.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.1/dlc) Repack Let'sРlay [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8334.jpgsave_picture_8334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8334.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:0D861DF7630967B5293D70B3ED3B968309ED1622
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8335.jpgsave_picture_8335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8335.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:0D861DF7630967B5293D70B3ED3B968309ED1622
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8336.jpgsave_picture_8336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8336.jpg" />
 </div>
 
 

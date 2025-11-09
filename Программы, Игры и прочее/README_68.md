@@ -6,7 +6,7 @@ Kaspersky Internet Security Premium v11.59.4.5119 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164731.jpgsave_picture_164731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164731.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Max Payne Mobile v1.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164771.jpgsave_picture_164771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164771.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2510AC73BE5DEBB78B58C25B7F6619120344E21E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164905.jpgsave_picture_164905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164905.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Garena Free Fire: Безумие v1.56.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164969.jpgsave_picture_164969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164969.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ CookPad 2.228.1.0 Premium Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165053.jpgsave_picture_165053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165053.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ CloudBeats: Cloud Music Player 1.8.3 PRO [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165090.jpgsave_picture_165090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165090.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Sticker Maker v0.0.3-20 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165178.jpgsave_picture_165178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165178.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Screenshot touch v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165238.jpgsave_picture_165238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165238.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Roblox v2.458.415263 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165582.jpgsave_picture_165582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165582.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Aimp v4.02.1368 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166055.jpgsave_picture_166055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166055.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Vivaldi for Android 6.2.3110.143 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166097.jpgsave_picture_166097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166097.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:6E3D403BFDF065AC1253E085CFD7349472919174
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166507.jpgsave_picture_166507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166507.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Birdays – Дни рождения 1.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166576.jpgsave_picture_166576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166576.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Sectograph Pro v5.21_build_175_Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166609.jpgsave_picture_166609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166609.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ HappyMod 3.0.5c Mod by Igorek72rus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166734.jpgsave_picture_166734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166734.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cozy Magnifier & Microscope Plus v6.3.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166852.jpgsave_picture_166852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166852.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Half-Life 2: Эпизод два v78 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167099.jpgsave_picture_167099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167099.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Prince of Persia Shadow&Flame v2.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167264.jpgsave_picture_167264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167264.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Survivalist: invasion PRO v0.0.431 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167412.jpgsave_picture_167412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167412.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Death Worm™ Deluxe 2.0.054 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167590.jpgsave_picture_167590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167590.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ CCleaner Pro: ПО для очистки 23.21.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167667.jpgsave_picture_167667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167667.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ CamScanner 6.50.0.2309270000 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167764.jpgsave_picture_167764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167764.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ PDF Extra: сканер и редактор 10.7.2189 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167861.jpgsave_picture_167861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167861.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Dynamic Island - dynamicSpot 1.76 (200104) Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167892.jpgsave_picture_167892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167892.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ PDF Extra: сканер и редактор 10.6.2171 Lite-Mod by Number one' [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167959.jpgsave_picture_167959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167959.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Node Video - Pro Video Editor 6.8.4 Mod by Alien (ToonXTech) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168000.jpgsave_picture_168000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168000.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6556.jpgsave_picture_6556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6556.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6557.jpgsave_picture_6557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6557.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DBB0FF27FE274D96DA23C9EABE2D37B435BF3003
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6558.jpgsave_picture_6558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6558.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bleeding Deities (2025) [En] (1.0.7) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6559.jpgsave_picture_6559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6559.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3D0F12368934CF0CC00903C9C911DA6C8242AD2C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6561.jpgsave_picture_6561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6561.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Foundation (2019) [Ru/Multi] (1.10.3.12/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6562.jpgsave_picture_6562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6562.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.44294.0/dlc) Repack Let'sРla
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6563.jpgsave_picture_6563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6563.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:5D9537C7BC9B2E606B577F72B67E45318E893D3D
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6564.jpgsave_picture_6564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6564.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B6C3A5D4098EC79B6C5C82D5D57256BD406A5FB7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6565.jpgsave_picture_6565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6565.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F183C844CA333E2D40C02454CD08EBDAE5209B29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6566.jpgsave_picture_6566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6566.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0CA7F9526C5D5F2235E45CA9DF242BF19C474679
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6567.jpgsave_picture_6567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6567.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4A1F7CC56F6570C69FEFBFEF7D1CEDAFCEFCB171
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6568.jpgsave_picture_6568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6568.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Dust Fleet (2023) [Multi] (6.4.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6569.jpgsave_picture_6569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6569.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6570.jpgsave_picture_6570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6570.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10837) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6571.jpgsave_picture_6571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6571.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:978C1AB36B57B9F05008A4CAA328869CB059455B
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6572.jpgsave_picture_6572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6572.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1151/dlc) Repack Let's�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6573.jpgsave_picture_6573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6573.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6574.jpgsave_picture_6574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6574.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:55FD758215AA19D80FE7C03023A4888E0353E26B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6575.jpgsave_picture_6575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6575.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistanc
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6576.jpgsave_picture_6576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6576.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Windows 11 Pro Version 24H2 Build 26100.4946 by Igors_VL [RU]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6577.jpgsave_picture_6577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6577.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:0F6A16207DABBA6F7DC51DDBEA00F91B51991BD6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6578.jpgsave_picture_6578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6578.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.42.1-114) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6579.jpgsave_picture_6579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6579.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:51D01F356EF173C7CB2B6845AC1F7CA8A9773D3F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6580.jpgsave_picture_6580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6580.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:5BD1BDC95F0959183BB188E2829AB5E8D9A7EB55
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6581.jpgsave_picture_6581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6581.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Dashiell Royston - Soul and Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6582.jpgsave_picture_6582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6582.jpg" />
 </div>
 
 

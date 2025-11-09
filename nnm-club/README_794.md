@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20972.jpgsave_picture_20972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20972.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DE382C972E7C3EFE4FFF0882092CB9D42FE64ADC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20973.jpgsave_picture_20973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20973.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:862D8B7BED3540564CBD88DA3D690728873E933C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20974.jpgsave_picture_20974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20974.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AB53405D42EC2832EC08B91A9CC52C5640A16F78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20975.jpgsave_picture_20975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20975.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2CF721EA086657468CDAB148810032A75206BC0A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20976.jpgsave_picture_20976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20976.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EE7FD9BDE7C5D05F9145DF864F5F3F22D39EBFDA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20977.jpgsave_picture_20977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20977.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Kaspersky Free | Standard | Plus | Premium 21.20.8.505 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20978.jpgsave_picture_20978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20978.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D38F6C7C4B42F5DE669DC7E26607DA55EB535D5E
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20979.jpgsave_picture_20979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20979.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:BB8764FDC07A168B943926F027800023396E99AE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20980.jpgsave_picture_20980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20980.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:C0B37A2262EEB8D6B6D9FBC0EA7356878AE0946D
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20981.jpgsave_picture_20981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20981.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.3775 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20982.jpgsave_picture_20982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20982.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:7E6BFC60C858287543B5EC18F093747D9E6D5F0E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20983.jpgsave_picture_20983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20983.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4E9ED8E401DE97522705EFFEC43E4A02FD2D7E2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20984.jpgsave_picture_20984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20984.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Activation Program 1.10 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20985.jpgsave_picture_20985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20985.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ TFC: The Fertile Crescent (2024) [En] (1.2001) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20986.jpgsave_picture_20986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20986.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Malwarebytes AdwCleaner 8.5.1.601 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20987.jpgsave_picture_20987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20987.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20988.jpgsave_picture_20988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20988.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:E82D36712E0DA25140ADF4EFBB141BD6746465E0
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20989.jpgsave_picture_20989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20989.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20990.jpgsave_picture_20990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20990.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Chasys Draw IES 5.35.01 include Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20991.jpgsave_picture_20991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20991.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Epica - Aspiral (2025) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20992.jpgsave_picture_20992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20992.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:90E9AFC904912182FE70C5CC3AA800905F094600
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20993.jpgsave_picture_20993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20993.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Grim Tales 26: Prisoners of the Past (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20994.jpgsave_picture_20994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20994.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:8140F5137861C74A3FDC29B85807D2554B688CF0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20995.jpgsave_picture_20995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20995.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Alfa eBooks Manager 9.1.46 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20996.jpgsave_picture_20996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20996.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ FileZilla 3.69.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20997.jpgsave_picture_20997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20997.jpg" />
 </div>
 
 

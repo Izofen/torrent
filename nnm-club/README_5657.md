@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.50 (0912) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174139.jpgsave_picture_174139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174139.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9BCCB6BC9EBF1006B0A1221DDED27932D9E9E00E
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174140.jpgsave_picture_174140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174140.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Blue Largo - Got to Believe (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174141.jpgsave_picture_174141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174141.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Aeon Zen - Self Portrait (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174142.jpgsave_picture_174142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174142.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:6E967BC7BB06A85F9E4C17ED1B5727A51C75FBC2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174143.jpgsave_picture_174143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174143.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:CF733A61DCA30FD42F7EAB1E74F9C863A7FBD5FF
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174144.jpgsave_picture_174144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174144.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:CC40D1BF8F6E7C500C60AF56D31426BB911AC04D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174146.jpgsave_picture_174146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174146.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Amadine 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174147.jpgsave_picture_174147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174147.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Highlord - The Warning After (2013) [FLAC|Lossless|image + .cue] <Power Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174148.jpgsave_picture_174148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174148.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:F3FD92E8CBF2D508D6EAEBFDAB13F67BA5E6847F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174150.jpgsave_picture_174150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174150.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:9454748322C958244F9C3FAB0FFA516E2AA5A5C6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174151.jpgsave_picture_174151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174151.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:9CE91BAAB1BC1053B257CBFA4D2B75C5025FEBDA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174152.jpgsave_picture_174152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174152.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Mick Kolassa - For The Feral Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174153.jpgsave_picture_174153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174153.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Youtube Downloader HD 3.3.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174154.jpgsave_picture_174154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174154.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Highlord - Hic Sunt Leones (2016) [FLAC|Lossless|image + .cue] <Power Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174156.jpgsave_picture_174156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174156.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:D3789A6280D4CCD5CE9523029A4C1D6F02EDBCB9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174157.jpgsave_picture_174157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174157.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Neptune - Northern Steel (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174158.jpgsave_picture_174158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174158.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:0ADDE6806EAC3B602DC5B4BA696D9555C6009E99
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174159.jpgsave_picture_174159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174159.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:44FDAC04988E3AE2971A0F57255F51B12970E02F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174160.jpgsave_picture_174160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174160.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Advice - Destiny By Dawn (2015) Compilation [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174163.jpgsave_picture_174163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174163.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:5F69A583637389B110CD947CA47C7D95B09F1DB4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174164.jpgsave_picture_174164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174164.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Hands Off! 4.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174165.jpgsave_picture_174165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174165.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:F99F84CD28361A667474F8BEBDECC7302651AF07
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174166.jpgsave_picture_174166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174166.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Highlord - The Death Of The Artists (2009) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174167.jpgsave_picture_174167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174167.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Acutor - Dios ha muerto (1998) Reissue 2015, Mort Discos [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174168.jpgsave_picture_174168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174168.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Лучшие из лучших: Top 100 хитов радиостанций
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174169.jpgsave_picture_174169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174169.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Calm Winter Sea: Chillout Your Mind (2021) [AAC|~339 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170515.jpgsave_picture_170515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170515.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F60E7128EA379CEEBEFC51939C9E368C0CB26559
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170516.jpgsave_picture_170516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170516.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E1FDBA76EEDB56F95DAC2D990B2DF399820C3668
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170517.jpgsave_picture_170517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170517.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SlimBrowser 11.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170518.jpgsave_picture_170518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170518.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Soulver 3 v.3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170519.jpgsave_picture_170519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170519.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Script Debugger 8 v8.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170520.jpgsave_picture_170520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170520.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:529F88E4CD22512CA3EDD5E80F09498606998CFD
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170521.jpgsave_picture_170521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170521.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Manbryne - O Udrece Ciala I Tulaczce Duszy (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170522.jpgsave_picture_170522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170522.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:0ACD846E787DD3F3F30B5AD3932F57D83CB55032
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170523.jpgsave_picture_170523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170523.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Adguard 2.4.0.693 nightly (CL - 1.5.141) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170524.jpgsave_picture_170524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170524.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ IT'sALIE - Emosphere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170525.jpgsave_picture_170525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170525.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Yate 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170526.jpgsave_picture_170526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170526.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Culture Club - Colour By Numbers (1983) 1984,  Virgin [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170527.jpgsave_picture_170527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170527.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Lorraine Geller - At The Piano (1954) 2018, Universal [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170528.jpgsave_picture_170528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170528.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:B26D89791AEFC58E78404A89FBA9AA86FA5E3CB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170529.jpgsave_picture_170529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170529.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Lich King - World Gone Dead (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170530.jpgsave_picture_170530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170530.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Skylum Luminar AI 1.0.0.7326 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170531.jpgsave_picture_170531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170531.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D4F699807010A7293A10DF0616EB3D9B48070D4B
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170532.jpgsave_picture_170532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170532.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ I, the Oracle - 2 Albums, 2 EP (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170533.jpgsave_picture_170533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170533.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Viogression - Expound and Exhort (1991) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170534.jpgsave_picture_170534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170534.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Display Driver Uninstaller 18.0.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170535.jpgsave_picture_170535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170535.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Text Workflow 1.7.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170536.jpgsave_picture_170536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170536.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:71AC04B381EEAEFF7D1A37070BDD15F9EF80F706
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170537.jpgsave_picture_170537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170537.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ System Toolkit 5.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170538.jpgsave_picture_170538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170538.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:EE3FAC29E4872E4141ABCBE6518D518B31B8031F
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170539.jpgsave_picture_170539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170539.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - syncmusic - Essentials, Vol. 1 (2013) [AAC|~335 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170540.jpgsave_picture_170540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170540.jpg" />
 </div>
 
 

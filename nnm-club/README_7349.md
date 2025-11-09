@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251468.jpgsave_picture_251468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251468.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Any Video Converter Ultimate 4.3.8 [Multi/Rus] + Portable *PortableAppZ*
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251469.jpgsave_picture_251469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251469.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Any Video Converter Ultimate предоставляет пользователя
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251471.jpgsave_picture_251471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251471.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4463F19CF0E8F17AB01FFDB2126CD8C9CD8D28EC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251474.jpgsave_picture_251474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251474.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D45213DA34AC1B18FEF8C5458CE3FD7871250F4F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251475.jpgsave_picture_251475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251475.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:55565131D66060F47935E6261C49D2666F4161FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251477.jpgsave_picture_251477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251477.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B85697AC2F1D566FEBEB78368B79F6296814BFE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251480.jpgsave_picture_251480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251480.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3A49C90B379ABE8A5C0C335F05D29FD8789E371E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251482.jpgsave_picture_251482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251482.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3A49C90B379ABE8A5C0C335F05D29FD8789E371E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251487.jpgsave_picture_251487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251487.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:DF14CCAD861ED3616E3EAA53CEEF6612262132FD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251489.jpgsave_picture_251489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251489.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:C440236FD9158FE0EFFAA5C97E8942887C7FC194
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251490.jpgsave_picture_251490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251490.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:86FE66B03656A23240C536696D5D1C0239DCE71F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251494.jpgsave_picture_251494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251494.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:86FE66B03656A23240C536696D5D1C0239DCE71F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251496.jpgsave_picture_251496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251496.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:5A253AA035FED29B8AF927E22FC28F3B5CC5AF8F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251499.jpgsave_picture_251499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251499.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:863EC2EAF4A3C7A1F64DD5D5E8FE6E943D1FD6CF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251502.jpgsave_picture_251502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251502.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Reg Organizer 5.45 Beta 1 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251505.jpgsave_picture_251505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251505.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Reg Organizer® - это многофункциональная программ
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251507.jpgsave_picture_251507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251507.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Reg Organizer® - это многофункциональная программ
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251508.jpgsave_picture_251508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251508.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:F413F8FF13B1FCED54F3471F091771EBC3BB9AA8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251510.jpgsave_picture_251510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251510.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:45E331CA2E7AAB18E2C1299F5A0FFBB978CC7DFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251511.jpgsave_picture_251511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251511.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Iron Maiden - 2 Альбома (1983-2002) [FLAC|Lossless]<Rock, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251516.jpgsave_picture_251516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251516.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Geek Uninstaller 1.0.0.2 (portable) [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251518.jpgsave_picture_251518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251518.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Geek Uninstaller 1.0.0.2 (portable) [Мульти, есть русский]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251520.jpgsave_picture_251520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251520.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:9C671B7AC2AFE031F680B4F68D4B0F0C60A1EC4A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251522.jpgsave_picture_251522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251522.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:8F2A7F9F4DF9D2A7F6BE57AA7E2492519F9D73DF
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251526.jpgsave_picture_251526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251526.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ NVIDIA видеокарты полностью поддерживаются, и 
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251528.jpgsave_picture_251528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251528.jpg" />
 </div>
 
 

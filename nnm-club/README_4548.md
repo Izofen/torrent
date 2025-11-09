@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142314.jpgsave_picture_142314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142314.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:90B6EF85160E5A290829B526DBE6EE6A5BC5EEE1
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142315.jpgsave_picture_142315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142315.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Best of Ballroom Purple (2021) [AAC|~324 Kbps] <Deep House, Downtempo, Tech
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142317.jpgsave_picture_142317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142317.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142318.jpgsave_picture_142318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142318.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A5063EBF0BE40BD8CBCD15BEBA746DCC900A684D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142319.jpgsave_picture_142319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142319.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142320.jpgsave_picture_142320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142320.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142322.jpgsave_picture_142322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142322.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:48D936C289E3F73D0019B39314AED6148D9BA8D1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142323.jpgsave_picture_142323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142323.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Something We All Adore (Compilation by Rialians on Earth) (2021) [AAC|~313 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142324.jpgsave_picture_142324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142324.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:712EE60A8A27089E440049A5FCA4F5F0DA213D38
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142325.jpgsave_picture_142325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142325.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:C351B0B27B60C82A4CD9B970C7CEFA0E5170E5ED
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142326.jpgsave_picture_142326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142326.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:7B32F7A6398FD748612AD912F79B6077C6951CE2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142327.jpgsave_picture_142327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142327.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:9D060A91E7AAE220DE38BEDD5735F99166B71A89
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142328.jpgsave_picture_142328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142328.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:0663710A9F45C8808EB5D889C123F356F2A92159
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142329.jpgsave_picture_142329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142329.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:83E6C733DE1749100F6152C8CE5C33BB4935619C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142330.jpgsave_picture_142330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142330.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - 2 Years of Hoofbeats Music (2019) [AAC|~335 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142331.jpgsave_picture_142331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142331.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:42A97975B98A083B2B2FC9C42B9ECC0118F8621A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142333.jpgsave_picture_142333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142333.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:822A1DCA78D576E5984AE42E706E7EC5C9A06005
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142334.jpgsave_picture_142334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142334.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:C70030BE5C37B2A80BE0600A8D35DE29A797DB00
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142335.jpgsave_picture_142335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142335.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:C26D586C4C924511DB5E17AE09BD50B2F552FEE9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142336.jpgsave_picture_142336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142336.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:AF5E9A63C4A48A7A4415E5707A5F5AD0AB402C0C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142337.jpgsave_picture_142337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142337.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:8B405AC9FF038C42BF6466402B4A269D7234F7F2
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142338.jpgsave_picture_142338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142338.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:F9A433F5A79AF0AB4FC66D0E1C4C56AC74366DEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142340.jpgsave_picture_142340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142340.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ GraphicConverter 11 v11.5.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142341.jpgsave_picture_142341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142341.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - YANA 2021 (2021) [AAC|~333 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142343.jpgsave_picture_142343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142343.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ ActivePresenter Professional Edition 7.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142344.jpgsave_picture_142344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142344.jpg" />
 </div>
 
 

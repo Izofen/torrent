@@ -6,7 +6,7 @@ The Night Eternal - Fatale (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231756.jpgsave_picture_231756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231756.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bandicam 6.2.1.2068 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231758.jpgsave_picture_231758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231758.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Vansidian - Reflecting the Shadows (2023) [MP3|320 Kbps] <Melodic Death, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231759.jpgsave_picture_231759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231759.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Uplifting Only Top 15: June 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231761.jpgsave_picture_231761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231761.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:26039F3098DF70D2D38F11E9F4D36DC98A72D771
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231762.jpgsave_picture_231762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231762.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ PotPlayer 230523 (1.7.21916) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231763.jpgsave_picture_231763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231763.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Venus - Two-0-One-9 (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231764.jpgsave_picture_231764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231764.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:265D3AAD1DD8BF97CC920B894BB9C121B35483D4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231767.jpgsave_picture_231767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231767.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Keep It Trance Vol. 13 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231768.jpgsave_picture_231768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231768.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:36E7DB1F03AADDEA471A48EDFE437276430CB514
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231769.jpgsave_picture_231769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231769.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Unsoulicited - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231770.jpgsave_picture_231770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231770.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Frenzy - Blind Justice (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231772.jpgsave_picture_231772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231772.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231773.jpgsave_picture_231773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231773.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Armin van Buuren - A State Of Trance 1127 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231775.jpgsave_picture_231775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231775.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:841E9FC53412AD98CBC527960D536B4CF6401134
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231776.jpgsave_picture_231776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231776.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - 40 Dance Summer Hits (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231777.jpgsave_picture_231777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231777.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Undead Killer - Awakening of the Undead Killers (2017) [MP3|320 Kbps] <Thrash Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231779.jpgsave_picture_231779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231779.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Midnight Chaser - Rough And Tough (2011) [WavPack|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231780.jpgsave_picture_231780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231780.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Rise to the Sky - 3 Albums (2022-2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Atmosph
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231782.jpgsave_picture_231782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231782.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:BE2CC9C3611D302CD97D5AA890A223E7F2330FBB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231783.jpgsave_picture_231783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231783.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:0187D488090FF29BE41C001499752BB2739663EF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231784.jpgsave_picture_231784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231784.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Thomas Barrandon - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <80's, electro,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231785.jpgsave_picture_231785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231785.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Usnea - Portals Into Futility (2017) [FLAC|Lossless|WEB-DL|tracks] <Blackened Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231788.jpgsave_picture_231788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231788.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:0C0737B0A15BB1666F9B8B092BAFB76F25538F9A
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231789.jpgsave_picture_231789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231789.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Veilburner - VLBRNR (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231790.jpgsave_picture_231790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231790.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ross the Boss - Legacy of Blood, Fire & Steel (2023) Compilation [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231791.jpgsave_picture_231791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231791.jpg" />
 </div>
 
 

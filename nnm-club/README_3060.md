@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97345.jpgsave_picture_97345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97345.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E471D6F0CC8FF3D7CF27BCB93DAB63949D8D3A70
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97346.jpgsave_picture_97346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97346.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Русский Хит - Релиз (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97349.jpgsave_picture_97349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97349.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ VA - Super Trance (2012) [MP3|320 kbps]<Trance | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97350.jpgsave_picture_97350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97350.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3FBA73BCAA1429BFB79FB7949E1F99D714492336
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97357.jpgsave_picture_97357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97357.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:0CD0FAB0E115C5E385B2F56A2F7261BDD14D22F5
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97358.jpgsave_picture_97358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97358.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:7C006C9932FC2C67EA65B8FCC0256952CA632D87
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97360.jpgsave_picture_97360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97360.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Luigi Lusini - Beyond Horizons (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97363.jpgsave_picture_97363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97363.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA -  Зарубежный Super Хит (2012) [MP3|128 kbps]<Pop | Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97366.jpgsave_picture_97366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97366.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:5CE73824F608098B0992D1FA4CAC2F8CB395AF38
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97367.jpgsave_picture_97367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97367.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:A7D0283F50C54FFB5BCEA527027EED95D84B8725
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97369.jpgsave_picture_97369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97369.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Cynic - The Portal Tapes (Compilation) (2012) [MP3|320 кб/с]<Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97372.jpgsave_picture_97372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97372.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:AB6C0B6E9BF64508DBBC6254F452709BD30F271A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97375.jpgsave_picture_97375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97375.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:1859331644D29E26F34D05B106E56CC94EC58248
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97378.jpgsave_picture_97378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97378.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Trance Angels  Vol 1-4 (2010-2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97379.jpgsave_picture_97379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97379.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Anna Luca - Listen And Wait (2012) [MP3|320 кб/с]<Acoustic, Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97384.jpgsave_picture_97384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97384.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Весенние Танцевальные Хиты. Зарубежный (2
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97388.jpgsave_picture_97388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97388.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:793F300312D8159CEA0059BC8CB100FB0F6B2561
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97391.jpgsave_picture_97391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97391.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:1E7A913238F7C5F9E0B1B9A58A15236C274E65E8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97394.jpgsave_picture_97394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97394.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:2A6DE8DBF118FE35E275BC4E9E79B5EF6CAE7B63
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97395.jpgsave_picture_97395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97395.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:C487428ADA76E32154B50C1216EA6C9EF5F437E9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97397.jpgsave_picture_97397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97397.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:CE9DD649981DE6AA906389DF43FF6212BF2D0A0D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97399.jpgsave_picture_97399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97399.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - 200-ка Самых Самых 50/50 (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97400.jpgsave_picture_97400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97400.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - XXXL Турбомодный 50/50 Весна (2012) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97402.jpgsave_picture_97402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97402.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ magnet:?xt=urn:btih:FBE11AD18E2A2E70707FFDFA6E01234033DD5045
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97406.jpgsave_picture_97406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97406.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ magnet:?xt=urn:btih:AEFE6B1F2878B8AD59BB9203F8F8474C8A3FFA79
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97412.jpgsave_picture_97412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97412.jpg" />
 </div>
 
 

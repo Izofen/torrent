@@ -6,7 +6,7 @@ The Quill - In Triumph (2006) Remastered and Expanded Edition, 2025, Metalville 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67658.jpgsave_picture_67658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67658.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Meredith Brooks - Meredith Brooks: I Wouldn’t Want It Any Other Way (2025) [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67667.jpgsave_picture_67667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67667.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Legacy Pilots - Night Flight (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67677.jpgsave_picture_67677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67677.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hellsmoke - Hellucination (2025) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67687.jpgsave_picture_67687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67687.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Hall of Gods - A Tribute to the Gods of Music (2025) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67696.jpgsave_picture_67696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67696.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:2F4D1A45C9A92FC3DE5FD1CC7CD20448178E902D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67742.jpgsave_picture_67742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67742.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Teramaze - The Harmony Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67743.jpgsave_picture_67743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67743.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Sacrifice - Volume Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67779.jpgsave_picture_67779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67779.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Theocracy - Mirror Of Souls (2008) [FLAC|Lossless|image + .cue] <Progressive Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67780.jpgsave_picture_67780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67780.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Slayer - Seasons In The Abyss (1990) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67782.jpgsave_picture_67782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67782.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Trueno Negro - Neogenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67803.jpgsave_picture_67803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67803.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Polaris - Collection (2017-2023) 3CD [FLAC|Lossless|tracks + .cue] <Metalcore, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67807.jpgsave_picture_67807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67807.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sylosis - Dormant Heart (2015) Re-Recorded, 2025, Nuclear Blast Records [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67809.jpgsave_picture_67809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67809.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Mindslip - Patient IV (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67816.jpgsave_picture_67816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67816.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mark Daly - Devil's Arms (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67823.jpgsave_picture_67823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67823.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Allan Clarke - Allan Clarke (1974) [FLAC|Lossless|tracks] <Folk Rock, Pop Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67827.jpgsave_picture_67827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67827.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Fuzzripper - Poltergeist (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67830.jpgsave_picture_67830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67830.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Rabengott - 2 Albums (2023,2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67831.jpgsave_picture_67831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67831.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Izzy Reign - Izzy Reign (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67842.jpgsave_picture_67842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67842.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Cirkus - Cirkadelic (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67853.jpgsave_picture_67853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67853.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Smith/Kotzen - Black Light / White Noise (2025) SHM-CD, Japanese Edition [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67867.jpgsave_picture_67867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67867.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:C111FF40D1C55EDF7E5FA10A8A7719C398546A71
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67897.jpgsave_picture_67897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67897.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Epica - Aspiral (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal, Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67943.jpgsave_picture_67943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67943.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Black Country, New Road - Forever Howlong (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67948.jpgsave_picture_67948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67948.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Headcrasher - Nothing Will Remain (1989) 2 x CD, Reissue, , 2017, Punishment 18 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67960.jpgsave_picture_67960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67960.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Revenge - Night Danger (2025) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67965.jpgsave_picture_67965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67965.jpg" />
 </div>
 
 

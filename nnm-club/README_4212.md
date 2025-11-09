@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130501.jpgsave_picture_130501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130501.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ X-Mouse Button Control 2.19.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130503.jpgsave_picture_130503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130503.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy, Jonathan Elliott | Blue Team Boot Camp: Defending Against Hackers (2020) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130504.jpgsave_picture_130504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130504.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C16190D6B662A302F4D0299F7DE2BF4BF51DAF1C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130507.jpgsave_picture_130507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130507.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows Server, Version 20H2 (10.0.19042.1466) (Updated January 2022) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130508.jpgsave_picture_130508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130508.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E6FD913296DA8D6C3860B2EE5D25DAF17918C015
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130509.jpgsave_picture_130509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130509.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:C5924969287642D209E9ACE4A22B028D25BF8EC3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130510.jpgsave_picture_130510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130510.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Raggio Di Luna (Moon Ray) - Comanchero (1986) [FLAC|Lossless]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130512.jpgsave_picture_130512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130512.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Multi Commander Full Edition 11.6 Build  2844 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130513.jpgsave_picture_130513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130513.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:6D39CD2A2B2CDB26EC0D2C91FB15EC40D04CE3D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130514.jpgsave_picture_130514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130514.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:4C9113E5960267DEE5C2AADEE95A3B4E39ADAF8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130515.jpgsave_picture_130515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130515.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Spyware Terminator 2012 3.0.0.61 Portable x32 x64 by Noby  [Многоязычн
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130516.jpgsave_picture_130516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130516.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Spyware Terminator - одна из лучших бесплатных прогр�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130517.jpgsave_picture_130517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130517.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Spyware Terminator - одна из лучших бесплатных прогр�
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130520.jpgsave_picture_130520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130520.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:EC2F749F59B0BD9E899E045FDC69472F34FF2FBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130521.jpgsave_picture_130521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130521.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:2FD12E801CED8DD03B0AE64DA2A41682C64CFEC9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130522.jpgsave_picture_130522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130522.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:2FD12E801CED8DD03B0AE64DA2A41682C64CFEC9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130524.jpgsave_picture_130524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130524.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Microsoft Windows 11 [10.0.22000.434], Version 21H2 (Updated January 2022) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130526.jpgsave_picture_130526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130526.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:C23E139CAC6802A587FE36777619FC4959460EBA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130527.jpgsave_picture_130527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130527.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Dark Dimensions: Wax Beauty [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130528.jpgsave_picture_130528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130528.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VOX - JamVOX v.3.00 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130529.jpgsave_picture_130529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130529.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VOX JamVOX v.3.00  - программное обеспечение для гит
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130530.jpgsave_picture_130530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130530.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:77D98612CFFF1DD31E04270EDCB7BC813A006056
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130531.jpgsave_picture_130531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130531.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ ArtCraft, Александр Шаповалов | 3D Pro. Game environment pipel
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130532.jpgsave_picture_130532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130532.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:09706E48A3B47927D4A9AE04704DB80F1D3A7547
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130534.jpgsave_picture_130534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130534.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:09706E48A3B47927D4A9AE04704DB80F1D3A7547
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130535.jpgsave_picture_130535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130535.jpg" />
 </div>
 
 

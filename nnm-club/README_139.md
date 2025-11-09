@@ -6,7 +6,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3664.jpgsave_picture_3664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3664.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0AE8B1F34A59EA0400C6CB0312F992FA01EC5B00
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3665.jpgsave_picture_3665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3665.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CEB0A5B1F4A9632DB1685FFA07F4109FE751F0BD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3666.jpgsave_picture_3666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3666.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:738F54A68E1D7B523968A21C01076DA48FB839AD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3667.jpgsave_picture_3667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3667.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:738F54A68E1D7B523968A21C01076DA48FB839AD
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3668.jpgsave_picture_3668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3668.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2FB2003A98E27CF517D43CA8EDE8826AAF3B209F
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3669.jpgsave_picture_3669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3669.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Adobe Illustrator 2025 29.8.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3670.jpgsave_picture_3670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3670.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:7EEAA0FB32D5A0F776BC42B26267D9765CD1FF4C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3671.jpgsave_picture_3671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3671.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Valheim – Call To Arms (2021) [Ru/Multi] (0.221.4) Repack R.G. Alkad [Early Ac
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3672.jpgsave_picture_3672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3672.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.67) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3673.jpgsave_picture_3673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3673.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:F4B357FD90F753DB8AEF96C24E8C7F415FAFA656
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3674.jpgsave_picture_3674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3674.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:3E62C66581EEE630B3C694118E3F181EC6790B1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3675.jpgsave_picture_3675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3675.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:0F684700761E0F10A67DD80D6CB45A0915A23505
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3676.jpgsave_picture_3676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3676.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:14764B9341F5FE7B4B0807DD25E04A0D4E9BECD4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3677.jpgsave_picture_3677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3677.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.4 CL#433351) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3678.jpgsave_picture_3678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3678.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:4B4F247EEFA5FF0BFD4E0EEE7C9441C9DFCC6154
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3679.jpgsave_picture_3679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3679.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:6020EC10AAD5BC1A9FB624EC70C31143866B138F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3680.jpgsave_picture_3680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3680.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:3792F04A7D3B26D07747BD6922D91C1146710060
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3681.jpgsave_picture_3681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3681.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:06AD071A996BD3AFD3DA07B1AFBEF4125C055593
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3682.jpgsave_picture_3682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3682.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ CarX Street (2024) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Deluxe edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3683.jpgsave_picture_3683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3683.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.3/dlc) Repack Wanterl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3684.jpgsave_picture_3684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3684.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:C0A37E5DC808F9F0B7281E90327561CF28982BE4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3685.jpgsave_picture_3685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3685.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:0F4DACE07574CD6874F8D925F70F9A8E4F281DA2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3686.jpgsave_picture_3686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3686.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.9/dlc) Repack Let'sРlay [Ultimate Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3687.jpgsave_picture_3687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3687.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Hollow Knight (2018) [Switch] [USA] 20.1.5 [NSZ] [License / DLC / 1.4.3.2b] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3688.jpgsave_picture_3688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3688.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:FFA30AA364AB75994C8128B97133A81EB811621D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3689.jpgsave_picture_3689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3689.jpg" />
 </div>
 
 

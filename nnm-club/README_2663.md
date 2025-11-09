@@ -6,7 +6,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69988.jpgsave_picture_69988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69988.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C2382E4CA627E7555B8041990D5DE526FCCC548
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69989.jpgsave_picture_69989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69989.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Neue Hits '90 - Die Internationalen Super-Hits (1990) 2 CD [OGG Vorbis|480 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69990.jpgsave_picture_69990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69990.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ QOwnNotes 25.2.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69991.jpgsave_picture_69991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69991.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Anastacia - Not That Kind (25th Anniversary) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69992.jpgsave_picture_69992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69992.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:DA56D2495D855E896E71C2C9CE57E9ED82802E2C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69993.jpgsave_picture_69993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69993.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VideoShow VIP v10.3.0.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69994.jpgsave_picture_69994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69994.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69995.jpgsave_picture_69995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69995.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3F00A3511C4168F2FA4396B1BB41E0B7FABECFAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69996.jpgsave_picture_69996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69996.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69997.jpgsave_picture_69997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69997.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - 80! (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69998.jpgsave_picture_69998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69998.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:0465A882F4BE6DB17FD63DE8432763967087F034
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69999.jpgsave_picture_69999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69999.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Paul Van Dyk - Live at Mayday (2000) TVRip [H.264/1080p-LQ] [hand made Upscale A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70000.jpgsave_picture_70000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70000.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:01DE7C79F9554A6C02259F614EE55522583582F0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70001.jpgsave_picture_70001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70001.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:D3694F9DB0AB64D0D810F3898697E20C0E13BCED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70002.jpgsave_picture_70002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70002.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:EAB54A310DB77208AD7B50550A9AF98EA996ADB1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70003.jpgsave_picture_70003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70003.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:C32182BE090C9E1979B68F72E5F6A7D2F7EF75A0
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70004.jpgsave_picture_70004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70004.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:685E9A8322F2C210F67FAF46C453F59ABBD08B1C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70005.jpgsave_picture_70005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70005.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:838AA26E527A16A0FB6DC2BE06DE8E82BA2ECCAF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70006.jpgsave_picture_70006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70006.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:3E711B8B8D985CC8E91F63B6A88CE0F788BE770F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70007.jpgsave_picture_70007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70007.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:FBEA0145E011675586094A6F819AD278A129AAF3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70008.jpgsave_picture_70008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70008.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Robin McAuley - Soulbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70009.jpgsave_picture_70009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70009.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Armin van Buuren - A State Of Trance 1214 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70010.jpgsave_picture_70010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70010.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:2A1F966DB3A936460EE6238295CC40D3960BA081
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70011.jpgsave_picture_70011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70011.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:F85F7BAC00E0C864BBA37D67D2072589EA5CE969
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70012.jpgsave_picture_70012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70012.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:205EC2E67929D931AE3E4D34EB6EF102110693F5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70013.jpgsave_picture_70013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70013.jpg" />
 </div>
 
 

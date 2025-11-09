@@ -6,7 +6,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194158.jpgsave_picture_194158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194158.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DFB46A795FD35F515E44D5A1E94A53936F27C0FB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194549.jpgsave_picture_194549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194549.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A7C3E551AADB23698AC9F978807F1CF769A265A1
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195111.jpgsave_picture_195111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195111.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:635D3AFB0B0B6BEC0B027A06A139BD22292DD3B4
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195208.jpgsave_picture_195208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195208.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:2F9857C49604150B39F405CF01F6286759863872
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195544.jpgsave_picture_195544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195544.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:A84DA5B947703BC5CDFBF2B853152548CB3B2DEF
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195602.jpgsave_picture_195602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195602.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:9EB426222C36A84789B16811BA8B139982D4E87D
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195618.jpgsave_picture_195618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195618.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B4343BD8C871661B8C0F8A313FAB7FD04B384F89
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195662.jpgsave_picture_195662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195662.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C6E10D8826DA0EB71D6A695BAA1F2B2B3D362DC7
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195781.jpgsave_picture_195781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195781.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:CCA5EC69AE3AB901415373C81612A179D0C0975D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195839.jpgsave_picture_195839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195839.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:37228E4DD9C86ED53236C25DB1E508C726408D37
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196096.jpgsave_picture_196096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196096.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:F1024F2DBB29982CC55547209FDAC170C222A471
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196155.jpgsave_picture_196155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196155.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:7C2130C7957101E2C415F827C93C9C0BD8311F54
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196292.jpgsave_picture_196292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196292.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:668C2771CE3E75AFC2B79712425D9A3817F5C267
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196306.jpgsave_picture_196306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196306.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:08B02F844D0AAAAEB586C847ED777ECA5DF53326
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196318.jpgsave_picture_196318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196318.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:1AAEF11FAE7E77DE97B54EF5BB954FF1AA1BFF37
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196468.jpgsave_picture_196468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196468.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:52E0771BF6A299259818C6E9B9463FF59C90EDD6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196518.jpgsave_picture_196518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196518.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:8C958EE8513A0DACF1720CFD47A0607A00DDD06E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196827.jpgsave_picture_196827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196827.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:32C65736F3BC96A8D8D75C26A40780DBE165A1CB
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196967.jpgsave_picture_196967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196967.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:23BC85E81AE4F59E5E6D5CD93DE7412692DF0CD4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197062.jpgsave_picture_197062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197062.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:4CEF953F386CC382CEC3680B32ED8434DF50959E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197068.jpgsave_picture_197068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197068.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:1007EB60B19AFCB304BE5DBEF646F5B7DBE778A6
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197143.jpgsave_picture_197143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197143.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:6C837527A13A0DD91A7AF487DBA933B15304B10A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197298.jpgsave_picture_197298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197298.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:4FC76740FB6C7AB6BA167621E6E68EB1B089B65A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197911.jpgsave_picture_197911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197911.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:1FDB2F763A08C2D501040B00A18446F0F7F254BC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197970.jpgsave_picture_197970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197970.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:BCB3E2683617D13CBE458B2E0B7D66C36CC99BC7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197987.jpgsave_picture_197987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197987.jpg" />
 </div>
 
 

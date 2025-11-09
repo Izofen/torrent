@@ -6,7 +6,7 @@ VA - Spring Pop-Rock Medley (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18312.jpgsave_picture_18312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18312.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Boy Band - Compilation (1990-2025) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18315.jpgsave_picture_18315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18315.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Tracks Of The Golden Circle 80-90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19482.jpgsave_picture_19482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19482.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Ultimate 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19510.jpgsave_picture_19510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19510.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Top Songs of 2024: USA (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19953.jpgsave_picture_19953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19953.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sophie Zelmani - Best of (1995-2025) Compilation Album [MP3|320 Kbps] <Pop, Rock
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21073.jpgsave_picture_21073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21073.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Backstreet Boys - Compilation (1996-2019) [MP3|320 Kbps] <Pop, Dance, R&B>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21335.jpgsave_picture_21335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21335.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - Весна на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21561.jpgsave_picture_21561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21561.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Va - Hits that stay forever (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21802.jpgsave_picture_21802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21802.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Fantastique - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21830.jpgsave_picture_21830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21830.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AlimkhanOV A. - Cover Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22178.jpgsave_picture_22178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22178.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ AlimkhanOV A. - Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22181.jpgsave_picture_22181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22181.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Piotr Zylbert - Collection (2024) [MP3|320 Kbps] <Dance, Disco, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23438.jpgsave_picture_23438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23438.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Leningrad Nights - Collection (2024) [MP3|320 Kbps] <Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23843.jpgsave_picture_23843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23843.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:A969843ED3284628AFA93EE35C3B03B52FFC94A5
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23906.jpgsave_picture_23906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23906.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pupo - Compilation (2025) [MP3|320 Kbps] <Pop, ItaloDisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24594.jpgsave_picture_24594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24594.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Песни Юмор (2025) [MP3|320 Kbps] <Pop, Юмор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24951.jpgsave_picture_24951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24951.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Texas - Compilation (1989-2021) [MP3|320 Kbps] <Pop rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25098.jpgsave_picture_25098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25098.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - 100 Pop Hits (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26971.jpgsave_picture_26971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26971.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Blondie & Deborah Harry - Compilation (1976-2017) [MP3|320 Kbps] <New wave, Pop 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27200.jpgsave_picture_27200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27200.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - National Pop Dance Music Vol.97 (2025) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29490.jpgsave_picture_29490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29490.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Bryan Ferry & Roxy Music - Compilation (1972-2018) [MP3|320 Kbps] <Art rock, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29692.jpgsave_picture_29692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29692.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Euromartina - Part 2 compilation (2025) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29786.jpgsave_picture_29786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29786.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Зима на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30563.jpgsave_picture_30563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30563.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Marius M.21 - in Memory (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30729.jpgsave_picture_30729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30729.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Robbie Williams - Compilation (1996-2022) [MP3|320 Kbps] <Pop rock, Soft rock, E
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31593.jpgsave_picture_31593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31593.jpg" />
 </div>
 
 

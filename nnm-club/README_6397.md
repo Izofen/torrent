@@ -6,7 +6,7 @@ Empire State Bastard - Rivers Of Heresy (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202984.jpgsave_picture_202984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202984.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Volvo Impact 4.04.00 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202985.jpgsave_picture_202985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202985.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Trancemission - Back in Trance (1989) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202986.jpgsave_picture_202986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202986.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DxO PhotoLab 5 ELITE Edition 5.14.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202987.jpgsave_picture_202987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202987.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:47575466ADE2DDD8FA4DCA9C0E9E9342F60706B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202988.jpgsave_picture_202988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202988.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:A709CAF95380C8653FFC52CF668AAB3AFB1FB65E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202989.jpgsave_picture_202989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202989.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ KLS Backup 2021 Professional 11.0.2.0 (x64)  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202990.jpgsave_picture_202990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202990.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:D0CD67EF78483A45CC591B4675465CD2F831F24B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202991.jpgsave_picture_202991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202991.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:6D5835152D48B8675BF16FAFD96925855203E315
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202992.jpgsave_picture_202992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202992.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Threnody - As the Heavens Fall (1993) [FLAC|Lossless|image + .cue] <Progressive,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202993.jpgsave_picture_202993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202993.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:9940FE81132BBF48EB819F09558DA56CFDC4457A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202994.jpgsave_picture_202994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202994.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:A575CE6C62C95ADD6C2179618257A3CB02A5A89D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202995.jpgsave_picture_202995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202995.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ GarageSale 9.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202996.jpgsave_picture_202996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202996.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:36E58C53E4AC6C0586F721126B9427F0AEFBF89C
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202997.jpgsave_picture_202997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202997.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jag Panzer - The Age of Mastery (1998) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202998.jpgsave_picture_202998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202998.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:FF7064A81178E4EB08F5533CAD1691BE2CDBAC81
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202999.jpgsave_picture_202999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202999.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Threnody - Threnody (1997) [WavPack|Lossless|image + .cue] <Progressive, Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203000.jpgsave_picture_203000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203000.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ The Spirit - Sounds from the Vortex (2017) [FLAC|Lossless|image + .cue] <Black, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203001.jpgsave_picture_203001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203001.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:42F18652EC64385E636591514D107AC995844CD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203002.jpgsave_picture_203002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203002.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Sarazen - Alchemy (2023) [MP3|320 Kbps] <Alt.Rock, Female Vocals>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203003.jpgsave_picture_203003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203003.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ StartAllBack 3.6.0 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203004.jpgsave_picture_203004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203004.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:0A6179B9359349C119E003E1E8A762CFFE0BE2CF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203005.jpgsave_picture_203005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203005.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6A8E4805BB8762DB4A67B6B5C351ED580162E1E1
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203006.jpgsave_picture_203006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203006.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - Romantic Collection. More Gold (1998) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203007.jpgsave_picture_203007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203007.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:3AFF844C7817BCC5A6B025EA163D2C4A55E4E2BF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203008.jpgsave_picture_203008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203008.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ BuhoCleaner for Mac 1.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203009.jpgsave_picture_203009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203009.jpg" />
 </div>
 
 

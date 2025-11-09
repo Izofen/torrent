@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29969.jpgsave_picture_29969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29969.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C1525337F6EB7BEF8E18DA4CEB9F31221AC8A0E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29970.jpgsave_picture_29970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29970.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C9E1463ADDA39E0020340350B1AE29137FAAEACA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29971.jpgsave_picture_29971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29971.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E99CA51A74F09438E6A88B8DB63C615F945F54E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29972.jpgsave_picture_29972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29972.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:76C44843610243419892CB4A1554C34E5821F83C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29973.jpgsave_picture_29973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29973.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:505DF172DD763609E7E5411956F4E87636CE01FD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29974.jpgsave_picture_29974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29974.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (1417829 Patch 5/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29975.jpgsave_picture_29975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29975.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.2.2-433870) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29976.jpgsave_picture_29976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29976.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - Понемногу отовсюду by Yuridar #S (1958-2022) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29977.jpgsave_picture_29977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29977.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F770B820F55C9D0DF63AAE7DA316ADADF7A3C2E0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29978.jpgsave_picture_29978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29978.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:3535C0417719CB9E246DCD7E17E86C603FBF835B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29979.jpgsave_picture_29979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29979.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29980.jpgsave_picture_29980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29980.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:099FC9FE2899DC8F3EBD100BCCB0C24EEBFFCCBF
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29981.jpgsave_picture_29981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29981.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:4928AAF2FD336D96DA71304F84164CEB3401D0D7
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29982.jpgsave_picture_29982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29982.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:147DAE1DE64064609CFAE912F1A138A8521C70EC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29983.jpgsave_picture_29983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29983.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29984.jpgsave_picture_29984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29984.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:91CEA4130ADCFC23830BE36F2AD84720E708287F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29985.jpgsave_picture_29985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29985.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:DF09020E1EDC59D27B6CA3D37364D68BFCBE36FF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29986.jpgsave_picture_29986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29986.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:AC4192493F4644EF092B04E4C7CD334579201353
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29987.jpgsave_picture_29987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29987.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:87827AC64693B3F499A962DDD57F541C5ADF5435
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29988.jpgsave_picture_29988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29988.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:BA9EA83D48CB48ED01E75D8EE5E2B520FA5B49E8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29989.jpgsave_picture_29989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29989.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:F13ADA00507FA4C6E6095D5F5A844053A8DB2823
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29990.jpgsave_picture_29990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29990.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:8986E5D3D8C70E5D83F478D91AF7259DE815E715
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29991.jpgsave_picture_29991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29991.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:B89AF9BE90831BA16B5054AEDFBEDA19EF05BC2C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29992.jpgsave_picture_29992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29992.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Telegram Desktop 5.10.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29993.jpgsave_picture_29993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29993.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:6C8DE1511CD6EED0F86F4C8C9F20CD2CDFB4C80F
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29994.jpgsave_picture_29994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29994.jpg" />
 </div>
 
 

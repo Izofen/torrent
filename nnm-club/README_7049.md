@@ -6,7 +6,7 @@ VA - WMC Miami 2017: Deep & Chill Beats (2017) [MP3|320 Kbps] <Deep House, Chill
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241493.jpgsave_picture_241493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241493.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rename Expert 5.29.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241494.jpgsave_picture_241494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241494.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Guru Guru - The Three Faces Of Guru Guru 1970-2021 (2023) 3CD [MP3|320 Kbps] <Kr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241495.jpgsave_picture_241495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241495.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8B700738AFEAE0A0D81E3440A579441F3D74BF76
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241496.jpgsave_picture_241496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241496.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Uplifting Only Top 15: April 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241497.jpgsave_picture_241497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241497.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:EE1FF54E0C4BB355C6327A678ABE959EC3BF7506
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241498.jpgsave_picture_241498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241498.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ VA - Best Of Disco Balls Records 2019, Pt. 3 (2020) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241499.jpgsave_picture_241499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241499.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Makes Sense To Me Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241500.jpgsave_picture_241500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241500.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C4C894CF809B73B0CCE41597A2454A2CB2BD5F58
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241501.jpgsave_picture_241501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241501.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Suicide Silence - Remember... You Must Die (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241502.jpgsave_picture_241502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241502.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - The Best 50 of Romantic Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241503.jpgsave_picture_241503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241503.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ InstaGrid 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241504.jpgsave_picture_241504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241504.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:6FFD7DDD2809B1D7408DB5A1B3BEE0884CFE8216
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241505.jpgsave_picture_241505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241505.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Photo Supreme 2023.1.1.4860 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241506.jpgsave_picture_241506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241506.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:051F2F18971639355569B5264ED00F29BF75A1E3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241507.jpgsave_picture_241507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241507.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Rock 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241509.jpgsave_picture_241509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241509.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Harry Allen - Blue Bossa (2013) Swingbros Co. [FLAC|Lossless|image + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241510.jpgsave_picture_241510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241510.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:5C2874BAA87F3B87FD96627FF8B91D87A7B8E486
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241511.jpgsave_picture_241511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241511.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241512.jpgsave_picture_241512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241512.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Text Workflow 1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241513.jpgsave_picture_241513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241513.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Coldharbour Miami 2017 Exclusive Sampler (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241514.jpgsave_picture_241514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241514.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:B34BCCC2E126AD59962C6E4A99BC1745141909F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241515.jpgsave_picture_241515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241515.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - German Top 100 Single Charts 24.04.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241516.jpgsave_picture_241516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241516.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Ellie Goulding - Higher Than Heaven (2023) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241517.jpgsave_picture_241517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241517.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:B210575377F1F55FF84739CEB23B214233897590
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241518.jpgsave_picture_241518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241518.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ WonderPen 2.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241519.jpgsave_picture_241519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241519.jpg" />
 </div>
 
 

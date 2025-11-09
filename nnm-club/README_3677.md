@@ -6,7 +6,7 @@ Aiseesoft FoneEraser 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115977.jpgsave_picture_115977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115977.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Amaranthe - The Catalyst (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115978.jpgsave_picture_115978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115978.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Ancient Egypt Seasons - Akhet (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115979.jpgsave_picture_115979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115979.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ D'Luna - Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115980.jpgsave_picture_115980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115980.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:E309CAAE3F65968A2F47C499BE063FA394E9FD67
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115981.jpgsave_picture_115981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115981.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ CloudMounter 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115982.jpgsave_picture_115982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115982.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:1122B74D9A53AC1014A387B322F32EE326BD23CC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115983.jpgsave_picture_115983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115983.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115984.jpgsave_picture_115984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115984.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:7FDB23EB37B634B0134807D0FA3B841564213CD7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115985.jpgsave_picture_115985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115985.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115986.jpgsave_picture_115986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115986.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Ace Frehley - 10,000 Volts (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115987.jpgsave_picture_115987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115987.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ TinkerTool System 7 v.7.98 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115988.jpgsave_picture_115988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115988.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Iridient Developer for Mac 4.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115989.jpgsave_picture_115989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115989.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Iron Curtain - Savage Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115990.jpgsave_picture_115990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115990.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Genevieve (Geneviève) Leclerc - Big Band (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115991.jpgsave_picture_115991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115991.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Boulevard - Blvd. (1988) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115992.jpgsave_picture_115992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115992.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Blaze Bayley - Live in Czech (2020) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115993.jpgsave_picture_115993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115993.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115994.jpgsave_picture_115994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115994.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115995.jpgsave_picture_115995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115995.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Boulevard - Into the Street (1990) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115996.jpgsave_picture_115996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115996.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Amaranthe - The Catalyst (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115997.jpgsave_picture_115997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115997.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Metalite - 4 Albums, 1 Live, 5 Singles (2017-2024) [MP3|320 Kbps] <Modern Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115998.jpgsave_picture_115998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115998.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:3E17CEC2CCDF96C8D9F27031232A043D80B6CCB8
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115999.jpgsave_picture_115999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115999.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:76558602654603E9CB02DD5944C2E6FACF766C2A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116000.jpgsave_picture_116000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116000.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:FB701EA40BE9AADB03001ED29E7A5A126E57FDFF
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116001.jpgsave_picture_116001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116001.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:5A49E0B087A74A38C7A762601B59EFA4484DC65C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116002.jpgsave_picture_116002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116002.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146029.jpgsave_picture_146029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146029.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ATOM RPG: Post-apocalyptic indie game v1.11 (2019) [Multi/Ru] [macOS Native game
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146030.jpgsave_picture_146030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146030.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Cheating Craft / Искусство обмана [2016, TV, 12 из 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146031.jpgsave_picture_146031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146031.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AB66596BDFA1C8A7B5B50F57913DA8142E902CCD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146032.jpgsave_picture_146032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146032.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:95A735103BC576A0BAF70278A91AE7728212C2DB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146033.jpgsave_picture_146033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146033.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Me Vs Hero - Days That Shape Our Lives (2010) [FLAC|Lossless|tracks + .cue] <Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146034.jpgsave_picture_146034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146034.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ E-Force - 4 Альбома (2003 - 2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146036.jpgsave_picture_146036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146036.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:08F72717BB98FAA6D24784076D5F813015B110B7
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146037.jpgsave_picture_146037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146037.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:EE1CC32A8C34450D0AE116754B50E55190CD6822
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146038.jpgsave_picture_146038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146038.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:DDAC72C86AAEC40BC6AE938523A96195E2132D93
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146040.jpgsave_picture_146040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146040.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146041.jpgsave_picture_146041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146041.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:AC5352D3FC1302D1FEB52ED3AB839E50F51FB247
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146042.jpgsave_picture_146042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146042.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - 100 Disco (2019) [MP3|320 Kbps] <Disco, Funk, Soul, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146043.jpgsave_picture_146043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146043.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:E41D56FAE4842ACAC1A8DD21E249AEBF302F2D07
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146044.jpgsave_picture_146044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146044.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:2E3B0F99F511CDA8BC2D9F8384843E06E4DA3833
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146046.jpgsave_picture_146046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146046.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:0DD06B5C7351A00B425401E1F43BCADFD4212D8E
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146047.jpgsave_picture_146047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146047.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:FDD48117FA8B62A556B7AA4E87C2A6FA0B77E395
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146049.jpgsave_picture_146049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146049.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ArtIcons Pro 5.49 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146050.jpgsave_picture_146050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146050.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:F89008FB912F0B6B1F2D9338E6AB80B96DAE52A0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146051.jpgsave_picture_146051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146051.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:F89008FB912F0B6B1F2D9338E6AB80B96DAE52A0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146052.jpgsave_picture_146052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146052.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Folx Pro 5 v5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146053.jpgsave_picture_146053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146053.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Acronis True Image 2019 Build 14690 + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146055.jpgsave_picture_146055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146055.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:DB3C9B55AB65BE9AAF6E8B259428EC45D6BFF66D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146056.jpgsave_picture_146056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146056.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:4558209760CA8FD9598C3CEBF4125C6017B9DD07
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146057.jpgsave_picture_146057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146057.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:5C0AA5C957F28B07B52365C6BB3C7AC33528E5EB
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146058.jpgsave_picture_146058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146058.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:40399EEBA2C589BD10A3670ADAEF163905471E25
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146059.jpgsave_picture_146059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146059.jpg" />
 </div>
 
 

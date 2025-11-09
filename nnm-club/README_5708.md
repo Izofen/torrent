@@ -6,7 +6,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175938.jpgsave_picture_175938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175938.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scarlet - Obey the Queen (2020) [AAC|~335 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175940.jpgsave_picture_175940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175940.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CPUID HWMonitor Pro 1.49 (x64) Portable by zeka.k [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175941.jpgsave_picture_175941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175941.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A69D383DC6DF79B011729D1BC80EE54882F2872A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175942.jpgsave_picture_175942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175942.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:87D76274C04820B00901CEC9E344F7BBCFF4F9B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175944.jpgsave_picture_175944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175944.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ CoolUtils Total Image Converter 8.2.0.263 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175945.jpgsave_picture_175945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175945.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:24C8B941103AE786CBBD438C552E42BF5F9251C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175948.jpgsave_picture_175948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175948.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1584CFD3F28710457266266C57B5E272327BBE3F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175949.jpgsave_picture_175949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175949.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E2BD9513427750261F2F520DE733D739613F8C59
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175950.jpgsave_picture_175950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175950.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:3CFC931293EE53CDEA13727B5B0E5899E2E75AE5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175952.jpgsave_picture_175952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175952.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ OneCommander Pro 3.54.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175953.jpgsave_picture_175953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175953.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AIMP для Android v 3.30.1238 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175954.jpgsave_picture_175954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175954.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ HDCleaner 1.314 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175956.jpgsave_picture_175956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175956.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:78561C93B443DE4175EE5E7BB38428819E8567F6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175957.jpgsave_picture_175957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175957.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Auslogics Registry Defrag 14.0.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175958.jpgsave_picture_175958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175958.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A9DFC4A6E080C82A29077D0AD10CF69BDACFE145
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175960.jpgsave_picture_175960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175960.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:70C3092E5EA44B5043F5D7830455EDD8DC88ACB3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175961.jpgsave_picture_175961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175961.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Auslogics BoostSpeed 13.0.0.5 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175962.jpgsave_picture_175962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175962.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ HiBit Uninstaller 3.0.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175964.jpgsave_picture_175964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175964.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:262816F6F7C9436EF51583CC35C44C95A64DE923
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175965.jpgsave_picture_175965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175965.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Leæther Strip - Æppreciation IV (2020) [AAC|~359 Kbps] <ebm, industrial, dark 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175966.jpgsave_picture_175966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175966.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:AC545B07ED80974A3E5307BDE322CF9CDAB6FF22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175968.jpgsave_picture_175968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175968.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Rory Gallagher - Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175969.jpgsave_picture_175969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175969.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Leæther Strip - Æppreciation (2014) [AAC|~344 Kbps] <ebm, industrial, dark ele
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175970.jpgsave_picture_175970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175970.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Big Sur Cache Cleaner 16.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175972.jpgsave_picture_175972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175972.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Erja Lyytinen - Diamonds on the Road - Live (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175973.jpgsave_picture_175973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175973.jpg" />
 </div>
 
 

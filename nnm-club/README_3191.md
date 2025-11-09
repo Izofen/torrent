@@ -6,7 +6,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103306.jpgsave_picture_103306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103306.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:1B95072483A0D89D9FBEF57CDF033AFF7DBA140C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103307.jpgsave_picture_103307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103307.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Coastal Chill: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103308.jpgsave_picture_103308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103308.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ John Askew - A Room Full of Pros & Cons (2024) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103309.jpgsave_picture_103309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103309.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Delain - Dance with the Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103310.jpgsave_picture_103310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103310.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aerosmith - Live in Boston (1994) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103311.jpgsave_picture_103311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103311.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:98D29AA6564504124F2807342DA95788B5F498A9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103312.jpgsave_picture_103312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103312.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Druidess - The Product Of My Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103313.jpgsave_picture_103313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103313.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:CC4E17C5AA6EEA3C672BDB6F1F6ACFE2CC4A9356
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103314.jpgsave_picture_103314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103314.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Windrow - Deus Universi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103315.jpgsave_picture_103315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103315.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ InnerWish - Ash Of Eternal Flame (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103316.jpgsave_picture_103316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103316.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:11F130B6F9F5D4B1862DBC84A4A33E786E96BE2A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103317.jpgsave_picture_103317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103317.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:5BBBC81E51E59130AD99EE02474BE5C27E753CF9
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103318.jpgsave_picture_103318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103318.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Alice In Chains - Lives In Seattle, in Dallas (1990-1992) HQ Remastered, 2024, D
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103319.jpgsave_picture_103319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103319.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Paragon - Metalation (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103320.jpgsave_picture_103320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103320.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Charlie Byrd - Midnight Guitar (1957) 1994, Nippon [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103321.jpgsave_picture_103321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103321.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:66B5DFCAA61CC6AEDBD2D415F4AA979D72CA4247
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103322.jpgsave_picture_103322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103322.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103323.jpgsave_picture_103323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103323.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Avarice In Audio - Tear Heaven in Half (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103324.jpgsave_picture_103324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103324.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:54D07E1B1BA6B7174243EBF48E016DBC2F53B38D
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103325.jpgsave_picture_103325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103325.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:69F203134370A576858964FE41821EFF771C6360
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103326.jpgsave_picture_103326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103326.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dare - Blood From Stone (1991) Remastered, 2024, Legend Records [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103327.jpgsave_picture_103327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103327.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:0C0D02B4120148E74D89EF62A18975EF32ED23E3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103328.jpgsave_picture_103328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103328.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rimbacher - High Hopes On The Rocks (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103329.jpgsave_picture_103329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103329.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:E71A4475889A2F2822A34950BA2A990553468ACD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103330.jpgsave_picture_103330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103330.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:4A21CB5A31CF58FD10F4125521B96997E60F350E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103331.jpgsave_picture_103331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103331.jpg" />
 </div>
 
 

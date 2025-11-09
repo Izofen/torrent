@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189331.jpgsave_picture_189331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189331.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:880F436D99C03D09E93FB46D1E704E21AAE162F4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189332.jpgsave_picture_189332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189332.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B79EFE066AB49D59CC8A9C86646C142A029AA538
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189333.jpgsave_picture_189333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189333.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FE6F45AA581C8E9FD7E60622B5794FC69FBEAFDF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189334.jpgsave_picture_189334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189334.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ AIMP 5.10 Build 2412 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189335.jpgsave_picture_189335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189335.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Firefox Browser 117.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189336.jpgsave_picture_189336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189336.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:DA813324D6490F74CBC7A8823042268BD524552D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189337.jpgsave_picture_189337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189337.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Privacy Eraser Free 5.41.0 Build 4581 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189338.jpgsave_picture_189338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189338.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Telegram Desktop 4.9.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189339.jpgsave_picture_189339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189339.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The Coral - Sea Of Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychede
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189340.jpgsave_picture_189340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189340.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Mozilla Thunderbird 115.2.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189341.jpgsave_picture_189341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189341.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Sumatra PDF 3.5.15494 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189342.jpgsave_picture_189342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189342.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:FF271FE17BDBE8480712B62D3C9F05B2665FAB9A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189343.jpgsave_picture_189343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189343.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:2D78FB51FE1D57D7EC2A0BF3914F7CF2C9550FFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189344.jpgsave_picture_189344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189344.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:EC1B8CFCCA08C599F0B774815776808D0F5A8189
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189345.jpgsave_picture_189345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189345.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:206588393BE4B7BC9EBE35F71F8F90B88C9EDBEA
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189347.jpgsave_picture_189347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189347.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Full Volume Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189348.jpgsave_picture_189348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189348.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:3CC3C06A1426B4E58276AA505B7819C7BEC43EA4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189349.jpgsave_picture_189349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189349.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D3FFD69A60BA7264AA3684B8E3DDD36616C8B98E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189351.jpgsave_picture_189351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189351.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Geekbench 6 v.6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189352.jpgsave_picture_189352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189352.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Capture One 23 Enterprise 16.2.4.34 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189353.jpgsave_picture_189353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189353.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Viber 18.8.0.4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189354.jpgsave_picture_189354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189354.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:D4A7FDBEAB6B7CF36C2F1A8FA198351D4D1A409A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189356.jpgsave_picture_189356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189356.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2934 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189357.jpgsave_picture_189357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189357.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Vocal Trance Classics 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189358.jpgsave_picture_189358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189358.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ AirMail Pro 5 v.5.6.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189359.jpgsave_picture_189359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189359.jpg" />
 </div>
 
 

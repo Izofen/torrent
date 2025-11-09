@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189561.jpgsave_picture_189561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189561.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PowerISO 8.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189562.jpgsave_picture_189562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189562.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0C9A3C9A15CA571C69E4BA64E81D62F5C4333C88
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189565.jpgsave_picture_189565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189565.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1 Build 16 RePack by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189566.jpgsave_picture_189566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189566.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:AB9759B27AE45233EEC4376A616E80700A14F967
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189567.jpgsave_picture_189567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189567.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Laravelcreative.ru | Excel Import Laravel Inertia Vue Tailwind [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189568.jpgsave_picture_189568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189568.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189569.jpgsave_picture_189569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189569.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:26C674DFA1531DF100E3A077F80CBE4D8FBC51C9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189570.jpgsave_picture_189570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189570.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:EE4C47735D38B39C4898688735942691901BC792
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189571.jpgsave_picture_189571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189571.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:ED59C71F3252852386F32C05F287C99D4C348A54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189573.jpgsave_picture_189573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189573.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:ED59C71F3252852386F32C05F287C99D4C348A54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189575.jpgsave_picture_189575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189575.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft .Net Framework 08.11.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189576.jpgsave_picture_189576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189576.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DVDFab 12.1.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189577.jpgsave_picture_189577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189577.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ iZotope - RX 10 Audio Editor Advanced 10.2.0 STANDALONE, VST3, AAX (x64) RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189578.jpgsave_picture_189578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189578.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:DD90E50FF560F7037D16285B1DA779AB19AC7212
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189579.jpgsave_picture_189579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189579.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Positive Grid - BIAS FX 2 Elite Complete 2.5.1 STANDALONE, VST, VST3 , AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189580.jpgsave_picture_189580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189580.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:29F05805BE614BFF671FEA4C9A64580B2D031F5A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189581.jpgsave_picture_189581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189581.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:EF1C9EB81C6FAF07723B5C2A5894F39B2ADFC45D
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189582.jpgsave_picture_189582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189582.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:421C8DE771664CCB18530144C05A83C8C720D966
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189583.jpgsave_picture_189583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189583.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:AEF7A549438D9AB11681EEC2984B4C9E675DA7EB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189584.jpgsave_picture_189584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189584.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:36F98F5C16E0CD4E349A0D3BF8CB4F259B791226
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189585.jpgsave_picture_189585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189585.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:A1C6A304D33686587F5473F24E1427E6BA1AC6F5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189586.jpgsave_picture_189586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189586.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:A63E9EAFA9E620C5AD94A754FC2E13AA78138880
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189587.jpgsave_picture_189587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189587.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:4AD85B9E6462F6D25B0B907A5473E546412387A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189588.jpgsave_picture_189588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189588.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Kerbal Space Program (2015) [Ru/En] (1.12.4.03187/dlc) Repack dixen18
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189589.jpgsave_picture_189589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189589.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ macOS 13 Ventura 13.5.2 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189590.jpgsave_picture_189590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189590.jpg" />
 </div>
 
 

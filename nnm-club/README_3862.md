@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120832.jpgsave_picture_120832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120832.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Trance 2024 (Extended Versions) (2024) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120833.jpgsave_picture_120833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120833.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9B1A3126A5D4EAF90406E45268C06E93F24BABE4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120834.jpgsave_picture_120834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120834.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - 100 Hits Supersonic 70's (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock, Lati
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120835.jpgsave_picture_120835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120835.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E27B8253BAB7A80CF3D9DCF7CCC003F4FA318DA1
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120837.jpgsave_picture_120837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120837.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D1F61906497C057875A11C9FFBE85BE5A0AA00CB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120838.jpgsave_picture_120838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120838.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:7B9D935B49694AA08A9B0311E5C0DA010403A48F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120839.jpgsave_picture_120839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120839.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9BE8C57523D0411CA10BF0A36D5113F65B8C11F0
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120840.jpgsave_picture_120840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120840.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 60 minutes. Old School Dance Music vol.22 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120841.jpgsave_picture_120841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120841.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:4A3D491FFECDAEBF602D3528C206DC2A2EE70FB4
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120842.jpgsave_picture_120842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120842.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Magic City Detective 4: Wrath of the Ocean (2024) [Multi] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120843.jpgsave_picture_120843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120843.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:1B05B5C54E097A30D16492ADD78BFB9893886630
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120844.jpgsave_picture_120844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120844.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:BE2F587DFBB6EB4710A025FFAA7D63FE5E52F5F4
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120846.jpgsave_picture_120846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120846.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:822E32F23852A94D99851DF1E239D72722C3BD1D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120847.jpgsave_picture_120847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120847.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:A1A45B689EF0AC4CE30AEEFA1B0686661932C141
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120848.jpgsave_picture_120848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120848.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ id Software | Артбук по игре DOOM 3 / The Making of DOOM 3 (2004) [C
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120849.jpgsave_picture_120849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120849.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:079CE20BD8C56FE4D355E6A185463EC36102EC87
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120850.jpgsave_picture_120850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120850.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:2FDC4BE58DA29BD01039CBA85C38DF05A5DEC6DF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120851.jpgsave_picture_120851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120851.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Wise Care 365 Pro 6.6.4.634 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120852.jpgsave_picture_120852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120852.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:230D8A7EC3DDCA925670D4B632002C8850573853
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120853.jpgsave_picture_120853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120853.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:1CB17FA79C9983392A25EBEE24B1AB5C0E52B1E5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120854.jpgsave_picture_120854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120854.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:8720CD60E71B2CA0E86E1E3CEC180CAAFFD5D4C7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120855.jpgsave_picture_120855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120855.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ FITLAB (ФИТЛАБ) | Школа МП. Рост среднего чека (202
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120856.jpgsave_picture_120856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120856.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Adult Smooth Jazz: Sax for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120857.jpgsave_picture_120857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120857.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ FITLAB (ФИТЛАБ) | Школа МП. Как заработать больш�
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120858.jpgsave_picture_120858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120858.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:35AC7321D49FF058C609B92A4E06D2EBB4DEED49
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120859.jpgsave_picture_120859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120859.jpg" />
 </div>
 
 

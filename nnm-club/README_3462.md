@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110373.jpgsave_picture_110373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110373.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Icecream Video Converter Pro 1.43 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110374.jpgsave_picture_110374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110374.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Footsteps On The Dancefloor, Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110375.jpgsave_picture_110375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110375.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:784E3664C0C60AD787BE1F0894A90F58C23E541A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110376.jpgsave_picture_110376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110376.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Pretty Pink - Live @ DxB Boat Party Dubai, United Arab Emirates (2024-03-23) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110377.jpgsave_picture_110377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110377.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ HWiNFO 8.01 Build 5430 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110378.jpgsave_picture_110378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110378.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8AE959240AF5A3DABFC7EA7BB5F824F7C502E62B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110379.jpgsave_picture_110379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110379.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Auslogics Duplicate File Finder 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110380.jpgsave_picture_110380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110380.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:226505B6F53B99E4839B28209DE693C339DB3B7E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110381.jpgsave_picture_110381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110381.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:217829DB01D1C9936A2F6FAEF130239A6F36272F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110382.jpgsave_picture_110382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110382.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ FM - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110383.jpgsave_picture_110383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110383.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Trance Fusion Vol. 02 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110384.jpgsave_picture_110384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110384.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ GeoGebra 6.0.840.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110385.jpgsave_picture_110385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110385.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110386.jpgsave_picture_110386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110386.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110387.jpgsave_picture_110387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110387.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ ibis Paint X 12.0.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110388.jpgsave_picture_110388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110388.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Opera Trance Featuring Emma Shapplin - Spente Le Stelle (The Remixes - Part One)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110389.jpgsave_picture_110389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110389.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ FM - Old Habits Die Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110390.jpgsave_picture_110390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110390.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Bobby Watson - Keepin' It Real (2020) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110391.jpgsave_picture_110391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110391.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pagan's Mind - Studio Albums (6 releases) (2000-2011) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110392.jpgsave_picture_110392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110392.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110393.jpgsave_picture_110393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110393.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:B2E6A443BC441DB20392E30E0B25B9F7A681595A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110394.jpgsave_picture_110394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110394.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Icecream Photo Editor Pro 1.50 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110395.jpgsave_picture_110395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110395.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Great Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110396.jpgsave_picture_110396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110396.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Google Chrome 124.0.6367.119 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110397.jpgsave_picture_110397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110397.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Severed Angel - Skyward (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110398.jpgsave_picture_110398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110398.jpg" />
 </div>
 
 

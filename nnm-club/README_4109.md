@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127409.jpgsave_picture_127409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127409.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:C551BA63872FBEB069F6638FA368265AB18F1CCD
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127410.jpgsave_picture_127410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127410.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5349A1D50F63B2589D314B64A679C2412C8168BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127411.jpgsave_picture_127411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127411.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:46D7286FC653E6CCC8D4AA76B5AB98D2B02B51D4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127412.jpgsave_picture_127412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127412.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:B24DA9A427F3B46BFF655A47B0F9F80FAEDDB5BB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127413.jpgsave_picture_127413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127413.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:CFF7D389E697B7DA92B4760EB1DC15195CE2943D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127414.jpgsave_picture_127414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127414.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Karimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127415.jpgsave_picture_127415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127415.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Heavy Electric Guitar (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127416.jpgsave_picture_127416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127416.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:3E9DFCB433C2DC7970F6DB77041DBE1709CBB971
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127417.jpgsave_picture_127417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127417.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:18126232B07E1A89D9E7ACB3069B11070D3143DB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127418.jpgsave_picture_127418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127418.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Ted Rosenthal - The 3 B's: Plays the Music of Bud Powell, Bill Evans, Beethoven 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127419.jpgsave_picture_127419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127419.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:D26A06A9CE807CA59A793B1817650C46B0446C33
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127420.jpgsave_picture_127420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127420.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:5E5CB913E23700D9824F0A6D06685D2356AD508F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127421.jpgsave_picture_127421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127421.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - The Best Christmas Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127422.jpgsave_picture_127422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127422.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:0A1D84C8D61CA605B89D6457420EECA8F4A6B281
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127423.jpgsave_picture_127423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127423.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:1642AB6EBC4507CF176939DD72C22FE3BBA498C8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127424.jpgsave_picture_127424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127424.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:D7728AEBF6A251D7093BCB1453871E54F2721245
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127425.jpgsave_picture_127425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127425.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:C9E3086050B1825BCD76C33EFC44C69C2877FF77
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127426.jpgsave_picture_127426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127426.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:A1D54C58837E78F6CC1624A9162C207AFCBA42EA
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127427.jpgsave_picture_127427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127427.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:2131FE56B89EB0882AA526F832D66CDCF2F6A5DE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127428.jpgsave_picture_127428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127428.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:D69F3D44749D4E66B882848B5924A93A7855E8BE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127429.jpgsave_picture_127429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127429.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:851A783C18E072B64C43E9ED7ED25BDD08FE17F5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127430.jpgsave_picture_127430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127430.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:E0B3FB6A6A6A5C592F24F9899DD9758187BD13A7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127431.jpgsave_picture_127431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127431.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:4C1D292EC5580BD2EEAE9235AAFADF966B94F96F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127432.jpgsave_picture_127432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127432.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:3BCE1D46A14452CD55EB51A6E0DE976817FC7C97
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127433.jpgsave_picture_127433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127433.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:723DECEF2978ED75F1FE7B3755BBC74CF706A159
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127434.jpgsave_picture_127434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127434.jpg" />
 </div>
 
 

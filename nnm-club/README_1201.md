@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31581.jpgsave_picture_31581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31581.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C5191FCF245A83C78C30B87461D9EF9D3A58857
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31582.jpgsave_picture_31582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31582.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Disco Down The Best of 2021 (2021) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31583.jpgsave_picture_31583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31583.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:635F006C8735CBE82E68F6759795F6B6FD06B639
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31584.jpgsave_picture_31584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31584.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8F371BBBD2B961ADA6420AA5C33A503F2E30E548
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31585.jpgsave_picture_31585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31585.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:52A8383B9AAAD4193B15604708CEC0530D4AE9C9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31586.jpgsave_picture_31586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31586.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:88F12CEB64D2DFE6B7627CAFA1C8E875C2237699
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31587.jpgsave_picture_31587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31587.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:13CE1CB04756177607D7B082619C4B8DD29D185B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31588.jpgsave_picture_31588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31588.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Pure Bliss Vocals Volume 4 (2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31589.jpgsave_picture_31589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31589.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:AADC282333F26C7BE87D17B87F9A1442BB3DD1B0
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31590.jpgsave_picture_31590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31590.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:67A9A9D9F1EE6DEF2EAA9CA7059F490B73C0DC8A
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31591.jpgsave_picture_31591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31591.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:7315BC86973B20F1C30AF0F6332500934C9F7A6B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31592.jpgsave_picture_31592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31592.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Robbie Williams - Compilation (1996-2022) [MP3|320 Kbps] <Pop rock, Soft rock, E
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31593.jpgsave_picture_31593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31593.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:E37349530CDC5463C36BE4E0C286DA149741520D
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31594.jpgsave_picture_31594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31594.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:DD07D606539142CFFBA1D34E88004D39D648E584
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31595.jpgsave_picture_31595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31595.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Ascold Flow | Вторжение (Книга 3). Академия магоуби
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31596.jpgsave_picture_31596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31596.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:808932726AA97B2B0DCF8B59332E38E4F016CD88
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31597.jpgsave_picture_31597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31597.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:827EE9581DC1184B7C1EFE04CFFFDCD4A386DAD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31598.jpgsave_picture_31598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31598.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Pyrrhic Tales: Prelude To Darkness (2002) [En] (1.8) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31599.jpgsave_picture_31599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31599.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Vivaldi 7.0.3495.29 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31600.jpgsave_picture_31600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31600.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:5D2208219E0C68DFCFD9BA11654ABAB5496BBB2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31601.jpgsave_picture_31601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31601.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Markus Schulz - Escape (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31602.jpgsave_picture_31602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31602.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Cike Xintiao: Wangchao | Assassin's Creed: Dynasty | Кредо Убийцы: Д
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31603.jpgsave_picture_31603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31603.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ XtraTools Professional 25.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31604.jpgsave_picture_31604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31604.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:E7E28DBFF3640142D9C6A69BB4444258E5A8C406
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31605.jpgsave_picture_31605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31605.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:0D02935764CF5A48CBBE743F6225C5A6CCFB1A80
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31606.jpgsave_picture_31606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31606.jpg" />
 </div>
 
 

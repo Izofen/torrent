@@ -6,7 +6,7 @@ Volbeat - Studio Albums (9 releases) (2005-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15417.jpgsave_picture_15417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15417.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Project Warlock (2018) [Ru/Multi] (1.1.0.21) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15418.jpgsave_picture_15418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15418.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Shardpunk: Verminfall (2023) [Multi] (1.1.9.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15419.jpgsave_picture_15419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15419.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Unexplored 2: The Wayfarer's Legacy (2022) [En] (1.7.35) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15420.jpgsave_picture_15420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15420.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A4DB2815A7F96AECE50C134EC70EA947873AAB97
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15421.jpgsave_picture_15421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15421.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:94A8A130A0B76331D730152E0643EFB4E998B07E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15422.jpgsave_picture_15422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15422.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A4E5C4AE891B0A846526ED9F446DC25BD54B7DEE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15423.jpgsave_picture_15423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15423.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Windows 10 Enterprise LTSC x64 21Н2 (build 19044.5917) by ivandubskoj 02.06.202
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15424.jpgsave_picture_15424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15424.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C8B7F7EC6E0A148FB8AF282808A7586D7406A0FF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15425.jpgsave_picture_15425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15425.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15426.jpgsave_picture_15426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15426.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:D9E5A40053FF01F7D86A0487D81D2F83347E1734
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15427.jpgsave_picture_15427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15427.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:D9E5A40053FF01F7D86A0487D81D2F83347E1734
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15428.jpgsave_picture_15428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15428.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Symphony of War: The Nephilim Saga (2022) [Ru/Multi] (1.10.23/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15429.jpgsave_picture_15429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15429.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:5923444DA56DAC8B5FE681B0E53BFB26DE890A17
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15430.jpgsave_picture_15430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15430.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Acrobat Pro 2025.001.20521 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15431.jpgsave_picture_15431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15431.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:2A8480D35A719A15750EB58BB2DFE215902744CE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15432.jpgsave_picture_15432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15432.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Proton VPN 5.11.39 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15433.jpgsave_picture_15433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15433.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15434.jpgsave_picture_15434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15434.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B378638CF172BAFF888E72F14920DA32B6137833
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15435.jpgsave_picture_15435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15435.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:B378638CF172BAFF888E72F14920DA32B6137833
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15436.jpgsave_picture_15436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15436.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:117A5F8C542DBE273EE02290BCCCE4645C4EE695
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15437.jpgsave_picture_15437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15437.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Robin Schulz - Uncovered (2017) [FLAC|Lossless|image + .cue] <Electronic, Dance-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15438.jpgsave_picture_15438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15438.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Rhythmsoul - Wasted Dreams & Lonesome Roads (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15439.jpgsave_picture_15439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15439.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Ina Forsman - After Dark Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15440.jpgsave_picture_15440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15440.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Pearl Alley - 'Bout Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15441.jpgsave_picture_15441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15441.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15442.jpgsave_picture_15442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15442.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43127.jpgsave_picture_43127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43127.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:18FE28F471CDE96BC873505EA5CF1FB4FC5E0BAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43128.jpgsave_picture_43128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43128.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:67554E10DCDAEDF0F481A335BEED4B46137FD184
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43129.jpgsave_picture_43129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43129.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DE3D202FAFD697E2E744DF2CFF5E64D9B92A5AED
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43130.jpgsave_picture_43130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43130.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Layla Zoe - Into the Blue (2024) Live in Concert [MP3|320 Kbps] <Hard Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43131.jpgsave_picture_43131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43131.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Doro - Anthems for the Champion (2007) Remaster, 2024, Rare Diamonds Productions
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43132.jpgsave_picture_43132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43132.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2B60CC67F97AA45A775B7CDFE26E1455ED60DB7D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43133.jpgsave_picture_43133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43133.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ The Residents - Demons Dance Alone (2019) pREServed Edition, 2024, Cherry Red Re
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43134.jpgsave_picture_43134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43134.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:8A66E27AC61215B25356054E8B280ACB36A52671
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43135.jpgsave_picture_43135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43135.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:54DA3B6603111775C54F72748567B69A510207BF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43136.jpgsave_picture_43136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43136.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:AAD25731283EC4AD067EEED730B820C21BCD336D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43137.jpgsave_picture_43137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43137.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:2AA7320EB1E8874BEB1A8B4B4B6FDF82FCDAF315
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43138.jpgsave_picture_43138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43138.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Pretty Little Deep-House Friends, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43139.jpgsave_picture_43139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43139.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:4A4D7677752F3A429494E50D6E19F0EC4FA2ADAB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43140.jpgsave_picture_43140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43140.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:AAE56A62F4C3B18A7A37B4DA206824DD8F795478
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43141.jpgsave_picture_43141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43141.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Local H - Whatever Happened To P.J. Soles? (2004) Reissue, Remaster, 2024, Studi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43142.jpgsave_picture_43142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43142.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:1BABF436A6B002BD37F654671B3E491F6745CF58
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43143.jpgsave_picture_43143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43143.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Maite Kelly - Nur Liebe (2024) [FLAC|Lossless|image + .cue] <Pop, Schlager>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43144.jpgsave_picture_43144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43144.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Servants to the Tide - Where Time Will Come to Die (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43145.jpgsave_picture_43145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43145.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Skyline - Human Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43146.jpgsave_picture_43146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43146.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43147.jpgsave_picture_43147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43147.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Stan Getz - Compact Jazz: Stan Getz & Friends (1988) Verve [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43148.jpgsave_picture_43148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43148.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Hannah Kerr - As I Am (2024) [FLAC 16,24/44.1.48,96|Lossless|WEB-DL|tracks] <Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43149.jpgsave_picture_43149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43149.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:BF5EB30F7CCE23FCD092811D4C854980F516360E
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43150.jpgsave_picture_43150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43150.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:682D9D2D2EC2231AB51FC7788F88C46DA5F8873E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43151.jpgsave_picture_43151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43151.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:682D9D2D2EC2231AB51FC7788F88C46DA5F8873E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43152.jpgsave_picture_43152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43152.jpg" />
 </div>
 
 

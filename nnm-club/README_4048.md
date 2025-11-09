@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125818.jpgsave_picture_125818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125818.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D14163802BA281F5BE79767C1368E23BF768247E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125819.jpgsave_picture_125819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125819.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ MyLanViewer 6.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125820.jpgsave_picture_125820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125820.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AOMEI Partition Assistant Technician Edition 10.9.1 RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125821.jpgsave_picture_125821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125821.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Digital Juice - BrushBoxx - Volume 1 to 4 [MP4]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125822.jpgsave_picture_125822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125822.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125823.jpgsave_picture_125823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125823.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:6C608068F42ACE802060939495441E539226E97E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125824.jpgsave_picture_125824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125824.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F37D2EA16A933F28A3D2FCF36273491BDBB9B583
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125825.jpgsave_picture_125825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125825.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:3C1271A023B6694238C4607AC85D0F8D7D5446CD
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125826.jpgsave_picture_125826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125826.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125827.jpgsave_picture_125827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125827.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:AC03F25D64109B4F8D44667A61E2F56927719F90
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125828.jpgsave_picture_125828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125828.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:1777487A782193923DA263E756C980DF02765175
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125829.jpgsave_picture_125829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125829.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:AC791D643D9D9305FF861CE36739B95A9DDECB6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125830.jpgsave_picture_125830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125830.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Progressive Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125831.jpgsave_picture_125831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125831.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ AOMEI Partition Assistant Technician Edition 10.9.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125832.jpgsave_picture_125832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125832.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:CF6DB0CFAC1A1EB37306E381A66FC5651C9DE034
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125833.jpgsave_picture_125833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125833.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:FB0BF3DD9C094E06C8A65365E6D0C919A4579E01
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125834.jpgsave_picture_125834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125834.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:20F0F3F851FE56310FEA5F6645C404AEB2DE8C79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125835.jpgsave_picture_125835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125835.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:F487D566797AAF0B428BE9C2D12268D75FC47429
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125836.jpgsave_picture_125836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125836.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:E051806022456F5731743C9F2682BCA73FDDB695
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125837.jpgsave_picture_125837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125837.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Vocal Morning Lounge Mix (2025) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125838.jpgsave_picture_125838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125838.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Mashin Eiyuuden Wataru | Mashin Hero Wataru | Маленькие спасате�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125839.jpgsave_picture_125839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125839.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Shin Mashin Eiyuuden Wataru Majinzan | Маленькие спасатели [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125840.jpgsave_picture_125840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125840.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Mashin Eiyuuden Wataru 2 | Mashin Hero Wataru 2 | Маленькие спаса�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125841.jpgsave_picture_125841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125841.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mashin Eiyuuden Wataru: Owarinaki Toki no Monogatari | Маленькие спа
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125842.jpgsave_picture_125842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125842.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Chou Mashin Eiyuuden Wataru | Mashin Hero Wataru 3 | Маленькие спас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125843.jpgsave_picture_125843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125843.jpg" />
 </div>
 
 

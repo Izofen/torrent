@@ -6,7 +6,7 @@ Payback - Never Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106967.jpgsave_picture_106967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106967.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106968.jpgsave_picture_106968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106968.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Saltatio Mortis - Finsterwacht (2024) [FLAC|Lossless|WEB-DL|tracks] <Medieval Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106969.jpgsave_picture_106969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106969.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Shattered - Darker Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106970.jpgsave_picture_106970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106970.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pyrograph - Pyrograph (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106971.jpgsave_picture_106971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106971.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kung Fu Overdrive - Kung Fu Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106972.jpgsave_picture_106972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106972.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Fem Snabba - Pupiller (серия "Другие восьмидесятые") (19
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106973.jpgsave_picture_106973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106973.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Buddha Chill House & Dj. Juliano BGM - Buddha Open Bar: Summer in Hotel, Party o
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106974.jpgsave_picture_106974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106974.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0262DFB2EC8404ABD0F0841946C95C89081FC164
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106975.jpgsave_picture_106975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106975.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Big Aerobic & Cardio Dance Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106976.jpgsave_picture_106976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106976.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 201
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106977.jpgsave_picture_106977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106977.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Black Tiger - Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106978.jpgsave_picture_106978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106978.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ PowerDirector – Video Editor v14.2.0 b2407050 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106979.jpgsave_picture_106979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106979.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:013BD5F9A4488CC27893879422635DF17933E7DB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106980.jpgsave_picture_106980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106980.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:913F50921CFAF6C9BBB71B05A25DD18E8653D450
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106981.jpgsave_picture_106981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106981.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:BC423D52FF770A56E86F2049A38E9265A13FFA45
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106982.jpgsave_picture_106982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106982.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ The Alan Parsons Project - Vulture Culture (Sessions) (1985) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106983.jpgsave_picture_106983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106983.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ The Rah Band - Orkestronique (2024) [FLAC|Lossless|WEB-DL|tracks] <synthpop, spa
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106984.jpgsave_picture_106984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106984.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Kiasmos - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106985.jpgsave_picture_106985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106985.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Maya Vik - Hustlebot (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Soul & Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106986.jpgsave_picture_106986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106986.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Dean Wingerter - Crazy Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106987.jpgsave_picture_106987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106987.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Deep-House Heaven, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106988.jpgsave_picture_106988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106988.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Count Basie - Live At The Chatterbox, Pittsburg, Pennsylvania (2001) [WavPack|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106989.jpgsave_picture_106989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106989.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Johnny Griffin - Sextet (1958) 1994, Original Jazz Classics [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106990.jpgsave_picture_106990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106990.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:67BBB75C0E2F95C90961D919E272E88E76ECAC78
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106991.jpgsave_picture_106991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106991.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106992.jpgsave_picture_106992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106992.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182302.jpgsave_picture_182302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182302.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Telegram Desktop 4.3.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182304.jpgsave_picture_182304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182304.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ocenaudio 3.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182305.jpgsave_picture_182305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182305.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Hasleo Backup Suite 3.0.0 Portable by AlexYar [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182309.jpgsave_picture_182309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182309.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ BIT.TRIP BEAT (2009) [En] (2.0.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182311.jpgsave_picture_182311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182311.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:12FA6A59744CDC51C0BBA3E7B8B4922B893513D4
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182313.jpgsave_picture_182313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182313.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Graveyard - 6 (2023) [MP3|320 Kbps] <Blues rock, Hard Rock, Psychedelic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182315.jpgsave_picture_182315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182315.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:9376D5DDF6815727A8DE905ACA98478A3492F59B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182318.jpgsave_picture_182318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182318.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:9F6A497A2787C9EAD9513FD8121CA5D031F9E4C8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182319.jpgsave_picture_182319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182319.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:46D3E950D0E35D02E858FF085D7C634BDBFA135E
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182322.jpgsave_picture_182322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182322.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:93F5B3EAF286A929D661FF3A5CEE8842D913FE1D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182324.jpgsave_picture_182324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182324.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:76C93013FF69BF84238D8E25DA34951C738AB436
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182327.jpgsave_picture_182327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182327.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:AE366AE3E89D75DA4E36338BE70AAD466B649014
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182328.jpgsave_picture_182328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182328.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Opera GX 102.0.4880.82 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182330.jpgsave_picture_182330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182330.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:F37D1C3D24AEE2C45F44AE48D00F82DE8AB2C507
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182332.jpgsave_picture_182332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182332.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Armin van Buuren - Live @ Ushuaïa Ibiza, Spain (2023-09-24) [MP3|320 Kbps] <Mai
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182334.jpgsave_picture_182334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182334.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:301C5363F1F075C873517D40FC519924FB279489
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182336.jpgsave_picture_182336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182336.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:8A7BD876880F1D09DAE8096F546BF2F8AFB9034E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182338.jpgsave_picture_182338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182338.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:8B1C925B0883D078D2267E8428F9D6E8799FD609
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182342.jpgsave_picture_182342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182342.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Jethro Tull - RokFlote (Alternative Mixes) (2023) [MP3|320 Kbps] <Prog Folk, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182344.jpgsave_picture_182344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182344.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:A1923AE1523486D1D8BAE0ADA889102D42F7AD7B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182345.jpgsave_picture_182345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182345.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:459C3477F10C5B7173B9DEF96B82E6B118144869
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182347.jpgsave_picture_182347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182347.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ GOM Player Plus 2.3.81.5346 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182351.jpgsave_picture_182351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182351.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Steely Dan - Aja (1977) Reissue, 2023, Geffen [FLAC 24/192|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182352.jpgsave_picture_182352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182352.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:897AF1100288A7136511D3611821130ABE0024C1
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182355.jpgsave_picture_182355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182355.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Waterfox Classic 2022.11 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182357.jpgsave_picture_182357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182357.jpg" />
 </div>
 
 

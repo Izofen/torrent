@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83391.jpgsave_picture_83391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83391.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83392.jpgsave_picture_83392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83392.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DD4AD89E5D466B107E1FAE367FA01529DBFF38D3
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83393.jpgsave_picture_83393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83393.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Mafia II Digital Deluxe HD Edition / Mafia 2: Город грехов + 8 DLC + 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83395.jpgsave_picture_83395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83395.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Resident Evil 4 + HD [Ru] (P) 2007
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83396.jpgsave_picture_83396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83396.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Left 4 Dead 2  [Ru/En] (Steam-Rip/2.1.0.2 build 4777) 2009 l R.G. Origins
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83397.jpgsave_picture_83397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83397.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:239BF64451E74ECAA52F35CF8546F41AB56266D5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83398.jpgsave_picture_83398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83398.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:054FABECB15E06667555103BD420793658CBB7E9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83402.jpgsave_picture_83402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83402.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:01BD6C15708769CB7F577A93EEAE2866B7F2642B
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83404.jpgsave_picture_83404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83404.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Bruce Springsteen - Wrecking Ball (2012) [MP3|320 кб/с]<Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83406.jpgsave_picture_83406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83406.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:B3261DBCB9D2D07443A6C2290DC4E20D3B0B5412
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83407.jpgsave_picture_83407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83407.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:B53552CADB41A0F27566E1C8647E9A073C877BF5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83409.jpgsave_picture_83409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83409.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:64CC905CCD3430A143DD0519914281F3849B8C33
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83412.jpgsave_picture_83412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83412.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Kaspersky World 1.3.2.101 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83413.jpgsave_picture_83413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83413.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83414.jpgsave_picture_83414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83414.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:017AA4789D266A5DA077A36B23F27A4B333EEB86
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83416.jpgsave_picture_83416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83416.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:017AA4789D266A5DA077A36B23F27A4B333EEB86
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83417.jpgsave_picture_83417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83417.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Paul Young - The Crossing (1993) [APE|Lossless]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83418.jpgsave_picture_83418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83418.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Paul Young - The Crossing (1993) [APE|Lossless]<Pop>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83420.jpgsave_picture_83420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83420.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - 100 Взрывных Хитов в Авто (2012) [MP3|192-320 kbps]<Pop |
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83421.jpgsave_picture_83421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83421.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:70544E507B995F1F0CA1E013C5DF4EB1F74C50AA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83425.jpgsave_picture_83425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83425.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:70544E507B995F1F0CA1E013C5DF4EB1F74C50AA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83426.jpgsave_picture_83426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83426.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Lazlo - Lazlo (2012) [MP3|320 кб/с]<Electronic, Nu Jazz, Nu Swing, Nu Blues>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83429.jpgsave_picture_83429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83429.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:2E5B764C8C6D4E612430D614AF4F3B3C6415D36A
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83432.jpgsave_picture_83432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83432.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA -  Chill & Relax. 133 Tracks Positive Music Vol.5 (2012) [MP3|320 kbps]<Chill
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83433.jpgsave_picture_83433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83433.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ magnet:?xt=urn:btih:32DBDFD86BFE5865033D0E563FD5750357D7D543
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83440.jpgsave_picture_83440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83440.jpg" />
 </div>
 
 

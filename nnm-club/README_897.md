@@ -6,7 +6,7 @@ Ao no Exorcist: Yosuga Hen | Blue Exorcist: The Blue Night Saga | Синий э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23661.jpgsave_picture_23661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23661.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F05774FA18642F37BCB4A93DEA6AD8DB8CB9B727
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23662.jpgsave_picture_23662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23662.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:9A5D6E5FA89E2E6CF160167352B3A37710CB317A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23663.jpgsave_picture_23663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23663.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack FitGirl [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23664.jpgsave_picture_23664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23664.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:949C251ABE6A59E5D82E3E9BAAF513DC90491851
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23665.jpgsave_picture_23665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23665.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:2D7A9A212C26CDB1B545B3859EA60EAA7BE1AEC3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23666.jpgsave_picture_23666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23666.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:9C473FF6FB98F824115C25A0F4AFCDCCAB950231
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23667.jpgsave_picture_23667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23667.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:504D2628BAE850BABFA0AD97330111F4CB733A3A
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23668.jpgsave_picture_23668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23668.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9AE88639479077A3ED4052EA59564F03EB1A5ADD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23669.jpgsave_picture_23669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23669.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4166B55390F7674B245BDB396201808B8B4A9005
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23670.jpgsave_picture_23670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23670.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Stellarium 25.1 (x64) [Multi/Ru]
 >>Системы навигации и карты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23671.jpgsave_picture_23671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23671.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:754E5F65603718DE50D5486741C33C99589CEC8A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23672.jpgsave_picture_23672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23672.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23673.jpgsave_picture_23673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23673.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:76C565DDCE3189687C29D419A30D79ED376ECF05
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23674.jpgsave_picture_23674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23674.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 18.03.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23675.jpgsave_picture_23675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23675.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A9B1B129647CC1E17104628D098CFBD4CD5AF977
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23676.jpgsave_picture_23676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23676.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:E6116092F80028B123B86725A1C30EA6BE09D435
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23677.jpgsave_picture_23677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23677.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:82FC99A47809FC2C4D3E8F21A05BBAB0A4ABC3E7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23678.jpgsave_picture_23678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23678.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:3CD05D07F7BBB797DDE9833154C7BB67D0EC6E92
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23679.jpgsave_picture_23679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23679.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6B5131FD0A45E3C54EB28FC0F06384AA990C09D3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23680.jpgsave_picture_23680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23680.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:042759D07B7ED503F058423D89545ABD1A265CAF
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23681.jpgsave_picture_23681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23681.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:2634589441C76C0EA4884D462B4ADEE7D0379D3C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23682.jpgsave_picture_23682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23682.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:CE6929220D9D3F21DFC49DA19548492605A5A2CA
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23683.jpgsave_picture_23683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23683.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai | Medaka Kuroiwa is Impervious 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23684.jpgsave_picture_23684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23684.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:4263A9CBB2DD386903D7DC1EA31CBB482688F99C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23685.jpgsave_picture_23685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23685.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack dixen18 [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23686.jpgsave_picture_23686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23686.jpg" />
 </div>
 
 

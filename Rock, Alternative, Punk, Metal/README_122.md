@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107596.jpgsave_picture_107596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107596.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lovelorn Dolls - Deadtime Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107598.jpgsave_picture_107598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107598.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Manafest - Learning How To Be Human (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107602.jpgsave_picture_107602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107602.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Used - MEDZ (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, EmoCore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107603.jpgsave_picture_107603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107603.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dezperadoz - Moonshiner (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107607.jpgsave_picture_107607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107607.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Paul McCartney & Wings - One Hand Clapping (1974) 2 x CD, Reissue, 2024, Capitol
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107611.jpgsave_picture_107611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107611.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:B57DDD83F3C833BD960B484A6476C11A37143A7A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107621.jpgsave_picture_107621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107621.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Malignancy - Eugenics (2012) [FLAC|Lossless|image + .cue] <Brutal Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107656.jpgsave_picture_107656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107656.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Membaris - Poetry of Chaos (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107657.jpgsave_picture_107657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107657.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Malignancy - Intrauterine Cannibalism (1999) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107658.jpgsave_picture_107658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107658.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Malignancy - Ignorance Is Bliss (2001) Compilation [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107660.jpgsave_picture_107660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107660.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Seven Spires - A Fortress Called Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107661.jpgsave_picture_107661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107661.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tokyo Storm - Alien Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107676.jpgsave_picture_107676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107676.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Олег Чубыкин. Трибьют (2024) [MP3|320 Kbps] <Rock, Pop>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107689.jpgsave_picture_107689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107689.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Magma Rise - Neither Land nor Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107736.jpgsave_picture_107736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107736.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Magma Rise - Lazy Stream of Steel (2010) [FLAC|Lossless|image + .cue] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107738.jpgsave_picture_107738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107738.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Magma Rise - To Earth to Ashes to Dust (2021) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107739.jpgsave_picture_107739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107739.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:E102B88C4EC51C368B6E6A5943202512C4B56867
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107740.jpgsave_picture_107740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107740.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C8B9E7569F0EA1F83ACB6C6FA7EAA3D9A6962D9C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107745.jpgsave_picture_107745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107745.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ozric Tentacles - Strangeitude & Pungent Effulgent (1989-1991) Compilation, Reis
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107746.jpgsave_picture_107746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107746.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Vulgar Devils - Witches Wheel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107749.jpgsave_picture_107749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107749.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Psychic Graveyard - Wilting (2024) [FLAC|Lossless|WEB-DL|tracks] <synth punk, in
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107750.jpgsave_picture_107750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107750.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Stonekind - Hollow Ground (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107751.jpgsave_picture_107751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107751.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sunburst - Manifesto (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107752.jpgsave_picture_107752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107752.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Portrait - The Host (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107753.jpgsave_picture_107753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107753.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ DinUmbra - Finality (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107754.jpgsave_picture_107754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107754.jpg" />
 </div>
 
 

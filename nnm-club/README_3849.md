@@ -6,7 +6,7 @@ Roxette - Look Sharp! (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120484.jpgsave_picture_120484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120484.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Minimal Audio - Effect Bundle 2024.01 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120485.jpgsave_picture_120485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120485.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B41BB9FBDB427E8119AA47C569709D8F148E1FC2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120486.jpgsave_picture_120486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120486.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:637D55F6A005658E8C8E139ACEF39D91F1567A66
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120487.jpgsave_picture_120487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120487.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:80DD6F8DEF4FBD0952CF10560ED46BF5419AD7EA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120488.jpgsave_picture_120488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120488.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Bobby Forrester - Collection (2004-2013) 4CD [MP3|320 Kbps] <Hard Bop, Jazz Rock
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120489.jpgsave_picture_120489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120489.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:8340E9C26E29840A92A09CDD7788B7D24CEC1BF2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120490.jpgsave_picture_120490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120490.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Пименов представляет Будущие хиты 2006 (2006)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120491.jpgsave_picture_120491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120491.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ The Weeknd - Double Fantasy (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Synth-P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120492.jpgsave_picture_120492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120492.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Florilegi I (2024) [FLAC|Lossless|WEB-DL|tracks] <Bass, Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120493.jpgsave_picture_120493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120493.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:06238FC81D0A24AD6674A30EB7477A7F87B314AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120494.jpgsave_picture_120494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120494.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:7D246D904B0ED144F51A0A624D898A60CF171D7B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120495.jpgsave_picture_120495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120495.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:5FBDF0C92915CFCF055C7E9C46BC266F509EF07E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120496.jpgsave_picture_120496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120496.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Artefacto school, Любовь Титова | Цветы и стеклянные
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120497.jpgsave_picture_120497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120497.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ OfficeSuite Pro + PDF 14.2.50872 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120498.jpgsave_picture_120498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120498.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Universal USB Installer 2.0.2.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120499.jpgsave_picture_120499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120499.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:CBD8F63859CC52CEB9906A59C37E811036B2A231
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120500.jpgsave_picture_120500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120500.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ PDF Expert 3.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120501.jpgsave_picture_120501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120501.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:0EB7868034CC639AAA21EB10AEB5FFED8D49BEBB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120502.jpgsave_picture_120502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120502.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:0726AE0C2A9D2AA6715DA3152AFA0A5F7A76ED06
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120503.jpgsave_picture_120503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120503.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Dream Dance Vol. 95 - The Annual (2024) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120504.jpgsave_picture_120504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120504.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:0A582BE28A3DB11640AF35F503B2286816CEDE95
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120505.jpgsave_picture_120505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120505.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Music News vol.335 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120506.jpgsave_picture_120506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120506.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:4B4CF88C73C3A8C4DEBF4549160B0567686F3F87
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120507.jpgsave_picture_120507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120507.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:7EAF1F05DD89D741C5DDF93B42EFAB52D203FF64
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120508.jpgsave_picture_120508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120508.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Riki-Ou 2: Horobi no Ko | Riki-Oh 2: Child Of Destruction | Рики-О 2: Ди�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120509.jpgsave_picture_120509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120509.jpg" />
 </div>
 
 

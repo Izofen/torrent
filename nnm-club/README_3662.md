@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115587.jpgsave_picture_115587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115587.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:60C4B5A3A495AD87A1678436096739B48FC04554
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115588.jpgsave_picture_115588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115588.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Hibernate Enable or Disable 1.4 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115589.jpgsave_picture_115589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115589.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:469FB6D53AF3C1F9149E1109BE28C960F7EE3606
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115590.jpgsave_picture_115590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115590.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3D9352B64475BC3FFAFC094EE0D4A8F04E2DB1D1
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115591.jpgsave_picture_115591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115591.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115592.jpgsave_picture_115592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115592.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ImageUSB 1.5.1006 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115593.jpgsave_picture_115593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115593.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FFFFA36DC6D55A7B62B52566BE1BC3FA65DAB282
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115594.jpgsave_picture_115594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115594.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:35A2A07FE3A2F3537F9454A08F0BE9CC6A44B1A9
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115595.jpgsave_picture_115595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115595.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:567D333A7CA24B111DCBD9B974C99C26AAA90766
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115596.jpgsave_picture_115596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115596.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115597.jpgsave_picture_115597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115597.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:58007D7877F6728DAE35C548E7F655F7DCA44B11
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115598.jpgsave_picture_115598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115598.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Hard Disk Sentinel Pro 6.20 Build 13190 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115599.jpgsave_picture_115599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115599.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:B273D5EB5BB8C50D7D78EA5D1CD59B69D10ECA5A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115600.jpgsave_picture_115600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115600.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E96C7D44483AF6DCCD713F9B9E5A49224D18260C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115601.jpgsave_picture_115601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115601.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ My Lovely Daughter (2024) [Multi] (1.27f6/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115602.jpgsave_picture_115602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115602.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:7E4691FB6A3AC7367E83D704043A9DC3BF38AE6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115603.jpgsave_picture_115603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115603.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:6D6B26088B4C41DB129EDA6EC0C5BC8EB40F5B69
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115604.jpgsave_picture_115604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115604.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:C520BFBE0B199B95A35347D9345BB0871761D76B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115605.jpgsave_picture_115605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115605.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Hard Disk Sentinel PRO 6.20 Build 13190 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115606.jpgsave_picture_115606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115606.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:10925882293BFADC6F413AF1D14DF07758474B11
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115607.jpgsave_picture_115607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115607.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:639418FAB7581BD847CE3408FDA898618EA94FB9
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115608.jpgsave_picture_115608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115608.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:832DD5C138D82C3AEA86F7E22EB939090E1265CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115609.jpgsave_picture_115609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115609.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:832DD5C138D82C3AEA86F7E22EB939090E1265CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115610.jpgsave_picture_115610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115610.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ CrystalDiskInfo 9.2.3 (24.02.2024) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115611.jpgsave_picture_115611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115611.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:9F6CBEE1A54F5F47136F409E9A52D30CECE81E42
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115612.jpgsave_picture_115612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115612.jpg" />
 </div>
 
 

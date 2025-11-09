@@ -6,7 +6,7 @@ Volume2 1.1.5.403 RC + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154943.jpgsave_picture_154943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154943.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Axel Rudi Pell - The Ballads V (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154944.jpgsave_picture_154944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154944.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PotPlayer 231113 (1.7.22038) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154945.jpgsave_picture_154945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154945.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D34F26DDF87A060D17BD61F1543A2C78EE0C8AF4
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154946.jpgsave_picture_154946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154946.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:290E4534686BCDA0599E22E48F9E72DF1EEB349D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154947.jpgsave_picture_154947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154947.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9E1116F6297DCFEA368F66E537B41F043669C7C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154948.jpgsave_picture_154948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154948.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:16E61A485B3D6A407E3697FCA0F7551C0712399B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154949.jpgsave_picture_154949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154949.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ The Beach Boys - The Platinum Collection (2005) 3CD [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154950.jpgsave_picture_154950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154950.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ New Masters Academy, Erik Olson | Perspective 17: Drawing the Figure in Perspect
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154951.jpgsave_picture_154951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154951.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D3CEB84C42A1944BCDA90AC2A8141190D1E7BD80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154952.jpgsave_picture_154952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154952.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ RAM Saver Professional 17.9 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154953.jpgsave_picture_154953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154953.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Serato DJ Pro Suite 2.5.8 (x64) RePack by VR [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154954.jpgsave_picture_154954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154954.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Def Leppard - Diamond Star Halos (2022) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154955.jpgsave_picture_154955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154955.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Notebooks - Create Documents, Organize Files, Manage Tasks 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154956.jpgsave_picture_154956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154956.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Permute 2.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154957.jpgsave_picture_154957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154957.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:8B8B3A4D43CA9FA4773E79A0F4D0677C3B6020D8
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154958.jpgsave_picture_154958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154958.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:57B1BF0A725312FC5581F22B98D9DFA592D73E93
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154959.jpgsave_picture_154959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154959.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - The Best Of Suanda True 2016 (Mixed By Mark W) (2016) [MP3|320 Kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154960.jpgsave_picture_154960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154960.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Lula Galvao - Alegria de viver (2019) [FLAC|Lossless|tracks + .cue] <Latin Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154961.jpgsave_picture_154961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154961.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154962.jpgsave_picture_154962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154962.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:1D0DECF16B882096EC6C10CE63E3619F16207332
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154963.jpgsave_picture_154963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154963.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ AOMEI Backupper Technician Plus 5.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154964.jpgsave_picture_154964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154964.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:784CBF9A958C6AF1B9AF17E14F98A906C3454C10
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154965.jpgsave_picture_154965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154965.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:E69BAED00170B8C7249669597278264BA05834DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154966.jpgsave_picture_154966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154966.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:84F8F379A0690748745658B6F22101EE15781988
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154967.jpgsave_picture_154967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154967.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Charlie Mingus - Epitaph (1946-1959) 2CD, 2009, Le Chant Du Monde[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154968.jpgsave_picture_154968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154968.jpg" />
 </div>
 
 

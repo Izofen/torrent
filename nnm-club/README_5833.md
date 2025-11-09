@@ -6,7 +6,7 @@ PC HelpSoft Driver Updater 7.0.1015 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182851.jpgsave_picture_182851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182851.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FastStone Image Viewer 7.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182855.jpgsave_picture_182855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182855.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182857.jpgsave_picture_182857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182857.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:1A818758DF59CB23A0214105CEB1DF7DE58B631B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182858.jpgsave_picture_182858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182858.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Bethesda Softworks | Артбук по игре Fallout 3 / The Art of Fallout 3
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182861.jpgsave_picture_182861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182861.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ BELOFF [dp] 2020.11.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182862.jpgsave_picture_182862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182862.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Gumroad, Emilis Baltrusaitis | Monsoon – Tutorial Large Scale Environment Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182863.jpgsave_picture_182863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182863.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Opera 93.0.4585.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182866.jpgsave_picture_182866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182866.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182867.jpgsave_picture_182867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182867.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182868.jpgsave_picture_182868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182868.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F9BEC53DA7EDF39E4E9CE4CCE353F6293D923AFC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182871.jpgsave_picture_182871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182871.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:75C6340749803A3D457EFA0537CA1042ADFBC977
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182872.jpgsave_picture_182872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182872.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182873.jpgsave_picture_182873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182873.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F58C3C22B6F6E2C1E09F352FF7D0223919C19008
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182875.jpgsave_picture_182875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182875.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CGcircuit, Diogo Guerreiro | The Faroe Islands in Houdini (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182877.jpgsave_picture_182877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182877.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:142DE6E6E32C03E17FA4AFBE7610C7B32D9B5A7D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182878.jpgsave_picture_182878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182878.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:B2594487FD7BA771B4C2B9ED539E7CB71BE3254D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182881.jpgsave_picture_182881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182881.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Wipe Pro 2227 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182882.jpgsave_picture_182882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182882.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F5A4BA8CD4A7222E0D4AE5F4B7BB13AF5C11D15D
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182883.jpgsave_picture_182883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182883.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:EFA3397D79B700F58904D0957060BA7F716F245B
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182886.jpgsave_picture_182886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182886.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:3A541275CA67248B4A212EBD69792999BEAF8123
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182887.jpgsave_picture_182887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182887.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182888.jpgsave_picture_182888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182888.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0324CC077EF1F8F25BDA33EF2BFAF761CD570427
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182891.jpgsave_picture_182891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182891.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:6E42C964F7A8D131622A8F328CCDF5963C8589E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182892.jpgsave_picture_182892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182892.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ GPU-Z 2.36.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182893.jpgsave_picture_182893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182893.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:68302BF94FF1CD82F94BB03B7A7050F614021FD1
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182896.jpgsave_picture_182896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182896.jpg" />
 </div>
 
 

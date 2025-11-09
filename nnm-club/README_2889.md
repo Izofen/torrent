@@ -6,7 +6,7 @@ Ad Muncher 4.92 Build 32700/3915 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84811.jpgsave_picture_84811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84811.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ad Muncher - знаменитая программа по удалению не�
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84812.jpgsave_picture_84812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84812.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F0274013C3BC2B2F2649A58C2E64D3F8C90B69D3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84814.jpgsave_picture_84814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84814.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Bloodline Champions / Братство Чемпионов (L) {ver. 2.3.0.0} [En
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84815.jpgsave_picture_84815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84815.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DAF9BC21D54328ADAC7F1F8B02DAA0C667F46E1C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84816.jpgsave_picture_84816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84816.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Kill Win Locker II by Core-2 v.27.3.12 [Английский, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84817.jpgsave_picture_84817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84817.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Kill Win Locker II by Core-2 v.27.3.12 - загрузочный диск, осн
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84818.jpgsave_picture_84818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84818.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kill Win Locker II by Core-2 v.27.3.12 - загрузочный диск, осн
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84819.jpgsave_picture_84819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84819.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Chip Windows XP 2012.03 CD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84820.jpgsave_picture_84820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84820.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Vampire: The Masquerade: Bloodlines [Ru] (RePack/7.9) 2004 | Naitro
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84823.jpgsave_picture_84823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84823.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Total War: Shogun 2: Fall of the Samurai / Total War: Shogun 2: Закат Са�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84824.jpgsave_picture_84824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84824.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Total War: Shogun 2: Fall of the Samurai / Total War: Shogun 2: Закат Са�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84827.jpgsave_picture_84827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84827.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Total War: Shogun 2 - Fall of the Samurai  / Total War: Shogun 2 - Закат С
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84828.jpgsave_picture_84828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84828.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:8B9BB4FDBC7F380D900B60E7EDD5EB8815E8CB9B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84829.jpgsave_picture_84829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84829.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:A580702C8A5943BC752CD8AB705B64AA7EDE4AF0
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84830.jpgsave_picture_84830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84830.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:A580702C8A5943BC752CD8AB705B64AA7EDE4AF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84833.jpgsave_picture_84833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84833.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Venetica: HD Edition [Ru] (Lossless RePack) 2010 | Naitro
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84834.jpgsave_picture_84834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84834.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Activation Win7 v4.0 (март)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84835.jpgsave_picture_84835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84835.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ DG Win&Soft предлагает Вашему вниманию полный сб
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84836.jpgsave_picture_84836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84836.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ DG Win&Soft предлагает Вашему вниманию полный сб
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84837.jpgsave_picture_84837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84837.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Resident Evil 5 [Ru] (Lossless RePack) 2009 | Naitro
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84838.jpgsave_picture_84838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84838.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Eivissa Salinas - Touch and Go (2012) [MP3|320 кб/с]<Chillout,  Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84842.jpgsave_picture_84842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84842.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:3F70B9EBC2C1589D5C1DCC63D858FD2DD9F2F2F8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84844.jpgsave_picture_84844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84844.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84848.jpgsave_picture_84848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84848.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84849.jpgsave_picture_84849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84849.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:83F84AEE34370FC684E61A3ADC8E698D230C349E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84851.jpgsave_picture_84851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84851.jpg" />
 </div>
 
 

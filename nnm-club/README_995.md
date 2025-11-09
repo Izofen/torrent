@@ -6,7 +6,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26220.jpgsave_picture_26220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26220.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MInstAll v.15.02.2025 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26221.jpgsave_picture_26221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26221.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:96188DBB4C1E6F83B585D6CD70CCF094D0D37270
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26222.jpgsave_picture_26222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26222.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26223.jpgsave_picture_26223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26223.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ World to the West (2017) [Multi] (1.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26224.jpgsave_picture_26224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26224.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8AF382403359D4DAC7ED6B951E12372F34792554
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26225.jpgsave_picture_26225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26225.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Color Grading Central | Davinci Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26226.jpgsave_picture_26226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26226.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FC15DA727B3FF0241FFE2295D7392210EB559ACD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26227.jpgsave_picture_26227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26227.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26228.jpgsave_picture_26228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26228.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26229.jpgsave_picture_26229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26229.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:526D4769B04150D9093F7849F1D54C9A377588CC
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26230.jpgsave_picture_26230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26230.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Activation Program 1.07 Portable by Ratiborus [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26231.jpgsave_picture_26231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26231.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:6144C18E04AD40B9371EDE04CB9FBB71F29B0B52
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26232.jpgsave_picture_26232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26232.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Photoshop 2025 26.3.0.156 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26233.jpgsave_picture_26233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26233.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:4EFD5E472D3D55C28A5A9CA259EFADB824B4E508
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26234.jpgsave_picture_26234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26234.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:636B7DBAC51409359018406FE23CDA625A269806
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26235.jpgsave_picture_26235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26235.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:D60BEA2502BDFC5E65D424F9C5D7A0E0ACA5FAC7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26236.jpgsave_picture_26236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26236.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ ISO Workshop Pro 13.3  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26237.jpgsave_picture_26237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26237.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Asura's Wrath (2012) [PS3] [EUR] 3.73 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26238.jpgsave_picture_26238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26238.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:EC5827AD07C1CFE3683B873ED4509C86620EEF61
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26239.jpgsave_picture_26239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26239.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:07DA58D7D22F71A82A596A658D24E39DB1B42589
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26240.jpgsave_picture_26240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26240.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26241.jpgsave_picture_26241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26241.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:CAE0E47CDC648EEEE172FEAFB88A1314C3D735D2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26242.jpgsave_picture_26242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26242.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:582CF078F6926E39BB78FF2C90EE7606B7F8B5B9
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26243.jpgsave_picture_26243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26243.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:C3C477F0C60156DC3088752C5705476B68E20335
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26244.jpgsave_picture_26244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26244.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:9AD8B48E1B0F51A626980420CB05BEC88536ADC3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26245.jpgsave_picture_26245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26245.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161140.jpgsave_picture_161140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161140.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Boz Digital Labs - Sasquatch 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161141.jpgsave_picture_161141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161141.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:877999E83478FF095E7DB3FF4062B6A44169EB2C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161142.jpgsave_picture_161142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161142.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161143.jpgsave_picture_161143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161143.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:5DA615C231FF6EB0150D7388D5597994DAE9FA52
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161144.jpgsave_picture_161144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161144.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - Lounge Top 55 Deluxe, the Very Best of, Vol. 2 (2015) [AAC|~328 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161145.jpgsave_picture_161145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161145.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Nanamaru Sanbatsu | Fastest Finger First | Семь – верно, три – �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161146.jpgsave_picture_161146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161146.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Microsoft Windows 10.0.19043.2364, Version 21H1 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161147.jpgsave_picture_161147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161147.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:9EB1B0F0163DC56BA8248B97095479C1A34A9352
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161148.jpgsave_picture_161148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161148.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:3B4D682796B3E9B57E35EB9E42C81318EEF6B31A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161149.jpgsave_picture_161149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161149.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Blo.Torch - Blo.Torch (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161150.jpgsave_picture_161150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161150.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:7E0B14108643FB65D75A0C50051330F6AA8AEA1F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161151.jpgsave_picture_161151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161151.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:C41F817691CD0BB9CF1DE082D8837678B2DFBCE5
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161152.jpgsave_picture_161152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161152.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161153.jpgsave_picture_161153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161153.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Note Studio 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161154.jpgsave_picture_161154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161154.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:95D9676ADCB0EAA80363EC4877D9392192C3CB0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161155.jpgsave_picture_161155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161155.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:4E988EF3F70B6CD6BFF12D2AB4DD77D13DB247FE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161156.jpgsave_picture_161156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161156.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ John Zorn - Virtue (2020) [MP3|320 Kbps] <Avant-garde Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161157.jpgsave_picture_161157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161157.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 2 (2021) [AAC|~321 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161158.jpgsave_picture_161158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161158.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:F501CCF91F4F05792C9DC41E09C1D69805EFEA9F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161159.jpgsave_picture_161159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161159.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:B2D396B3331DB7CFF0C367ED244D322E5A28CAD8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161160.jpgsave_picture_161160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161160.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Visual Studio Code 1.74.2 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161161.jpgsave_picture_161161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161161.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Piezo 1.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161162.jpgsave_picture_161162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161162.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:5B9B8F33EB99B2920EF5CFDB9B61135DCD03BCE5
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161163.jpgsave_picture_161163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161163.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:30724763D9016DB7B401B20115FA7E383111A768
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161164.jpgsave_picture_161164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161164.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:C1E1F174FE451CE017407ADE564C182916DEB849
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161165.jpgsave_picture_161165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161165.jpg" />
 </div>
 
 

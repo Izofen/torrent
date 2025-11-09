@@ -6,7 +6,7 @@ CGcircuit, Steven Knipping | Applied Houdini Volumes I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237796.jpgsave_picture_237796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237796.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237797.jpgsave_picture_237797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237797.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1DEFD7E80DE91CB46D29F5103D7EBC6FD9BE54C9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237798.jpgsave_picture_237798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237798.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2238280872CFF543E36D276282D37A4FD1054C58
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237799.jpgsave_picture_237799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237799.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Beautiful Metamorphosis, Vol. 1 (2021) [AAC|~307 Kbps] <Downtempo, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237800.jpgsave_picture_237800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237800.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237801.jpgsave_picture_237801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237801.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ EF Commander 2023.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237802.jpgsave_picture_237802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237802.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:47F36905668CE4AC614D6B9C9843D098EA32ECD2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237803.jpgsave_picture_237803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237803.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Planet On A Chain - 2 Albums (2022-2023) [MP3|320 Kbps] <Alternative, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237804.jpgsave_picture_237804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237804.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ AssetsGen 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237805.jpgsave_picture_237805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237805.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Fifty Shades of Lounge - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (201
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237806.jpgsave_picture_237806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237806.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:F65208FCC6FFDEF456B25B44430CBA87FCC88EE1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237807.jpgsave_picture_237807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237807.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Joel Hoekstra's 13 - Running Games (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237808.jpgsave_picture_237808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237808.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Ultimaker Cura 5.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237809.jpgsave_picture_237809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237809.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ A Better Finder Rename 11 v.11.57 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237810.jpgsave_picture_237810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237810.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:1C70E9AF9B763769A72D0B4360875A414F7AC596
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237811.jpgsave_picture_237811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237811.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - The Perfect Soulful Vol.2 (Chillout Your Mind) (2021) [AAC|~299 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237812.jpgsave_picture_237812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237812.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:C1DD318C5980BDC74908E78867D58F3C1026349F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237813.jpgsave_picture_237813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237813.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:7E964C40D0206C2561D10FA62917201EA6459CE2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237814.jpgsave_picture_237814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237814.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Sidney Bechet - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Dixie
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237815.jpgsave_picture_237815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237815.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Disharmony - Gods Made of Flesh (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237816.jpgsave_picture_237816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237816.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Fireplace Chill, Vol. 1 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237817.jpgsave_picture_237817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237817.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:93AF8A6BB573CD0FE38E546B5DE5FADDC8C2A281
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237818.jpgsave_picture_237818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237818.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Tor Browser Bundle 11.0.11 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237819.jpgsave_picture_237819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237819.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237820.jpgsave_picture_237820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237820.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ FanControl V160 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237821.jpgsave_picture_237821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237821.jpg" />
 </div>
 
 

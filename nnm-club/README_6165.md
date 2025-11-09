@@ -6,7 +6,7 @@ Koplayer 2.0.0 [Multi]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193700.jpgsave_picture_193700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193700.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ InviZible Pro: Tor & Firewall v7.3.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193701.jpgsave_picture_193701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193701.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193702.jpgsave_picture_193702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193702.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:C819792C193CF5A4DA4113414397B4E662B7A37D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193703.jpgsave_picture_193703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193703.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Advanced SystemCare Pro 19.0.1.158 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193704.jpgsave_picture_193704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193704.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D89FE2B96D3DFC1F7324A121952A2E56A3ABC7D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193705.jpgsave_picture_193705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193705.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Hanma Baki: Son of Ogre 2nd Season | Baki Hanma 2nd Season | Баки — сын
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193706.jpgsave_picture_193706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193706.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Defender Remover Portable 12.5.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193707.jpgsave_picture_193707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193707.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:E662D7FD3708BD02D418D46D07D837AE551701BD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193708.jpgsave_picture_193708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193708.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:4106B3974490BE4D722B5E49E760748C58C6FEA4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193709.jpgsave_picture_193709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193709.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ronnie Romero - Backbone (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193710.jpgsave_picture_193710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193710.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:250934F3F6FC692BD7047F9DC015B4CE8BB688CD
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193711.jpgsave_picture_193711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193711.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:B77B381D3C0AFBCA824EB0C738B0BE48B52495DB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193712.jpgsave_picture_193712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193712.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:93F6358D586433BBEF8464422D834AEFA84420DA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193713.jpgsave_picture_193713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193713.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:26A8C12A41259E418C97421CA7CB3369C0657A52
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193714.jpgsave_picture_193714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193714.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Windows 11 Manager 1.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193715.jpgsave_picture_193715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193715.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adobe Premiere Pro 2023 v.23.5 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193718.jpgsave_picture_193718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193718.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Leprous - An Evening of Atonement (Live in Tilburg 2025) (2025) Compilation [FLA
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193719.jpgsave_picture_193719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193719.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:D7C8987F43E12830B77419BFE68C2AFE996FAB8E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193720.jpgsave_picture_193720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193720.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:840C7B90A3018DDE5C7CE3C5A501F563BE91D12B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193721.jpgsave_picture_193721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193721.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ LazyIPTV Deluxe v2.46 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193723.jpgsave_picture_193723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193723.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Pixelmator Pro 3.7 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193724.jpgsave_picture_193724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193724.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:75F10C448DE78B29BD262FF79FB50249BBB7078D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193725.jpgsave_picture_193725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193725.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ WildTrax Racing (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193726.jpgsave_picture_193726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193726.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:2ADD6740F988E691D408B47616571361D926B000
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193727.jpgsave_picture_193727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193727.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:D2638789303A99596C64F81360180A2A6A676513
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193728.jpgsave_picture_193728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193728.jpg" />
 </div>
 
 

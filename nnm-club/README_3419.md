@@ -6,7 +6,7 @@ Gjenferd - Gjenferd (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, , Psych, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109255.jpgsave_picture_109255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109255.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:27D7C432D505EF835E189CF0219A47DB2E69C79D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109256.jpgsave_picture_109256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109256.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Matthew Rotker-Lynn - Introducing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109257.jpgsave_picture_109257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109257.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Agusa - Noir (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109258.jpgsave_picture_109258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109258.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Combichrist - History of Madness (Live at Complex, L.A.) (2016) [MP3|320kbps] <I
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109259.jpgsave_picture_109259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109259.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Johan Rudebjer trio - Sandkorn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109260.jpgsave_picture_109260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109260.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Monsieur MALA - Monsieur MALA (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109261.jpgsave_picture_109261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109261.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alan Broadbent - Jazz Funk (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109262.jpgsave_picture_109262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109262.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Delta OG - Aged Friends & Old Whiskey (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109263.jpgsave_picture_109263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109263.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Disaster Pony - Disaster Pony (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109264.jpgsave_picture_109264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109264.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:BA6B40645A0AE8A427A74EA1BBC1745E7554739D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109265.jpgsave_picture_109265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109265.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Lainz - Indigo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109266.jpgsave_picture_109266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109266.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Darren Tate - Metamorphosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109267.jpgsave_picture_109267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109267.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Electronica Confessions, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109268.jpgsave_picture_109268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109268.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Шансон премьера 2023 декабрь (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109269.jpgsave_picture_109269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109269.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:673626BE7987C0AA33568C9888C1DD12EB5DC0DD
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109270.jpgsave_picture_109270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109270.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Combichrist - CMBCRST (2024) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109271.jpgsave_picture_109271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109271.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Soul Button - Tranquility: Ethereal Techno (DJ Mix) (2024) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109272.jpgsave_picture_109272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109272.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ VA - Travel In The Universe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109273.jpgsave_picture_109273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109273.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Romantic Time, Jazz Guitar Club, Love Music Zone - Romantic Latin Guitar Ballads
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109274.jpgsave_picture_109274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109274.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Keep It Trance Vol. 21 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109275.jpgsave_picture_109275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109275.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 03 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109276.jpgsave_picture_109276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109276.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:F7F6D716249BDCAADEEF9059A5B8DD5692C9F9C8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109277.jpgsave_picture_109277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109277.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Ootkeen - Voo Da Borboleta EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109278.jpgsave_picture_109278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109278.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Redux Selection Vol. 6 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109279.jpgsave_picture_109279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109279.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Galantis - Rx (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109280.jpgsave_picture_109280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109280.jpg" />
 </div>
 
 

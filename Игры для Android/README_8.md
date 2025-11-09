@@ -6,7 +6,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174849.jpgsave_picture_174849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174849.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D34B0C3714E63BFB1A723EEF80555BAB0FDA73A1
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176482.jpgsave_picture_176482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176482.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:A1CB715646DF32BBC0BFF3B335AC2B2D26008ABF
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177156.jpgsave_picture_177156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177156.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ X-Plane Flight Simulator v11.4.6 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177179.jpgsave_picture_177179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177179.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Slaughter 2: Prison Assault 1.42 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178336.jpgsave_picture_178336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178336.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Slaughter 1.9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178410.jpgsave_picture_178410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178410.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Hollow Knight 1.2.2-Final (Unofficial port) Mod by Skaizek & Dan Cooper [Ru/Mult
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178957.jpgsave_picture_178957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178957.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182873.jpgsave_picture_182873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_182873.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Space Marshals 3 v1.3.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183013.jpgsave_picture_183013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183013.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:E2C7DA726978B01F73B7EFCFA9D565CDCD4D6B6B
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183017.jpgsave_picture_183017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183017.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:26C600D3591F78BCABB1E6021E15572334D76BDC
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185888.jpgsave_picture_185888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185888.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Word: Поиск Слова Кроссворд v7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189882.jpgsave_picture_189882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189882.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:5901EA2C1C7F967D8B60DA40D7DDC322A25C2700
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190862.jpgsave_picture_190862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190862.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:A527024C745C63C2E5B4AC0F2A3AD9C54F1D7078
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194462.jpgsave_picture_194462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194462.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Minecraft: Pocket Edition 1.20.0.21.BETA Mod by roydiPRO [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196156.jpgsave_picture_196156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196156.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Terraria 1.4.4.9.2 Mod by Dav124 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196190.jpgsave_picture_196190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196190.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:8BE3B55E6B86ECEA8FAF408AD8630602E146CCE3
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197540.jpgsave_picture_197540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197540.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Word Surf - Игра в слова v3.9.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198059.jpgsave_picture_198059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198059.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Infinity Loop / Энергия: антистрессовая петля v6.7.8 [
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198610.jpgsave_picture_198610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198610.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Tiny Robots Recharged v1.06 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203240.jpgsave_picture_203240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203240.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Word Surf v3.8.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204598.jpgsave_picture_204598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204598.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Incredibox 0.6.6 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209514.jpgsave_picture_209514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209514.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Plague Inc. 1.19.10 Mod by Bubalex88 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209912.jpgsave_picture_209912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209912.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:EC50689BE3C6037DB6A9C1E93A1C4E5146CD4B52
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237700.jpgsave_picture_237700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237700.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9F9FE33E0A7FEB3374E9BCC03A32B0AF7F6C4379
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237718.jpgsave_picture_237718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237718.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Hollow Knight 1.0 (Unofficial port) Mod by Dan Cooper [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241529.jpgsave_picture_241529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241529.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Texture pack 1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100427.jpgsave_picture_100427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100427.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5DEBBF1F53CE7075273AB9E7033720B2C2AD927C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100428.jpgsave_picture_100428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100428.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Waylon Jennings - 5 Original Album Classics (2008) [MP3|320 кб/с]<Country>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100431.jpgsave_picture_100431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100431.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6D86AF35020BCD4FFF87052B6987E679EBA2F5D4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100432.jpgsave_picture_100432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100432.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Хиты на радио клубнячек и попса vol.10 (2012) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100433.jpgsave_picture_100433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100433.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Case One (1999) [MP3|256 кб/с]<Intelligent, Artcore, Jungle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100440.jpgsave_picture_100440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100440.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:055E7E5D63E15DA40CF0F1849753D8B3B307ADAD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100441.jpgsave_picture_100441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100441.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - На Вершине Музыкальных Чартов 4 (2012) [MP3|256 �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100442.jpgsave_picture_100442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100442.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:DDBBDA8D2206577EAEF275531DC967B9B5204063
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100447.jpgsave_picture_100447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100447.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Motorcitysoul - Technique (2008) [MP3|320 кб/с]<Deep House, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100448.jpgsave_picture_100448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100448.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Lumus - Bacchus Curse (2012) [MP3|192 кб/с]<Gothic Metal/Symphonic Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100449.jpgsave_picture_100449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100449.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:7EFD8B20DF93537965FD14A7B3E6397E9F29A870
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100452.jpgsave_picture_100452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100452.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:2B699B059F03F59845FB00D98C56838FC4E3FDDF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100453.jpgsave_picture_100453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100453.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:A7DF21A4FD51B372C784E19F894B7686184F77F2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100455.jpgsave_picture_100455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100455.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:AEC186262482C6EC934A6A712D1D07D5F685A872
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100456.jpgsave_picture_100456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100456.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:4968B6559780BAC13B8F6178E6BD2616AB33A686
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100457.jpgsave_picture_100457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100457.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ DJ Kocmoc - Electro Sensation vol.25 (17.04.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100458.jpgsave_picture_100458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100458.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100459.jpgsave_picture_100459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100459.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Fear Factory - Recharger [Single] (2012) [MP3|256 кб/с]<Death Industrial / Gr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100461.jpgsave_picture_100461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100461.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Весенняя Атмосфера Танцевальная (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100462.jpgsave_picture_100462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100462.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Dancefloor Matrix 2012 (2012) [MP3|320 кб/с]<Club, House, Dance, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100464.jpgsave_picture_100464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100464.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ DJ Kocmoc - Electro Sensation vol.26 (23.04.2012) [MP3|320 кб/с]<Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100466.jpgsave_picture_100466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100466.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:5043E2DDD9E9F38254174D8AA5432BA623FDB7C9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100468.jpgsave_picture_100468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100468.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - The Dance Cube XXXXIII (3 CD) (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100470.jpgsave_picture_100470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100470.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Disfunktion - Snooki (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100471.jpgsave_picture_100471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100471.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100480.jpgsave_picture_100480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100480.jpg" />
 </div>
 
 

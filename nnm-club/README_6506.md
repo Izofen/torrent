@@ -6,7 +6,7 @@ PhotoRoom v4.6.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206459.jpgsave_picture_206459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206459.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blues Delight - Nothing Special But The Blues (2023) Compilation [MP3|320 Kbps] 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206463.jpgsave_picture_206463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206463.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6E957A4818A10CDCF4387EB9585FEDC8D86C8282
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206464.jpgsave_picture_206464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206464.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206465.jpgsave_picture_206465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206465.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206467.jpgsave_picture_206467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206467.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Balearic Chill out Edition, Vol. 1 - 4 (2023) [MP3|320 Kbps] <Chillout, Bal
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206469.jpgsave_picture_206469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206469.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:C9843BCBEDE21650C0715D9AC9B57F7B6D9B98EE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206471.jpgsave_picture_206471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206471.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ CareUEyes 2.2.8.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206474.jpgsave_picture_206474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206474.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:017A0E2CEFB5CDCC6DF0477A8F2F975A0581ECA0
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206475.jpgsave_picture_206475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206475.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Suzi Quatro & KT Tunstall - Face To Face (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206477.jpgsave_picture_206477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206477.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:DBD33EE1C3E5DDE475CB40059263CA6C40139079
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206480.jpgsave_picture_206480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206480.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:09B31761CAA403EA45C716004D213225F5D0FB98
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206482.jpgsave_picture_206482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206482.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ LibreWolf 116.0.2-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206485.jpgsave_picture_206485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206485.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:371231D6232483573AB4397A851C3E0AF258FAC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206487.jpgsave_picture_206487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206487.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Direct Mail 6.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206489.jpgsave_picture_206489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206489.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Opera Crypto Browser 101.0.4843.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206491.jpgsave_picture_206491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206491.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:4E698C94CCA0980B868809392BBF5F0D6E2827E9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206494.jpgsave_picture_206494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206494.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:E3F07E91D9D3F6B4068E603EE15D11EF97EA1061
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206495.jpgsave_picture_206495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206495.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:469E994004A185964F38506AAED6CC451AA94F6D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206498.jpgsave_picture_206498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206498.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:D66CA5D9E7CFE373F6375AE9FC1A9D96AA2C2610
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206502.jpgsave_picture_206502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206502.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:410295046E820C3C8ED8B3C7A20AD25011F11170
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206505.jpgsave_picture_206505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206505.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ DxO PhotoLab 6 ELITE Edition 6.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206507.jpgsave_picture_206507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206507.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Topaz Photo AI for Mac Intel/ARM 1.3.11 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206509.jpgsave_picture_206509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206509.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Spotify 1.2.17.832 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206510.jpgsave_picture_206510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206510.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DesktopDigitalClock 5.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206513.jpgsave_picture_206513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206513.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ The WHOOP Group - Crimes II (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206514.jpgsave_picture_206514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206514.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hugo Kant - Far From Home (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52807.jpgsave_picture_52807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52807.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hugo Kant - Beyond the Tracks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52808.jpgsave_picture_52808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52808.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Charles Wagner - Chucktallica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52811.jpgsave_picture_52811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52811.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52920.jpgsave_picture_52920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52920.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Atom Smith - Playing with Fire (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52977.jpgsave_picture_52977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52977.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sparks - No. 1 In Heaven (1979) 45th Anniversary Edition, 2024, Lil Beethoven Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52980.jpgsave_picture_52980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52980.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Connolly Hayes - Remember Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52995.jpgsave_picture_52995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52995.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Riff Kitten - Chaos Parade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53001.jpgsave_picture_53001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53001.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:364B279798BA1B874451636F414874F4927D76BC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53004.jpgsave_picture_53004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53004.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Michael Jackson - Thriller (1982) SACD, Reissue, Remastered, 2022, Mobile Fideli
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53029.jpgsave_picture_53029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53029.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bob Dylan - Good As I Been To You (1992) SACD, Reissue, Remastered, 2024, Mobile
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53089.jpgsave_picture_53089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53089.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Fire From The Gods - Soul Revolution - The Collabs (2022) Deluxe, 2024, Better N
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53101.jpgsave_picture_53101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53101.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Seal - Seal (1994) Deluxe Edition, 2024, Warner Records Inc.[FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53202.jpgsave_picture_53202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53202.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lindsey Stirling - Duality (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53297.jpgsave_picture_53297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53297.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ David Bowie - Rock 'n' Roll Star! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53301.jpgsave_picture_53301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53301.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Moby - always centered at night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53393.jpgsave_picture_53393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53393.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53554.jpgsave_picture_53554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53554.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpgsave_picture_53614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Grand Slam - Wheel Of Fortune (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53621.jpgsave_picture_53621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53621.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Johannes Brahms, Seiji Ozawa, Boston Symphony Orchestra - Symphony No.1 (1977) S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53668.jpgsave_picture_53668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53668.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Dying Fetus - Reign Supreme (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Brutal 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53723.jpgsave_picture_53723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53723.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Jeff Healey - Road House (The Lost Soundtrack) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53729.jpgsave_picture_53729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53729.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Elvis Presley - Masters of Rock Presents Elvis Presley (2024) 2024 Remastered [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53838.jpgsave_picture_53838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53838.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53891.jpgsave_picture_53891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53891.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ David Crosby - If I Could Only Remember My Name (1971) 50th Anniversary Edition,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54044.jpgsave_picture_54044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54044.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Evergrey - Studio Albums (14 releases) (1998-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54075.jpgsave_picture_54075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54075.jpg" />
 </div>
 
 

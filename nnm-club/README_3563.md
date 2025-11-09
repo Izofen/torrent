@@ -6,7 +6,7 @@ Grimwind - XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113013.jpgsave_picture_113013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113013.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:366ABC4FB2A442B54188F99DF7CA70AB84809093
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113014.jpgsave_picture_113014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113014.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Skype 8.115.0.215 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113015.jpgsave_picture_113015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113015.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dark Voice of Angelique - Endgame (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113016.jpgsave_picture_113016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113016.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ KoscHei - Темница (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113017.jpgsave_picture_113017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113017.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Bruce Dickinson - Tattooed Millionaire (1990) [FLAC|24/96|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113018.jpgsave_picture_113018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113018.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113019.jpgsave_picture_113019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113019.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:D62248D2A32C59D24CBDA71595528215A9361DA1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113020.jpgsave_picture_113020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113020.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Gary Clark Jr. - JPEG Raw (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, R&B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113021.jpgsave_picture_113021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113021.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:9127032F5F86801364B33D9DB534577209F86D95
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113022.jpgsave_picture_113022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113022.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:8BDD79A69D1B4EAA46056834C332CB90CCBD6F2D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113023.jpgsave_picture_113023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113023.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:24D6018266A739AD92F4EA79DE2E2FE8E84E8243
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113024.jpgsave_picture_113024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113024.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Neon Rider - Destination Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113025.jpgsave_picture_113025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113025.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ T Bear - The Way Of The World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113026.jpgsave_picture_113026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113026.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Gary Clark Jr. - JPEG Raw (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113027.jpgsave_picture_113027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113027.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Trust X - Перевёрнутые Сны (2017) [FLAC|Lossless|image + .cue] <H
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113028.jpgsave_picture_113028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113028.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Hammer King - König und Kaiser (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113029.jpgsave_picture_113029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113029.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Jimmy Synthetic - Heat Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <synthwave, n
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113030.jpgsave_picture_113030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113030.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Digimortal - Белое знамя (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113031.jpgsave_picture_113031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113031.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Neon Rider - Destination Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113032.jpgsave_picture_113032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113032.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:024E21309820B3642F80161D72541640D3A9409C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113033.jpgsave_picture_113033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113033.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Data Creator 1.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113034.jpgsave_picture_113034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113034.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:B313AFCA1D0F026D42FA5589FED505F284EE6235
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113035.jpgsave_picture_113035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113035.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:60F04F1C9F80926C892D3FA2414898D6C37FE65A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113036.jpgsave_picture_113036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113036.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F21C56A4A72EC1B5AADA254EB3C8B0E96DC794DC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113037.jpgsave_picture_113037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113037.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Aquarius - Страшные сказки (2017) [FLAC|Lossless|image + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113038.jpgsave_picture_113038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113038.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ ColoFolXS 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235272.jpgsave_picture_235272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235272.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Udemy, Oleg Novikov | Сайт на Django 3. Сервис по сбору да�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235273.jpgsave_picture_235273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235273.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Tone2 - Electra 3.2.1 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235274.jpgsave_picture_235274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235274.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Neanderthal - Rise (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235275.jpgsave_picture_235275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235275.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A5882ED039E0B2590E4715BFF0AA7E4B4EDAA2EF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235276.jpgsave_picture_235276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235276.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Infuse PRO 7.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235277.jpgsave_picture_235277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235277.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Albert Ayler Trio - Spiritual Unity (1964) 2005, ESP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235278.jpgsave_picture_235278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235278.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Chain Timer 9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235279.jpgsave_picture_235279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235279.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Moon Light: Exotic Psy Trance Mystery (2022) [MP3|320 Kbps] <Psychedelic Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235280.jpgsave_picture_235280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235280.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Google Chrome 105.0.5195.127 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235281.jpgsave_picture_235281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235281.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.8a Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235282.jpgsave_picture_235282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235282.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:5DCC594F083ED9F6EF18AF7102F8182129D472CE
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235283.jpgsave_picture_235283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235283.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B19D8616F7997596A3905501FCC416A6EBA9851B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235284.jpgsave_picture_235284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235284.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:6D71F67C73FFF33E373357627AFA7BED18F2016B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235285.jpgsave_picture_235285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235285.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Argento Metal - Psicosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235286.jpgsave_picture_235286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235286.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ SiteSucker 5.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235287.jpgsave_picture_235287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235287.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Labels and Databases 1.7.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235288.jpgsave_picture_235288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235288.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Silent Scream - Warcry (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235289.jpgsave_picture_235289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235289.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FastStone Capture 10.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235290.jpgsave_picture_235290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235290.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Udemy, Bhrugen Patel, Andrei Brizhak | .NET Core Microservices - Полное р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235291.jpgsave_picture_235291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235291.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:B8F9EC3604A9DB48E6335E20C742790D1937B9EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235292.jpgsave_picture_235292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235292.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:D45AEB8C858E3C10973176D3D020FB88C992C3B4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235293.jpgsave_picture_235293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235293.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Money Pro - Personal Finance 2.7.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235294.jpgsave_picture_235294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235294.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Sunset To Sunrise 2023 - Mixed by SMR LVE (2023) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235295.jpgsave_picture_235295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235295.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Exit Stage Left - Appleberry Trees (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235296.jpgsave_picture_235296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235296.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Ultimaker Cura 5.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235297.jpgsave_picture_235297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235297.jpg" />
 </div>
 
 

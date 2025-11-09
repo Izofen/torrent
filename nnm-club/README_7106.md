@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243671.jpgsave_picture_243671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243671.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Armada Deep House Selection Vol.15 (The Finest Deep House Tunes) (2016) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243673.jpgsave_picture_243673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243673.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Bulwark Studios | Артбук по игре IXION / The Art of IXION (2022) [PD
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243674.jpgsave_picture_243674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243674.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Cisdem Duplicate Finder 4 v4.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243676.jpgsave_picture_243676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243676.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Digital Confession (2021) [MP3|320 Kbps] <Techno, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243677.jpgsave_picture_243677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243677.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Ashrain - Requiem Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243678.jpgsave_picture_243678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243678.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:EE9F0E002318FD485D6AF505A4A6ABA761FDE348
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243679.jpgsave_picture_243679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243679.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243680.jpgsave_picture_243680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243680.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243681.jpgsave_picture_243681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243681.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Last Legion - Metall, Blod & Aska (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243682.jpgsave_picture_243682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243682.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - Ibiza Lounge Music 2022 (2022) [AAC|~291 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243684.jpgsave_picture_243684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243684.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:3698BB50247EB4AD33D2629C22A4500D786098C4
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243685.jpgsave_picture_243685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243685.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:DF07AA29B5B6144E2BE61AF799E82401A1961E30
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243686.jpgsave_picture_243686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243686.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Feeder 3 v3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243687.jpgsave_picture_243687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243687.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Aenaon - Hypnosophy (2016) [MP3|320 Kbps] <Avant-Garde, Experimental, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243688.jpgsave_picture_243688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243688.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Mp3tag 3.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243689.jpgsave_picture_243689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243689.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:F16093389FA93EE8A1F129A3726767B607D13B96
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243690.jpgsave_picture_243690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243690.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:C91811692727272B8266511B403A9C081A73F6B5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243691.jpgsave_picture_243691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243691.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Late Night Chillout Music (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243692.jpgsave_picture_243692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243692.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Ecollapse - Dying With The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243693.jpgsave_picture_243693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243693.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ cFosSpeed 12.00 Build 2512 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243694.jpgsave_picture_243694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243694.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:E81848A30AF2CDB29DE82E1802DC671666207554
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243696.jpgsave_picture_243696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243696.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Patti Austin - End Of A Rainbow (1976) [FLAC|Lossless|image + .cue] <Vocal Jazz,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243697.jpgsave_picture_243697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243697.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Cisdem PDFPasswordRemover 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243698.jpgsave_picture_243698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243698.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:BA08DF1DF155179DC52BE8EC8CF93B5508E04751
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243699.jpgsave_picture_243699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243699.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 5 (2019) [AAC|~331 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243700.jpgsave_picture_243700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243700.jpg" />
 </div>
 
 

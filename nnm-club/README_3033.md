@@ -6,7 +6,7 @@ VA - Psytrance Frequency (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94763.jpgsave_picture_94763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94763.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:8956C2550E01AED77C87B53CE6585531D4BECC4C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94764.jpgsave_picture_94764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94764.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Kuba - Random Precision (2012) [MP3|320 кб/с]<Ambient, Downbeat, Lounge, Dub>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94768.jpgsave_picture_94768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94768.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:2D86DCF525C480877957C3523F1569EE38B74A7C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94773.jpgsave_picture_94773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94773.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ VA - Dance Жара. Зарубежный (2012) [MP3|256 кб/с]<Рор>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94782.jpgsave_picture_94782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94782.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Fadios - Paradiso (2012) [MP3|320 кб/с]<Trance, Uplift, Progressive, Tech, Dr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94783.jpgsave_picture_94783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94783.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Hobo - Iron triangle (2012) [MP3|320 кб/с]<tech-house>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94786.jpgsave_picture_94786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94786.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - The Official UK Top 40 Single Charts (19.02.2012) (2012) [MP3|320 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94793.jpgsave_picture_94793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94793.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:10ECA95B8F25537E26E2956702D6ABAA711DF317
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94794.jpgsave_picture_94794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94794.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:2D337D6B34E6B3A46A0003D4F9C368B57FD9554C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94799.jpgsave_picture_94799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94799.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - 100 A State Of Trance Tunes Vol 2 (25.02.2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94803.jpgsave_picture_94803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94803.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94810.jpgsave_picture_94810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94810.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:C84CE9AD9F0BC2F4190E9D3A91344555B2CB3659
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94824.jpgsave_picture_94824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94824.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94835.jpgsave_picture_94835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94835.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Copy Kills (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94841.jpgsave_picture_94841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94841.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Special Places (2012) [MP3|320 кб/с]<Ambient, Modern Classical>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94845.jpgsave_picture_94845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94845.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ David Guetta - DJ Mix 087 (25.02.2012) [MP3|224 кб/с]<Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94863.jpgsave_picture_94863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94863.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:D0D6BE047432795406459ED2447FA49514FABDCA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94867.jpgsave_picture_94867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94867.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Meat-Grinder - Воскрешение из пепла (2004) [MP3|320 кб/с]<S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94872.jpgsave_picture_94872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94872.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Mysteries Of Psytrance vol. 2 (Compiled by Ovnimoon) (2012) [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94880.jpgsave_picture_94880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94880.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:ED520089F8E3180CE4167AB6E416B33BDA59389C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94884.jpgsave_picture_94884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94884.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:995A870984AA3024492941A2D5CBF9C2F07B3C62
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94893.jpgsave_picture_94893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94893.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:FCE094260791A7D06D6A69FEB2047B63578B6202
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94894.jpgsave_picture_94894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94894.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ magnet:?xt=urn:btih:77A9ACEDDCFEF19CDCF0B8055AFBC5159F6C20AE
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94896.jpgsave_picture_94896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94896.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94904.jpgsave_picture_94904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94904.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - House Vip (25.02.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94913.jpgsave_picture_94913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94913.jpg" />
 </div>
 
 

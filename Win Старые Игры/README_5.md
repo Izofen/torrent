@@ -6,7 +6,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48033.jpgsave_picture_48033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FlatOut 2 (2006) [Ru/Multi] (1.2) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48109.jpgsave_picture_48109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48109.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Street Racing Syndicate (2005) [Ru/En] (1.1) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48305.jpgsave_picture_48305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48305.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FlatOut (2005) [Ru/Multi] (1.01) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49232.jpgsave_picture_49232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49232.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49388.jpgsave_picture_49388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49388.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Manhunt (2004) [Ru] (1.1) Repack R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49669.jpgsave_picture_49669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49669.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Robbo Millennium (2000) [Pl] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51799.jpgsave_picture_51799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51799.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52480.jpgsave_picture_52480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52480.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Freedom Force (2002) [En] (1.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53117.jpgsave_picture_53117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53117.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53135.jpgsave_picture_53135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53135.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53171.jpgsave_picture_53171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53171.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53236.jpgsave_picture_53236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53236.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:EC74F2865B6B63A5200868626A269E7C96E8DE41
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53587.jpgsave_picture_53587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53587.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53784.jpgsave_picture_53784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53784.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53893.jpgsave_picture_53893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53893.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55966.jpgsave_picture_55966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55966.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Wolfenstein 3D (1992-2020) [En] (2.01.2020) Repack/Mod 1nomok [Beyond the Grave:
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55967.jpgsave_picture_55967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55967.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенн�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56089.jpgsave_picture_56089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56089.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56096.jpgsave_picture_56096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56096.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Legend of Ahssun / Легенда об Ахссуне (2018) [Ru/Multi] (1.2) Mo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57033.jpgsave_picture_57033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57033.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Xeno Operations Legacy (2024) [Ru/En] (0.97.06) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58044.jpgsave_picture_58044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58044.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ X-Com: From the Ashes (2022) [Ru/En] (0.1.0.3) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58082.jpgsave_picture_58082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58082.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58083.jpgsave_picture_58083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58083.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ XPiratez - Labyrinthus Noctis (2024) [Ru/En] (N8) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58096.jpgsave_picture_58096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58096.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ XCOM: Area 51 (2016) [Ru/En] (0.971) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58276.jpgsave_picture_58276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58276.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Darklight conflict (1997) [Ru] (1.0) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58413.jpgsave_picture_58413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58413.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ O&O Defrag Professional 30.0 Build 1073 RePack (& Portable) by elchupacabra [Mul
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246140.jpgsave_picture_246140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246140.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ O&O DiskImage Professional 21.2.200 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246146.jpgsave_picture_246146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246146.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ WinRAR 7.20 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246157.jpgsave_picture_246157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246157.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ WinDjView Extended 4.1.0 Portable [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246158.jpgsave_picture_246158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246158.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ DBF Converter 7.65 RePack (& Portable) by elchupacabra [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246164.jpgsave_picture_246164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246164.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ SupRemo 4.11.6.2928 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246167.jpgsave_picture_246167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246167.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ DBF Viewer 2000 8.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246175.jpgsave_picture_246175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246175.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Ashampoo WinOptimizer 28.00.20 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246181.jpgsave_picture_246181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246181.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Ekahau AI Pro 11.8.7 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246186.jpgsave_picture_246186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246186.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Alfa eBooks Manager 9.4.8.1 Pro & Web [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246195.jpgsave_picture_246195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246195.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ WinRAR 7.20 Beta 1 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246198.jpgsave_picture_246198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246198.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Flyoobe 1.42 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246199.jpgsave_picture_246199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246199.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ DISMTools 0.7.1.25103 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246219.jpgsave_picture_246219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246219.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:F15A47BFE31D9DDD977A88CF6616F716DCE44282
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246220.jpgsave_picture_246220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246220.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D7DB4CD554C2DECF7DD8E147E9BB7F61A6FFB9B0
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246244.jpgsave_picture_246244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246244.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Beyond Compare Pro 5.1.6.31527 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246254.jpgsave_picture_246254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246254.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Allavsoft Video Downloader Converter 3.28.5.9427 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246255.jpgsave_picture_246255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246255.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Revo Registry Cleaner Pro 2.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246256.jpgsave_picture_246256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246256.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ PowerISO 9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246267.jpgsave_picture_246267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246267.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Directory Opus 13.19 Build 9399 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246358.jpgsave_picture_246358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246358.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ UltraISO Premium Edition 9.7.6.3860 Portable by 7997 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246918.jpgsave_picture_246918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246918.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ UltraISO Premium Edition 9.7.6.3860 Retail [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247051.jpgsave_picture_247051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247051.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247067.jpgsave_picture_247067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247067.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by elchupacabra [Multi/R
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247068.jpgsave_picture_247068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247068.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ UltraISO Premium Edition 9.7.6.3860 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247103.jpgsave_picture_247103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247103.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ BitTorrent Pro 7.11.0.46823 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247384.jpgsave_picture_247384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247384.jpg" />
 </div>
 
 

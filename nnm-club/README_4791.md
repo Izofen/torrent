@@ -6,7 +6,7 @@ VA - Connecting The Dots (Tobias Thomas) (2021) [AAC|~316 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149932.jpgsave_picture_149932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149932.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:28F29CB472EF97ED390FE61601A1FC037DA215BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149933.jpgsave_picture_149933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149933.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CopyLess 1.8.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149934.jpgsave_picture_149934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149934.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149935.jpgsave_picture_149935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149935.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:DC9F705D3D220A070836525881803C89BD237332
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149936.jpgsave_picture_149936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149936.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:5DDF42FB4D76DEB0A642AD76E145C5713211865F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149937.jpgsave_picture_149937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149937.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8E7442FC1D43BCA66891E5494A9A854984D0AC81
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149938.jpgsave_picture_149938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149938.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chuck Berry - St. Louis To Liverpool (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149939.jpgsave_picture_149939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149939.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Erroll Garner - 1953-1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149940.jpgsave_picture_149940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149940.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C8570891D28E8EFD6191EBEC532E9CD03164A7A1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149942.jpgsave_picture_149942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149942.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Bad Mileage - A Bridge Too Far (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149943.jpgsave_picture_149943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149943.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:D43EBE3E0156D407D4D5D884AE0A2EE89F32DEBE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149944.jpgsave_picture_149944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149944.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Etienne Charles - Creole Christmas (2015) [FLAC|Lossless|tracks + .cue] <Afro-Ca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149945.jpgsave_picture_149945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149945.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:33824410BF4377ED15E66284232CC3EE339121F5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149946.jpgsave_picture_149946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149946.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:1800D82D2A0383CCF5D96FFB87C67E7FA8EC2A33
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149947.jpgsave_picture_149947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149947.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Zoom It 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149948.jpgsave_picture_149948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149948.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:86D0E9E7764A8539BFD4B3506D480CF34DBCE9FC
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149950.jpgsave_picture_149950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149950.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Connecting The Dots (Jonathan Kaspar) (2021) [AAC|~324 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149951.jpgsave_picture_149951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149951.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Best of 2021 3rd Avenue (2021) [AAC|~335 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149953.jpgsave_picture_149953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149953.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:B51DBBA55E3EE88ED00D7A5F5A7592ADB327CF53
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149955.jpgsave_picture_149955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149955.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:C8F0F0881379591BEF209324C10B92E22898A7BD
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149956.jpgsave_picture_149956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149956.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Andy Lindquist - Dead in Your Lies (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149957.jpgsave_picture_149957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149957.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:1337EDB5D150B9BA0B83C95859B74025E568952B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149958.jpgsave_picture_149958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149958.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:FEB465DA18C5658B171A17D8618AEA45F25B90D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149960.jpgsave_picture_149960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149960.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Rob Papen - RP-VERB 2 1.0.0d VST, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149961.jpgsave_picture_149961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149961.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:91135BFD9CFA52FC7C7A352270960A8D2EEA2579
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149962.jpgsave_picture_149962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149962.jpg" />
 </div>
 
 

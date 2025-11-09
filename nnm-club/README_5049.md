@@ -6,7 +6,7 @@
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157882.jpgsave_picture_157882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157882.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mastedon - 3 альбома Collection (1989-2009) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157883.jpgsave_picture_157883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157883.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0EA1EDC4D005B2EE8F7F6A47B0C2AF768898FF30
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157884.jpgsave_picture_157884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157884.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2EC9B171147683C5838FD7A76BF5DA61D37390F9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157885.jpgsave_picture_157885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157885.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:08B598E80CFB32DFD429C76AEB0E4835B59693AA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157888.jpgsave_picture_157888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157888.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:664D5E17F17220740E079139D60299ABC689432C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157889.jpgsave_picture_157889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157889.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Big Mean Folder Machine 2 v2.41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157890.jpgsave_picture_157890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157890.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Maury Laws & Jules Bass - Сумасшедшая вечеринка чудови
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157892.jpgsave_picture_157892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157892.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4A997603CF2DC3A4C615C9D16356B69B0DE25094
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157893.jpgsave_picture_157893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157893.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:D38A236844B6A6A46EB20A20290D85B255277DBE
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157894.jpgsave_picture_157894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157894.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Techno Electro Sound: EDM Liveset (2019) [MP3|320 Kbps] <Techno, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157895.jpgsave_picture_157895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157895.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ ZveroБой (Зверобой) - Напиши на мне (2012) EP [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157896.jpgsave_picture_157896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157896.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:31A065FEE3E7C774B23317412E856F58EB31AAFA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157898.jpgsave_picture_157898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157898.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157901.jpgsave_picture_157901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157901.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Topaz Gigapixel AI 5.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157902.jpgsave_picture_157902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157902.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Timo Tolkki - Classical Variations And Themes (1994) Reissue, 1996, NEMS Enterpr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157905.jpgsave_picture_157905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157905.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:B98A69EFBB1A36DB2A301F8C1BEB2CE5564B277B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157906.jpgsave_picture_157906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157906.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ ZveroБой (Зверобой) - Ток (2013) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157907.jpgsave_picture_157907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157907.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:8EE1F6F9B6B09C645B7040CB2E8BF744EA6EE95B
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157908.jpgsave_picture_157908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157908.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Taisou Zamurai | Самурай-гимнаст [2020, TV, 11] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157910.jpgsave_picture_157910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157910.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:D8076508FFF54ED6904DDD45A7BCB5DAD7EC5E7D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157911.jpgsave_picture_157911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157911.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:E38FF1023BA3DB1D09FC46F150C53278E4C99F7E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157913.jpgsave_picture_157913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157913.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:FD5DAD2B59638A7BB5DCC4595D897D66525D0BE1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157914.jpgsave_picture_157914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157914.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Skynet 2019.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157915.jpgsave_picture_157915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157915.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:BCA9937F2F7AD5E053A9DEEBC359977B3EE300AE
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157916.jpgsave_picture_157916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157916.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:2C2F37B4938B5F9FABA0AE8DB11B7568500AFF2E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157917.jpgsave_picture_157917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157917.jpg" />
 </div>
 
 

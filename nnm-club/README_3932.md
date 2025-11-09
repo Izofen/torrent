@@ -6,7 +6,7 @@ Sean McKee Band - In This Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122719.jpgsave_picture_122719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122719.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kevin Burt - Thank You Brother Bill A Tribute to Bill Withers (2024) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122720.jpgsave_picture_122720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122720.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:022C78CBD43C17A32FEDCAB5D289EEAAE7426E89
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122721.jpgsave_picture_122721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122721.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chris Wragg and Greg Copeland - The Last Sundown (2024) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122722.jpgsave_picture_122722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122722.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:7B2D446B552D97124954E116EA1B878A3CAAF0F7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122723.jpgsave_picture_122723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122723.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Kalmankantaja - Kohti valon kuolemaa (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122724.jpgsave_picture_122724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122724.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:22BE9D31248CBE2FDBF734E53F7D56D7A85CE597
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122725.jpgsave_picture_122725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122725.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Gurf Morlix - Melt into You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122726.jpgsave_picture_122726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122726.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Blue Door Records - Blue Door Records (Deluxe) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122727.jpgsave_picture_122727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122727.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:4846234CE6F097A2508A4EDF16B98FD688BE1CE1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122728.jpgsave_picture_122728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122728.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ John the Revelator - Where Are You_ (55th anniversary compilation) (2024) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122729.jpgsave_picture_122729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122729.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:BDBEE9F20F71DAC52FC2777D676C6E8460169E2A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122730.jpgsave_picture_122730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122730.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ MP3 Encoder 2.18.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122731.jpgsave_picture_122731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122731.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Joe Louis And The Groove - First Time I Saw You (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122732.jpgsave_picture_122732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122732.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:4D5DBD56965D6321DCC0518C3C12EF1388CC983C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122733.jpgsave_picture_122733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122733.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Space 92 - Live @ Input Barcelona, Spain (2024-01-06) [MP3|320 Kbps] <Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122734.jpgsave_picture_122734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122734.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:6D9FB1F44E394162320AA706942F7374A073C2AE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122735.jpgsave_picture_122735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122735.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Vesta Lugg - Muy Mucho (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122736.jpgsave_picture_122736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122736.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Ethernet Status - LAN Status  5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122737.jpgsave_picture_122737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122737.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Asking Alexandria - Dark Void (2024) EP [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122738.jpgsave_picture_122738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122738.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:4434412EDFF2D2D572674F2A2AA5F696576A5FEA
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122739.jpgsave_picture_122739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122739.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:DF43BBD71E76B5518329DA0643D5585E7524D4B4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122740.jpgsave_picture_122740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122740.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Pop Mania 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122741.jpgsave_picture_122741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122741.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Caro Emerald - Live In Glasgow (2015) Japan Edition [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122742.jpgsave_picture_122742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122742.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:E9ED18F6DE502021A2F0B6D53EFF979718A42733
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122743.jpgsave_picture_122743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122743.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:FCB52F93C9EC3869EEACA83C5A3EAC31E81ACC89
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122744.jpgsave_picture_122744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122744.jpg" />
 </div>
 
 

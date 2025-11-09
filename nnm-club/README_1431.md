@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37561.jpgsave_picture_37561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37561.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:06B9158486EB4F3B86E0895932227C09D378308A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37562.jpgsave_picture_37562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37562.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C577E60958FE91DD39C9CB14296504E9D61A8DC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37563.jpgsave_picture_37563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37563.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C577E60958FE91DD39C9CB14296504E9D61A8DC1
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37564.jpgsave_picture_37564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37564.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:327F82F0A109404F653385FFF315F5C6D2D2675E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37565.jpgsave_picture_37565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37565.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:327F82F0A109404F653385FFF315F5C6D2D2675E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37566.jpgsave_picture_37566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37566.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:451E2EBA90AEE4C2AA064D713A6BA8EB95394ADD
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37567.jpgsave_picture_37567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37567.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:639A357CA87FB7DE429232573D86DBC8C5E80BDF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37568.jpgsave_picture_37568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37568.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:22F4726D27729A1A3E306F34F5FBDB71946AACA5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37569.jpgsave_picture_37569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37569.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Shaka Ponk - Shaka Ponk (2023) Deluxe Edition, 2024, Tot Ou Tard [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37570.jpgsave_picture_37570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37570.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Gritty Rhythms and Smooth Blues (2024) [MP3|320 Kbps] <RnB, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37571.jpgsave_picture_37571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37571.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:509CED6D20C00495F171A67AA54B127AE3E25C27
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37572.jpgsave_picture_37572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37572.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:142E267C1CEEDC07E19C7C8BFA48F98E2F69B4BD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37573.jpgsave_picture_37573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37573.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Bay City Rollers - Keep On Rollin (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37574.jpgsave_picture_37574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37574.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ A Poets Dream - The Spirit Never Sleeps (2024) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37575.jpgsave_picture_37575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37575.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:AA1EB13C68F2B34420DE9E66B4F4BB1977AF9F50
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37576.jpgsave_picture_37576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37576.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Crippled Black Phoenix - The Wolf Changes Its Fur But Not Its Nature (2024) [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37577.jpgsave_picture_37577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37577.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Caity Gyorgy - Hello! How Are You (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37578.jpgsave_picture_37578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37578.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Sunday At The Riverside: The Best Time Of Jazz Piano I (1955 - 1962) 10CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37579.jpgsave_picture_37579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37579.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ian Siegal & Johnny Mastro - Easy Tiger (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37580.jpgsave_picture_37580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37580.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Dane Applin - Dane Applin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37581.jpgsave_picture_37581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37581.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Blood Feast - Infinite Evolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37582.jpgsave_picture_37582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37582.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Gurf Morlix - In Love at Zero Degrees (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37583.jpgsave_picture_37583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37583.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Asamu Johnson & The Associates of the Blues - True Freedom (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37584.jpgsave_picture_37584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37584.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:AE01F8BA1A5D9F42A2DA47445D20F19C788532B0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37585.jpgsave_picture_37585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37585.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:5831E9A46B90773E539006C1CD6FD905D7F28D89
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37586.jpgsave_picture_37586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37586.jpg" />
 </div>
 
 

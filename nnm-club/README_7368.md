@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252059.jpgsave_picture_252059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252059.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:302EB691EEEEDF622D5A9DD63AC82DCFC959E7D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252060.jpgsave_picture_252060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252060.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1E7D496B5EADC2349CD95D7A5D781A37B9F25AF9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252061.jpgsave_picture_252061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252061.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B5A3785CB838B81152EB4A48679F8DE519275D83
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252062.jpgsave_picture_252062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252062.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:6BBE92F9C1D96B1032988CE1C861C4FFE6C6A863
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252063.jpgsave_picture_252063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252063.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8A10D25D8FD04E2B4DEBE0B5AB2E2C0A221BA2AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252064.jpgsave_picture_252064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252064.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:11A594B398EA80B6B314630A335B3160F8827C3C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252065.jpgsave_picture_252065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252065.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FE9ACA619D5AE8ABD893096B5F1559847137AFCD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252066.jpgsave_picture_252066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252066.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0BFCFBB9EAF5E254FDBDA9B50A7C1A58812F6C95
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252067.jpgsave_picture_252067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252067.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:99D0FFE51B0873E3422E13C4D403A576F8758B2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252068.jpgsave_picture_252068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252068.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:A56B4166AB93CDE03609BBA97D77EAE18C7B4499
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252069.jpgsave_picture_252069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252069.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:A56B4166AB93CDE03609BBA97D77EAE18C7B4499
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252070.jpgsave_picture_252070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252070.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adobe Photoshop 2023 24.5.0.500 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252071.jpgsave_picture_252071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252071.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:177CB91D132FC18EC34C66F3AD11AB946F4C8441
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252072.jpgsave_picture_252072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252072.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:BBC6DBEEE3FA289061A0AB64FAEA15995102EBB6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252073.jpgsave_picture_252073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252073.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:BA965466DAE82ECA65268820E7B67D07699CFC6C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252074.jpgsave_picture_252074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252074.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:0671AE2F882C6FAE4FDFD43C2ADC26F965C01279
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252075.jpgsave_picture_252075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252075.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DE3220EE8708AC557F7CBD87ED1BB16607B91153
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252076.jpgsave_picture_252076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252076.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:2286E600162CA5AA1546827B79609B97030E8785
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252077.jpgsave_picture_252077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252077.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Targetorium, Павел Антонов, Наталья Якимчук | Спец
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252078.jpgsave_picture_252078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252078.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:71A4B4EB68C22D8974D38CCAE3E341BD1A29F5E7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252079.jpgsave_picture_252079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252079.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:ABE38DCE071A183B8632849615013CDDA5BF320D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252080.jpgsave_picture_252080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252080.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:C24FF5F047B5E8FA98846D110344A46E38F72356
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252081.jpgsave_picture_252081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252081.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:036F839CCFE5E149C4A44347600CF1A3FF721992
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252082.jpgsave_picture_252082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252082.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (2.209.0.0/dlc) Repack Dj
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252083.jpgsave_picture_252083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252083.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Adobe Photoshop 2023 24.5.0.500 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252084.jpgsave_picture_252084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252084.jpg" />
 </div>
 
 

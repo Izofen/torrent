@@ -6,7 +6,7 @@ VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпу�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106028.jpgsave_picture_106028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106028.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Остров Сокровищ или В стиле Шансон часть 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106046.jpgsave_picture_106046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106046.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ KK's Priest - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106077.jpgsave_picture_106077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106077.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Blur - Live at Wembley Stadium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106081.jpgsave_picture_106081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106081.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Dmitry Spirin (ex-Тараканы) - Чем кончается Родина (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106106.jpgsave_picture_106106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106106.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ CAGMO - Симфония Король и Шут (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106128.jpgsave_picture_106128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106128.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Ronan Jade - Midnight Serenade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106146.jpgsave_picture_106146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106146.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Schwarzer Engel - Höhere Gewalt (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106149.jpgsave_picture_106149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106149.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Mick Kolassa - All Kinds of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106151.jpgsave_picture_106151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106151.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Kitty Liv - Easy Tiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106152.jpgsave_picture_106152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106152.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Noel Evans - Abandoned Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106153.jpgsave_picture_106153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106153.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ian BassBwoy Boyce - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106154.jpgsave_picture_106154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106154.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106160.jpgsave_picture_106160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106160.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Nautilus - Pacific Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106173.jpgsave_picture_106173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106173.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106178.jpgsave_picture_106178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106178.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Stratovarius - Heroes (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106184.jpgsave_picture_106184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106184.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Animal Джаz - Ян (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106217.jpgsave_picture_106217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106217.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106232.jpgsave_picture_106232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106232.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Soulseller - Witching Hour (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106273.jpgsave_picture_106273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106273.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Curtis Waters - Bad Son (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternativ
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106276.jpgsave_picture_106276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106276.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Dickey Betts & Great Southern - Atlanta's Burning Down (1978) Remaster, 2024, Le
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106277.jpgsave_picture_106277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106277.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Dickey Betts & Great Southern - Dickey Betts & Great Southern (1977) Remaster, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106278.jpgsave_picture_106278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106278.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Chris Cain - Good Intentions Gone Bad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106291.jpgsave_picture_106291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106291.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:A8894148B57AC445797F68D95B7FAB4DCE48D9CC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106292.jpgsave_picture_106292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106292.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Neko to Ongaku (Cats & Music) - Swing Tails ~Cats Jazz Band~ (2024) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106293.jpgsave_picture_106293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106293.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Mark Lettieri - Can I Tell You Something (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106298.jpgsave_picture_106298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106298.jpg" />
 </div>
 
 

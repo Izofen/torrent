@@ -6,7 +6,7 @@ Master's Hammer - (Slagry) Šlágry (1995) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102940.jpgsave_picture_102940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102940.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fleshbomb - Reincarnated In Abomination (2014) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102941.jpgsave_picture_102941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102941.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Seven Tears - In Every Frozen Tear (2007) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102942.jpgsave_picture_102942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102942.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Soup Dragons - Lovegod (1990) [FLAC|Lossless|tracks + .cue] <Rock, Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102943.jpgsave_picture_102943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102943.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Pursuit Of Happiness - Love Junk (1988) CD, Album, Club Edition, CRC [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102944.jpgsave_picture_102944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102944.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Pero Defformero - (Jer to lici na taj nacin?) Jer to liči na taj način? (2014)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102945.jpgsave_picture_102945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102945.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Zombie Death Stench - The Redeadening (2010) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102946.jpgsave_picture_102946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102946.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Paradigm - Mainstream Epidemic (2005) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102947.jpgsave_picture_102947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102947.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Carrioned - Echoes of Abomination (2013) [FLAC|Lossless|image + .cue] <Brutal De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102948.jpgsave_picture_102948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102948.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Famishgod - Rotting Ceremony (2021) [FLAC|Lossless|image + .cue] <Doom Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102949.jpgsave_picture_102949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102949.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Hidden - Dead Land Energy (2011) [FLAC|Lossless|image + .cue] <Progressive Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102950.jpgsave_picture_102950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102950.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2BD41E183159EBB9EA9F24B56E7E5157B5134446
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102951.jpgsave_picture_102951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102951.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:6B68F861212769E4129C6324D994C1D5D5EFA5B5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102952.jpgsave_picture_102952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102952.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:7156B85E7A42E14962128B94AB9BC805CC8F6987
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102953.jpgsave_picture_102953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102953.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - The Best Of Suanda True 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102954.jpgsave_picture_102954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102954.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102955.jpgsave_picture_102955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102955.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - The Best Of Suanda Future 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102956.jpgsave_picture_102956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102956.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Torchlight Parade - Children of the Night (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102957.jpgsave_picture_102957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102957.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Talia Hoit - Oceans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102958.jpgsave_picture_102958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102958.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:DA91F0B4E11C16BC58A1D3A731396068B5F325BA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102959.jpgsave_picture_102959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102959.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:99B1E6D922B21F891760212FDC117F7C47194E18
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102960.jpgsave_picture_102960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102960.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102961.jpgsave_picture_102961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102961.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102962.jpgsave_picture_102962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102962.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102963.jpgsave_picture_102963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102963.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:2D103F184BAF2982B00D91581F8F93BC7C518ADB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102964.jpgsave_picture_102964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102964.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ magnet:?xt=urn:btih:416AFA2BB0A1DFCE5E117A411D5EB742252AA73C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102965.jpgsave_picture_102965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102965.jpg" />
 </div>
 
 

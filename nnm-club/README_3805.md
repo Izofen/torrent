@@ -6,7 +6,7 @@ New York Jazz Ensemble - Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119310.jpgsave_picture_119310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119310.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Joe Pass - Virtuoso In New York (1975) Victor Entertainment [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119311.jpgsave_picture_119311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119311.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gojira - Fortitude (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119312.jpgsave_picture_119312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119312.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SAXAR - Инсулин (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119313.jpgsave_picture_119313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119313.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Oromet - Oromet (2023) [MP3|320 Kbps] <Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119314.jpgsave_picture_119314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119314.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Joe Pass - Meditation: Solo Guitar (1992) 2002, Pablo Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119315.jpgsave_picture_119315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119315.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119316.jpgsave_picture_119316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119316.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:8C19765EF364EA1B39B9B018A88F9B440E66EC55
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119317.jpgsave_picture_119317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119317.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Lucio Sanchez (Sánchez) - De Buena Madera (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119318.jpgsave_picture_119318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119318.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ The Dead State - Здесь (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119319.jpgsave_picture_119319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119319.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Randy Stark - At the Tower (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119320.jpgsave_picture_119320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119320.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Solbrud - IIII (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119321.jpgsave_picture_119321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119321.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:BCF1CC9E3213FC2B8FC6840B251971E7B4A09E87
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119322.jpgsave_picture_119322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119322.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ StaxRip 2.35.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119323.jpgsave_picture_119323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119323.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:3B75BF842B4A5B042D7026FEDD00E378C4FF1EA9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119324.jpgsave_picture_119324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119324.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:1FCEAC9B1D68D76C4CE66EA9AEA27C6FE6D440AC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119325.jpgsave_picture_119325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119325.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Cyberaktif - eNdgame (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro, Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119326.jpgsave_picture_119326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119326.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:48EDBE8B6E858359FB650B1741AB869BBE2512CD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119327.jpgsave_picture_119327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119327.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Helloween - Treasure Chest (2002) Bonus Track Edition, 2024, Noise Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119328.jpgsave_picture_119328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119328.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:7AB603C7FDBC2E3465A50CEE6368DE349E8A447A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119329.jpgsave_picture_119329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119329.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:6049E1A1476F257BFAC18673C05FB9CBECF6A8DC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119330.jpgsave_picture_119330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119330.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:5E3ECF6E16927DFBF872B82290D478F8BD6F01AF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119331.jpgsave_picture_119331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119331.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:1B15A610619EFA36E20B982F0146751DF6CECB03
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119332.jpgsave_picture_119332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119332.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:1A104893106447B1F0A71ED1ED5AA82E4A1D34D6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119333.jpgsave_picture_119333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119333.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Sorry - Sorry (1978) LP [MP3|320 Kbps] <Electronic, New Wave, Hard Rock, Glam, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119334.jpgsave_picture_119334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119334.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Black Tears of the Fallen - Mirroring (2024) [MP3|320 Kbps] <Gothic, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119335.jpgsave_picture_119335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119335.jpg" />
 </div>
 
 

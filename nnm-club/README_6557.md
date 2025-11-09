@@ -6,7 +6,7 @@ Wondershare PDFelement 9.5.13.2332 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209366.jpgsave_picture_209366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209366.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLA
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209368.jpgsave_picture_209368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209368.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Easy Modern Classics (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209371.jpgsave_picture_209371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209371.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:924E87BF219700DE814941F5FBA1FF08880DA36D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209372.jpgsave_picture_209372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209372.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:13C57F4E3F9DFA8348E90D21AD77BB595300B8AD
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209375.jpgsave_picture_209375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209375.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Beelinguapp 2.936 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209379.jpgsave_picture_209379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209379.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ TuneIn Radio 31.9.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209380.jpgsave_picture_209380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209380.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:778DB7085F2D1AF049EA90A16DECD7522C9B8E3F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209383.jpgsave_picture_209383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209383.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:4756A6675AA28DD3B13698448626299F2DB0369E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209384.jpgsave_picture_209384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209384.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:0029441C2B29758FB2D02DC8F92EFDF5966EA08E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209390.jpgsave_picture_209390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209390.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:F1142F745C3DC2713FB3FEFCAF854C78B6AA98AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209393.jpgsave_picture_209393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209393.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ BurnAware Professional 16.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209396.jpgsave_picture_209396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209396.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D38B13A0E46E87C83A915BFF6D6B6261F469E9C8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209398.jpgsave_picture_209398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209398.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:A7CC280079C2C9EE61366A9D8E10E4CBE264243D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209404.jpgsave_picture_209404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209404.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:D09EC4374D98B89F038F06D6B9131E05D7FE0DE3
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209405.jpgsave_picture_209405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209405.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:C54E586F24E88C6F158A9EDFC9DD912247C3E96D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209406.jpgsave_picture_209406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209406.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Taylor Swift - Speak Now (Taylor's Version) (2023) 2xCD [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209409.jpgsave_picture_209409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209409.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:0687790A2B9F1CBCBBB45E99667837033CDE648E
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209410.jpgsave_picture_209410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209410.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:593B6FE3DFA4E9415DF3C93BDEFB6EB4278506B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209416.jpgsave_picture_209416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209416.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Antivirus Removal Tool 2023.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209417.jpgsave_picture_209417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209417.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:1336D50D6E84917645ACAFDB82B4F88FD597F516
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209418.jpgsave_picture_209418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209418.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:4E903BBCFD603DACFF31D1CC6900A4C059C98FEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209422.jpgsave_picture_209422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209422.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:5AE2A4898FE5A60EFACAB652B04B75ECFBAF12D1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209426.jpgsave_picture_209426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209426.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:6EFD1F3753B0D7CA080A3300416773F78B6EFDE2
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209427.jpgsave_picture_209427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209427.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Ubuntu*Pack 20.04 DDE (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209429.jpgsave_picture_209429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209429.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:55C7E1E6CED482CFF50F2BFCF92E94438647A2D9
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209430.jpgsave_picture_209430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209430.jpg" />
 </div>
 
 

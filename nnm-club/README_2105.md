@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55097.jpgsave_picture_55097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55097.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:20ECA0C36647FAF652248C923CE1CF412BD21988
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55098.jpgsave_picture_55098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55098.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5CC5C45B70CE248413201A1D142294E67DD5371B
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55099.jpgsave_picture_55099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55099.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5FA6BBBBA414D91D2A525979E6768EF02E0FC05B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55100.jpgsave_picture_55100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55100.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2DC6776F2722C9759D4BC625CCE5959FA245EE2F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55101.jpgsave_picture_55101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55101.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2DC6776F2722C9759D4BC625CCE5959FA245EE2F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55102.jpgsave_picture_55102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55102.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AIDA64 Engineer Edition 7.30.6900 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55103.jpgsave_picture_55103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55103.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VideoProc Converter AI 7.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55104.jpgsave_picture_55104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55104.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:0A6FA7C3A684B054C2198E3EC5E1E3AC31DFADA2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55105.jpgsave_picture_55105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55105.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:2E402B85DA54F82BF15F1D949D79BC0C9EED0948
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55106.jpgsave_picture_55106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55106.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9A9B398DFD419BFC6148C0BA52E87F25A642AB35
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55107.jpgsave_picture_55107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55107.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:84B25BB935E64F45B3C7A047F63A217F3422A945
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55108.jpgsave_picture_55108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55108.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:377A826438759FF2FD4927734D36731B68AA03FF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55109.jpgsave_picture_55109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55109.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:1DA7B853447618A6723325573A2CC75980C66CBE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55110.jpgsave_picture_55110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55110.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Windy.app: погода и ветер 50.1.0 Lite-Mod by GIP-79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55111.jpgsave_picture_55111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55111.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:3A6C98F56C6B8818171A1A43431A7BF0BC6BBBF2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55112.jpgsave_picture_55112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55112.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Privacy Eraser Free 6.7.2 Build 4929 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55113.jpgsave_picture_55113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55113.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:26D70772CA74813155809400BB4F2404793D707A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55114.jpgsave_picture_55114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55114.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:AD57751D4A8B9E9933FE209BA2DBDE57C17F02D3
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55115.jpgsave_picture_55115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55115.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:CE16792E12F263120874F34FE748F92E89F7B556
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55116.jpgsave_picture_55116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55116.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:E79CE3B73EE1C4ABA6737C0A35C6AB37DF8F1EA4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55117.jpgsave_picture_55117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55117.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Windy.app: погода и ветер 50.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55118.jpgsave_picture_55118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55118.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:E8756D4080895C1EBF3B30DF45FEF522508AABAC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55119.jpgsave_picture_55119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55119.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Garouden: The Way of the Lone Wolf | Легенда о голодных волк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55120.jpgsave_picture_55120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55120.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ CyberHoney (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55121.jpgsave_picture_55121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55121.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:A67A92D5E9E5D7FA3C24613F9B63238F889AE41A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55122.jpgsave_picture_55122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55122.jpg" />
 </div>
 
 

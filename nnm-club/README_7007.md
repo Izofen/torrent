@@ -6,7 +6,7 @@ Rustorm - Razed to the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240343.jpgsave_picture_240343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240343.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aiseesoft Data Recovery 1.6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240344.jpgsave_picture_240344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240344.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:15FA06681E4A061612E9E7917C03B40F5CA68FB4
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240345.jpgsave_picture_240345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240345.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:29D185D39836C7F9CD7553A80CC3EC3B490F8F82
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240346.jpgsave_picture_240346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240346.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Torrax - Pribehy (2021) [MP3|320 Kbps] <Power Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240347.jpgsave_picture_240347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240347.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Internet Download Manager 6.40 Build 11 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240348.jpgsave_picture_240348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240348.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:5A2BF2662C6A01AADC3B40544DF57360920A7DDA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240349.jpgsave_picture_240349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240349.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ RedNotebook 2.29.5 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240350.jpgsave_picture_240350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240350.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Vinnum Sabbathi - Live at Channel 666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240351.jpgsave_picture_240351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240351.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Maria Muldaur - Maria Muldaur (1973) [FLAC|Lossless|image + .cue] <Blues, Jazz, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240352.jpgsave_picture_240352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240352.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PrivaZer Pro 4.0.71 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240353.jpgsave_picture_240353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240353.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:0F346EDDC1242A95A65B41B7572B150C6CC78622
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240354.jpgsave_picture_240354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240354.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Huxley Would Approve - Grave New World: Part Two (2021) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240355.jpgsave_picture_240355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240355.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Enforcer - Nostalgia (2023) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240356.jpgsave_picture_240356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240356.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Trance Action Vol. 6 (2020) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240357.jpgsave_picture_240357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240357.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Little Green Men | Артбуки по играм Starpoint Gemini / The Art of 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240358.jpgsave_picture_240358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240358.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Goatsmoke - What's the scene, Bob? (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240359.jpgsave_picture_240359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240359.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:855E3EC15319C5862B2779DC9B4E086CF311C0EB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240360.jpgsave_picture_240360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240360.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:FC8B8055C3BDA90391CB515236FD9D9B6A425FD0
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240361.jpgsave_picture_240361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240361.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:446EB4649754CC882344B60833340CDCF388DC1E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240362.jpgsave_picture_240362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240362.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Cisdem AppCrypt 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240363.jpgsave_picture_240363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240363.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:50379D2617AC2280BF337E09EDCD41D6BF6D383D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240364.jpgsave_picture_240364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240364.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:8DFB056ECE9FA6AE748F58A52BF89F9726AB69B9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240365.jpgsave_picture_240365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240365.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:E155F817221106022A9DE6988FD1D70DB2C627F5
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240366.jpgsave_picture_240366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240366.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ OCCT 12.0.0.b3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240367.jpgsave_picture_240367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240367.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Andrea Pozza European Quintet - Gull's Flight (2011) Abeat Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240368.jpgsave_picture_240368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240368.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Lordi - Limited Deadition (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68974.jpgsave_picture_68974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68974.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3DDEF1CDF2271E8643BBEBABE4BA6AD576EAB82D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68975.jpgsave_picture_68975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68975.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:FA31AA9581ED9D2D644B066A391EFE8CB86E66C5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68976.jpgsave_picture_68976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68976.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:59C8E96AF980BAD2695ACFBA87DEE875D6215B95
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68977.jpgsave_picture_68977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68977.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Riot - Army Of One (2006) Remastered, 2017, Metal Blade Records [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68978.jpgsave_picture_68978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68978.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:87F75813F6CAD1471E9947DE5891A2AD57248103
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68979.jpgsave_picture_68979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68979.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:901D64CFF5E3E25D9F578E162CDBF53334BE90AD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68980.jpgsave_picture_68980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68980.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:0FCD4CB850AC779192F415B17DE4082FCB549D11
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68981.jpgsave_picture_68981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68981.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dантес & Олейник - Мне уже 20 (2010) [FLAC|Lossless|tracks + .
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68982.jpgsave_picture_68982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68982.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:5C3CAC0A19F8CD58C0067350C875C04363008874
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68983.jpgsave_picture_68983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68983.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:AF8C3C20AB162BF14B9E054F50E9435423627279
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68984.jpgsave_picture_68984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68984.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Armin van Buuren - A State Of Trance 1217 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68985.jpgsave_picture_68985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68985.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:D4B5777C0BC7649B6D9409CC9C3DD76537A2181B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68986.jpgsave_picture_68986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68986.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:7B58682E8DF62B28B8B0502A80996AB08A62E3CD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68987.jpgsave_picture_68987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68987.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Brenda Lee - Best of Brenda Lee (2025) Remastered [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68988.jpgsave_picture_68988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68988.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:5CAADCAF64E462C4AC67B74AD4AA8384625C32AE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68989.jpgsave_picture_68989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68989.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Melodica 2025 (Tibetania Rituals) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68990.jpgsave_picture_68990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68990.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:BBAC4A8DFCA3F0588D3C7609BADDF4FD05E4F742
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68991.jpgsave_picture_68991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68991.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:E691C22997AB816A53D2F3398F54776C99F009B9
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68992.jpgsave_picture_68992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68992.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ M.C.Sar & the real McCoy - The Real Best! (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68993.jpgsave_picture_68993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68993.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Tears For Fears - Songs For A Nervous Planet (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68994.jpgsave_picture_68994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68994.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:5F5158CD24EC96AB4B0B0ACE370D7866D15527B6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68995.jpgsave_picture_68995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68995.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:E1F386232162B528F5BE6B185BFB64CDF415545F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68996.jpgsave_picture_68996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68996.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:B9E6957563F920E6B5703CB7E6AAAE8D98B1FD29
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68997.jpgsave_picture_68997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68997.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:C36DEA42A17CF9FD33546F51DD2B0CEA0938C8FF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68998.jpgsave_picture_68998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68998.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - Night'n Day Music Tracks (Expanded Edition) (Mike Mareen and His Music Prod
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68999.jpgsave_picture_68999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68999.jpg" />
 </div>
 
 

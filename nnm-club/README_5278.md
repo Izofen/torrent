@@ -6,7 +6,7 @@ McAfee Endpoint Security 10.7.0 RePack by Umbrella Corporation [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164030.jpgsave_picture_164030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164030.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1FB5385053C12651C6CD5588B34DD667923BDB7D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164031.jpgsave_picture_164031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164031.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:020E6D103D6FC8B1060781C5B42609B179F87299
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164032.jpgsave_picture_164032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164032.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5AE6A482C5BCCA1F67D4455237EC143D9DA4BFEC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164033.jpgsave_picture_164033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164033.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3E0D7D8E8B767D6CB8D7F39DC58530C1D38AB96F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164034.jpgsave_picture_164034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164034.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4579B21D9273CC1DAD36C16EFE298EE3453C9633
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164035.jpgsave_picture_164035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164035.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9B9A94548F4D86EF59F3DC742CBBD29061FCE4B1
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164036.jpgsave_picture_164036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164036.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:4F93FB6927E143F180492A18B2D653C2ABC80628
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164037.jpgsave_picture_164037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164037.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Apple Remote Desktop 3.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164038.jpgsave_picture_164038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164038.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8D56F1200612FB19B2E59D3A34BC9DFAB4FF25A2
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164039.jpgsave_picture_164039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164039.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:5B67FE24C0F2D99DCE7D059075209F1AE7C173CF
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164040.jpgsave_picture_164040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164040.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Gumroad, Eugene Petrov | Handgun for Video games Tutorial (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164041.jpgsave_picture_164041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164041.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:327C119E9BCF16C908F5C64BEE4C8FB04FC6F1C7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164042.jpgsave_picture_164042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164042.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:87BB9F652C3668042BEC0BDF254BB2CDD9E9B872
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164043.jpgsave_picture_164043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164043.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Malwarebytes AdwCleaner 8.0.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164044.jpgsave_picture_164044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164044.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:1DCEE35FE58D2796BB5E1564761396DFC0137433
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164045.jpgsave_picture_164045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164045.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ TechSmith Snagit 2022.0.0 Build 14113 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164046.jpgsave_picture_164046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164046.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:6BC968B1F1FD619D050552D95C83BE7E40C2BCB7
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164047.jpgsave_picture_164047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164047.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:8AC7C5ECED23B7EDD8C7F84199AEA6C538D5AE3A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164048.jpgsave_picture_164048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164048.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Bat! Professional 10.5.2.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164049.jpgsave_picture_164049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164049.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ DjVu Reader Pro 2.4.4 [Ru/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164050.jpgsave_picture_164050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164050.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:6574D41002D47F975BD9728BD34129B08E663E11
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164051.jpgsave_picture_164051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164051.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:12CFB06D85A66938E159DA271E76FC0334C06112
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164052.jpgsave_picture_164052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164052.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Arturia Mini V 3 v.3.11.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164053.jpgsave_picture_164053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164053.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - German Top 100 Single Charts 16.12.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164054.jpgsave_picture_164054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164054.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:F32C01285D0AC85899E0403F3CDF99D4DA115916
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164055.jpgsave_picture_164055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164055.jpg" />
 </div>
 
 

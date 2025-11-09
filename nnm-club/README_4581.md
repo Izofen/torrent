@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143392.jpgsave_picture_143392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143392.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A4145E38C4358BD35CE526B64C81ABA3DF9982F4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143393.jpgsave_picture_143393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143393.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:49E16A30390ECEFB9A0D3F78F80168AAF1104FEB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143394.jpgsave_picture_143394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143394.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F5B3BCD93B571124AC63672734D58124B24061F3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143395.jpgsave_picture_143395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143395.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A6903AFBF5FEF89337921B9338523584A228E6D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143396.jpgsave_picture_143396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143396.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Erik De Koning Mix - Greece 2000 (2008) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143397.jpgsave_picture_143397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143397.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Wondershare Recoverit 7.4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143398.jpgsave_picture_143398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143398.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ AIMP 4.50 Build 2058 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143400.jpgsave_picture_143400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143400.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:0921E00B5D02539BD1699AE500769172DDB69936
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143401.jpgsave_picture_143401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143401.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ WizTree 4.07 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143402.jpgsave_picture_143402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143402.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Hibike! Euphonium / Sound! Euphonium / Играй, эуфониум! [2015, TV, 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143404.jpgsave_picture_143404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143404.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ MarginNote 3 Pro v3.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143405.jpgsave_picture_143405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143405.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Harllequin - Hellakin Riders (2012) [WavPack|Lossless]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143406.jpgsave_picture_143406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143406.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ CGMA, Anthony Vaccaro | Organic World Building in UE4 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143408.jpgsave_picture_143408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143408.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:61BE025C97D3E2E9D00D095BEF7BDC39B44FFDFA
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143409.jpgsave_picture_143409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143409.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:0506431C15798E33ABA38E5B5DCACCFC8C6E3A67
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143410.jpgsave_picture_143410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143410.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:0506431C15798E33ABA38E5B5DCACCFC8C6E3A67
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143411.jpgsave_picture_143411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143411.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Artemesia - Apocryphal (2003) [WavPack|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143412.jpgsave_picture_143412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143412.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Artemesia - Apocryphal (2003) [WavPack|Lossless]<Melodic Death Metal>
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143413.jpgsave_picture_143413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143413.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Windows and Office Genuine ISO Verifier 11.12.44.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143415.jpgsave_picture_143415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143415.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:5AAB72B4AB9FC19B39CC556587BA465EBCC0A9C9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143416.jpgsave_picture_143416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143416.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Jessica Wolff - Grounded (2015) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143417.jpgsave_picture_143417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143417.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:42485072C2A3495FF5AD8EF3FC1C351952F5A1B6
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143418.jpgsave_picture_143418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143418.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Mystic Circle - Open The Gates Of Hell (Digipack 12 - track version) (2003) [Wav
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143419.jpgsave_picture_143419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143419.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ FontExpert 2021 18.0 Release 2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143421.jpgsave_picture_143421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143421.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ MAGIX Sound Forge Pro Suite 15.0 Build 161 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143422.jpgsave_picture_143422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143422.jpg" />
 </div>
 
 

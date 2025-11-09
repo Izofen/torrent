@@ -6,7 +6,7 @@
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55877.jpgsave_picture_55877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55877.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A31AD2C2D2FFC42472809C6BBBF4A0EA6CE5191B
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55878.jpgsave_picture_55878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55878.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1FE20EE85CC7D6D331AD7BDEF85943B2C8937D2A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55879.jpgsave_picture_55879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55879.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5A25472A43B5CF7F6B93CE79AE4FDE191019CD54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55880.jpgsave_picture_55880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55880.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E64B484B28431181F959ADB5CB2BE5013313F654
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55881.jpgsave_picture_55881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55881.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E64B484B28431181F959ADB5CB2BE5013313F654
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55882.jpgsave_picture_55882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55882.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:12987A5B9416CDF5B807EAD6191358E4CC9A04F2
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55883.jpgsave_picture_55883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55883.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ ESET Mobile Security Antivirus 9.0.14.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55884.jpgsave_picture_55884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55884.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A478BF511D93F76AE99F3B8F18FF6D0C2E5CF6F6
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55885.jpgsave_picture_55885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55885.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Windows Server 2022 LTSC [10.0.20348.2461], Version 21H2 (Updated May 2024) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55886.jpgsave_picture_55886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55886.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:2DE8C5C687A1F4FE97EBBF1A79890EAB56E4F71B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55887.jpgsave_picture_55887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55887.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:AD4F2D501484A456067B32AF2AC0966593E05CEC
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55888.jpgsave_picture_55888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55888.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ADB AppControl 1.8.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55889.jpgsave_picture_55889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55889.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:2C8C040460FDEF632DE557E2FBED76E94C2B40BE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55890.jpgsave_picture_55890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55890.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Photoshop Lightroom Classic 2024 13.3.0.17 (x64) Portable by 7997 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55891.jpgsave_picture_55891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55891.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:407B5929F92A6FABC6D656EF95269D0335B6094A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55892.jpgsave_picture_55892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55892.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:CBE0A54A8472773ADAFAA1AA89E47ECC9CEC01B7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55893.jpgsave_picture_55893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55893.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:809D54ADCAFD5C1664DC6B2DE82511C0DD73221E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55894.jpgsave_picture_55894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55894.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Jinn'sLiveUSB 11.3 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авто�
 >>26
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55895.jpgsave_picture_55895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55895.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:27D40ED5D55ADF861EB0BBD58B0469F870F7817F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55896.jpgsave_picture_55896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55896.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:ABB28CFEF31B5199D7CE6EBBAAC3712F82D9E6DD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55897.jpgsave_picture_55897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55897.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:FEDF434AC81F801B3941409EC952780EDD65EA6A
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55898.jpgsave_picture_55898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55898.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:62220DB237C33AD92252361F10D805E22E085489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55899.jpgsave_picture_55899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55899.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:B7373D0789E33EDDDAB83105F1C585A6CD7CE4CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55900.jpgsave_picture_55900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55900.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:5800AB4E08B0188FC85CC6EB37861E7BE7252768
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55901.jpgsave_picture_55901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55901.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (4.2.33) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55902.jpgsave_picture_55902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55902.jpg" />
 </div>
 
 

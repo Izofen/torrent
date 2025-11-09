@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135525.jpgsave_picture_135525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135525.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LAMA - 2 альбома, 3 сингла (2011-2012) [MP3|320 кб/с]<J-Pop, Ele
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135529.jpgsave_picture_135529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135529.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:111B0DB70FB896EA94B1612C6DC89AE944DF0DE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135530.jpgsave_picture_135530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135530.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4FC99BA7CDA591D7259621B0CAB68D64814B3E40
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135536.jpgsave_picture_135536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135536.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E76E973EB511A7FD2E1DC18406668BBA91DE6EA5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135543.jpgsave_picture_135543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135543.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F2FB33A53BA4A261C0FD5BEBC193F9511A1C0BF1
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135544.jpgsave_picture_135544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135544.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F022739F9413245330C594C4BDE829B63E9991FA
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135546.jpgsave_picture_135546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135546.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:6D7BDE4309B8208E827645CCD716C4D2242FFF88
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135548.jpgsave_picture_135548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135548.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:E3E7B0B3200A6BCA54F4F1EA56674B297BCEB9CE
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135553.jpgsave_picture_135553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135553.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:1CCDA273716CE01568DDC38408041147A0278F96
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135554.jpgsave_picture_135554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135554.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:C61772592C48C9283FA655D35BAF71B76F07BF39
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135557.jpgsave_picture_135557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135557.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:935AAC043028C3EFD8CE89D8E6C4B97B9C4E3F7E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135558.jpgsave_picture_135558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135558.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Berlitz | Японский разговорник и словарь [2009] [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135559.jpgsave_picture_135559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135559.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:B2E2CAFAC36EB9E85EE198B9A3C27C29CA902E0C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135560.jpgsave_picture_135560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135560.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:0A9850FB0E7097060D731892D19523B01931C61F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135564.jpgsave_picture_135564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135564.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:46478B1F2A1D6FF758F91B36702F0661F6C8A3B6
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135568.jpgsave_picture_135568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135568.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:CC5FD94B625DEB5797CFAB5ED97506387EBFD9BD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135569.jpgsave_picture_135569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135569.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:6760EDA75192C3B61D24773A8B5CCE4F9A687AB8
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135571.jpgsave_picture_135571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135571.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:22BF7FCD1B541DDBBBF726CF4C6609AF810A5224
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135578.jpgsave_picture_135578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135578.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:091837747F0DBA34F2F54D6B60531B9EE6D77278
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135579.jpgsave_picture_135579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135579.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:33F5D12589C12C7418C9D50120AD91FA6C23D993
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135580.jpgsave_picture_135580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135580.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8A7410BC35798A06BCECB543E7E72D82F4DF65DB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135594.jpgsave_picture_135594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135594.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135607.jpgsave_picture_135607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135607.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:E032EEF9295C78AE7CDD64065B9D76A3783F1276
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135616.jpgsave_picture_135616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135616.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Armin Van Buuren - A State Of Trance Yearmix 2012 (2012) [MP3|320 кб/с]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135622.jpgsave_picture_135622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135622.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135632.jpgsave_picture_135632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135632.jpg" />
 </div>
 
 

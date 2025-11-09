@@ -6,7 +6,7 @@ Synergy (2024) [Ru/Multi] (1.0.2504161516/dlc) Repack FitGirl [Supporter Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20608.jpgsave_picture_20608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20608.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.8.7 Gold 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20609.jpgsave_picture_20609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20609.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack FitGir
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20610.jpgsave_picture_20610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20610.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ED394577781F225BEAD14E28F75257C71F1B14C0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20611.jpgsave_picture_20611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20611.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Files Inspector Pro 4.30 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20612.jpgsave_picture_20612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20612.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0 Build 8682/dlc) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20613.jpgsave_picture_20613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20613.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Flud v1.11.6.7 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20614.jpgsave_picture_20614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20614.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20615.jpgsave_picture_20615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20615.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ RarmaRadio Pro 2.76.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20616.jpgsave_picture_20616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20616.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E885AC86908AB3ED28B45C3F6E3166D06CB0CC8A
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20617.jpgsave_picture_20617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20617.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:56E2E9C15EE5E04FA7CE6BC9C01CB5CDB6CB0BE3
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20618.jpgsave_picture_20618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20618.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.11025947/dlc) Repack Wanterlude [Deluxe E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20619.jpgsave_picture_20619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20619.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:75977D75F6A4D36AB6DC8951CF5D74BAB0441F55
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20620.jpgsave_picture_20620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20620.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:4788223E6F2E4EFA43CDA734000D40DE46FA4DE8
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20621.jpgsave_picture_20621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20621.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:4308B330A7A522391D6822FE4E0F83E773C3721C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20622.jpgsave_picture_20622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20622.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Short Snow / Короткий Снег (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20623.jpgsave_picture_20623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20623.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:3BB5B266FAFA24EE8EFD1362CA5EC838F3C33FFB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20624.jpgsave_picture_20624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20624.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VideoProc Converter AI 8.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20625.jpgsave_picture_20625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20625.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:22D932B1EC80C48D3D289C572D738EBAFC63E33D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20626.jpgsave_picture_20626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20626.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:A7C3C1405255854CEFEF6D033299E9D98CD5F255
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20627.jpgsave_picture_20627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20627.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:34C8F833ADA1FDB2F77DC2233B608BA0E08A2F41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20628.jpgsave_picture_20628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20628.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:6EF2FB963AF89D65230CBE5AF6E13F36348E15A4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20629.jpgsave_picture_20629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20629.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16.269) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20630.jpgsave_picture_20630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20630.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:0A010C7432D30D1C2A9439B9629DE925E3E46072
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20631.jpgsave_picture_20631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20631.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20632.jpgsave_picture_20632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20632.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:635317622734E4DE0BF784410C03EF57E24F5AB0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20633.jpgsave_picture_20633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20633.jpg" />
 </div>
 
 

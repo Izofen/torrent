@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148056.jpgsave_picture_148056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148056.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mirillis Action! 4.14.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148057.jpgsave_picture_148057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148057.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E03EB3785A67E968D94F43730B0022862A391500
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148058.jpgsave_picture_148058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148058.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:768FBD95522F764543F645BEC61674DC5B00B3CD
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148059.jpgsave_picture_148059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148059.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F8D192606B85D7C65721E212E4F3482F85999702
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148061.jpgsave_picture_148061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148061.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:20264EA16C3120ACFC6CC9ED55EEF4B19E7515AB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148062.jpgsave_picture_148062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148062.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F6755EF570D1A24973FC7D53D89668E085C63F4A
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148064.jpgsave_picture_148064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148064.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F5D86D5671AFFEBEC5259E9834D32DDA38F67FA6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148066.jpgsave_picture_148066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148066.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Eon music player v5.3.8 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148067.jpgsave_picture_148067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148067.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Galler
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148068.jpgsave_picture_148068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148068.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Isotropix Clarisse iFX 4.0 SP14 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148070.jpgsave_picture_148070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148070.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:F197C2A7640D96C19992F5D1621504B1D6012663
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148071.jpgsave_picture_148071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148071.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:EE2B2D33F01C83DCC5D30BB4E39B830850634185
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148072.jpgsave_picture_148072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148072.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Halo: Combat Evolved Anniversary (2011) [Xbox360] [Region Free] FreeBoot [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148073.jpgsave_picture_148073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148073.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3A7F84A2853CE6EADC97353337DC09B481D998E6
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148076.jpgsave_picture_148076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148076.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:9171C355A66E0B6ADA25F9FA8775D6C61A762C74
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148078.jpgsave_picture_148078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148078.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:790A4339C19DCEE4F66337219D3974EDED0E5631
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148079.jpgsave_picture_148079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148079.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:930EC7654C7D444DC9D6A0055825C04A68769C26
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148080.jpgsave_picture_148080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148080.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:54F66267C0AA271BB2F5FAEDDD8C38CEC3DC4AB7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148081.jpgsave_picture_148081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148081.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:F40404054E5F5F40196B7619D0EBAF7E416DDCC6
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148082.jpgsave_picture_148082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148082.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:7E7888F0B34FD3D6A68D8D3F12410AF2BB3291C7
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148084.jpgsave_picture_148084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148084.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Grand Theft Auto Mission Pack: London 1969 & 1961 (1999) [Ru/Multi] (1.0) Lossle
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148086.jpgsave_picture_148086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148086.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:6CC6A885EECE6A59943760B34F68D4917038DD8A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148087.jpgsave_picture_148087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148087.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:E1087E04CACD0ECAE7BC1C464E70AC2536CC2AD5
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148088.jpgsave_picture_148088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148088.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:ACC4D5C235813EC538A4AB7DFB77CCB769C1E38D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148089.jpgsave_picture_148089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148089.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:141E939E79EDF2D59D03C15181442B3162B070A7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148090.jpgsave_picture_148090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148090.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21668.jpgsave_picture_21668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21668.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Disturbed - Compilation (2000-2025) [MP3|320 Kbps] <Alternative metal, Heavy met
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22791.jpgsave_picture_22791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22791.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Music For You vol.32 (2025) [MP3|320 Kbps] <Prog Rock, Heavy Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23527.jpgsave_picture_23527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23527.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A4EAF0C48BEC98C77727541EAAAACE8335A0A7CB
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24069.jpgsave_picture_24069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24069.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Music For You vol.31 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24558.jpgsave_picture_24558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24558.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:8E6BC6C5DB38787A4935DC66B5A01B6ABB3EBB89
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24612.jpgsave_picture_24612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24612.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - The Elegy Of Sunset (2025) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24771.jpgsave_picture_24771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24771.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Metallica - Compilation (1983-2024) [MP3|320 Kbps] <Metal, Hard rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25454.jpgsave_picture_25454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25454.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ U.D.O. - Compilation (1987-2025) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25795.jpgsave_picture_25795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25795.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Masters of Rock & Metal - The Best Rock & Metal Tracks ever... (2025) [MP3|
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25873.jpgsave_picture_25873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25873.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Axel Rudi Pell - The Ballads Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26275.jpgsave_picture_26275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26275.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Al
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27015.jpgsave_picture_27015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27015.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27195.jpgsave_picture_27195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27195.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27325.jpgsave_picture_27325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27325.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bloodhound Gang - Compilation (1995-2015) [MP3|320 Kbps] <Alternative, Comedy ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28569.jpgsave_picture_28569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28569.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Classic Glam Rock (2025) [MP3|320 Kbps] <Rock, Glam>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28589.jpgsave_picture_28589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28589.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Time Of Rock & Metal от ALEXnROCK Part 1 (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28709.jpgsave_picture_28709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28709.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Light And Shadows (2025) [MP3|320 Kbps] <Rock, Alternative Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28885.jpgsave_picture_28885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28885.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ronnie James Dio - Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29278.jpgsave_picture_29278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29278.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ U.D.O. - Compilation (2025) 2 CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29780.jpgsave_picture_29780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29780.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Accept - Compilation (1979-2024) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29813.jpgsave_picture_29813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29813.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ W.A.S.P. - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30028.jpgsave_picture_30028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30028.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Manowar - Compilation (2025) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30049.jpgsave_picture_30049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30049.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:26A8419E00DF2207755D77427880D1C0D5469C49
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30069.jpgsave_picture_30069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30069.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Accept - Compilation (2025) [MP3|320 Kbps] <Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30327.jpgsave_picture_30327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30327.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:9B8DBA1CCFC64DA96D0E9927B8C7135C32640F4F
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30418.jpgsave_picture_30418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30418.jpg" />
 </div>
 
 

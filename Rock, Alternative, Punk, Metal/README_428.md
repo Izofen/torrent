@@ -6,7 +6,7 @@ Thergothon - Stream From The Heavens (1994) Reissue, 2009, Peaceville [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237421.jpgsave_picture_237421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237421.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Matt Tebow - Premonitions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237425.jpgsave_picture_237425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237425.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Michael Morales - Thump (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237430.jpgsave_picture_237430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237430.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ NormBreaker (NormBreäker) - The Beginning (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237433.jpgsave_picture_237433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237433.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Avarice - Avarice (2023) [MP3|320 Kbps] <Melodic Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237445.jpgsave_picture_237445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237445.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Anthemon - Arcanes (2003) [FLAC|Lossless|image + .cue] <Symphonic Gothic, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237453.jpgsave_picture_237453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237453.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vision Denied - Age Of The Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237479.jpgsave_picture_237479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237479.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Core Fire - Consumed (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237489.jpgsave_picture_237489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237489.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Void King - 3 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237495.jpgsave_picture_237495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237495.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shaka Ponk - Shaka Ponk (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237496.jpgsave_picture_237496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237496.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Aramis - Crimson (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237497.jpgsave_picture_237497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237497.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Rhythm Therapy Band - Music Room Sessions, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237499.jpgsave_picture_237499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237499.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Snakemother - Snakemother (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237505.jpgsave_picture_237505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237505.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Opera Magna - Of Love and Other Demons (2023) Compilation [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237521.jpgsave_picture_237521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237521.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Hostage - Black Sky Calling (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237522.jpgsave_picture_237522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237522.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Natalie Merchant - Keep Your Courage (2023) [FLAC|Lossless|tracks + .cue] <Folk-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237532.jpgsave_picture_237532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237532.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pink Floyd - In Concert 1987 (8CD) (2021) [FLAC|Lossless|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237543.jpgsave_picture_237543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237543.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ ASAP - Down The Wire (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237552.jpgsave_picture_237552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237552.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Protomartyr - Formal Growth in the Desert (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237559.jpgsave_picture_237559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237559.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:FC4EA13C0107639BB4FAAA6D70AA260F36E85B9B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237563.jpgsave_picture_237563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237563.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mindfar - Prophet Of The Astral Gods (2021) [MP3|320 Kbps] <Symphonic Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237567.jpgsave_picture_237567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237567.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Contrail Architects - Guarded Cave (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237569.jpgsave_picture_237569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237569.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Johnny The Boy - You (2023) [FLAC|Lossless|WEB-DL|tracks] <Black-Metal, Extreme-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237580.jpgsave_picture_237580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237580.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ What For? - Ганнибал У Ворот (2021) EP [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237591.jpgsave_picture_237591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237591.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Wallner Vain, Will Wallner & Vivien Vain - Duel (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237593.jpgsave_picture_237593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237593.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Old Ben - The Darkest Room (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237597.jpgsave_picture_237597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237597.jpg" />
 </div>
 
 

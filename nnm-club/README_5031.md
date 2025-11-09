@@ -6,7 +6,7 @@ WinUtilities Professional 15.83 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157277.jpgsave_picture_157277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157277.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C1F9ECA4EE31EFA5F0D254D1B838C309233777C0
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157279.jpgsave_picture_157279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157279.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SILKYPIX RAW Converter 1.0.7.1 (x64) Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157280.jpgsave_picture_157280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157280.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Group | Stand Up Сезон 2 (2014) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157281.jpgsave_picture_157281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157281.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3F80A1465DD0325710739F12B13CB7AEBAC00FA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157282.jpgsave_picture_157282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157282.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157284.jpgsave_picture_157284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157284.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:672B1B7538F546E23EB7A188F81729AF7D860122
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157285.jpgsave_picture_157285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157285.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ LRTimelapse Pro 5.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157286.jpgsave_picture_157286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157286.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Destiny + Destiny: The Taken King (2014) [PS3] [EUR] 4.60 [Cobra ODE / E3 ODE PR
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157288.jpgsave_picture_157288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157288.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157289.jpgsave_picture_157289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157289.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:A2A5BE3552FCF83F69E413E6EF1BB37D5E360F57
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157291.jpgsave_picture_157291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157291.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ RedNotebook 2.31 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157292.jpgsave_picture_157292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157292.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:A862A40581F7164C0DC39BB0E86F6E7E17D931A2
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157293.jpgsave_picture_157293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157293.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Новички в попсе (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157294.jpgsave_picture_157294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157294.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ The Dutch Swing College Band - The Best Of Dixie (1999) MasterTone Multimedia Lt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157295.jpgsave_picture_157295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157295.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:EFB62814A91D5E805131D44FB5C8C1A60A67C50A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157296.jpgsave_picture_157296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157296.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Cкелетон. Кубок мира 2017-2018. 5-й Этап и Чемпион�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157297.jpgsave_picture_157297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157297.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:CB0E7ECED84A73B4AE0887C51B94C2CF53305C75
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157299.jpgsave_picture_157299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157299.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:3F3F2CBA9452077AC87D886EC470FA97A0843DB9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157300.jpgsave_picture_157300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157300.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:4142EAE3C28BCBD728FB87D370924F56D5C9DB89
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157301.jpgsave_picture_157301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157301.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Harmony Trance Sound (2015) [MP3|320 кб/с] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157302.jpgsave_picture_157302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157302.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ HomeBank 5.7.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157305.jpgsave_picture_157305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157305.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:B2ADDED0DD4BBF0B553EC049B598E753DE27BC40
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157306.jpgsave_picture_157306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157306.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ LibreWolf 119.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157308.jpgsave_picture_157308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157308.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NGW: Дикие места Африки. Величайшие архитекто
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157309.jpgsave_picture_157309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157309.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:D6B59B5E91D674B153A5523AEDA76F1219D594D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157311.jpgsave_picture_157311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157311.jpg" />
 </div>
 
 

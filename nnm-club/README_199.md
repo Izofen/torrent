@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5239.jpgsave_picture_5239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5239.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FA626B216B9E56A6AC8B31F9FEBBB64F0923AE08
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5240.jpgsave_picture_5240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5240.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (5.1.2/dlc) Repack FitGirl [
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5241.jpgsave_picture_5241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5241.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Revo Uninstaller Mobile v3.4.330G Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5242.jpgsave_picture_5242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5242.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ iTubeGo YouTube Downloader 10.8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5243.jpgsave_picture_5243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5243.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:285500CF11984CCBD0EAF2AF6BC2035C4A4C11A0
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5244.jpgsave_picture_5244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5244.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ DriverEasy 7.0.2.1910 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5245.jpgsave_picture_5245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5245.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ PDF-XChange PRO 10.7.1.399 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5246.jpgsave_picture_5246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5246.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612/dlc) Repack FitGirl [Premium
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5247.jpgsave_picture_5247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5247.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Tiny Bookshop (2025) [Ru/Multi] (Build 19513764) Repack Other s [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5248.jpgsave_picture_5248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5248.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Panzer Knights (2020) [Ru/Multi] (1.1.7/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5249.jpgsave_picture_5249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5249.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:880D9974EA927536381513BECF2A8D92562FD584
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5250.jpgsave_picture_5250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5250.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A9AB0A8AA8FF144F1E84BBA1FF582AB90875F9F0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5251.jpgsave_picture_5251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5251.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Bandicam 8.2.1.2530  RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5252.jpgsave_picture_5252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5252.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B0A9955613E413AAF3472D14E38403AE43E18D29
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5253.jpgsave_picture_5253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5253.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:BCB6F591409155C258830F740F1DE151B7714E31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5254.jpgsave_picture_5254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5254.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:9E5407402A906A47A2F36F3EE07C15FBA19AE526
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5255.jpgsave_picture_5255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5255.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:9A5FA1FC57BE0F17978E23048AB15B3712A646F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5256.jpgsave_picture_5256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5256.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5257.jpgsave_picture_5257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5257.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ PDF-XChange Editor Plus 10.7.1.399 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5258.jpgsave_picture_5258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5258.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:C4F41A4435E04073C21B193E3EDD68CCED8898C2
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5259.jpgsave_picture_5259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5259.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:C4F41A4435E04073C21B193E3EDD68CCED8898C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5260.jpgsave_picture_5260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5260.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Patephone / Патефон v14.8.2 Mod by OsitKP [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5261.jpgsave_picture_5261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5261.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:EB71746087A31948252A177389DE8F31E2CB6913
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5262.jpgsave_picture_5262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5262.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:F278E9EB6BB38B9C2DB8C88B85446920305324B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5263.jpgsave_picture_5263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5263.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5264.jpgsave_picture_5264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5264.jpg" />
 </div>
 
 

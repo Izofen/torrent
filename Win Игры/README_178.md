@@ -6,7 +6,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53184.jpgsave_picture_53184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53184.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53258.jpgsave_picture_53258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53258.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53261.jpgsave_picture_53261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53261.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53287.jpgsave_picture_53287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53287.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Shadow Hush (2024) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53291.jpgsave_picture_53291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53291.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Repack FitGirl [Delu
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53307.jpgsave_picture_53307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53307.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Wander Hero (2023) [Multi] (1.0.240608) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53334.jpgsave_picture_53334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53334.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53339.jpgsave_picture_53339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53339.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Star Stuff (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53341.jpgsave_picture_53341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53341.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Scene SKIDROW [Delux
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53348.jpgsave_picture_53348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53348.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lost Lands 9: Stories of the First Brotherhood / Затерянные земли
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53349.jpgsave_picture_53349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53349.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53358.jpgsave_picture_53358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53358.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53361.jpgsave_picture_53361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53361.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Simpler Times (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53364.jpgsave_picture_53364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53364.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Kamaeru: A Frog Refuge (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53366.jpgsave_picture_53366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53366.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Fallen Seeds (2024) [Ru/En] (1.0.15) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53371.jpgsave_picture_53371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53371.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Legendary Tales 3: Stories / Легендарные предания 3: Исто
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53374.jpgsave_picture_53374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53374.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53381.jpgsave_picture_53381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53381.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Escape from Hata / Побег из Хаты (2024) [Ru/Multi] (1.0) Repack FitGi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53385.jpgsave_picture_53385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53385.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Hood Story: Kaito Yamazaki (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53445.jpgsave_picture_53445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53445.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.15/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53467.jpgsave_picture_53467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53467.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:19D925094C6A6953DC0CCE5AE68303D92CEE249E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53469.jpgsave_picture_53469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53469.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ A Game's Tale (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53475.jpgsave_picture_53475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53475.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Enigma Quest (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53477.jpgsave_picture_53477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53477.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53479.jpgsave_picture_53479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53479.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ House Flipper (2018) [Ru/Multi] (1.24157/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53488.jpgsave_picture_53488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53488.jpg" />
 </div>
 
 

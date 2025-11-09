@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114937.jpgsave_picture_114937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114937.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:0D83F84D6C8A82DE25B320A56951E5E5781FA97B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114938.jpgsave_picture_114938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114938.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4F3C511A91511FA864C2A12102FC03954FDE5429
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114939.jpgsave_picture_114939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114939.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ace Frehley (Frehley's Comet) - Discography: 14 аlbums, 22CD (1978-2024) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114940.jpgsave_picture_114940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114940.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:A58E2C101131656429618DACC1CE535C1D6296B7
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114941.jpgsave_picture_114941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114941.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:66CE6C4BEEC878678E07394514D19909655A20C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114942.jpgsave_picture_114942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114942.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:314872D695911280FDADFF2ECA2380DE8F49B0B7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114943.jpgsave_picture_114943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114943.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F6324FF42A9368CC0EF3F09D10706CC65BC7E52A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114944.jpgsave_picture_114944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114944.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Udemy, Brad Traversy | Next.js From Scratch 2024 (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114945.jpgsave_picture_114945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114945.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:0C566BB65854A36B9D0C128CDFEF45634BE125DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114946.jpgsave_picture_114946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114946.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114947.jpgsave_picture_114947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114947.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Adobe Illustrator 2024 28.3.0.94 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114948.jpgsave_picture_114948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114948.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2044.0 (01.03.2024) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114949.jpgsave_picture_114949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114949.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:97DF0E8A14291D0B3CAD3E10A72F3CAC464153D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114950.jpgsave_picture_114950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114950.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:CFB5E93B28AB0E37AA1203F8235FEDEC9611E66F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114951.jpgsave_picture_114951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114951.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:53C7E6D7D72DB5580AA8D52A9971C04358E64827
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114952.jpgsave_picture_114952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114952.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:B2462437C078F76FBC5F4DAD6A1680D8C445B188
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114953.jpgsave_picture_114953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114953.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:D531146E736A6F60331966885EAED623806849A9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114954.jpgsave_picture_114954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114954.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:D531146E736A6F60331966885EAED623806849A9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114955.jpgsave_picture_114955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114955.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:A074AD7A46F02E6456E9E719AED5D9F50F4F1D4E
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114956.jpgsave_picture_114956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114956.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:F10A2F38AA91C42C9E901FC2E69F80444FB52A9A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114957.jpgsave_picture_114957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114957.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:6F90ED2AB95C32C8F905410460019A90923856CC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114958.jpgsave_picture_114958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114958.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:C2F2E319CD1D98CFB99B77C840F79EBBFC142BE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114959.jpgsave_picture_114959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114959.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:8E66650F117380875FD0EBDD5191AE5CB8131C1F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114960.jpgsave_picture_114960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114960.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:01B5FC691D12AE41C42E83EE22BBE5DBD2A0967D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114961.jpgsave_picture_114961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114961.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ IObit Driver Booster Pro 11.3.0.43 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114962.jpgsave_picture_114962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114962.jpg" />
 </div>
 
 

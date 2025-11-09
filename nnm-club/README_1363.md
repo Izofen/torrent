@@ -6,7 +6,7 @@ Deep Inside (2024) [En] (Build 16288203) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35793.jpgsave_picture_35793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35793.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3BD508A983E260EED1353CB6B01CCFA9AA892209
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35794.jpgsave_picture_35794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35794.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:D5C58319D15EBE87679EC711BA8438C303FAEE5D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35795.jpgsave_picture_35795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35795.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Hive Jump 2: Survivors (2024) [Ru/Multi] (1.1.1853) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35796.jpgsave_picture_35796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35796.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:66E0752EF3B134A1D19C812084C4FC4E1721E05E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35797.jpgsave_picture_35797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35797.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Snowy White - 29 Albums, 1 Box Set (1983 - 2024) 44 CD [FLAC|Lossless|image + .c
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35798.jpgsave_picture_35798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35798.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Beth Hart - 16 альбомов (1993 - 2024) 19 CD [FLAC|Lossless|image + .cue|
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35799.jpgsave_picture_35799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35799.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:2FAAD62ED86E642A5C387F73DD3C60283DB9913C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35800.jpgsave_picture_35800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35800.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:35F5D9A8DFC9BEB402F97467F220E66C27B027BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35801.jpgsave_picture_35801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35801.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:8B28939FEF20ED1FFD97FC739A91D41AA5224697
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35802.jpgsave_picture_35802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35802.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:1CE8223AAA525265A5C6560CEAE9BEF066C22B44
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35803.jpgsave_picture_35803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35803.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:3DC4E6BD3124247FEE0F5FE01E4A9316B61C0850
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35804.jpgsave_picture_35804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35804.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:2602E511147E037EA60D72E06A1B66CD6DBB61A3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35805.jpgsave_picture_35805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35805.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:4A6AD986173CD6EE60D513B741A5A1E16A6F0850
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35806.jpgsave_picture_35806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35806.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:30D813E69C75420B2E3AB61AA37046FDDE1AA9EE
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35807.jpgsave_picture_35807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35807.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ v2rayN 7.2.3 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35808.jpgsave_picture_35808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35808.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - 300 Greatest Rock Drum Perfomances (vol.1-2) (2008) [FLAC|Lossless]<All Sty
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35809.jpgsave_picture_35809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35809.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:8FBEFBB0E419344349F21848E4A379B82D105A04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35810.jpgsave_picture_35810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35810.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:5650967018064F84E1D17D75488F975FD517ABF5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35811.jpgsave_picture_35811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35811.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:5650967018064F84E1D17D75488F975FD517ABF5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35812.jpgsave_picture_35812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35812.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:7A03F2BCE77215DD6319AB33BE95ADCDFC56A44C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35813.jpgsave_picture_35813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35813.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:BAA679B02536B3FF5DBB9C6677586C64D7790B41
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35814.jpgsave_picture_35814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35814.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Defender Remover Portable 12.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35815.jpgsave_picture_35815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35815.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ ASKA (2024) [Ru/Multi] (1.4.2711242013) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35816.jpgsave_picture_35816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35816.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:9938C4367ECCBA2FC4B9D99F4E5C9B56E7BB58CF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35817.jpgsave_picture_35817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35817.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:F9B7D038C58496DE9E5A0DC34D437506B1E81299
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35818.jpgsave_picture_35818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35818.jpg" />
 </div>
 
 

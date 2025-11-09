@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233986.jpgsave_picture_233986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233986.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pocket 8.1.1.0 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233987.jpgsave_picture_233987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233987.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FreeFileSync 12.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233988.jpgsave_picture_233988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233988.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:27D9369CBD67599702628DB548BEDAD2A2E1940C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233989.jpgsave_picture_233989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233989.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:950329501048981924219700F1BE559B4CB2BEEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233990.jpgsave_picture_233990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233990.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Amazing Places (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233991.jpgsave_picture_233991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233991.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1605) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233992.jpgsave_picture_233992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233992.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Topaz Video AI 3.3.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233993.jpgsave_picture_233993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233993.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1131E806434585B968CF94E8B8E8233C225EF614
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233994.jpgsave_picture_233994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233994.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:FC38538B6CB06626D09720AC4CE5F08C6A958DF0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233995.jpgsave_picture_233995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233995.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ iObit Start Menu 8 6.0.02 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233996.jpgsave_picture_233996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233996.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:BBF64A90EB6769908F1A48AE8789D8796C5E3C91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233997.jpgsave_picture_233997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233997.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - What About Lounge, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233998.jpgsave_picture_233998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233998.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:4DEE900CF591E6B0B92EBF7B5A54F945D95F25DE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233999.jpgsave_picture_233999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233999.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:421B3CE39A2DF1C556CF0B0565E6A0A4C4998A56
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234000.jpgsave_picture_234000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234000.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:1D5A43439D0E534D1DAF5E64CF10ACEB57A1BEB9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234001.jpgsave_picture_234001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234001.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Crazy Hammer - Roll the Dice (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234002.jpgsave_picture_234002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234002.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ MAGIX Sound Forge Pro 16.1.2 Build 55 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234003.jpgsave_picture_234003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234003.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ FastStone Capture 10.1 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234004.jpgsave_picture_234004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234004.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Los Angeles Beach Lounge, Vol. 3 (2018) [AAC|~335 Kbps] <Chill Out, Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234005.jpgsave_picture_234005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234005.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:CC3A9ACB341F783546A92DD48240BF8C58C66E14
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234006.jpgsave_picture_234006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234006.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Creedence Clearwater Revival - Travelin' Band: Creedence Clearwater Revival At T
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234007.jpgsave_picture_234007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234007.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Slimjet 40.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234008.jpgsave_picture_234008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234008.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Gladenfold - Nemesis (2022) [MP3|320 Kbps] <Melodic Death Metal, Symphonic Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234009.jpgsave_picture_234009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234009.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Exmortus - The Sound Of Steel (2018) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234010.jpgsave_picture_234010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234010.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ AudKit Spotify Music Converter for Mac 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234011.jpgsave_picture_234011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234011.jpg" />
 </div>
 
 

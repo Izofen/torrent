@@ -6,7 +6,7 @@ Udemy, Keino Campbell, Esq. | TOEFL iBT (26+) Complete Preparation Course! (2022
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204582.jpgsave_picture_204582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204582.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:9A636E65828513F59A1E64ED6C2BC0C1346B2FB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204583.jpgsave_picture_204583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204583.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204584.jpgsave_picture_204584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204584.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Blank & Jones - Watching the Waves (Sunrise to Sunset) (2023) EP [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204585.jpgsave_picture_204585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204585.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:B984058DB1C6D63951836AE3E4BE3CD354731C29
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204586.jpgsave_picture_204586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204586.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Mushikaburi Hime | Bibliophile Princess | Принцесса-библиофил 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204587.jpgsave_picture_204587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204587.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204588.jpgsave_picture_204588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204588.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:5476D1BBE902BEB0CA40FDF1FFCCE0ABAB32C8CD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204589.jpgsave_picture_204589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204589.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:0AA1BAE84B9F342E26B91E44AD6F99D16B04E7DE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204590.jpgsave_picture_204590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204590.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:A28F918808A4A4C4FB5E21153FF04C67E216D057
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204591.jpgsave_picture_204591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204591.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:0F055CBBAB61E21204B2D3E1D2DDAE2A89864846
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204592.jpgsave_picture_204592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204592.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:17F88C823D0C326515A490B2337D4D4F969D2420
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204593.jpgsave_picture_204593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204593.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204594.jpgsave_picture_204594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204594.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:E7FB767921E81525773C87307F2958364E7A7CBB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204595.jpgsave_picture_204595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204595.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ K-Lite Codec Pack Update 17.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204596.jpgsave_picture_204596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204596.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:9091064F92AF35DBE0EB5EE21CCDE78AF45852A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204597.jpgsave_picture_204597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204597.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Word Surf v3.8.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204598.jpgsave_picture_204598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204598.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ YouTube ReVanced Extended 18.33.37 (RVP v2.188.2) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204599.jpgsave_picture_204599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204599.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:52BD93558F75C86E4758384BF6C163D91ADD5035
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204600.jpgsave_picture_204600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204600.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ WPS Office + PDF 18.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204601.jpgsave_picture_204601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204601.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B4D263DDD9A598A4614AEC7259190B4222B2DF4E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204602.jpgsave_picture_204602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204602.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:653C2B5B4C8460872AFF201C7C6924CE9F827709
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204603.jpgsave_picture_204603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204603.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:304101C98B12901C7BCAE6DA3C4AF206D51F639B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204604.jpgsave_picture_204604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204604.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:A2F7B6D1E1126C49A29020981385C429CEB2ED51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204605.jpgsave_picture_204605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204605.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:BD731254C7FDC8386AFC7849C135084393F0B1A5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204606.jpgsave_picture_204606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204606.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Foundry Nuke Studio 14.0v1 RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204607.jpgsave_picture_204607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204607.jpg" />
 </div>
 
 

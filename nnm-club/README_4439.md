@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138727.jpgsave_picture_138727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138727.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:91BE4A3F62F046A4B45E9B2E824C31B6637C5623
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138729.jpgsave_picture_138729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138729.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B78D148B732916F9D1ECEBAC6B8FD3B96DDAAC51
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138730.jpgsave_picture_138730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138730.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B03E49352D9913FD0F23F662065C86FC8D72EAA9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138732.jpgsave_picture_138732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138732.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Darren Hayes - Spin (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138733.jpgsave_picture_138733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138733.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:06BD30B7269D92B2C762DA5DA14608940CEFE7E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138734.jpgsave_picture_138734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138734.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138735.jpgsave_picture_138735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138735.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ SamDrivers 20.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138737.jpgsave_picture_138737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138737.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:44D3ABD67D5E513F6945B016977536D38E8B6A02
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138739.jpgsave_picture_138739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138739.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:44D3ABD67D5E513F6945B016977536D38E8B6A02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138740.jpgsave_picture_138740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138740.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9864CE736676EA399FF829FE5D3EC5F3618AE9A6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138741.jpgsave_picture_138741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138741.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:030932F35276928B5150B077906FEB27DEA12C3D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138742.jpgsave_picture_138742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138742.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:84C1EC15803684A5B455F85B8502DB8F8CF59F02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138743.jpgsave_picture_138743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138743.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:BAD70980BBD00DF32F9513189A89CADBE9CCB230
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138746.jpgsave_picture_138746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138746.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:11EE85E5A7B1AC281268B79553E4F24C290B26F2
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138747.jpgsave_picture_138747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138747.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:DE47B683A6A0A468BCC7338AE8A115137E23ABE8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138748.jpgsave_picture_138748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138748.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:E84200D62C0D7DD55664B1D2A3B78B64930796E3
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138749.jpgsave_picture_138749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138749.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138751.jpgsave_picture_138751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138751.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Tor Bridges Updater 0.1.5 Portable [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138752.jpgsave_picture_138752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138752.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MediaInfo 0.7.81 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138755.jpgsave_picture_138755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138755.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:486869584F3C5BB276961705BA641FBC1CCE1233
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138756.jpgsave_picture_138756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138756.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:ADC9C96D23C885925F78C97EA88D5AD3E8BD7717
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138757.jpgsave_picture_138757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138757.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:4D31869725BDF01B6CFC06B726CF8C7697C348DA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138758.jpgsave_picture_138758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138758.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ SolidWorks 2024 SP0.1 Premium RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138759.jpgsave_picture_138759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138759.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Bon Jovi - This Left Feels Right (2003) SACD [FLAC|Lossless|tracks + .cue] <Aren
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138760.jpgsave_picture_138760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138760.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DE440350F753647BCF83C2E750B803CB04128B2D
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138761.jpgsave_picture_138761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138761.jpg" />
 </div>
 
 

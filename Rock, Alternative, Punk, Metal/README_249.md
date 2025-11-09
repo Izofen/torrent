@@ -6,7 +6,7 @@ Black Sabbath - 19 Studio Albums, 7 Live Albums, 17 Compilations, 12 Singles EPs
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159463.jpgsave_picture_159463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159463.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ King Crimson - In the Court of the Crimson King: King Crimson at 50 (Music from 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159567.jpgsave_picture_159567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159567.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tommy Vext - 3 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159578.jpgsave_picture_159578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159578.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ System Of A Down - System Of A Down (2011) 5xCD, Box Set, Compilation [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159581.jpgsave_picture_159581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159581.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Terror - Always the Hard Way (2006) [FLAC|Lossless|image + .cue] <Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159582.jpgsave_picture_159582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159582.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Severals - Algorithm (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159588.jpgsave_picture_159588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159588.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wolfcross - From the North (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159599.jpgsave_picture_159599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159599.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Arch Enemy - Deceivers (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159608.jpgsave_picture_159608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159608.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Runelord - 3 Albums (2018-2022) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159626.jpgsave_picture_159626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159626.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FB5E0A10B01A4E577B47A90FF0AEEBC7A93246D6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159630.jpgsave_picture_159630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159630.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ In Flames - I, the Mask (2019) [FLAC 2.0|44/24|tracks|WEB-DL] <Melodic-Groove, M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159640.jpgsave_picture_159640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159640.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Majestica - Above The Sky (2019) Japanese Edition [WavPack|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159646.jpgsave_picture_159646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159646.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Aerosmith - Rocks (1976) Reissue, 2000, Columbia [OGG Vorbis|480 Kbps] <Rock, Cl
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159650.jpgsave_picture_159650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159650.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Howard - Event Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159651.jpgsave_picture_159651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159651.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:73FF4B228FAD3A042A87BD03665D29690EF3097A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159652.jpgsave_picture_159652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159652.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ CREATOR'S - Состояние (2022) [MP3|320 Kbps] <Metalcore, Electronic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159657.jpgsave_picture_159657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159657.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kanatami - IV (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159658.jpgsave_picture_159658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159658.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Supruga - Смерть культуры (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159661.jpgsave_picture_159661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159661.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ BadTrip Boys - Первый (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159664.jpgsave_picture_159664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159664.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ IceHammer - Печать ночных штормов (2022) [FLAC|Lossless|WEB-D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159665.jpgsave_picture_159665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159665.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ DeathAwaits - XX (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Metal, Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159668.jpgsave_picture_159668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159668.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Choke Out - Mechanized Order (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Be
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159669.jpgsave_picture_159669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159669.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Witness Effect - WE (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159671.jpgsave_picture_159671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159671.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Iggy Pop - Apres (2012) 10th Anniversary Edition, 2022, GM Records [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159715.jpgsave_picture_159715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159715.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:AB71238ACDA2F3BB1A60B0AE94181F2D2A7C3331
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159739.jpgsave_picture_159739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159739.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:C992AE91D6BCFDC06E22C5B702F6366994C23B25
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159745.jpgsave_picture_159745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159745.jpg" />
 </div>
 
 

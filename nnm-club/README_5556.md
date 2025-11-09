@@ -6,7 +6,7 @@ Bragging Rights - Orphan Source (2023) [MP3|320 Kbps] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171442.jpgsave_picture_171442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171442.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Unite 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171443.jpgsave_picture_171443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171443.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Game Over - Hellframes (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171444.jpgsave_picture_171444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171444.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ System Dashboard Pro 1.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171445.jpgsave_picture_171445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171445.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Elvin Jones And Richard Davis - Heavy Sounds (1968) 1987, Warner [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171446.jpgsave_picture_171446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171446.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Don Friedman - Hot House (2004) Chiaroscuro Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171447.jpgsave_picture_171447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171447.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171448.jpgsave_picture_171448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171448.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ MInstAll v.21.10.2023 By Andreyonohov (Unpacked) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171449.jpgsave_picture_171449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171449.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:F08369A0AD25E8BB8FABFFAF0431C112335987E4
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171450.jpgsave_picture_171450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171450.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:B66294BDA1A5ABA06E2EF98E6D78743A703F5B87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171451.jpgsave_picture_171451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171451.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:B66294BDA1A5ABA06E2EF98E6D78743A703F5B87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171452.jpgsave_picture_171452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171452.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:8DAEE82AD9CDA9E267B32B50219511D17A97BC27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171453.jpgsave_picture_171453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171453.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:8DAEE82AD9CDA9E267B32B50219511D17A97BC27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171454.jpgsave_picture_171454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171454.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:1EB1D264C9DC99DDAE211A40715F1661CC511627
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171455.jpgsave_picture_171455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171455.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:9FAA9EE3945EE393BEE9BDA80AC643341730F01D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171456.jpgsave_picture_171456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171456.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:B86B1D37CC841BBB5442C264A909B7B94CB64011
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171457.jpgsave_picture_171457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171457.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:856325F52E81783D6DB745674733550A77095DA5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171458.jpgsave_picture_171458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171458.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ F-Secure Freedome VPN 2.69.35.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171459.jpgsave_picture_171459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171459.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:0BB045F063618FDA6ADF284C7CBC47317997D9ED
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171460.jpgsave_picture_171460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171460.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:0BB045F063618FDA6ADF284C7CBC47317997D9ED
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171461.jpgsave_picture_171461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171461.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:7689B3D64E16C4488E052089A431BBB5EA1A38FE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171462.jpgsave_picture_171462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171462.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171463.jpgsave_picture_171463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171463.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Stepik, Sergey Romanenko | JavaScript Базовый уровень (2023) [unpa
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171464.jpgsave_picture_171464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171464.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:03F2ABD45619F5A9619C817887C21D2E2DB16C1F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171465.jpgsave_picture_171465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171465.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Hero Survival (2023) [Ru/En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171466.jpgsave_picture_171466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171466.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:00EBEFAECA8D9E0F424340E67192CC2F58A1F2A1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171467.jpgsave_picture_171467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171467.jpg" />
 </div>
 
 

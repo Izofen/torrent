@@ -6,7 +6,7 @@ Chris Norman - Full Circle (1999) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156872.jpgsave_picture_156872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156872.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Living End - Modern Artillery (2003) [FLAC|Lossless|image + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156882.jpgsave_picture_156882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156882.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mother Turtle - II (2016) [FLAC|Lossless|tracks] <Eclectic Prog>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156890.jpgsave_picture_156890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156890.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Royal Hunt - 15 Albums, 3 Compilations, 5 Lives, 6 Singles & EP (1992-2020) 36CD
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156924.jpgsave_picture_156924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156924.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Radio Sun - Heaven Or Heartbreak (2015) [MP3|320 кб/с] <Melodic Rock, AOR
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157018.jpgsave_picture_157018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157018.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gates of Ishtar - At Dusk and Forever (1998) Japanese Ed. [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157023.jpgsave_picture_157023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157023.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Black Sabbath - The End (2017) Live, 3CD, Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157078.jpgsave_picture_157078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157078.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:2B3006676C8DC5A4AC8FC28F7ADFFB8FB5199319
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157114.jpgsave_picture_157114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157114.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ All The Cold - To The Emerald Land (2020) [FLAC|Lossless|Web-DL|tracks] <Atmosph
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpgsave_picture_157174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157174.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|image + .cue] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157200.jpgsave_picture_157200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157200.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Warpig - Warpig (1970) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157203.jpgsave_picture_157203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157203.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Riot - Archives Volume 5 : 1992-2005 (2020) 2CD [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157209.jpgsave_picture_157209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157209.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Slade - And Now the Waltz(es) (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157214.jpgsave_picture_157214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157214.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lipshok - Shadows Of A Dark Heart (2020) [MP3|320 Kbps] <Gothic Metal, Gothic Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157223.jpgsave_picture_157223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157223.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Electric Mob - Discharge (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157251.jpgsave_picture_157251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157251.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:7202403549B44BCEB0F1417AC0E20A2CD679E9B4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157257.jpgsave_picture_157257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157257.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Landfall - The Turning Point (2020) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157325.jpgsave_picture_157325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157325.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ All the Cold - To the Emerald Land (2020) [MP3|320 Kbps] <Instrumental Music, At
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157338.jpgsave_picture_157338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157338.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157345.jpgsave_picture_157345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157345.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Chevelle - Stray Arrows - A Collection Of Favorites (2012) [MP3|320 kbps] <Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157355.jpgsave_picture_157355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157355.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Riot - Rock World-Rare & Unreleased 87-95 (2020) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157362.jpgsave_picture_157362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157362.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ ZveroБой (Зверобой) - Война за мир (2016) [MP3|320 Kbps] <R
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157405.jpgsave_picture_157405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157405.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpgsave_picture_157441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Jef Bek - Distant Starlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157442.jpgsave_picture_157442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157442.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:560ACD35333D88EC22AF832A0E4FF68E18E73095
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157452.jpgsave_picture_157452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157452.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ magnet:?xt=urn:btih:FAC2EB4F9A5E3102E1F448812AFE55F728888B5A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157465.jpgsave_picture_157465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157465.jpg" />
 </div>
 
 

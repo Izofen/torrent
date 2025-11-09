@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156289.jpgsave_picture_156289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156289.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C8FF785AF448AE99C73B6C8AB59804CB6F942AAF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156290.jpgsave_picture_156290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156290.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Redout (2016) [Ru/Multi] (1.6.0/dlc) License PLAZA [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156291.jpgsave_picture_156291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156291.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BDFE0A38E2B2A0F0F8FAD4CD614B454613AA933E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156293.jpgsave_picture_156293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156293.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BD0EC61462E3DD3CAF336B77A19CF903257966AF
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156294.jpgsave_picture_156294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156294.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Resolutionator 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156295.jpgsave_picture_156295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156295.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:C542EC3956330AF88F31BD1EA177FC5DFB098C84
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156296.jpgsave_picture_156296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156296.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:861E71D16F6109374948D456665F47F89CC92B2D
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156297.jpgsave_picture_156297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156297.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:B12546D39330B267B68D24D6CBB5C286A0A364F4
 >>Отечественные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156299.jpgsave_picture_156299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156299.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Rogue Amoeba Farrago 1.6.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156300.jpgsave_picture_156300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156300.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.33130.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156302.jpgsave_picture_156302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156302.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:4DD45A38057016B138DDC2B6CA2D1543D64431D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156303.jpgsave_picture_156303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156303.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Human: Fall Flat (2016) [Ru/Multi] (842523) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156304.jpgsave_picture_156304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156304.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ottawan - Ottawan 2 (1981) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156306.jpgsave_picture_156306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156306.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:5C62F7703E7B8587D5C8DD05B6E9897A6655DA30
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156307.jpgsave_picture_156307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156307.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Tensei Shitara Ken Deshita | О моём перерождении в меч | Re
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156308.jpgsave_picture_156308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156308.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Erroll Garner - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156309.jpgsave_picture_156309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156309.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:F45D07432298A014B853A534BD3BE05DE12905D9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156310.jpgsave_picture_156310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156310.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:56120A860721656529F47B701528DE7C08F6FD42
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156312.jpgsave_picture_156312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156312.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156313.jpgsave_picture_156313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156313.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Gangnam Style Compilation (2012) [MP3|~245 кб/с (V0)]<Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156314.jpgsave_picture_156314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156314.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Ibiza Chill Vibes, Vol. 2 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156315.jpgsave_picture_156315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156315.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:C023072EEA2A829C68DA6A491F0A01C1D981CF0F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156316.jpgsave_picture_156316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156316.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C023072EEA2A829C68DA6A491F0A01C1D981CF0F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156317.jpgsave_picture_156317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156317.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:BB52AF926B88FA7C51FBB268149A6DCF9B652263
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156319.jpgsave_picture_156319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156319.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Capture One 20 Pro 13.1.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156320.jpgsave_picture_156320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156320.jpg" />
 </div>
 
 

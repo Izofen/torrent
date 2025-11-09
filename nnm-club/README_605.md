@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16042.jpgsave_picture_16042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16042.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ED3D713E4E20CC23CBDECAB3682E8B6B53F3F28A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16043.jpgsave_picture_16043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16043.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D0A0AD72E0A0060DD20C1DC1E643695C134F3AC9
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16044.jpgsave_picture_16044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16044.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16045.jpgsave_picture_16045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16045.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CCFF63B4332F964071CD47FB2FB39FF9110DB551
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16046.jpgsave_picture_16046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16046.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5387324BD30D639FDCC90904D6B71DD54C0A3D4B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16047.jpgsave_picture_16047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16047.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E14C0EC572C1FEC7E26D1462B77CCE8A9183CE69
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16048.jpgsave_picture_16048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16048.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E14C0EC572C1FEC7E26D1462B77CCE8A9183CE69
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16049.jpgsave_picture_16049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16049.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E14C0EC572C1FEC7E26D1462B77CCE8A9183CE69
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16050.jpgsave_picture_16050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16050.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Canned Heat - 52 Albums (1967 - 2024) (68 CD) [FLAC|Lossless|image + .cue|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16051.jpgsave_picture_16051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16051.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:5CC80DDD4B957CC08D43FBC7BCC1AA6FB462BAAB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16052.jpgsave_picture_16052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16052.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:DFFAF1AA0B47589698EC049B09F3177952DDDF94
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16053.jpgsave_picture_16053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16053.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E15F2AF5D6C0D28B77E0A1C4DE95D91558220872
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16054.jpgsave_picture_16054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16054.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:C16D3F4665A2A52C1CDE476D09D39516B869D640
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16055.jpgsave_picture_16055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16055.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B798BF669B7D590639CC4C776E21B0112DDAF5A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16056.jpgsave_picture_16056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16056.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:F488501606B6205363EC4D95FDFFCCA61EA06B62
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16057.jpgsave_picture_16057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16057.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A7EBA1966436F73E46F076D9A4B6905C9797062E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16058.jpgsave_picture_16058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16058.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Sonible smart:EQ 4 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16059.jpgsave_picture_16059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16059.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:F336C79746E313F7D42B5968EB0479844403D42C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16060.jpgsave_picture_16060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16060.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Rivers of Nihil - Дискография (7 releases) (2010-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16061.jpgsave_picture_16061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16061.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Golf With Your Friends (2020) [Ru/Multi] (19.981700/dlc) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16062.jpgsave_picture_16062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16062.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Music News For Forum vol.095 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16063.jpgsave_picture_16063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16063.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:8CD9E2C37408D481187F54341ADD5C8E0D965E13
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16064.jpgsave_picture_16064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16064.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Beatsurfing - CHEat Code 1.1.1 VST, VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16065.jpgsave_picture_16065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16065.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Mind Echoes 2: Remnants of the Past (2025) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16066.jpgsave_picture_16066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16066.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:4990B48A98E3249F0703D41253C8A8027CC0EEE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16067.jpgsave_picture_16067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16067.jpg" />
 </div>
 
 

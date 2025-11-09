@@ -6,7 +6,7 @@ Bayou Boogie House - Blues on Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101280.jpgsave_picture_101280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101280.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Beware Of Darkness - Lose Your Mind, Gain Your Soul (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101282.jpgsave_picture_101282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101282.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Johnson's Bridge - Line of Sight (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101283.jpgsave_picture_101283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101283.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jason Craig Wilkins - Find Me Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101284.jpgsave_picture_101284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101284.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Effie Zilch - Multitudes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101285.jpgsave_picture_101285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101285.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101286.jpgsave_picture_101286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101286.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Godless men - Awakened by the wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101287.jpgsave_picture_101287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101287.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Deep South - Entering Deep (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101288.jpgsave_picture_101288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101288.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B7E36DCCC2B87BFC2F9A2EA79D8B40C48A6B2835
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101297.jpgsave_picture_101297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101297.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ultraboss - Slow Motion Rider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101302.jpgsave_picture_101302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101302.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mr Mountain - Mr Mountain (Remixed & Remastered 2024) (2024) [FLAC 24/192|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101309.jpgsave_picture_101309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101309.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Purple Disco Machine - Club Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101316.jpgsave_picture_101316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101316.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rival Sons - Pair of Aces, Pt. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101328.jpgsave_picture_101328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101328.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Roberta Flack - Chapter Two (1970) 50th Anniversary Edition, Remaster, 2021, Rhi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101329.jpgsave_picture_101329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101329.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Letdown. - Be OK (Continued) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101333.jpgsave_picture_101333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101333.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Illusion Force - Halfana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101334.jpgsave_picture_101334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101334.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stevie And The Amayumi Band - I Like Your Style (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101335.jpgsave_picture_101335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101335.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mörk Gryning - Fasornas Tid (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101336.jpgsave_picture_101336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101336.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World_ Troxy London MMXXIV 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101345.jpgsave_picture_101345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101345.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Electric Wizard - Black Magic Rituals & Perversions Vol. 1 (Live Walpurgisnacht 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101353.jpgsave_picture_101353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101353.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101393.jpgsave_picture_101393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101393.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Violet - Mysteria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101394.jpgsave_picture_101394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101394.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Blue Oyster Cult - 50th Anniversary Live - Third Night (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101396.jpgsave_picture_101396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101396.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101397.jpgsave_picture_101397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101397.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Reviver - Carnival of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101398.jpgsave_picture_101398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101398.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Trouble County - Blacken the Sky (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101399.jpgsave_picture_101399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101399.jpg" />
 </div>
 
 

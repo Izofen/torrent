@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145402.jpgsave_picture_145402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145402.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - 300 знаменитых хитов ВИА СССР (15CD) (1970-1989) (201
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145403.jpgsave_picture_145403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145403.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0C762789BA289506B0B1F95D694B21BC42452417
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145404.jpgsave_picture_145404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145404.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B7682E24F1C52F59B1555EB5793F93542285FCB0
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145405.jpgsave_picture_145405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145405.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ ScreenToGif 2.35.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145407.jpgsave_picture_145407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145407.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:76B8AC7335C5615E7089A0EB9B7B6C121A6024CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145408.jpgsave_picture_145408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145408.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:797AD1409875E606391DD7B6748A44DB7DB2C968
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145409.jpgsave_picture_145409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145409.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Aiseesoft Screen Recorder 2.9.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145410.jpgsave_picture_145410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145410.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:7A7DBAE4D347E215B0187B69410D50119D518581
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145411.jpgsave_picture_145411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145411.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:0D52733E1DCA3C39468AF40E5E861C8551EC576F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145412.jpgsave_picture_145412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145412.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Adler (ex-Guns N' Roses) - Back From The Dead (2012) [FLAC|Lossless]<Hard Rock /
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145413.jpgsave_picture_145413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145413.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Взрывной Хит-Парад выпуск № 4 (2016) [MP3|256 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145414.jpgsave_picture_145414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145414.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:B180E44F61D8FEFA1773BE28C79677D2A8C800E5
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145415.jpgsave_picture_145415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145415.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:25C0E69860DE42688C3344FC106FCF059419779F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145416.jpgsave_picture_145416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145416.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Chris Rea - The Road To Hell (Parts 1 & 2) (1989) CDS [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145418.jpgsave_picture_145418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145418.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Age of Civilizations II 1.01584_ELA [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145419.jpgsave_picture_145419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145419.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Firefox Browser 120.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145420.jpgsave_picture_145420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145420.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:9BD7C8316FD4A0A58459E15B5F8EE7F37A06123B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145421.jpgsave_picture_145421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145421.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:C9C165E99F60D38632428B9B823CC65028CD76D9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145424.jpgsave_picture_145424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145424.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Kerrang! Ultimate Rock Heroes! (2015) [MP3|320 кб/с] <Alternative Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145425.jpgsave_picture_145425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145425.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Xentry PassThru 12.2020 28.9.2.3 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145426.jpgsave_picture_145426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145426.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:A4A959B0D5F446A8261B0BF87F9D5E0C2578B32E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145428.jpgsave_picture_145428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145428.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:F691643199DC1273586F6541C4C4185F926EED4A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145429.jpgsave_picture_145429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145429.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Melon VPN - Secure Proxy VPN 7.9.612 Mod By Derrin [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145430.jpgsave_picture_145430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145430.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:7C33CEF9837B440B182ABB9052EFE7A72C0C31F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145431.jpgsave_picture_145431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145431.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:0E6E569AC58CCE62C2AB45DE763030860D1DE02A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145432.jpgsave_picture_145432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145432.jpg" />
 </div>
 
 

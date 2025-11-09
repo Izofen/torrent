@@ -6,7 +6,7 @@ Inazuma Eleven: Ares no Tenbin | Одиннадцать Молний: Весы �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106031.jpgsave_picture_106031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106031.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106032.jpgsave_picture_106032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106032.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:40DAEFE5F167DEAA49809192F19913C6171AF76B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106033.jpgsave_picture_106033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HY-Plugins - HY-Filter4 1.1.62 VST, VST 3 (x86/x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106034.jpgsave_picture_106034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106034.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ DVDFab StreamFab 6.1.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106035.jpgsave_picture_106035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106035.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Radiant Photo 1.4.1.501 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106036.jpgsave_picture_106036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106036.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Firefox Browser 128.0.3 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106037.jpgsave_picture_106037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106037.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Benvista PhotoZoom Pro 9.0.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106038.jpgsave_picture_106038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106038.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106039.jpgsave_picture_106039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106039.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Ant Download Manager Pro 2.13.0 Build 87959 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106040.jpgsave_picture_106040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106040.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106041.jpgsave_picture_106041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106041.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:D307DC1E49AEC4BF58CF156653E719242D765941
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106042.jpgsave_picture_106042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106042.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Darktable 4.8.1 Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106043.jpgsave_picture_106043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106043.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ WinMerge 2.16.42.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106044.jpgsave_picture_106044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106044.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Crystal Shard Adventure Bundle (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106045.jpgsave_picture_106045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106045.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Остров Сокровищ или В стиле Шансон часть 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106046.jpgsave_picture_106046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106046.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106047.jpgsave_picture_106047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106047.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Warm Melodies And Rhythms (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106048.jpgsave_picture_106048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106048.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:7C3A1704B5E093EC4709E4B2AFF1D97133A7DD46
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106049.jpgsave_picture_106049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106049.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Sumatra PDF 3.6.16506 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106050.jpgsave_picture_106050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106050.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:74E90E2DDE3E5D1E106D3DDA46B08E58ED1453E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106051.jpgsave_picture_106051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106051.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tablacus Explorer 24.7.28 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106052.jpgsave_picture_106052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106052.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:5E139AEF6D41BF92D41C12E8E4AE3A4CAE4E6048
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106053.jpgsave_picture_106053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106053.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - RnB Soulful Collection (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106054.jpgsave_picture_106054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106054.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Hare Krishna Каждый день - Твой день! (2024) [MP3|320 Kbp
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106055.jpgsave_picture_106055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106055.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Darktable 4.8.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106056.jpgsave_picture_106056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106056.jpg" />
 </div>
 
 

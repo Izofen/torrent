@@ -6,7 +6,7 @@ VA - Planet Dance Music: Euromix Energia Total (2019) [MP3|320 Kbps] <Dance, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168965.jpgsave_picture_168965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168965.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Message Of The Dark Angel (2023) [MP3|320 Kbps] <Death, Black, Heavy Me
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168966.jpgsave_picture_168966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168966.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:41F251A0EA60E2FC158886B3BE2448AFDBB4ECC7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168967.jpgsave_picture_168967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168967.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Apocalypse Blues Revival - The Apocalypse Blues Revival (2020) [MP3|320 Kbps
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168968.jpgsave_picture_168968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168968.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:A8F0A31E040B1E8507685A7A3F73F62F293D67D8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168969.jpgsave_picture_168969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168969.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:D197B087FA6714FB9C630D42036791512F44D8DB
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168970.jpgsave_picture_168970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168970.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - 50 Hits Winter 2020 (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168971.jpgsave_picture_168971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168971.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ SophiApp 1.0.90 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168972.jpgsave_picture_168972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168972.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ ZZ Top - 5 Studio albums (1994-2012) hand made [restored, declipped] [FLAC|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168973.jpgsave_picture_168973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168973.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:840F1C5C9B785A41B4DDB0A71C45C16FDAC70195
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168974.jpgsave_picture_168974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168974.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:2DDCE53E8FD4533214B47DFE4F195FF5853D3705
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168975.jpgsave_picture_168975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168975.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:C33B3939D7327E29CEDA7597CBF69C0365D68E43
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168976.jpgsave_picture_168976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168976.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4ABE470642CBE3AC2F6C2D99536F8A2128708640
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168977.jpgsave_picture_168977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168977.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:FE7323ED3CF405F256368D47882DF54671B49C19
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168978.jpgsave_picture_168978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168978.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Delta Goodrem - Compilation (2022) [MP3|320 Kbps] <Pop, Vocal>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168979.jpgsave_picture_168979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168979.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:BE04E498FCCD5D7CA3BFEF12F7F737CDCBFF2476
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168980.jpgsave_picture_168980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168980.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ DW Contacts & Phone & SMS 3.2.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168981.jpgsave_picture_168981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168981.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:58B17197A993022565E82903107D6DBB29F22DEE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168982.jpgsave_picture_168982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168982.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:2DEF2E8E9D3A46F3A3E6344CCA9D89798A5D1E39
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168983.jpgsave_picture_168983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168983.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:FB6CE26B19C63D5B4B079D551424DFEE3DE2592C
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168984.jpgsave_picture_168984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168984.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - Brunsviger Blues (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168985.jpgsave_picture_168985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168985.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:6ADE72C70C5C1C0D830C0B94B04F9FDB1D2C6A64
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168986.jpgsave_picture_168986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168986.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:334C98B2D94A6FC0A95AF26CEB1F5C78D2046378
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168987.jpgsave_picture_168987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168987.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Live Home 3D Pro Edition 4.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168988.jpgsave_picture_168988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168988.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Emin - Девочка моя (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168989.jpgsave_picture_168989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168989.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ A'Studio - A’21 (2022) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168990.jpgsave_picture_168990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168990.jpg" />
 </div>
 
 

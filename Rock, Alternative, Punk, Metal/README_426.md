@@ -6,7 +6,7 @@ Ancient Wisdom - A Celebration in Honor of Death (2021) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236908.jpgsave_picture_236908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236908.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heartbreak Remedy - 3 Albums (2015-2023) [MP3|320 Kbps] <Classic Rock, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236924.jpgsave_picture_236924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236924.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Black Reflex - Black Reflex (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236945.jpgsave_picture_236945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236945.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hex A.D. - Funeral Tango for Gods & Men (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236953.jpgsave_picture_236953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236953.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Hit - List Vol 20 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236967.jpgsave_picture_236967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236967.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Rock Festival 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236978.jpgsave_picture_236978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236978.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Running - Retro Rock Mix - You Can Do This! (2023) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236982.jpgsave_picture_236982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236982.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Max Enix - Far From Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236991.jpgsave_picture_236991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236991.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Just Good Music: Rock Mix (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236997.jpgsave_picture_236997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236997.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Andy Baum & The Trix - Extra Feathers (1991) [FLAC|Lossless|image + .cue] <Soft 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237000.jpgsave_picture_237000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237000.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Catalyst Crime - Catalyst Crime (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237004.jpgsave_picture_237004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237004.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Striking Tunes Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237006.jpgsave_picture_237006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237006.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ White Denim - Relaxed (2023) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237016.jpgsave_picture_237016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237016.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Coinmen - Wasting Daylight (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237017.jpgsave_picture_237017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237017.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Trauma - Ominous Black (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237025.jpgsave_picture_237025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237025.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Striking Tunes Vol 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237032.jpgsave_picture_237032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237032.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cannabis Corpse - Choice Nugs (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237041.jpgsave_picture_237041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237041.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ White Lion - Fight to Survive (1985) Japan [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237050.jpgsave_picture_237050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237050.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Hit - List Vol 18 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237055.jpgsave_picture_237055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237055.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Striking Tunes Vol 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237063.jpgsave_picture_237063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237063.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Toledo Steel - Heading For The Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237075.jpgsave_picture_237075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237075.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Michael Thompson Band - The Love Goes On (2023) [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237092.jpgsave_picture_237092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237092.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Numenor - Draconian Age (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237101.jpgsave_picture_237101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237101.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sensimillia - Strike by the Hour (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237142.jpgsave_picture_237142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237142.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Dakota - Runaway (1984) Reissue, 2002, AORchives [FLAC|Lossless|image + .cue] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237148.jpgsave_picture_237148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237148.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Enforcer - Zenith (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237155.jpgsave_picture_237155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237155.jpg" />
 </div>
 
 

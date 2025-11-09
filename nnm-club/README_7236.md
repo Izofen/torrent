@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247387.jpgsave_picture_247387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247387.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2168) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247388.jpgsave_picture_247388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247388.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C0C64DE07AB6E53EAA2106FE3423A6629B15B5A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247389.jpgsave_picture_247389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247389.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9D035610F0240193DFA43524A1BE51B46539B2E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247390.jpgsave_picture_247390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247390.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:444D05E3F6B8B761B96EBBFE6530FEBFD95515C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247391.jpgsave_picture_247391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247391.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8B66D6D1A4B4B6AE8031DB54207C99D343FF8BFD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247392.jpgsave_picture_247392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247392.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ A Game of Thrones: The Board Game (2020) [Multi] (1.1.0.1494/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247393.jpgsave_picture_247393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247393.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:2996BFA9A5FC7EA61B13020B5029187420C19C2F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247394.jpgsave_picture_247394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247394.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:137B3EA721360F658407EC20F966480FE39813F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247395.jpgsave_picture_247395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247395.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3AC470DE6042B4208BF15E2A47A5B5C0D36CFE4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247396.jpgsave_picture_247396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247396.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Windows 10 21H2 Enterprise 2021 LTSC [19044.3086] x64 Mod 8 (22.06.2023) by buly
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247397.jpgsave_picture_247397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247397.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:64C3B613E0D895E8950CF26455DF23BC2A39B09E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247398.jpgsave_picture_247398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247398.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F4CB8A36279EA993EA70D2CD3C4542F084000A9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247399.jpgsave_picture_247399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247399.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:9A7C3D839D2DCEF7C1EEC8F60B96F1151C3C378D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247400.jpgsave_picture_247400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247400.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ WhatsApp (outdated) 2.2326.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247401.jpgsave_picture_247401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247401.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:8E341273A7EF3A599E4319256D28D7093AA5882C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247402.jpgsave_picture_247402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247402.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:AF709CCEF564F2A8D4DCBBCEC3A1B51F359746BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247403.jpgsave_picture_247403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247403.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:D8E396CB0F6E0102E2FED75B57315147FA72FA85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247404.jpgsave_picture_247404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247404.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247405.jpgsave_picture_247405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247405.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247406.jpgsave_picture_247406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247406.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Adobe InDesign 2023 18.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247407.jpgsave_picture_247407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247407.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ AVG AntiVirus Free 23.5.3286 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247408.jpgsave_picture_247408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247408.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Udemy, Ardit Sulce | Python Mega Course: Learn Python in 60 Days, Build 20 Apps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247409.jpgsave_picture_247409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247409.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A154A9444D1213539F8CB8F9286A394CD4E930A8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247410.jpgsave_picture_247410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247410.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:C7CFA5FAA5F6132A329500CF962EB8F9407B6879
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247411.jpgsave_picture_247411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247411.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:A054B712976435A9F977F3035091F872388DCED5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247412.jpgsave_picture_247412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247412.jpg" />
 </div>
 
 

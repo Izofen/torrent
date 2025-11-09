@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234357.jpgsave_picture_234357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234357.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.8 Stable RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234358.jpgsave_picture_234358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234358.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Jeff Coffin - Between Dreaming And Joy (2022) Ear Up Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234359.jpgsave_picture_234359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234359.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ LibreWolf 113.0-3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234360.jpgsave_picture_234360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234360.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ DxO FilmPack 6.2.0 Build 255 Elite [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234361.jpgsave_picture_234361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234361.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:0093868D4D106FCE7FAB8AAD8B2C9BDF47F86D54
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234362.jpgsave_picture_234362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234362.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Sunborn - Imperishable (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234363.jpgsave_picture_234363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234363.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Seasonality Core 2.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234364.jpgsave_picture_234364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234364.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Gas Mask 0.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234365.jpgsave_picture_234365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234365.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:C1BEF3331AABB383EEE5BF6C62F3D9CF7B7E9429
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234366.jpgsave_picture_234366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234366.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ The Defiants - Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234367.jpgsave_picture_234367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234367.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:6740E2B286EA851CBFF0F774449C238D44CD8664
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234368.jpgsave_picture_234368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234368.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234369.jpgsave_picture_234369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234369.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Mp3tag 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234370.jpgsave_picture_234370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234370.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ TechSmith Camtasia 2022 Studio 2022.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234371.jpgsave_picture_234371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234371.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:6E1F7C3011B34909629AA6F7749D620B508BE38C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234372.jpgsave_picture_234372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234372.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:B4829F35235CB18A35FCBE515B330B7E8C9A7B55
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234373.jpgsave_picture_234373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234373.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - female rock, blues rock part  27 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234374.jpgsave_picture_234374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234374.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Cтарец Иосиф Ватопедский | От смерти к жизни 
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234375.jpgsave_picture_234375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234375.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:9EED074CFE5F803B1E0E9B67DA2428832F48AC1C
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234376.jpgsave_picture_234376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234376.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Slog - Graves (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234377.jpgsave_picture_234377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234377.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:CBD110738952354947C8C98A3473D5CA9A794481
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234378.jpgsave_picture_234378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234378.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Aiseesoft Video Converter Ultimate 10.7.10 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234379.jpgsave_picture_234379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234379.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:5A6FB3E702C2C41E4B8E33561186C1B72CE59169
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234380.jpgsave_picture_234380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234380.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:461AF367B7BE24BAA59E295637D6EBFFC8C9E8BE
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234381.jpgsave_picture_234381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234381.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Selwyn Birchwood - Exorcist (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234382.jpgsave_picture_234382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234382.jpg" />
 </div>
 
 

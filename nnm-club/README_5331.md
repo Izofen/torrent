@@ -6,7 +6,7 @@ Doctor Smoke - Dreamers and the Dead (2021) [FLAC|Lossless|image + .cue] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165438.jpgsave_picture_165438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165438.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:74C149762DF4A638808FC4C973152FA3BCE6A45E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165439.jpgsave_picture_165439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165439.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0CE08D5892B076BB50DF93957CC05C6BC63DA3C6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165440.jpgsave_picture_165440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165440.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Tempomate 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165441.jpgsave_picture_165441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165441.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2C3A50BEF0F96D193A04BF422ED211D68CF6B542
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165442.jpgsave_picture_165442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165442.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DE75AEE64C602691EFACE434547A001676768B6C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165443.jpgsave_picture_165443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165443.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:78B43AE07E0EFF4B43D22E1F1FC24C3044ED85DC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165444.jpgsave_picture_165444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165444.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:8372E4C44AF09B53317501EE00D4C299287E3C70
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165445.jpgsave_picture_165445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165445.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ MacPilot 12 v12.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165446.jpgsave_picture_165446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165446.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Domestika, Mattey | Cinema 4D Создавайте яркие 3D иллюстр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165447.jpgsave_picture_165447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165447.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D6A8FE7069EF8BD6917F7A08CEF240E29CD83F2D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165448.jpgsave_picture_165448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165448.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Data Guardian 6 v.6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165449.jpgsave_picture_165449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165449.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Mimestream 1.1.5 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165450.jpgsave_picture_165450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165450.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:BD865F22B9F78DB8CD80335DFB5BE54463FDCE58
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165451.jpgsave_picture_165451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165451.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:EF2507F01CDC202331DE45F75ABA01D09AC66D54
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165452.jpgsave_picture_165452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165452.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Nero Burning ROM 2020 22.0.1008 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165453.jpgsave_picture_165453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165453.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Icecream Screen Recorder Pro 7.31 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165454.jpgsave_picture_165454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165454.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ iTrash 5 v5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165455.jpgsave_picture_165455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165455.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:5F91177F10B80178AD53F92463CB726B3B33BAC9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165456.jpgsave_picture_165456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165456.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:DA75098824B6390073CA952D17C936A663F872BC
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165457.jpgsave_picture_165457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165457.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Scrutiny 9 v9.14.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165458.jpgsave_picture_165458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165458.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165459.jpgsave_picture_165459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165459.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bruce Hornsby - Spirit Trail (1998) 25th Anniversary Edition, 2023, Zappo Produc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165460.jpgsave_picture_165460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165460.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Yesterday / Yesterday (2019) DVD5 [Custom]
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165461.jpgsave_picture_165461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165461.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ EazyDraw 10.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165462.jpgsave_picture_165462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165462.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:6625BFF3A1786AF8829C029D6821E5755BD4DC83
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165463.jpgsave_picture_165463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165463.jpg" />
 </div>
 
 

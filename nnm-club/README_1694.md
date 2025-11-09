@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44401.jpgsave_picture_44401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44401.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ IsMyLcdOK 5.77 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44402.jpgsave_picture_44402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44402.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2255F4F24A641374BADA2B0AF06CE327E12E5B8B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44403.jpgsave_picture_44403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44403.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MediaHuman YouTube Downloader 3.9.9.96 (0509) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44404.jpgsave_picture_44404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44404.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Linkin Park - The Emptiness Machine (2024) Single [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44405.jpgsave_picture_44405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44405.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Extreme Picture Finder 3.66.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44406.jpgsave_picture_44406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44406.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Linkin Park - The Emptiness Machine (2024) hand made [restored, declipped] [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44407.jpgsave_picture_44407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44407.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MuseScore 4.4.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44408.jpgsave_picture_44408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44408.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Trance 100 - Best Of Summer 2024 - Extended Versions (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44409.jpgsave_picture_44409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44409.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:778955D501E51FE0848D919FDB2DA4BE79DB4C04
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44410.jpgsave_picture_44410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44410.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B4E58308C317F9A9A8AF0B8A8770471CC9295328
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44411.jpgsave_picture_44411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44411.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A08BDD8FD8727A0A67F00E77AD8DCFD044BCB544
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44412.jpgsave_picture_44412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44412.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Topaz Video AI 5.3.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44413.jpgsave_picture_44413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44413.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ SRWare Iron 126.0.6400.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44414.jpgsave_picture_44414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44414.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mullvad Browser 13.5.3 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44415.jpgsave_picture_44415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44415.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:E0467CB8E0CD26EAFE3BBBE4D4FB9774E5C84131
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44416.jpgsave_picture_44416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44416.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A78A570F0D41FF395F237F3CD14623F8648B0ADE
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44417.jpgsave_picture_44417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44417.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D7FCCD742F54EE22B73DB0B8058782BA70681C02
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44418.jpgsave_picture_44418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44418.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - Romantic Collection Ретро (1999) [FLAC 2.0|48/24|image +.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44419.jpgsave_picture_44419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44419.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ David Gilmour - Luck and Strange (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44420.jpgsave_picture_44420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44420.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Motel Manager Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44421.jpgsave_picture_44421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44421.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Duplicate File Finder Pro 2405 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44422.jpgsave_picture_44422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44422.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ BitComet 2.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44423.jpgsave_picture_44423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44423.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0F1C3F0431260EC41E3F09548DE8E9118418681D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44424.jpgsave_picture_44424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44424.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:9659396255A64FD9364CB04A32553BCBE18DD886
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44425.jpgsave_picture_44425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44425.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:74CDDF6B08661DE1B7B4439EE98549960805BD9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44426.jpgsave_picture_44426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44426.jpg" />
 </div>
 
 

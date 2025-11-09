@@ -6,7 +6,7 @@ Tilintetgjort - In Death I Shall Arise (2023) [FLAC|Lossless|WEB-DL|tracks] <Ava
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234113.jpgsave_picture_234113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234113.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Slomatics & Domkraft - Ascend/Descend (2022) Split [MP3|320 Kbps] <Psychedelic S
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234117.jpgsave_picture_234117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234117.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Raptor King - Omnivoracious (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234122.jpgsave_picture_234122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234122.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ ikiaqqivik - Пустота (2020) Single [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234129.jpgsave_picture_234129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234129.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Counterline - One (2021) [FLAC|Lossless|image + .cue] <AOR, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234139.jpgsave_picture_234139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234139.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Winger - Seven (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234140.jpgsave_picture_234140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234140.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Doi - Desideratum (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234142.jpgsave_picture_234142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234142.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Laurie Anderson - Home Of The Brave /Soundtrack/ (1986) [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234143.jpgsave_picture_234143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234143.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Mike Campbell & The Dirty Knobs - External Combustion (2022) [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234147.jpgsave_picture_234147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234147.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Lamentos - Entre a Vida e a Morte (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234151.jpgsave_picture_234151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234151.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Point Mort - Pointless... (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, C
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234153.jpgsave_picture_234153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234153.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ WyndRider - WyndRider (2023) [MP3|320 Kbps] <Psych Stoner Doom, Bluesy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234160.jpgsave_picture_234160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234160.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Yusuf / Cat Stevens - King Of A Land (2023) [FLAC|Lossless|tracks + .cue] <Folk 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234163.jpgsave_picture_234163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234163.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Snakes Don't Belong In Alaska - merch community Sounds Of A Forming Planet (2023
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234175.jpgsave_picture_234175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234175.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Dead Shape Figure - The Sworn Book (2023) [MP3|320 Kbps] <Melodic Death, Thrash 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234182.jpgsave_picture_234182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234182.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Ray Temple - II (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Garage, Bluesy
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234183.jpgsave_picture_234183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234183.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Nonel - Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234190.jpgsave_picture_234190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234190.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Devil Wears Prada - Color Decay (2022) Deluxe, 2023, Solid State Records  [M
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234196.jpgsave_picture_234196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234196.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ They Grieve - To Which I Bore Witness (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234200.jpgsave_picture_234200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234200.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Levith - Around the Impulse (2023) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234202.jpgsave_picture_234202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234202.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Jag Panzer - The Hallowed (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234209.jpgsave_picture_234209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234209.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Death - Symbolic (1995) Canadian Edition [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234211.jpgsave_picture_234211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234211.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Reptilian War Machine - Merciless Addiction (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234219.jpgsave_picture_234219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234219.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Iratus Vir - Under a Midnight Sun (2023) [MP3|320 Kbps] <Melodic Death, Black Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234227.jpgsave_picture_234227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234227.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Manifestic - Anonymous Souls (2019) [FLAC|Lossless|image + .cue] <Progressive Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234228.jpgsave_picture_234228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234228.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Crypta - Echoes of the Soul (2021) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234235.jpgsave_picture_234235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234235.jpg" />
 </div>
 
 

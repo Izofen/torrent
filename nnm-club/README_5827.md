@@ -6,7 +6,7 @@ Paul Coombs - Paul's Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182535.jpgsave_picture_182535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182535.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A38A36963D6D72735AC910EAED8CC36913BAB807
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182537.jpgsave_picture_182537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182537.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3D49EEDA62AEB6CA496008D5FEE2815F728FD09C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182538.jpgsave_picture_182538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182538.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:1F25E8A115ACF62BEECF44B18C2120D6409D04AC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182542.jpgsave_picture_182542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182542.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:D0F081A6ABD94A3BB898564CFD74E1EF81E3DD1A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182543.jpgsave_picture_182543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182543.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Mahou Sensei Negima! Shiroki Tsubasa Ala Alba | Волшебный учител�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182546.jpgsave_picture_182546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182546.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Nervosa - Jailbreak (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182548.jpgsave_picture_182548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182548.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Edu Souza - Grateful (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182552.jpgsave_picture_182552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182552.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Iron Fist - Mettlehead Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182553.jpgsave_picture_182553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182553.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Yawning Man - 7 Albums (2005-2021) [MP3|320 Kbps] <Desert Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182558.jpgsave_picture_182558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182558.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Skeletoon - Nemesis (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182561.jpgsave_picture_182561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182561.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Shootki - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182563.jpgsave_picture_182563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182563.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Qantice - The Anastoria (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182566.jpgsave_picture_182566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182566.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:2A3A413A89D2D087C3F5CEF469F499C394618556
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182569.jpgsave_picture_182569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182569.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Ron Carter - Parade (1979) 2000, Original Jazz Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182574.jpgsave_picture_182574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182574.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:9E208036BD2E3B4069F3962EAFB571EDB51D6F9A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182575.jpgsave_picture_182575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182575.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Stepmother - Planet Brutalicon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182578.jpgsave_picture_182578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182578.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:3B308A0010B4B9792F573226226881FA401150FD
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182580.jpgsave_picture_182580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182580.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Heavy Water - Dreams Of Yesterday (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182583.jpgsave_picture_182583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182583.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Black Royal - Earthbound (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Blue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182584.jpgsave_picture_182584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182584.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:C64087B5D1DA418C476151552C5F16FD2DA1F9E6
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182588.jpgsave_picture_182588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182588.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Fred Hersch & Esperanza Spalding - Alive At The Village Vanguard (2018) 2023, Pa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182590.jpgsave_picture_182590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182590.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Riot In The Attic - Those Who Donґt Belong (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182592.jpgsave_picture_182592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182592.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:5D42A85C605543D3E381C10136B476948AC8E341
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182594.jpgsave_picture_182594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182594.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:4B43FDFC15903E8635756B10B33E9C4E499A7ABA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182598.jpgsave_picture_182598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182598.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:6603FBE3AEF127592FDA713AF59E57F996F5569C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182601.jpgsave_picture_182601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182601.jpg" />
 </div>
 
 

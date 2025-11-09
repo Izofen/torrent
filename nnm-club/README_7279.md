@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249248.jpgsave_picture_249248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249248.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:05202E5F0A758DEE800FC8CF3B4EED0904629340
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249249.jpgsave_picture_249249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249249.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:05202E5F0A758DEE800FC8CF3B4EED0904629340
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249252.jpgsave_picture_249252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249252.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:30D90E49322E738AA6CA87DC3DBCB52AEF9C4CB5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249256.jpgsave_picture_249256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249256.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3B31D158397BE631E1CFD21982E1E7AE6A7DD8BD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249257.jpgsave_picture_249257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249257.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3B31D158397BE631E1CFD21982E1E7AE6A7DD8BD
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249261.jpgsave_picture_249261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249261.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Paradise Lost - 8 Albums + 1 Compilation (1990-2012) Japanese Editions [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249262.jpgsave_picture_249262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249262.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Paradise Lost — метал группа из Великобритании, о�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249265.jpgsave_picture_249265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249265.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Windows Tweaker 4.0 [английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249267.jpgsave_picture_249267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249267.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Windows Tweaker (ранее известная под названием Windows
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249268.jpgsave_picture_249268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249268.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Bubblenauts: The Hunt for Jolly Rogers Treasure (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249269.jpgsave_picture_249269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249269.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Laser Squad Nemesis [Ru] (P) 2003
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249272.jpgsave_picture_249272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249272.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Laser Squad Nemesis — пошаговая тактическая стратег
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249273.jpgsave_picture_249273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249273.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Death Rally [En] (RePack) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249274.jpgsave_picture_249274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249274.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Death Rally [En] (RePack) 1996
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249280.jpgsave_picture_249280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249280.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:494D487599C1A256AC3C77CE622808B842752E67
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249282.jpgsave_picture_249282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249282.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ My My Mai / Интимная консультантка Май [1993, OVA, 4 ep.
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249283.jpgsave_picture_249283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249283.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249285.jpgsave_picture_249285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249285.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Analogue Drums - BuckShot by KRock[KONTAKT|EXS][английский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249290.jpgsave_picture_249290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249290.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:D5764A4828AC601C9F8519E68BD8A49F82649BF0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249293.jpgsave_picture_249293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249293.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249296.jpgsave_picture_249296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249296.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249302.jpgsave_picture_249302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249302.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:3F83B27CD301BC5823A9BD407A7DA28DB6443C7B
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249303.jpgsave_picture_249303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249303.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Tema Windows 7 Undisputed VS2 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249304.jpgsave_picture_249304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249304.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249305.jpgsave_picture_249305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249305.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249309.jpgsave_picture_249309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249309.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Edge Blocker Portable 2.0 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61844.jpgsave_picture_61844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61844.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Transcend SSD Scope 4.22 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62119.jpgsave_picture_62119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62119.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ R-Drive Image System Recovery Media Creator 7.2 Build 7201 RePack (& Portable) b
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62508.jpgsave_picture_62508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62508.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Wise Registry Cleaner Pro 11.1.3 (акция Giveaway) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62565.jpgsave_picture_62565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62565.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PointerStick 6.35 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62750.jpgsave_picture_62750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62750.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Sleipnir 6.5.5.4000 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62952.jpgsave_picture_62952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62952.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Opera Crypto Browser 108.0.5067.28 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62982.jpgsave_picture_62982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62982.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ RegScanner 2.75 + Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63193.jpgsave_picture_63193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63193.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D34146F13A0AB15AA3583DF4A3D2F2C26A3D166D
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63262.jpgsave_picture_63262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63262.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Desktop.Calendar.Tray.OK 4.06 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63291.jpgsave_picture_63291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63291.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ ProcessKO 6.33 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63304.jpgsave_picture_63304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63304.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Cyberduck 8.8.0 Build 41209 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63504.jpgsave_picture_63504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63504.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Foxit Reader 2024.1.0.23997 Portable by PortableApps [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63615.jpgsave_picture_63615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63615.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Print.Test.Page.OK 3.04 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63723.jpgsave_picture_63723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63723.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AnyBurn 6.6 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63900.jpgsave_picture_63900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63900.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Adobe Acrobat Pro 2025.001.20756 RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63931.jpgsave_picture_63931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63931.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VueScan Pro 9.8.48.01 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63966.jpgsave_picture_63966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63966.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Rufus 4.11 (Build 2285) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63970.jpgsave_picture_63970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63970.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Wise Disk Cleaner 11.2.3.843 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66979.jpgsave_picture_66979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66979.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ File & Image Uploader 8.5.1 Portable + Skins [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68495.jpgsave_picture_68495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68495.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:90A198DD53F9D72F71C91CE2279A3B93C21C3739
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70658.jpgsave_picture_70658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70658.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Coolutils Total Mail Converter 6.2.0.399 RePack (& Portable) by elchupacabra [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70700.jpgsave_picture_70700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70700.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ GiliSoft Screen Recorder 12.8 [Multi/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70861.jpgsave_picture_70861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70861.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ProxyCap 5.02 [Английский]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76223.jpgsave_picture_76223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76223.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Vidalia 2.2.35-6 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76844.jpgsave_picture_76844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76844.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79090.jpgsave_picture_79090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79090.jpg" />
 </div>
 
 

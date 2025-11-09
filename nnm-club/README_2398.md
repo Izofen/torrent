@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62715.jpgsave_picture_62715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62715.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:39F6039FA24920654B43135A6E362EB6A10A00D0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62716.jpgsave_picture_62716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62716.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:6A0538592C832C643FF2F3A4535CD0842835CA75
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62717.jpgsave_picture_62717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62717.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:6A0538592C832C643FF2F3A4535CD0842835CA75
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62718.jpgsave_picture_62718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62718.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62719.jpgsave_picture_62719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62719.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.0.2044.0 (14.03.2024) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62720.jpgsave_picture_62720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62720.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Microsoft® Windows® 11 Professional VL x64 23H2 RU by OVGorskiy 03.2024
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62721.jpgsave_picture_62721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62721.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ MInstAll v.10.03.2024 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62722.jpgsave_picture_62722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62722.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B451CF26B37908BB1C8A138AFA2A18E026E75931
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62723.jpgsave_picture_62723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62723.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62724.jpgsave_picture_62724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62724.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Gord (2023) [Ru/Multi] (1.5.0/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62725.jpgsave_picture_62725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62725.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62726.jpgsave_picture_62726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62726.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:AF48D58250D995F1B40288FB0CC4ABF593C85493
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62727.jpgsave_picture_62727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62727.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62728.jpgsave_picture_62728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62728.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sepultura - Discography(1986-2009)[APE,FLAC|Lossless] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62729.jpgsave_picture_62729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62729.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62730.jpgsave_picture_62730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62730.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1FAB99F4A3B3489A5FB3BDC3CA9EBECC5C79092B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62731.jpgsave_picture_62731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62731.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62732.jpgsave_picture_62732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62732.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:F5AE587D0B3A6ADAB7EAB60B1AD9708D907A4F6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62733.jpgsave_picture_62733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62733.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ WinRAR 7.00 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62734.jpgsave_picture_62734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62734.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:60E5C0794FBFCD3F59EA5FB4DD105B24AD4CD4EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62735.jpgsave_picture_62735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62735.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Procol Harum - 12 Studio Albums, 1 Live, 17 Compilation (1967 - 2019) 97 CD [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62736.jpgsave_picture_62736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62736.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:914B9B2D91385D57F1B314599DF473123A71E7F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62737.jpgsave_picture_62737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62737.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Unlocker 1.0.1 Portable by Eject [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62738.jpgsave_picture_62738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62738.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ OCCT 12.1.17 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62739.jpgsave_picture_62739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62739.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:54349398AE87C911396A345C6092D6A9EC925439
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62740.jpgsave_picture_62740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62740.jpg" />
 </div>
 
 

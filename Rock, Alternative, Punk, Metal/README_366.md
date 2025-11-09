@@ -6,7 +6,7 @@ Godslut - Procreation of God (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211743.jpgsave_picture_211743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211743.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Space Queen - Nebula (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211751.jpgsave_picture_211751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211751.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lee Small - The Last Man On Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211755.jpgsave_picture_211755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211755.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Legion Of The Damned - The Poison Chalice (2023) [MP3|320 Kbps] <Death-Thrash-Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211763.jpgsave_picture_211763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211763.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Squid - O Monolith (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indi
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211765.jpgsave_picture_211765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211765.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Floodfall - Unbroken (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211767.jpgsave_picture_211767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211767.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Slipknot - Adderall (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211785.jpgsave_picture_211785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211785.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Milky Chance - Living In A Haze (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211792.jpgsave_picture_211792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211792.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:B8531FF6C82AB743D7DA5D29843C7D16F9A98B3F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211809.jpgsave_picture_211809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211809.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:CE91D9AF883376D5A30CF751CC03C7686F835C2C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211811.jpgsave_picture_211811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211811.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Shakra - Invincible (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211821.jpgsave_picture_211821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211821.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Leathurbitch - Shattered Vanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211846.jpgsave_picture_211846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211846.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:6D8601AF22F1D51E94C1216F8DF4A5DE9231B766
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211851.jpgsave_picture_211851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211851.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Christine and the Queens - PARANOIA, ANGELS, TRUE LOVE (2023) [FLAC 24/176.4|Los
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211926.jpgsave_picture_211926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211926.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Alice Cooper - Killer (1971) 2 CD, Expanded and Remastered, 2023, Rhino - Warner
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211933.jpgsave_picture_211933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211933.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Extreme - Six (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Funk Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211989.jpgsave_picture_211989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_211989.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ White Spirit - Right or Wrong (2022) Special Edition, 2023, Malcolm Pearson [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212017.jpgsave_picture_212017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212017.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Roger Waters - The Lockdown Sessions (2022) 2023 [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212077.jpgsave_picture_212077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212077.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Jelly Roll - Whitsitt Chapel (2023) [FLAC|Lossless|WEB-DL|tracks] <Country Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212099.jpgsave_picture_212099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212099.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ The Apartments - 4 Albums (1996-2025) [MP3|320 Kbps] <Indie Rock, Folk Rock, Aco
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212140.jpgsave_picture_212140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212140.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Molasses Fire - In The Presence Of The Pirate King (2025) [FLAC 24/44.1|Lossless
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212168.jpgsave_picture_212168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212168.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Warrant - The Speed Of Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212231.jpgsave_picture_212231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212231.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Middleburn - 121 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212376.jpgsave_picture_212376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212376.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ LikKnight - Beautiful and Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212378.jpgsave_picture_212378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212378.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Kill Dorothy - Liberate Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212382.jpgsave_picture_212382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212382.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Rites to Ruin - Daughter of Hatred (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212384.jpgsave_picture_212384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212384.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122025.jpgsave_picture_122025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122025.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Opera GX 106.0.4998.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122026.jpgsave_picture_122026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122026.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8CB144680EC4A6044BF4845A32CFA29129D2CEFF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122027.jpgsave_picture_122027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122027.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2BCB1FB71D899CCACAB63D50437C834958CEA7C2
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122028.jpgsave_picture_122028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122028.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Den Harrow - The Best Of Den Harrow (1989) [OGG Vorbis|480 Kbps] <Electronic, It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122029.jpgsave_picture_122029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122029.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:16D45BC23AC532D1629EF4AEB5F76F465A3A74FF
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122030.jpgsave_picture_122030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122030.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Den Harrow - Day By Day (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122031.jpgsave_picture_122031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122031.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:A2FD75DA61D57C86B0BB7C87D944645DC1883FF0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122032.jpgsave_picture_122032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122032.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Black Hole Trance Music 01-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122033.jpgsave_picture_122033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122033.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Telegram Desktop 4.14.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122034.jpgsave_picture_122034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122034.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:C251BFF0B4CDDC9DCCBABDF6322E7A32A9664132
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122035.jpgsave_picture_122035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122035.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Wise Duplicate Finder Pro 2.1.1.61 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122036.jpgsave_picture_122036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122036.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:70BBDF0AFE8BEFE143DE594345E7F6CC6D8F6586
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122037.jpgsave_picture_122037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122037.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Cursed Fables 4: Before the Clock Strikes (2024) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122038.jpgsave_picture_122038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122038.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Calibre 7.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122039.jpgsave_picture_122039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122039.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ FileOptimizer 16.50.2809 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122040.jpgsave_picture_122040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122040.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ HiBit System Information 2.1.20 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122041.jpgsave_picture_122041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122041.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ SeaMonkey 2.53.18.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122042.jpgsave_picture_122042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122042.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7DF28CC692E8B83342288C08F3B2F4E48B425B73
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122043.jpgsave_picture_122043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122043.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Green Day - Saviors (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk rock, Alter
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122044.jpgsave_picture_122044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122044.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Fort Firewall 3.10.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122045.jpgsave_picture_122045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122045.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Chromium 120.0.6099.225 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122046.jpgsave_picture_122046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122046.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Brave Browser 1.61.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122047.jpgsave_picture_122047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122047.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Electronic compilation part 43 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122048.jpgsave_picture_122048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122048.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:73C17AF94752C1FAB4480F7F42241A6581D3DCFD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122049.jpgsave_picture_122049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122049.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Vivaldi 6.5.3206.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122050.jpgsave_picture_122050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122050.jpg" />
 </div>
 
 

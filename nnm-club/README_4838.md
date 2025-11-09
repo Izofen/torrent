@@ -6,7 +6,7 @@ Vectorize! 1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151361.jpgsave_picture_151361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151361.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grant Green - Feelin' The Spirit (1962) 1994, Toshiba-EMI [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151362.jpgsave_picture_151362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151362.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DD3EB4B2917517ACBA2CCB824B0A1A71F65FF12B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151364.jpgsave_picture_151364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151364.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C4A1D6EA84E7098E7DB673B63D8516B0C28D1257
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151365.jpgsave_picture_151365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151365.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.29.2.6s/dlc) Repack R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151366.jpgsave_picture_151366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151366.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:31CDD222CD6A3BA0367E2C29790453AA9892B6FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151367.jpgsave_picture_151367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151367.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:707F15F91F9F8D5056ED5B7D82DA6E1750218ADC
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151371.jpgsave_picture_151371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151371.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:11AA273266476013EF2C2F10ECD8DC5B68CA3903
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151372.jpgsave_picture_151372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151372.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Kiss - 25 Studio Albums, 11 Live, 15 Compilations, 5 Box Set (1974 - 2017) 158 C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151373.jpgsave_picture_151373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151373.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:AC65E7D5EA5230E21A77CCD56329767C9A6E4FA8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151374.jpgsave_picture_151374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151374.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Reveal - Still Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151375.jpgsave_picture_151375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151375.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Movavi Video Suite 20.1.0 (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151376.jpgsave_picture_151376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151376.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:A92C74C0E73D2862E7C4236F644B7DCC0FB7C1F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151377.jpgsave_picture_151377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151377.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ MotorStorm: Apocalypse [PS3] [PAL] [RUSSOUND] [3.56] [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151378.jpgsave_picture_151378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151378.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ PopDo 2021.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151379.jpgsave_picture_151379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151379.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:6DC354A7FA1591960EF26D1ECAF0978E3B483A44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151380.jpgsave_picture_151380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151380.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:B2396499C537A28D726A62074A25876CEBDCE4E5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151381.jpgsave_picture_151381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151381.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:1B55C8A2377885EE6107416879AB7C5D6566F394
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151382.jpgsave_picture_151382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151382.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:48339C5568484E62D1414A8CABEE0FF2AAFF0634
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151383.jpgsave_picture_151383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151383.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Son Henry - Glenn Highway Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151384.jpgsave_picture_151384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151384.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:3AE29943A252BF0646B8BE297563CA77897CDA50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151386.jpgsave_picture_151386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151386.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:107807D2A52B2806ADDC3BDC7EA1AE218BBC510E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151387.jpgsave_picture_151387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151387.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:D4C13C41669D7CBAA7DFA15C430433C6ACCD243E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151388.jpgsave_picture_151388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151388.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Nox App Player 3.7.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151389.jpgsave_picture_151389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151389.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:20573A02533C851771EEB3AF15C9F07818B01B38
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151390.jpgsave_picture_151390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151390.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ kobezzza.channel, Андрей Кобец | Устройство компиля�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151391.jpgsave_picture_151391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151391.jpg" />
 </div>
 
 

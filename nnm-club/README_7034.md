@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241073.jpgsave_picture_241073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241073.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Treat - The Endgame (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241074.jpgsave_picture_241074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241074.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E2EAE0D2A1AE2F3CEFBC2ADF074E2872347730A8
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241075.jpgsave_picture_241075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241075.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Fugu Quintet - Interweavement (2021) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241076.jpgsave_picture_241076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241076.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Весенний хит-парад на радио Шансон (2017) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241077.jpgsave_picture_241077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241077.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ GPU Shark 0.29.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241078.jpgsave_picture_241078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241078.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Dead Chasm - Sublimis Ignotum Omni (2023) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241079.jpgsave_picture_241079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241079.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:EDA19EA2D5231037101AE20486FA6A6E8D2B9DD3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241080.jpgsave_picture_241080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241080.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241081.jpgsave_picture_241081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241081.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Purecloud5 - Psy Invention (2017) [MP3|320 Kbps] <Goa Trance, Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241082.jpgsave_picture_241082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241082.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Microsoft .Net Framework 09.08.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241083.jpgsave_picture_241083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241083.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:E1F64484ADB20B692090E427B28E21D00D89128F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241084.jpgsave_picture_241084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241084.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - The Rock: The Ultimate Collection (2011) Box Set, 3CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241085.jpgsave_picture_241085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241085.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Dawn Ray'd - To Know the Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241086.jpgsave_picture_241086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241086.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ O-Wells - Subfriction (2021) a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Detroit T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241087.jpgsave_picture_241087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241087.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Шальной шансон в дорогу. Выпуск № 3 (2017) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241088.jpgsave_picture_241088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241088.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Zenja Gammer, Zenzcourses | Photoshop Digital Art Bundle By Zenja Gammer (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241089.jpgsave_picture_241089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241089.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Soft Jazzy Chill: Lounge Music Backdrop (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241090.jpgsave_picture_241090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241090.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241091.jpgsave_picture_241091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241091.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:18334F411FDB886925E4CF3B8A9F03DC401ECADA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241092.jpgsave_picture_241092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241092.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Decemberance - Implosions (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241093.jpgsave_picture_241093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241093.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:AD7BB116064E7CD54AF465D8F43CEE98C8C4D4FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241094.jpgsave_picture_241094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241094.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Dominoe - The Lost Radio Show (2018) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241095.jpgsave_picture_241095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241095.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:106A70B3F61B98126CA442144FF2F6C0B416B7D5
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241096.jpgsave_picture_241096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241096.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:106A70B3F61B98126CA442144FF2F6C0B416B7D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241097.jpgsave_picture_241097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241097.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ HDCleaner 2.047 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241098.jpgsave_picture_241098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241098.jpg" />
 </div>
 
 

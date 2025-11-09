@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92822.jpgsave_picture_92822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92822.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92847.jpgsave_picture_92847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92847.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:5CC02C0C574EF7962A6E50C9027501991B4B224F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92852.jpgsave_picture_92852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92852.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Biohazard - Reborn In Defiance (2012) [FLAC|Lossless]<Hardcore>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92863.jpgsave_picture_92863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92863.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Indra - Old Skool (2011) [MP3|320 kbps]<Psychedelic / Full On>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92879.jpgsave_picture_92879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92879.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Obe 1 Kanobe - Атака клонов (2012) [MP3|320 kbps]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92880.jpgsave_picture_92880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92880.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:038B7D930D12B5221B5AD741480030E01C1B41DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92899.jpgsave_picture_92899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92899.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:C069E62AB18BD3656A40F8FBC545B5FD0F0D2AB2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92902.jpgsave_picture_92902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92902.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Opera IX - Maledictae In Aeternum (2012) [MP3|320 kbps]<Gothic Metal / Black Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92907.jpgsave_picture_92907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92907.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:08E2D5798486889337A371F83CEA9854C99927D8
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92929.jpgsave_picture_92929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92929.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kay Starr - Movin' On Broadway (1960) [MP3|320 kbps]<Vocal Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92932.jpgsave_picture_92932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92932.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ The Magnificent - The Magnificent (2011) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92962.jpgsave_picture_92962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92962.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - FearFM Hardcore Top 100 2011 (2012) [MP3|320 kbps]<Techno, Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92970.jpgsave_picture_92970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92970.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Interactive Noise - Synthetik Pleasure (2012) [MP3|192-320 kbps]<Psychedelic / P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92990.jpgsave_picture_92990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92990.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Interactive Noise - All Ears On (2012) [MP3|320 kbps]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93004.jpgsave_picture_93004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93004.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Sensogram - Parallel Minds (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93012.jpgsave_picture_93012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93012.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:6650716112DFC8A6E15C8E24D959FAF402ECEB0D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93014.jpgsave_picture_93014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93014.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Record Super Chart № 226 (04.02.2012) [MP3|192-320 kbps]<House, Trance, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93028.jpgsave_picture_93028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93028.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Despondency - Revelation IV (Rise Of The Nemesis) (2009) [FLAC|Lossless]<Slammin
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93040.jpgsave_picture_93040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93040.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Undertow - Два альбома (2006,2009) [FLAC (image+cue)|Lossless]<Thrash 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93042.jpgsave_picture_93042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93042.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:6B11EBFCA677CBC50602C79EB54DB56E8C165E5F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93065.jpgsave_picture_93065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93065.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Fastway - 14 альбомов (1983 — 2011) Дискография [MP3|192-32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93073.jpgsave_picture_93073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93073.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Crimes Of Passion - To Die For (2012) [MP3|320 kbps]<Heavy Metal / Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93074.jpgsave_picture_93074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93074.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ magnet:?xt=urn:btih:2CB4F72477D74D54418F85507770FFF5F8A85550
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93077.jpgsave_picture_93077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93077.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Sub Zero - Bi Polar EP (2012) [MP3|320 kbps]<Drum'n'Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93095.jpgsave_picture_93095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93095.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ magnet:?xt=urn:btih:BD69DD9AE06238EF36A5FB46A940BE5C69F9BFFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93099.jpgsave_picture_93099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93099.jpg" />
 </div>
 
 

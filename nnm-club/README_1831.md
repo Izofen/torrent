@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47963.jpgsave_picture_47963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47963.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:02D22C8E5534031E2A4CC7FE66287800B677BAE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47964.jpgsave_picture_47964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47964.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:571290A22530326CB1E30C28663C6F80B0229FB1
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47965.jpgsave_picture_47965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47965.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7A6E21843DC4EB50EDCF0F532CD8CD496A9F540B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47966.jpgsave_picture_47966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47966.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A30D84C97650E7179C3A8A5F0AA0221F2B8BE663
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47967.jpgsave_picture_47967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47967.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:7CF4692317FD2BC0B22AF733C62500A65A772C5E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47968.jpgsave_picture_47968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47968.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47969.jpgsave_picture_47969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47969.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Scene SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47970.jpgsave_picture_47970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47970.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:78A7F89042912ACA0BCF9274EE3F8FA7C5C12AEB
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47971.jpgsave_picture_47971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47971.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Flatout (2005) [Ru/Multi] (1.01) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47972.jpgsave_picture_47972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47972.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ StartAllBack 3.8.1 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47973.jpgsave_picture_47973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47973.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ First Cut: Samurai Duel (2024) [En] (1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47974.jpgsave_picture_47974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47974.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:786091EAAEBC1FA7D31564DB7F21129B93E8486A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47975.jpgsave_picture_47975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47975.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:83E3C568059B871A471AA91E920870D7B0E8A966
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47976.jpgsave_picture_47976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47976.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:4E44B7C930AF85780F090858557594BF8843F905
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47977.jpgsave_picture_47977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47977.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0BAE888D6D90484C6C019DAAD781697BD5A7228C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47978.jpgsave_picture_47978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47978.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:29215E5CEFF0A29463667316EF5EF0400005941D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47979.jpgsave_picture_47979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47979.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:ACCF1868A14E17448E6A39FC9D8C0C3B209D3514
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47980.jpgsave_picture_47980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47980.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D5E6B0CE3197F5FC39933625510CCC72498DB825
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47981.jpgsave_picture_47981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47981.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Tomba! (2024) [Multi] (1.0) Scene TiNYiSO [Special Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47982.jpgsave_picture_47982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47982.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:F98224BE2CACFD467C45A9EDF8B4C3BF501D2661
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47983.jpgsave_picture_47983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47983.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47984.jpgsave_picture_47984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47984.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:FBAA93A6DA539082E48CE60BBE51AD0C287EC8C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47985.jpgsave_picture_47985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47985.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:FBAA93A6DA539082E48CE60BBE51AD0C287EC8C5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47986.jpgsave_picture_47986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47986.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mini Airways (2024) [Ru/Multi] (0.8.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47987.jpgsave_picture_47987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47987.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Back (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47988.jpgsave_picture_47988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47988.jpg" />
 </div>
 
 

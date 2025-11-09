@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103699.jpgsave_picture_103699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103699.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VivaVideo Video Editor v9.21.1 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103700.jpgsave_picture_103700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cemetery Skyline - Nordic Gothic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103701.jpgsave_picture_103701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103701.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Dragony - Hic Svnt Dracones (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sympho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103702.jpgsave_picture_103702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103702.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Joe Pass - True Virtuoso (2005) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103703.jpgsave_picture_103703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103703.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Ted Heath And His Music - Fever (1965) 1985, London Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103704.jpgsave_picture_103704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103704.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Herbie Hancock / Lionel Hampton - Nightlife Late Night (2000) Direct Source Spec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103705.jpgsave_picture_103705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103705.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:C3632A0381D25AC34BCF65061B774940818A9418
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103706.jpgsave_picture_103706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103706.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:D0FA585BC7FB32073329820389284F7F3D9F7CF3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103707.jpgsave_picture_103707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103707.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Pregnant Women Music Company - Pregnancy Routine (2024) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103708.jpgsave_picture_103708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103708.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Joe Bonamassa - Different Shades Of Blue - Overdrive (2014) Reissue, 2024, 10th 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103709.jpgsave_picture_103709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103709.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:C01D6A440D28993C3CF88A4D746C7CFC9907BF52
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103710.jpgsave_picture_103710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103710.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:C3A85530A36ECB3AFCA7C1188BB3369EA00284EA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103711.jpgsave_picture_103711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103711.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Astral Magic - Those Who Came from the Stars (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103712.jpgsave_picture_103712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103712.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tove Lo - Queen Of The Clouds: X (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103713.jpgsave_picture_103713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103713.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Chicago - John F. Kennedy Center For The Performing Arts, Washington D.C. (9/16/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103714.jpgsave_picture_103714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103714.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Ad Infinitum - Abyss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103715.jpgsave_picture_103715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103715.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Johan Steensland - Crossfade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103716.jpgsave_picture_103716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103716.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Winter - Keeping The Flame Alive (2024) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103717.jpgsave_picture_103717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103717.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:A07182600AD4080940BB5AA4664B8C2EB761EEB6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103718.jpgsave_picture_103718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103718.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ House Of Lords - Full Tilt Overdrive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103719.jpgsave_picture_103719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103719.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Kalandra - A Frame of Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103720.jpgsave_picture_103720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103720.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Radioactive - Reset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103721.jpgsave_picture_103721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103721.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Vaughan Brothers - Family Style  (1990) [FLAC|Lossless|tracks + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103722.jpgsave_picture_103722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103722.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Jihee Heo - Flow (2024) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Pia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103723.jpgsave_picture_103723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103723.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Roberto Sass - Transit (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103724.jpgsave_picture_103724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103724.jpg" />
 </div>
 
 

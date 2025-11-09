@@ -6,7 +6,7 @@ TFC: The Fertile Crescent (2024) [En] (1.2001) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20986.jpgsave_picture_20986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20986.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20990.jpgsave_picture_20990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20990.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Grim Tales 26: Prisoners of the Past (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20994.jpgsave_picture_20994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20994.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21018.jpgsave_picture_21018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21018.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21019.jpgsave_picture_21019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21019.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Storage Guys (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21023.jpgsave_picture_21023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21023.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21028.jpgsave_picture_21028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21028.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.2.4.2147/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21048.jpgsave_picture_21048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21048.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21062.jpgsave_picture_21062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21062.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Slime Heroes (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21064.jpgsave_picture_21064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21064.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Tempest Rising (2025) [Ru/Multi] (1.0.0+43454/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21065.jpgsave_picture_21065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21065.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Coridden (2025) [Ru/Multi] (1.2.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21069.jpgsave_picture_21069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21069.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21074.jpgsave_picture_21074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21074.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Magenta Horizon - Neverending Harvest (2024) [Ru/Multi] (1.0.15) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21085.jpgsave_picture_21085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21085.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21088.jpgsave_picture_21088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21088.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21094.jpgsave_picture_21094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21094.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mystery of Myths: Mystery of the Fjords (2025) [Multi] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21101.jpgsave_picture_21101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21101.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:810A95BFC31C804B34D5E7C80C4CD579EAF259EC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21106.jpgsave_picture_21106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21106.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dark City 10: Barcelona (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21114.jpgsave_picture_21114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21114.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.1.0/dlc) Repack Fi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21122.jpgsave_picture_21122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21122.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0CAA11D973EA2BEF4E3DD5393EB5CEF0774F125D
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21126.jpgsave_picture_21126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21126.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ StoryKeepers: Hidden Mystery / Хранители историй: Скрытая
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21137.jpgsave_picture_21137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21137.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Koira (2025) [Ru/Multi] (1.0.7/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21141.jpgsave_picture_21141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21141.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21145.jpgsave_picture_21145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21145.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Space for Sale (2025) [Ru/Multi] (2024.11.25.10.55/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21148.jpgsave_picture_21148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21148.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21152.jpgsave_picture_21152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21152.jpg" />
 </div>
 
 

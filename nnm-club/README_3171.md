@@ -6,7 +6,7 @@ Strix Revival - Heartfelt Harmonic Journeys (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102784.jpgsave_picture_102784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102784.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Allsiders - No Further Questions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102785.jpgsave_picture_102785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102785.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Amarok - Blasphemous Edictum (2008) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102786.jpgsave_picture_102786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102786.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Beggars Blue - Busting My Tail (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102787.jpgsave_picture_102787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102787.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eddie 9V - Saratoga (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102788.jpgsave_picture_102788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102788.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Pepe Ahlqvist & Jukka Gustavson - Stovall, Coahoma - A Tribute to Eddie Boyd (20
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102789.jpgsave_picture_102789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102789.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dirty Deep - Rust Of My Knees (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102790.jpgsave_picture_102790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102790.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hussy Hicks - Swimming in Uncertainty (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102791.jpgsave_picture_102791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102791.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bassment Displacement - Bassment Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102792.jpgsave_picture_102792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102792.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:75CD4F9A9795AB5527422FE502F14F5C2BC1C516
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102793.jpgsave_picture_102793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102793.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Jackie McLean - It's Time! (1964) 2006, Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102794.jpgsave_picture_102794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102794.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:115D1A5EC8253ED97492DF855BBD8D37291B6D64
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102795.jpgsave_picture_102795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102795.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Danny Wright - Curtain Call (1993) [FLAC|Lossless|tracks + .cue] <New Age, Conte
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102796.jpgsave_picture_102796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102796.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:5857EDE7A4FEFB4F9DE34943D3D9C1EA67BE1FF2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102797.jpgsave_picture_102797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102797.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - The Orient Collective: Winter Collection 2024 [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102798.jpgsave_picture_102798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102798.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Linkin Park - Meteora (Tour Edition) (2003) Taiwan, 9362 48842-2, 2004 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102799.jpgsave_picture_102799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102799.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Interface - Zero Sum Equation (2024) [FLAC|Lossless|WEB-DL|tracks] <Futurepop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102800.jpgsave_picture_102800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102800.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:387E9BAE4389FEA003139E85CB4E07B3FC0D8B71
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102801.jpgsave_picture_102801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102801.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Ani DiFranco - Evolve (2003) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Jazz>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102802.jpgsave_picture_102802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102802.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:DEBE1D42D6F945FC94769CBC6F17BECC3B61F405
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102803.jpgsave_picture_102803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102803.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Jane Monheit - Jane Monheit (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102804.jpgsave_picture_102804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102804.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:E7694EB1CF4B32CF492FBABAB7B5180C605D12FD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102805.jpgsave_picture_102805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102805.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ The Rudy Boy Experiment - Voodoo Lovin' Woman (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102806.jpgsave_picture_102806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102806.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Eva Carboni - Blues Siren (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102807.jpgsave_picture_102807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102807.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Elvis Costello - Spike (1989) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Alternative R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102808.jpgsave_picture_102808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102808.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Geoff Moore - A Beautiful Sound (2002) [FLAC|Lossless|tracks + .cue] <Acoustic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102809.jpgsave_picture_102809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102809.jpg" />
 </div>
 
 

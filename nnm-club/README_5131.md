@@ -6,7 +6,7 @@ Cockos REAPER 6.72 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160139.jpgsave_picture_160139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160139.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8793FC1CC8472CFCB231CDF94F4E988441985727
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160140.jpgsave_picture_160140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160140.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:783A3134DC30B41D90027C29869B13C5D06420F9
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160141.jpgsave_picture_160141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160141.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:04965D8C86AD3F3EE47623F6317789FB5D1F26CD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160142.jpgsave_picture_160142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160142.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Black Harbour - Cold Winter Blues (2020) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160143.jpgsave_picture_160143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160143.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:350E8F4C087CF7CC4D0B2DE10992090994C5F0A5
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160144.jpgsave_picture_160144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160144.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Timewriter - This Is The Timewriter (2022) [FLAC|Lossless|WEB-DL|tracks] <ED
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160145.jpgsave_picture_160145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160145.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Helloween - Live at Budokan (2023) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160146.jpgsave_picture_160146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160146.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:109DEFF0517A3BA4DD34AB725029A31B742489B2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160147.jpgsave_picture_160147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160147.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ KiCad 7.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160148.jpgsave_picture_160148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160148.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:B2A2FF1D360EF62E610861E2BE833E66F7561213
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160149.jpgsave_picture_160149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160149.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ FotoJet Collage Maker 1.2.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160150.jpgsave_picture_160150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160150.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:F2A734B973032549F88FF1A8F9C4C4795A03FCDF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160151.jpgsave_picture_160151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160151.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:04BD384BEE09574196A408840776D2567ED45C1E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160152.jpgsave_picture_160152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160152.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:B836B9F552093013CFB196364718E43AB1D75406
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160153.jpgsave_picture_160153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160153.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:AB359AC15AB5E4F28FEC6CBB993A5DEE0BC583EA
 >>Гимнастика, Бодибилдинг, Красота тела
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160154.jpgsave_picture_160154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160154.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:0C29D33EC0A17272224AD18299523FBBF4DF33FE
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160155.jpgsave_picture_160155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160155.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ MEmu 9.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160156.jpgsave_picture_160156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160156.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VueScan Pro 9.8.21 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160157.jpgsave_picture_160157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160157.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Joyoshare UltFix 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160158.jpgsave_picture_160158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160158.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:42F81BA6841701626A82352CA0E3C4C24AE58726
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160159.jpgsave_picture_160159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160159.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:1BBB6EB8FB70CAD0BA852B6A13D0E77CD507700E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160160.jpgsave_picture_160160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160160.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ TweakPower 2.047 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160161.jpgsave_picture_160161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160161.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Weezer - 4 EP (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160162.jpgsave_picture_160162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160162.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ FotoJet Photo Editor 1.1.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160163.jpgsave_picture_160163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160163.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Topaz Video AI 4.0.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160164.jpgsave_picture_160164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160164.jpg" />
 </div>
 
 

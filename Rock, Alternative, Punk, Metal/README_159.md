@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113742.jpgsave_picture_113742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113742.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Madder Mortem - Mercury (1999) 2019 20th Anniversary Edition [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113744.jpgsave_picture_113744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113744.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B15FEDCB4CFA55E6123E8380EE2A2ED9CFB17369
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113750.jpgsave_picture_113750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113750.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ninja Sex Party - These Nuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113764.jpgsave_picture_113764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113764.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113768.jpgsave_picture_113768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113768.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113769.jpgsave_picture_113769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113769.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113770.jpgsave_picture_113770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113770.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113772.jpgsave_picture_113772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113772.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113775.jpgsave_picture_113775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113775.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Madder Mortem - Deadlands (2002) Reissue, 2009, Peaceville [APE|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113776.jpgsave_picture_113776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113776.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Madder Mortem - All Flesh Is Grass (2001) [APE|Lossless|image + .cue] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113778.jpgsave_picture_113778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113778.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Madder Mortem - Desiderata (2006) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113779.jpgsave_picture_113779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113779.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Myrath - Karma (2024) [FLAC|Lossless|image + .cue] <Power Metal, Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113784.jpgsave_picture_113784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113784.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ ADDicted! - День (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113787.jpgsave_picture_113787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113787.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Firewind - Stand United (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113790.jpgsave_picture_113790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113790.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Vlad in Tears - Relapse (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Post-Gr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113794.jpgsave_picture_113794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113794.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Algebra - Polymorph & Procreation (2012) Reissue, 2013, Stormspell Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113798.jpgsave_picture_113798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113798.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Neverlove - Next Level (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113805.jpgsave_picture_113805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113805.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:08C9166349EEEB8D63B58C5C0963CBFCFE1E03E2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113815.jpgsave_picture_113815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113815.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:6CE82C83894508C59D03A45FBF5A832D550561F4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113818.jpgsave_picture_113818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113818.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Madder Mortem - Mercury (1999) [FLAC|Lossless|image + .cue] <Atmospheric Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113835.jpgsave_picture_113835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113835.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Alterium - Of War And Flames (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113845.jpgsave_picture_113845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113845.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113847.jpgsave_picture_113847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113847.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The End Machine - The Quantum Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113861.jpgsave_picture_113861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113861.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Sticky Fingers - Caress Your Soul (2013) Remaster, 2024, Abbey Road [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113868.jpgsave_picture_113868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113868.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113897.jpgsave_picture_113897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113897.jpg" />
 </div>
 
 

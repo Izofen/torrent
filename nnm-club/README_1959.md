@@ -6,7 +6,7 @@ Opera One 111.0.5168.55 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51291.jpgsave_picture_51291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51291.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8FBE08751B9C35D75FBA2C0E7EE119AC9F8AF853
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51292.jpgsave_picture_51292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51292.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8FBE08751B9C35D75FBA2C0E7EE119AC9F8AF853
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51293.jpgsave_picture_51293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51293.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0787889B6AC36D4429D3F73AFAD0339AB4EF1F98
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51294.jpgsave_picture_51294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51294.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:545C494F495D875F47ED4062F73CBA1DDB8F371C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51295.jpgsave_picture_51295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51295.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Aggro Dr1ft (2023) WEB-DL [H.264] [AVO] [PR]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51296.jpgsave_picture_51296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51296.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Windows Update Viewer 0.6.1.0 + Portable [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51297.jpgsave_picture_51297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51297.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ NonVisual Desktop Access (NVDA) 2024.2 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51298.jpgsave_picture_51298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51298.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VideoProc Converter AI 7.1 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51299.jpgsave_picture_51299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51299.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:778AE45C1E332491C83B1945DAA4288402EF442F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51300.jpgsave_picture_51300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51300.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Icecream PDF Editor Pro 3.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51301.jpgsave_picture_51301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51301.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Winxvideo AI 3.1 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51302.jpgsave_picture_51302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51302.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Topaz Video AI 5.2.0 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51303.jpgsave_picture_51303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51303.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:C002690ED90E695614B58A059536E940A459E103
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51304.jpgsave_picture_51304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51304.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Fast Video Cutter Joiner 5.0.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51305.jpgsave_picture_51305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51305.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Adguard 7.17.2 (7.17.4712.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51306.jpgsave_picture_51306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51306.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Antivirus Removal Tool 2024.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51307.jpgsave_picture_51307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51307.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:3B4D06E1B9B60324F005D4CDFA650E213C823121
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51308.jpgsave_picture_51308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51308.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ New Yankee 13: Mary's Dark Side / Янки 13: Темная сторона Мэ�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51309.jpgsave_picture_51309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51309.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ FBackup 9.9.926 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51310.jpgsave_picture_51310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51310.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:07CF746FD2911BBE607D152216900DB2CBA25826
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51311.jpgsave_picture_51311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51311.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:7019B958B474912B005A79AA68C67CBC487B3CE4
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51312.jpgsave_picture_51312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51312.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:C6BD8E5E28AA8E9694D589D2B04A955829AFB3F5
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51313.jpgsave_picture_51313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51313.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Total Commander 11.03 (18.06.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51314.jpgsave_picture_51314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51314.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:A0DAEDA2F14029DD3502D642E068B45AFB80AB3A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51315.jpgsave_picture_51315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51315.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:527FB1514999BBA20B5AC9F206386554A78E91DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51316.jpgsave_picture_51316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51316.jpg" />
 </div>
 
 

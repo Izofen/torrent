@@ -6,7 +6,7 @@ VA - Deep Blue Sea, Vol. 4: Deep Chill Mood (2020) [AAC|~317 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142187.jpgsave_picture_142187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142187.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ JetBrains Rider 2017.3 Build #RD-173.3994.1125 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142188.jpgsave_picture_142188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142188.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ James Moody - The Complete Argo Collection (1957 - 1964) 4CD, 2020, Enlightenmen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142189.jpgsave_picture_142189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142189.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PhoneRescue for iOS on Mac 4.2.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142190.jpgsave_picture_142190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142190.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ AOMEI Partition Assistant Professional / Server / Technician / Unlimited Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142191.jpgsave_picture_142191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142191.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Hatsune Miku - Magical Mirai / Живой концерт Хатсуне Мику
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142192.jpgsave_picture_142192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142192.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Global Chill Out Masters, Vol. 4 (2021) [AAC|~321 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142194.jpgsave_picture_142194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142194.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:EC67B216ED0A8A6391D1F9DFAA02A0522E0C1DD0
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142195.jpgsave_picture_142195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142195.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:BDAAD0AAFDA4031337B0F5B7DE2E805A3710E3DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142196.jpgsave_picture_142196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142196.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Stellaris (2016) [Ru/Multi] (2.5.1/dlc) License GOG [Galaxy Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142197.jpgsave_picture_142197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142197.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:014DD01DA0B0B0E870FAC1CD8D2D8D207E69258E
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142198.jpgsave_picture_142198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142198.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Wise Care 365 Pro 4.7.7.460 Portable by Baltagy  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142199.jpgsave_picture_142199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142199.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:9C96500ED41EDBD2071A4113D67A4159293DD4CB
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142200.jpgsave_picture_142200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142200.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:E7EE67BC735400C519A46C30154F836B7CA70379
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142201.jpgsave_picture_142201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142201.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:3E3E0A34F735449819E0340C449C0285791750C2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142202.jpgsave_picture_142202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142202.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:755F3A2D4BADF5121A6F747D71F6C6AE95D42F7B
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142203.jpgsave_picture_142203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142203.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Discovery: Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142204.jpgsave_picture_142204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142204.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142205.jpgsave_picture_142205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142205.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:FF625380E4A345DB0A649A79668E10D6FA792789
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142206.jpgsave_picture_142206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142206.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:950149D016B8571D03C4064675AADD87184C5659
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142207.jpgsave_picture_142207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142207.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:17B74D167B3CB6436C292ECBA0FF3BD79DE5A4CB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142208.jpgsave_picture_142208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142208.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142209.jpgsave_picture_142209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142209.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Duplicate File Finder Pro 6.12.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142210.jpgsave_picture_142210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142210.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - A Day to Relax: Chillout Your Mind (2021) [AAC|~331 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142211.jpgsave_picture_142211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142211.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Lost Grimoires: Stolen Kingdom / Утерянные Гримуары: Краде
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142212.jpgsave_picture_142212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142212.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Anvir Task Manager 9.1.6 Final + Portable  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142213.jpgsave_picture_142213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142213.jpg" />
 </div>
 
 

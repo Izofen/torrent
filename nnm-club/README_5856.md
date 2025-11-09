@@ -6,7 +6,7 @@ CG Forge, Tyler Bay | Pyro III – Large Explosions (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183856.jpgsave_picture_183856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183856.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:59B4EFCC26A176595C4BEF203E9CA6C7473C9092
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183859.jpgsave_picture_183859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183859.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5CED24304A4B7C5254B0C0E8BC12C7B8755DF571
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183860.jpgsave_picture_183860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183860.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183861.jpgsave_picture_183861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183861.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ We Are Magonia - Triangle Unicode (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183863.jpgsave_picture_183863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183863.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:6B9E7F729F5F596A34B4D2C1C341C6CA42E54BFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183865.jpgsave_picture_183865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183865.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Mullvad Browser 12.5.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183866.jpgsave_picture_183866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183866.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:59E13193D2B75A4406FD1B11FC3B39CAE691CE91
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183868.jpgsave_picture_183868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183868.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Icon Of Sin - Icon Of Sin (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183870.jpgsave_picture_183870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183870.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Process Lasso Pro 12.4.0.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183871.jpgsave_picture_183871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183871.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:1637B698E9A86EAA1F2CC2177E09F406404196D6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183873.jpgsave_picture_183873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183873.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:9F2D39E0D543478955D58D38216952CD26D946D4
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183874.jpgsave_picture_183874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183874.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:16435240339D8AA0E09737FF318EC4E8E463DB16
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183876.jpgsave_picture_183876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183876.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:8648B75F39116975A84FCBF984CA8523B33C5006
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183877.jpgsave_picture_183877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183877.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:57FC8A3FF9A38E07C8C013CFC9983B794CEBC8D9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183879.jpgsave_picture_183879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183879.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Reg Organizer 8.57 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183880.jpgsave_picture_183880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183880.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A0968EA153E9CE270427ED02DB0B885AF4C1B223
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183882.jpgsave_picture_183882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183882.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Airborn - 2 Studio Albums (2018-2020) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183883.jpgsave_picture_183883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183883.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:4A08C20625E4E0C5D17D07DF457FF97451B5F5EB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183885.jpgsave_picture_183885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183885.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:6A578E8EFB7D8836D696F72A0EFA515F12CD79C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183886.jpgsave_picture_183886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183886.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Soft Crash - Your Last Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183888.jpgsave_picture_183888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183888.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:1272C42EFA55B311DAF12F3B14CA3769F9FE8B64
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183890.jpgsave_picture_183890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183890.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Vivaldi 6.2.3105.54 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183891.jpgsave_picture_183891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183891.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:E33B0AD1D4E95EFA34AB27A7F1720E42CD5F4D8B
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183894.jpgsave_picture_183894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183894.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Lori Williams - Behind the Smiles (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183895.jpgsave_picture_183895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183895.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Christopher Esse - Resonance Part 1-4 (2019-2022) 4CD [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183896.jpgsave_picture_183896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183896.jpg" />
 </div>
 
 

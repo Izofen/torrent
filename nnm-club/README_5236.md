@@ -6,7 +6,7 @@ Udemy, MSG Academy | Диагностика и ремонт стартеров �
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162909.jpgsave_picture_162909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162909.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Adobe Media Encoder 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162910.jpgsave_picture_162910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162910.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:34CDC2CB9937535514883113808F44A570D0A675
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162911.jpgsave_picture_162911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162911.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Pale Moon 28.17.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162912.jpgsave_picture_162912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162912.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B680A3B7F32347879E0770EEEC0EE257F263C9DC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162913.jpgsave_picture_162913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162913.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:3C9673D2A428D202D4FC30C6CF8C7DB852F1BA10
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162914.jpgsave_picture_162914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162914.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ CG Cookie, Paul Caggegi | PANELS: Create a Comic Book with Grease Pencil in Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162915.jpgsave_picture_162915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162915.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3EBBF3E302FCE8DC610ACDF8F9576FDC77CEF7B2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162916.jpgsave_picture_162916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162916.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Black Hole Trance Music 12-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162917.jpgsave_picture_162917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162917.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:34CEC9ACC1FDE5F5F40F4497256035FD846F3ABE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162918.jpgsave_picture_162918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162918.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B2966556FB204D8049F8FFA0B7B19D32711D8A20
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162919.jpgsave_picture_162919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162919.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Adobe Substance 3D Sampler 3.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162920.jpgsave_picture_162920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162920.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:49B88D25D9EF462CB7463E043A5E4C6B0EF1E34F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162921.jpgsave_picture_162921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162921.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D192273032105A7E5E3063673DE76C7A946D483B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162922.jpgsave_picture_162922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162922.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:0019DDB79CE7250D50DDC4DF6A5E75B9EFEE6EEF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162923.jpgsave_picture_162923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162923.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CG Cookie, Kent Trammell | CUBICITY: Creating and Utilizing Asset Libraries with
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162924.jpgsave_picture_162924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162924.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Audiobook Builder 2 v2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162925.jpgsave_picture_162925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162925.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Soprano Турецкого - Новогодние хиты (2020) [MP3|320 Kbps]
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162926.jpgsave_picture_162926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162926.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:96DB0F868C91DA3359C9ADAB1A1FCBBA55C880A7
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162927.jpgsave_picture_162927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162927.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Monterey Cache Cleaner 17.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162928.jpgsave_picture_162928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162928.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:35627D7F348A62C034C074C750F2426BB5849DB8
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162929.jpgsave_picture_162929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162929.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:3AF1A5E64A508CE19945E2D6CDAB77C4C0769A33
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162930.jpgsave_picture_162930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162930.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:36D92BC4CF96E15BA22E885DA6A67B57D3A85EC1
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162931.jpgsave_picture_162931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162931.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:DCB4747797B124176AA6D7EA56E917D79108B60F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162932.jpgsave_picture_162932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162932.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:968001381D15CF05D976C44D8A128EEB13D2A8D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162933.jpgsave_picture_162933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162933.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Syn
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162934.jpgsave_picture_162934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162934.jpg" />
 </div>
 
 

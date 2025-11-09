@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75107.jpgsave_picture_75107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75107.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75110.jpgsave_picture_75110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75110.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75112.jpgsave_picture_75112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75112.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:9DC11BAACF7E1D405D0C1AD679A264095DF47F54
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75121.jpgsave_picture_75121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75121.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:9DC11BAACF7E1D405D0C1AD679A264095DF47F54
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75124.jpgsave_picture_75124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75124.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:CC4F5828E9885CF6A102825835F135623F781D90
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75138.jpgsave_picture_75138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75138.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:F517A9D16D3BAFBBD1B4FECBD582668ED30A1F25
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75141.jpgsave_picture_75141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75141.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:68C5F871E32D43B802B276437C1B018C81AE2298
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75146.jpgsave_picture_75146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75146.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:570C0F035D80B3DD0EE9F51F783C81F845339726
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75147.jpgsave_picture_75147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75147.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:570C0F035D80B3DD0EE9F51F783C81F845339726
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75150.jpgsave_picture_75150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75150.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:1303E8FA495F00C59DCB24D888A5769D9085A027
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75154.jpgsave_picture_75154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75154.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:54DCB3F30837DA4464A25E90139F51B108902C74
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75159.jpgsave_picture_75159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75159.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:54DCB3F30837DA4464A25E90139F51B108902C74
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75161.jpgsave_picture_75161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75161.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:54DCB3F30837DA4464A25E90139F51B108902C74
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75163.jpgsave_picture_75163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75163.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:54DCB3F30837DA4464A25E90139F51B108902C74
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75165.jpgsave_picture_75165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75165.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:BAF25847EF4671FF3F558A51E4FF14AC643133CE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75166.jpgsave_picture_75166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75166.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Settlers 2: Awakening of Cultures [Wineskin] [Rus]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75172.jpgsave_picture_75172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75172.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:D87DC86DD7EE9D9F16585ED70779D9EF98B27275
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75173.jpgsave_picture_75173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75173.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ flOw является необычной игрой, в которой игро�
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75178.jpgsave_picture_75178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75178.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ flOw является необычной игрой, в которой игро�
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75181.jpgsave_picture_75181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75181.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ flOw является необычной игрой, в которой игро�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75186.jpgsave_picture_75186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75186.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:BBB4DBBD6C50AA50E4615D461F95D8537EA82448
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75187.jpgsave_picture_75187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75187.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:BBB4DBBD6C50AA50E4615D461F95D8537EA82448
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75194.jpgsave_picture_75194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75194.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:D9B9178F994ABB98E0DE7A1DDD5224BBB14C53FD
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75196.jpgsave_picture_75196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75196.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Namie Amuro - 13 альбомов + 40 синглов (1995-2011) Дискогр
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75204.jpgsave_picture_75204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75204.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ SimplyMEPIS 11.0.12 [i586 + x86_64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75207.jpgsave_picture_75207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75207.jpg" />
 </div>
 
 

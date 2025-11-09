@@ -6,7 +6,7 @@ Fuzzripper - Poltergeist (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67830.jpgsave_picture_67830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67830.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rabengott - 2 Albums (2023,2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67831.jpgsave_picture_67831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67831.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67832.jpgsave_picture_67832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67832.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Evgeny Rang Quartet - Midnight Cool (2024) Apollon & Evterpa [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67833.jpgsave_picture_67833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67833.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Love Legends (2002) [OGG Vorbis|480 Kbps] <Soft Rock, Soul, Ballad, Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67834.jpgsave_picture_67834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67834.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:7F349F72BDD074E5E62BB4125A391E221A5B17AB
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67835.jpgsave_picture_67835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67835.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Maxwellium - Blood &Smoke (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67836.jpgsave_picture_67836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67836.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:2BD5EB49644E50813E2A18353D90CF612030683E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67837.jpgsave_picture_67837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67837.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Chillout & Lounge Music Essentials (2025) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67838.jpgsave_picture_67838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67838.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:C92354B6A8E9F26746AAEF172B42B9E1CCA204B6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67839.jpgsave_picture_67839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67839.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:11EDAC5B718937F7948E7C9DCC97BBDE2799D143
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67840.jpgsave_picture_67840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67840.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67841.jpgsave_picture_67841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67841.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Izzy Reign - Izzy Reign (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Indust
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67842.jpgsave_picture_67842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67842.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:F19A56598C10816ACCD313ABF2B8040FE2C58EA3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67843.jpgsave_picture_67843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67843.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A2A8358F93B2018C16D59EDD329EBCB3866B6482
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67844.jpgsave_picture_67844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67844.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:2D26968E991C02B106AAB61C393464730A5F22EE
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67845.jpgsave_picture_67845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67845.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:097430EA2ED49730A0CA3A5561EB5AD5866DAA2F
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67846.jpgsave_picture_67846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67846.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:5A38A5AD62744780527D4E8419CB333226A7746C
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67847.jpgsave_picture_67847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67847.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 3 (2025) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67848.jpgsave_picture_67848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67848.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:809C28C84D586D40FE3D733C13CE80119476314F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67849.jpgsave_picture_67849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67849.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:98CEAF721B1DE2B1E324D8E5559A401650E6562F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67850.jpgsave_picture_67850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67850.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:5E46927A71830DE2DFFF19B384D288F44B328CAA
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67851.jpgsave_picture_67851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67851.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:35D7C55870006136E5D99A4FD1FBA462CE36CAF2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67852.jpgsave_picture_67852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67852.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Cirkus - Cirkadelic (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67853.jpgsave_picture_67853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67853.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:B94095C70C9BFD1384DE961FF4146BC2620C88EF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67854.jpgsave_picture_67854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67854.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:CB76770FF9916429FAAC649FF9102DD389A22660
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67855.jpgsave_picture_67855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67855.jpg" />
 </div>
 
 

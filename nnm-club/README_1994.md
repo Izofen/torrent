@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52210.jpgsave_picture_52210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52210.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52211.jpgsave_picture_52211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52211.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E72E7622951DFFA532DE5A45F8EFFA71D58EEAA8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52212.jpgsave_picture_52212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52212.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Jessica Long | Animal Embroidery Workbook (2020) [PDF] [EN]
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52213.jpgsave_picture_52213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52213.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9BB94F4201B866F8083069B0718FBE161444C6E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52214.jpgsave_picture_52214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52214.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:551D6E572A5EDD7C63800AC66A99C85CF5B9153C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52215.jpgsave_picture_52215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52215.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:FEB2D35F64BAAEAD393C626A794487BF1AEA9FDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52216.jpgsave_picture_52216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52216.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ SnapEdit - AI photo editor v6.5.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52217.jpgsave_picture_52217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52217.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:1A2A21FD62D2894289583DC3F9A1C880E15FE263
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52218.jpgsave_picture_52218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52218.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ R.E.M. - Live from the Pyramid Stage, Glastonbury Festival, June 25, 1999 (2024)
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52219.jpgsave_picture_52219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52219.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:E600BE3F5A753E173C2D577620C2CE766804B41F
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52220.jpgsave_picture_52220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52220.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Babbba - Cabaret Conversation (Vol 2) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52221.jpgsave_picture_52221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52221.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:98AF705A55AF752BE1F9830E3C676150104587BF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52222.jpgsave_picture_52222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52222.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:32541E57458312099AACDDB258AB61B43023CB35
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52223.jpgsave_picture_52223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52223.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:9196DB76F4E586C6C215CA086BEDAAB257178CB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52224.jpgsave_picture_52224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52224.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VivaVideo Video Editor v9.17.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52225.jpgsave_picture_52225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52225.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Redux Selection, Vol. 10 / 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52226.jpgsave_picture_52226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52226.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:DC04D64391F750FF3E17BCC1F2A3DA5F47E7C7B0
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52227.jpgsave_picture_52227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52227.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:DDA07B9FCAED819F33D70840F5DBFD5E4EB5000D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52228.jpgsave_picture_52228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52228.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:8EE1BB2C992C80C0A38277A70EF37C09572E460A
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52229.jpgsave_picture_52229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52229.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:8BB971010F58E3240825D1A5FC63F3DB6A3E4618
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52230.jpgsave_picture_52230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52230.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:F3C0A61C5BBC73DE8C6E7EFD15053D304FD7F803
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52231.jpgsave_picture_52231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52231.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:23E6989BEF1458FC06D3C3533B4E3B2978745AD3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52232.jpgsave_picture_52232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52232.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:F06E7AC9A15340F1B4284B07E4882A88C5C27140
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52233.jpgsave_picture_52233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52233.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D960E587B9A0BFAADDADF80A525A45B7A4FEB556
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52234.jpgsave_picture_52234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52234.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Fast Video Cutter Joiner 6.9.1 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52235.jpgsave_picture_52235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52235.jpg" />
 </div>
 
 

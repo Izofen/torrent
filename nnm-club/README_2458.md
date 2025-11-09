@@ -6,7 +6,7 @@ The Unseen Fears 7: Inner Darkness (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64658.jpgsave_picture_64658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64658.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D753A9C4CAF048780DB5511A99AF7077D12A01C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64659.jpgsave_picture_64659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64659.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D753A9C4CAF048780DB5511A99AF7077D12A01C4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64660.jpgsave_picture_64660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64660.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C8CA13032C5E77BB575812C81F5F6ABDB71B2A71
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64661.jpgsave_picture_64661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64661.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2C6E90BD0880851709651E52B390AE9E70509E17
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64662.jpgsave_picture_64662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64662.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Metallica - ...And Justice for All (1988) [APE|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64663.jpgsave_picture_64663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64663.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - On the Beach: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64664.jpgsave_picture_64664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64664.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Paul McCartney - Paul Is Live (1993) SHM-CD, Japanese Edition, Reissue, Remaster
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64665.jpgsave_picture_64665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64665.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ MeldaProduction - MCompleteBundle 17.05 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64666.jpgsave_picture_64666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64666.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:EF7B914C84EDC8A8875EB55912F8AA8710F2C670
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64667.jpgsave_picture_64667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64667.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.10 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64668.jpgsave_picture_64668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64668.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F9D9A75478D74462D5944FDA723290202E83E6C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64669.jpgsave_picture_64669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64669.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:3BB0606094C5E0BDCB481A90C58053A7A109C13A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64670.jpgsave_picture_64670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64670.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Summer Jam 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, House, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64671.jpgsave_picture_64671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64671.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64672.jpgsave_picture_64672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64672.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A4EBEDBB799D35E6967541C8E2677EE6FE819420
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64673.jpgsave_picture_64673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64673.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Deep Reflections: Summer Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Or
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64674.jpgsave_picture_64674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64674.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nightingale - I (2000) Reissue, Remastered, 2024, Inside Out Music [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64675.jpgsave_picture_64675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64675.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:863F6C815AB131E35F5BD727D2B8DB14994AFD34
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64676.jpgsave_picture_64676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64676.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:54A58E315E9C361F54C77006D469CBC4DA3ABD62
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64677.jpgsave_picture_64677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64677.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Nick Kamen - Whatever, Wherever (1992) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64678.jpgsave_picture_64678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64678.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Chill Mood (I want a quiet summer !) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64679.jpgsave_picture_64679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64679.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6F884E80C6EDE24AB8C971EE8FBDB480CC676AF3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64680.jpgsave_picture_64680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64680.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Nick Kamen - Move Until We Fly (1990) 1st German Press [APE|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64681.jpgsave_picture_64681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64681.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Lanpirot | Позывной Хоттабыч (Книга 7). Аватар Х. Ч
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64682.jpgsave_picture_64682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64682.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Lanpirot | Позывной Хоттабыч (Книга 8). Исчадие Кр
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64683.jpgsave_picture_64683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64683.jpg" />
 </div>
 
 

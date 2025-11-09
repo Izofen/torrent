@@ -6,7 +6,7 @@ Fantastic Negrito - 6 Albums, 2 EP (2014 - 2024) [FLAC|Lossless|tracks + .cue] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15495.jpgsave_picture_15495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15495.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:E2D89A56BF2B261A0CA479577800D39694223141
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15496.jpgsave_picture_15496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15496.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:E927AD94312CE9375FB84B9C1EBAE0CB601AF0D8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15497.jpgsave_picture_15497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15497.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:2C027DAB1D0CB30C75F8462EF7FFA22895E9F5A2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15498.jpgsave_picture_15498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15498.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4EDCB22BAD9C49EA414B1A0F2CE9073B7D159610
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15499.jpgsave_picture_15499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15499.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A369ADD84E073D7A2AB788DCDD18808E4DB15E24
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15500.jpgsave_picture_15500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15500.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ R-Studio Network / Technician 9.5 Build 191520 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15501.jpgsave_picture_15501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15501.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:1F5985189C3886C399EE671FD9A34024D5536E68
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15502.jpgsave_picture_15502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15502.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1-51755) Repack Let'sРlay [Digital Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15503.jpgsave_picture_15503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15503.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:1A8D656557FDF53133CE93EE5DB5D653EE4736DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15504.jpgsave_picture_15504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15504.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ DxO PhotoLab Elite 8.6.0 build 589 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15505.jpgsave_picture_15505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15505.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Linkin Park - Studio Albums (10 releases) (2000-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15506.jpgsave_picture_15506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15506.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F1BE16F7F88AB731498FF17D3BD17C6320A7199D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15507.jpgsave_picture_15507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15507.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Archons (2024) [Ru/Multi] (1.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15508.jpgsave_picture_15508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15508.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D0BAA443D6BB82A5156A3A33633D165BEC32A0B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15509.jpgsave_picture_15509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15509.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Hitman 2: Silent Assassin (2002) [En] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15510.jpgsave_picture_15510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15510.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:178A692A28EB1EAA5DEDF08EAFC99B882BF497E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15511.jpgsave_picture_15511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15511.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:175FD8A4A3DE95ED3944936484EC59B97DF78EFB
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15512.jpgsave_picture_15512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15512.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Moroi (2025) [Ru/Multi] (1.10) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15513.jpgsave_picture_15513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15513.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Roboquest (2020) [Ru/Multi] (51755 build 651/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15514.jpgsave_picture_15514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15514.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:D677B53BE779F84AB63BB10D06CA2D2FEE8049C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15515.jpgsave_picture_15515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15515.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:A945EDAB401CADD9768D55457D14E61A5FA3E3A3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15516.jpgsave_picture_15516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15516.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:646D05D1E4DB671B2FC1E02D59E73225F7184684
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15517.jpgsave_picture_15517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15517.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:EC34EC954CDD048187ED7DDE1A2FB25132425705
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15518.jpgsave_picture_15518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15518.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ DuckTales: Remastered (2013) [Ru/Multi] (Build 1384683) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15519.jpgsave_picture_15519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15519.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:39B77F153E275E4FA4857E505B209FA9675CAFC9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15520.jpgsave_picture_15520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15520.jpg" />
 </div>
 
 

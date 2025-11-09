@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205243.jpgsave_picture_205243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C11E511CC5359859B96DCB464A649E5A63699B1C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205245.jpgsave_picture_205245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205245.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ InShot - Фото и видеоредактор 1.953.1414 Mod by maxi123444 [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205247.jpgsave_picture_205247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205247.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DJ Dean and Victor F. - MSF - Multi Sound Format (The Dark Side) (2023) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205248.jpgsave_picture_205248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205248.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5593475EA9D2F7F4ED3F1113463D387671225574
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205250.jpgsave_picture_205250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205250.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D9672AFE09AFB65D6808D4EB8D0BAC0B2FFD1699
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205253.jpgsave_picture_205253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205253.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5BFF5408A05CE1C14338E649822D47E7B2D9B8E2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205254.jpgsave_picture_205254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205254.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:FB925689271972B42498EF00A46D5919875FC569
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205256.jpgsave_picture_205256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205256.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:817152F7F1199AC82E62AF0C6A51F045A5A1A0F8
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205259.jpgsave_picture_205259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205259.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:58439B5C072D0276D9BF0F7CAAB4E0C8CD455DD4
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205261.jpgsave_picture_205261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205261.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Blindside Blues Band - XVI (2023) [FLAC|Lossless|image + .cue] <Blues-Rock, Hard
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205263.jpgsave_picture_205263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205263.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ MyMovie - Видеоредактор 12.5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205264.jpgsave_picture_205264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205264.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:DF7DEA1DC030B562B3EDC17F47BB68461DA0DFAE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205266.jpgsave_picture_205266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205266.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:42F93A3F8F1EAFEB07C4FA858FBBD737264FD4F2
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205268.jpgsave_picture_205268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205268.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Photomath Plus 8.28.0 (b70000936) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205271.jpgsave_picture_205271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205271.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C5502CF0225F2F8B361C45C2CC11C3917A7FB673
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205272.jpgsave_picture_205272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205272.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A8755798A13D256251C805E6211210552D3C79D9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205274.jpgsave_picture_205274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205274.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ The Clock - The Best World Clock 4.8 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205275.jpgsave_picture_205275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205275.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ AYBO 1.22.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205277.jpgsave_picture_205277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205277.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Phil Woods & Gene Quill - Phil & Quill With Prestige (1957) 1991, Original Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205279.jpgsave_picture_205279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205279.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205281.jpgsave_picture_205281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205281.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ FontXChange 5.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205283.jpgsave_picture_205283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205283.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:358DC5FC5D1263A03164FC43120C9748F4042F55
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205285.jpgsave_picture_205285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205285.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Krisiun - Mortem Solis (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205287.jpgsave_picture_205287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205287.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Auditory - Rec lecture & notes 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205289.jpgsave_picture_205289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205289.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ WonderPen 2.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205291.jpgsave_picture_205291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205291.jpg" />
 </div>
 
 

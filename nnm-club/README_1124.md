@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29579.jpgsave_picture_29579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29579.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38D666DD67AC57C05230745CD5B7B6209CE21EC0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29580.jpgsave_picture_29580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29580.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:191AD952C2610056B7C6BD695C637576D1F7043D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29581.jpgsave_picture_29581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29581.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:DB0DA8E2239D38D8FE65782EE501107936C04DE1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29582.jpgsave_picture_29582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29582.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5BA4B0EE1CE4D4C7A8BB14B0F199C4211D885E0A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29583.jpgsave_picture_29583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29583.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Mflex Sounds - Bad Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29584.jpgsave_picture_29584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29584.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:BD7F33C66AE6CEA37C2C73350BB7DDCCAB644782
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29585.jpgsave_picture_29585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29585.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6AA7FAA180AD96F146258ADF1CAF3F88C8509AF1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29586.jpgsave_picture_29586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29586.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:DD60F599288DB87D6D69B8B05C837DA87D0E398A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29587.jpgsave_picture_29587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29587.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:A05857EB9DE89127BC0F3A9C2374626A9C05F42C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29588.jpgsave_picture_29588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29588.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [FLAC|Lossless|WEB-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29589.jpgsave_picture_29589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29589.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Sandboxie 5.70.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29590.jpgsave_picture_29590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29590.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Mflex Sounds - Misleading Truth (Volumes) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29591.jpgsave_picture_29591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29591.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ EhRah - Beyond The Sky (2024) [MP3|320 Kbps] <Synthwave, 80s Retrowave, Disco Ho
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29592.jpgsave_picture_29592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29592.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:FEC6A47DF92B2B92D80E7B3CE62D5B65DB66FE7E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29593.jpgsave_picture_29593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29593.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ StartAllBack 3.9.2 build 5232 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29594.jpgsave_picture_29594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29594.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ FastCopy Pro 5.8.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29595.jpgsave_picture_29595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29595.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:BA75EE97CA1D380F32BD14FE45BA1C9D0D17C779
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29596.jpgsave_picture_29596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29596.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ TechSmith Camtasia 24.1.5 Build 6542 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29597.jpgsave_picture_29597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29597.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:EC3020878C51E5F91978CE44D09A246F15129289
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29598.jpgsave_picture_29598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29598.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ TweakPower 2.068 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29599.jpgsave_picture_29599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29599.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:7DE7D28E7562E9F798F8C8C346D1BF08A55AC978
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29600.jpgsave_picture_29600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29600.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:313314134B3E0F8E54A28B6A0B2EB0AE89C0DAFF
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29601.jpgsave_picture_29601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29601.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:6F9D2C069A28E64EB09F65B9667F117E7B4F60BF
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29602.jpgsave_picture_29602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29602.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:1CAE8D9DA7F1DB297DCB4ADC832D2FA6887BBC6B
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29603.jpgsave_picture_29603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29603.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:DF89BC61F7D6000AF47862CDAA04D4C04D854153
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29604.jpgsave_picture_29604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29604.jpg" />
 </div>
 
 

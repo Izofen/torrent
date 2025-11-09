@@ -6,7 +6,7 @@ AveNue - Четвертак (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235846.jpgsave_picture_235846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235846.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Armory - Mercurion (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235849.jpgsave_picture_235849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235849.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Deathstars - Everything Destroys You (2023) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235852.jpgsave_picture_235852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235852.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Psilocybe Larvae - Stigmata (2001) [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235856.jpgsave_picture_235856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235856.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Perished - Kark (1998) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235864.jpgsave_picture_235864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235864.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chords Of Chaos - For Those About to Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235867.jpgsave_picture_235867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235867.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eddie B - I'm Holding On (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235868.jpgsave_picture_235868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235868.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Power from Hell - The True Metal (2004) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235871.jpgsave_picture_235871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235871.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Steely Dan - Countdown To Ecstasy (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <R
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235874.jpgsave_picture_235874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235874.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ FireWolfe - We Rule The Night (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235879.jpgsave_picture_235879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235879.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Dead Krazukies - From the Underworld (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235900.jpgsave_picture_235900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235900.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Perished - Seid (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235917.jpgsave_picture_235917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235917.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Blud Red Roses - Fall to the Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235929.jpgsave_picture_235929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235929.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kuturlat - Necroritual (2005) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235934.jpgsave_picture_235934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235934.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Beast Eagle - Beast Eagle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235937.jpgsave_picture_235937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235937.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Silent Rage - Nuances Of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235945.jpgsave_picture_235945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235945.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stepson - Help Me, Help You (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235948.jpgsave_picture_235948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235948.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Cinderella - 20th Century Masters: The Millennium Collection: Best Of Cinderella
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235949.jpgsave_picture_235949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235949.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Rock'n'roll Party (2023) [MP3|320 Kbps] <Rock n Roll, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235954.jpgsave_picture_235954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235954.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Exploding Hearts - Guitar Romantic (2023) Expanded & Remastered [FLAC 24/44.
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235974.jpgsave_picture_235974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235974.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Shadowland - Collection (1992-1996) 3CD [FLAC|Lossless|image + .cue] <Neo-progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235979.jpgsave_picture_235979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235979.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Host - IX (2023) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock, Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236002.jpgsave_picture_236002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236002.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nepenthes - Grand Guignol (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236018.jpgsave_picture_236018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236018.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mork - Dypet (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236025.jpgsave_picture_236025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236025.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Lurking Fear - Death, Madness, Horror, Decay (2021) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236028.jpgsave_picture_236028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236028.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ IronBourne - IronBourne (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236034.jpgsave_picture_236034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236034.jpg" />
 </div>
 
 

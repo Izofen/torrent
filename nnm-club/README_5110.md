@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159584.jpgsave_picture_159584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159584.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ darktable 4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159585.jpgsave_picture_159585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159585.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ SlimBrowser 17.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159586.jpgsave_picture_159586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159586.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9BCFA686EB944E8A3F4E175B7F3BEEEC92DCBC9D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159587.jpgsave_picture_159587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159587.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Severals - Algorithm (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159588.jpgsave_picture_159588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159588.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A7DCEFD225594A441FE30261CDF1D6B4CB694214
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159589.jpgsave_picture_159589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159589.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ovnimoon - Carjecatma (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159590.jpgsave_picture_159590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159590.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F5197B3C98A6E7CF911FA92F4D468B62904D87DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159591.jpgsave_picture_159591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159591.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:F82210618E52BBFC41E7FE4254EE56047A94E6CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159592.jpgsave_picture_159592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159592.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Paul Mauriat - Dans Les Yeux D'Emilie (1978) Remastered, 2019, Vocalion [OGG Vor
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159593.jpgsave_picture_159593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159593.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:71675EBC1BBF8D842DC79278ED4CD4EEBF4D9E30
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159594.jpgsave_picture_159594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159594.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ The Tunes - Navira 1.1.6 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159595.jpgsave_picture_159595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159595.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Luxury Disco - Ultimate House Grooves (2022) [MP3|320 Kbps] <Funky, Indie D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159596.jpgsave_picture_159596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159596.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:477D9E70F51F1FA8052F1C5B3BD176E0028CAA93
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159597.jpgsave_picture_159597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159597.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:6CFFE0A1E25EE8FFB7752FDD74A51E69FC0D12FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159598.jpgsave_picture_159598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159598.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Wolfcross - From the North (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159599.jpgsave_picture_159599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159599.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:F606E9EA6EAD337C8DC0C289563EE8C45E8C2FEC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159600.jpgsave_picture_159600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159600.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Select Mix Cafe Zone Vol.05 (2022) [MP3|320 Kbps] <Disco, Rhythm & Blues, P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159601.jpgsave_picture_159601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159601.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:901925DDD388549F164A46089E8241CDA99E5442
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159602.jpgsave_picture_159602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159602.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Privacy Eraser Free 5.31.0 Build 4400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159603.jpgsave_picture_159603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159603.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:1276100E831158D0B7AFD025944E92D5B87B6AE6
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159604.jpgsave_picture_159604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159604.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:E7F95141EEA9D42CC63CD2239A42116822247DDD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159605.jpgsave_picture_159605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159605.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:C6817E2A1F8AFF3ED828F79DC1397FB071BA0582
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159606.jpgsave_picture_159606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159606.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:8CEDE45D3432B4ADAE545358621017F5AE1B6028
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159607.jpgsave_picture_159607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159607.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Arch Enemy - Deceivers (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159608.jpgsave_picture_159608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159608.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:26ECB1B3720F24F3BA6D8F384377C7073122B145
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159609.jpgsave_picture_159609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159609.jpg" />
 </div>
 
 

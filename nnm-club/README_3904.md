@@ -6,7 +6,7 @@ Shingeki no Kyojin: The Final Season (2022) | Attack on Titan The Final Season (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121973.jpgsave_picture_121973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121973.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4CF69C7F7C61395FE386A26C5EE420440CE1BE36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121974.jpgsave_picture_121974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121974.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1BACD4ACDA2FE68E7B26EB6724AE5A5475CBF64C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121975.jpgsave_picture_121975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121975.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DF91B7A79F69D75048742E22C40623CC02106F0A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121976.jpgsave_picture_121976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121976.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A1AD7673F7BF1C986B1280C82E6C7D9AD37061E0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121977.jpgsave_picture_121977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121977.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:997BF98D17063896DAA81B1A637FC45D4A76C0DC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121978.jpgsave_picture_121978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121978.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7DF30FC7C8F0B2EAD7877B874A558291ACFBF8E3
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121979.jpgsave_picture_121979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121979.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Cub (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121980.jpgsave_picture_121980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121980.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:69CFBBAB653CFEF9D02AAF8F8C311ACB7894D084
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121981.jpgsave_picture_121981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121981.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Deacon Stone - That Little Girl (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121982.jpgsave_picture_121982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121982.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Dred Buffalo - Dred Buffalo (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121983.jpgsave_picture_121983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121983.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:6E3DE111CFDFF2F86794E4804B2F27D135986012
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121984.jpgsave_picture_121984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121984.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Michael Nadolny - Heart Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121985.jpgsave_picture_121985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121985.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:72F7C2AC97DFFA06F786ED2470AE094B0683DBD0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121986.jpgsave_picture_121986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121986.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:4DF51C12C0ADC495524B7193EF331286EDC812BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121987.jpgsave_picture_121987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121987.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Final Coil - The World We Inherited (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121988.jpgsave_picture_121988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121988.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:7399B037C2B133C3B234D2D1828C3489BEB13091
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121989.jpgsave_picture_121989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121989.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Ruby Braff - And His New England Songhounds, Vol. 2 (1992) Concord Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121990.jpgsave_picture_121990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121990.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:5D85528FCA7C53C248D88A3E94AC04C1EA9EDD8E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121991.jpgsave_picture_121991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121991.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C50103CF8391263A87F92D360F42EEF733A417F4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121992.jpgsave_picture_121992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121992.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Sonny Stitt - My Mother's Eyes (1963) 2011, EMI Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121993.jpgsave_picture_121993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121993.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Good Mood Music Academy - Sunny Winter Jazz Instrumental December Good Mood and 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121994.jpgsave_picture_121994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121994.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:4594B593688397CE6FCA2DC502F086F71FC4A2EE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121995.jpgsave_picture_121995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121995.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Black Hole House Music 01-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121996.jpgsave_picture_121996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121996.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Revolution Saints - Against The Winds (2024) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121997.jpgsave_picture_121997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121997.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Autumn's Child - Tellus Timeline (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121998.jpgsave_picture_121998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121998.jpg" />
 </div>
 
 

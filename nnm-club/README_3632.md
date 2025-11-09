@@ -6,7 +6,7 @@ Marian McPartland - Windows (1979, 1980) 2CD, 2004, Concord Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114807.jpgsave_picture_114807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114807.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114808.jpgsave_picture_114808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114808.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A4ED4D581A5C263E8B86E37D92F8FEFEFFD39D99
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114809.jpgsave_picture_114809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114809.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:E7D30C1D61B7442CE880E26751D6EBC5BEBE8AFA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114810.jpgsave_picture_114810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114810.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:189ACCE5A9843A6AA700DDE6DC3D4571697EF5D4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114811.jpgsave_picture_114811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114811.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Privacy Eraser Free 6.4 Build 4856 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114812.jpgsave_picture_114812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114812.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:801C81B7EC2922D0C0B04337FA25E08AB1DE3509
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114813.jpgsave_picture_114813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114813.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Beatrice Egli - Alles in Balance - Leise (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114814.jpgsave_picture_114814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114814.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:706E31C4F6C06669ACB3865DC7DF443711A6767A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114815.jpgsave_picture_114815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114815.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114816.jpgsave_picture_114816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114816.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - The Sound of 2024 Mix 2: Santiago (2024) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114817.jpgsave_picture_114817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114817.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Sahib Shihab - Jazz Joint 2: Companionship (1971) 2007, Anti-Magnetic [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114818.jpgsave_picture_114818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114818.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Armin van Buuren - A State Of Trance 1162 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114819.jpgsave_picture_114819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114819.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ David Reece - Baptized By Fire (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114820.jpgsave_picture_114820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114820.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114821.jpgsave_picture_114821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114821.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:3DCDA12DE92B4F5CACDA3A02105382AA30DC6532
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114822.jpgsave_picture_114822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114822.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:93342E2176215C5B69487407F3C842055BC224EC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114823.jpgsave_picture_114823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114823.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Firehouse - Firehouse (1990) Remaster, 2024, Epic; Sony Music Entertainment [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114824.jpgsave_picture_114824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114824.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:023E61C696EE4E03AC94FE2B94AF31B850114D90
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114825.jpgsave_picture_114825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114825.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Lesbian Bed Death - Midnight Lust (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114826.jpgsave_picture_114826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114826.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ New Years Day - Half Black Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114827.jpgsave_picture_114827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114827.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ TreeSize Free 4.7.2.526 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114828.jpgsave_picture_114828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114828.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:278A09F44F071F4ACB2299CB07B6551D7352614D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114829.jpgsave_picture_114829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114829.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ BurnAware Professional 17.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114830.jpgsave_picture_114830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114830.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114831.jpgsave_picture_114831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114831.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114832.jpgsave_picture_114832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114832.jpg" />
 </div>
 
 

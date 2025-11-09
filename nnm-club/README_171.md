@@ -6,7 +6,7 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4500.jpgsave_picture_4500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4500.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BigLyBT 3.9 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4501.jpgsave_picture_4501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4501.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B0F2559B3490E25E3558325C5BA96A36F1933A3C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4502.jpgsave_picture_4502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4502.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E143D60DABDE0AF9D263ABAB362E870201FC8ACF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4503.jpgsave_picture_4503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4503.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:160805E3ADFE9DD8E4D70E0101CFF643E93B90EB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4504.jpgsave_picture_4504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4504.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:160805E3ADFE9DD8E4D70E0101CFF643E93B90EB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4505.jpgsave_picture_4505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4505.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack SE7EN
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4506.jpgsave_picture_4506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4506.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8F144A3C5BF6FDF4F2FC81676003244F110E8BA3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4507.jpgsave_picture_4507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4507.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.77/dlc) Repack Let'sРlay [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4508.jpgsave_picture_4508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4508.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Tiny Glade (2024) [Ru/Multi] (1.14.2) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4509.jpgsave_picture_4509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4509.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Gears of War Reloaded (2025) [Ru/En] (1.0.1.3725653) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4510.jpgsave_picture_4510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4510.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D7FB2028DD4E05184DC587129A0EBC2744AE9ABE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4511.jpgsave_picture_4511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4511.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:702E2702777978316ED838612C4453C86E8B4120
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4512.jpgsave_picture_4512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4512.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Coral Island (2023) [Multi] (1.2.1239/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4513.jpgsave_picture_4513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4513.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:374783385EE9A459099C1EB5AC18ABBC1B100593
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4514.jpgsave_picture_4514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4514.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ The Drifter (2025) [Multi] (1.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4515.jpgsave_picture_4515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4515.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:F267578602F5EFA2BA5CAEC08E514FC207225C88
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4516.jpgsave_picture_4516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4516.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4517.jpgsave_picture_4517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4517.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ S.T.A.L.K.E.R. Anomaly (2021) [Ru/En] (1.5.3) License GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4518.jpgsave_picture_4518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4518.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:9C1193770A65ED23B3F22CDC1D98E29EF42B2A58
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4519.jpgsave_picture_4519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4519.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Hell is Us (2025) [Ru/Multi] (1.3.36.43556/dlc) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4520.jpgsave_picture_4520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4520.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:74C3A29F6313110C54437332C41AE6F115DB8C9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4521.jpgsave_picture_4521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4521.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - 25 Years Of Anjuna Mixed By CRi (2025) [MP3|320 Kbps] <Deep House, Melodic 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4522.jpgsave_picture_4522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4522.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:C89639531E806208E08FC26B8F803C1595A18DB1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4523.jpgsave_picture_4523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4523.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:913A2170BAC39D0D770A060984CB27C9B7552D50
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4524.jpgsave_picture_4524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4524.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:C08B9251638B24EA1A6AE1B4D9778472EF63BE83
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4525.jpgsave_picture_4525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4525.jpg" />
 </div>
 
 

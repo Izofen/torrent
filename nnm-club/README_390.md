@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10309.jpgsave_picture_10309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10309.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WinRAR 7.13 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10310.jpgsave_picture_10310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10310.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by Dodakaedr [Mu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10311.jpgsave_picture_10311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10311.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10313.jpgsave_picture_10313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10313.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10314.jpgsave_picture_10314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10314.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10315.jpgsave_picture_10315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10315.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Tor Browser Bundle 14.5.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10316.jpgsave_picture_10316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10316.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:376D9844869747E1707733A228707502534AEF14
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10317.jpgsave_picture_10317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10317.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:376D9844869747E1707733A228707502534AEF14
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10318.jpgsave_picture_10318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10318.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Star Wars Battlefront II (2) (2017) [Ru/Multi] (1.1.8.16162/dlc) Repack seleZen 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10319.jpgsave_picture_10319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10319.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:D75EF887CEF048867271FF53768259CB43192F31
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10320.jpgsave_picture_10320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10320.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D75EF887CEF048867271FF53768259CB43192F31
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10321.jpgsave_picture_10321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10321.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Kobezzza, Андрей Кобец | Практический курс по TypeS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10322.jpgsave_picture_10322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10322.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:BB2E7E4C6EF9A67FA65985342DB4D4AC3973F00C
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10323.jpgsave_picture_10323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10323.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:A8D60C49EACF4048C5E1067DC64BF46D2509EDE7
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10324.jpgsave_picture_10324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10324.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A8D60C49EACF4048C5E1067DC64BF46D2509EDE7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10325.jpgsave_picture_10325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10325.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10326.jpgsave_picture_10326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10326.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10327.jpgsave_picture_10327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10327.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B752FF9BB0041FA91CD909772DCABAD22CF966E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10328.jpgsave_picture_10328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10328.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Microsoft создала утилиту для быстрого переноса
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10329.jpgsave_picture_10329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10329.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Microsoft тестирует новую функцию миграции «с к�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10330.jpgsave_picture_10330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10330.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Microsoft тестирует новую функцию миграции «с к�
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10331.jpgsave_picture_10331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10331.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:D228A5C24D14F9FF2B449D6A43649B50CDEF5DF3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10332.jpgsave_picture_10332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10332.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:8D968D42D31EE175126597495BF0960ED48011A3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10333.jpgsave_picture_10333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10333.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Other s [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10334.jpgsave_picture_10334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10334.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Launcher for zapret 2.9 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10335.jpgsave_picture_10335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10335.jpg" />
 </div>
 
 

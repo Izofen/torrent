@@ -6,7 +6,7 @@ BusyContacts 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233835.jpgsave_picture_233835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233835.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ghost - Phantomime (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233836.jpgsave_picture_233836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233836.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Frozen Land - Out of the Dark (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233837.jpgsave_picture_233837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233837.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:76D7D88DFE0FE255FCFA4CCE19644AB4AAE1DE89
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233838.jpgsave_picture_233838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233838.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ CADintosh X 8.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233839.jpgsave_picture_233839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233839.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SUXOV v2.2.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233840.jpgsave_picture_233840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233840.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:0775287AC530CB084C159A62B86B2A67F7808FB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233842.jpgsave_picture_233842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233842.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:3DC9B1681787A866FACDBE168093C6B7B60C68D5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233843.jpgsave_picture_233843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233843.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Eibon - Entering Darkness (2010) [FLAC|Lossless|image + .cue] <Sludge Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233844.jpgsave_picture_233844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233844.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Stanley Turrentine - The Best of Stanley Turrentine (1990) Epic [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233845.jpgsave_picture_233845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233845.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:B907A4EF16298504D1EF5ED12FEC2499DA7DEAD8
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233846.jpgsave_picture_233846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233846.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Deliver Express 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233847.jpgsave_picture_233847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233847.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:4E32ABED9E9AAE48D330340147904A3B809E1B2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233848.jpgsave_picture_233848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233848.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Easy New File 5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233849.jpgsave_picture_233849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233849.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Pink Mountaintops - Peacock Pools (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233851.jpgsave_picture_233851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233851.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:67E021C1117119CCF97D6E1DBD5686C464EB0B68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233852.jpgsave_picture_233852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233852.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Degrees of Truth - Time Travel Artifact (2019) [MP3|320 Kbps] <Symphonic Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233853.jpgsave_picture_233853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233853.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:EFFE65ED6D7B15A3403C7E3BF47CE156CCA242E8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233854.jpgsave_picture_233854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233854.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:9B96DB042D89DCC25DAB1EFB5DDBD0FD2DEB6A10
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233856.jpgsave_picture_233856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233856.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Aspect Ratio X 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233857.jpgsave_picture_233857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233857.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:48F6A1A1D19C475A748336BBC5C402E5223B4F4D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233858.jpgsave_picture_233858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233858.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:E8D71B72DA6F52D6771EC75502D57678E3A48287
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233859.jpgsave_picture_233859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233859.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Apeaksoft Android Toolkit 1.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233860.jpgsave_picture_233860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233860.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Icecream Video Converter 1.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233861.jpgsave_picture_233861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233861.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233862.jpgsave_picture_233862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233862.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:CC971319218B50EAC6AABC030F1618BD4B1E4738
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233863.jpgsave_picture_233863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233863.jpg" />
 </div>
 
 

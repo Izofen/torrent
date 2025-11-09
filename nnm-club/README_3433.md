@@ -6,7 +6,7 @@ El Moono - The Waking Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109619.jpgsave_picture_109619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109619.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FE211EC28B888703D4671751049DD2695A43C0BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109620.jpgsave_picture_109620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109620.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bal-Sagoth - The Chthonic Chronicles (2006) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109621.jpgsave_picture_109621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109621.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sails of Serenity - Eternal Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109622.jpgsave_picture_109622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109622.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:953E04FE28524D5EE10CE9E589F10001609C544D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109623.jpgsave_picture_109623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109623.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Wavesequencer - Hyperion 1.53 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109624.jpgsave_picture_109624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109624.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:AE172F4158ED80D9261F1F227B511E22643A6ADD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109625.jpgsave_picture_109625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109625.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Audio Damage - Other Desert Cities 1.0.11 VST 3, AAX, CLAP (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109626.jpgsave_picture_109626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109626.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Cats And Cats And Cats - Sweet Drunk Everyone (2006) ReMaster, 2024, Robot Needs
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109627.jpgsave_picture_109627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109627.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ PhotoDirector - Редактор фото 19.2.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109628.jpgsave_picture_109628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109628.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Wavesequencer - Theia 1.10 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109629.jpgsave_picture_109629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109629.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Гонка (12.05.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109630.jpgsave_picture_109630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109630.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Kanatami - Зависимость (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109631.jpgsave_picture_109631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109631.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:90803CA53979AABF908B19879716591DF236BD3D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109632.jpgsave_picture_109632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109632.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Incubus - Morning View XXIII (2001) Remastered, 2024, Incubus [FLAC|Lossless|WEB
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109633.jpgsave_picture_109633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109633.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Rainbow Kitten Surprise - Love Hate Music Box (2024) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109634.jpgsave_picture_109634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109634.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Sublime with Rome - Sublime with Rome (2024) [FLAC|Lossless|WEB-DL|tracks] <Regg
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109635.jpgsave_picture_109635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109635.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Andy Lindquist - Resuscitated (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109636.jpgsave_picture_109636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109636.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Avrora - Любовь через провода (2014) [WavPack|Lossless|image +
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109637.jpgsave_picture_109637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109637.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fivebyfive - Phuck Around Phind Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109638.jpgsave_picture_109638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109638.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Hot Water Music - VOWS (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109639.jpgsave_picture_109639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109639.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:89ECDDDA8D30FE1C0F30B020C1B13BDDFFD0DA2B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109640.jpgsave_picture_109640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109640.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Delightful Cozy Sweet Lounge Inviting Instrumentals (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109641.jpgsave_picture_109641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109641.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Metal Riot - Birth of Terror (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109642.jpgsave_picture_109642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109642.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:355074262AAED080B07F6BA58D512B6BB46375FA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109643.jpgsave_picture_109643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109643.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:8432DED961439D23A91586209856EED5C0A1F80E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109644.jpgsave_picture_109644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109644.jpg" />
 </div>
 
 

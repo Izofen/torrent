@@ -6,7 +6,7 @@ Resident Evil 4 Remake Deluxe Edition (2023) [PS4] [EUR] 5.05 [HEN] [License / 1
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132795.jpgsave_picture_132795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132795.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Hotel Lounge IV by Bar de Paris (2012) [MP3|320 кб/с]<Downtempo, Lounge,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132796.jpgsave_picture_132796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132796.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Interior Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132797.jpgsave_picture_132797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132797.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:8E0A653609900962E6AFB015EC482F12614C1B2E
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132798.jpgsave_picture_132798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132798.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:396DB0C3B8400048957620916E858E8ADAAAEF77
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132800.jpgsave_picture_132800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132800.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:97D208344ABA5E6FAA9CE7F73D6F85942A7135E1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132801.jpgsave_picture_132801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132801.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Adobe Photoshop for Mac 2024 v.25.2.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132802.jpgsave_picture_132802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132802.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:92CF5C3960B2CD7A33F99002839F03FCA352FCAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132803.jpgsave_picture_132803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132803.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:E83297D8BA3F0FF34B5FD07EBFD8DB8644AD6A83
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132805.jpgsave_picture_132805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132805.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:5411710B05439CE731D6BE2D9D3776EF43DE3FB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132806.jpgsave_picture_132806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132806.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ A Place In Time - Transitions [EP] (2012) [FLAC|Lossless]<Pop Punk, Easycore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132807.jpgsave_picture_132807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132807.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ A Place In Time - Transitions [EP] (2012) [FLAC|Lossless]<Pop Punk, Easycore>
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132808.jpgsave_picture_132808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132808.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ SynWrite Editor 4.6 build 552 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132809.jpgsave_picture_132809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132809.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ SynWrite Editor - мощнейший текстовый редактор для 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132810.jpgsave_picture_132810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132810.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Computer Desktop Wallpapers Collection (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132811.jpgsave_picture_132811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132811.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:C67844ACF29C3758D3DC16B72E1EE9B276E3BDBC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132812.jpgsave_picture_132812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132812.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Computer Desktop Wallpapers Collection (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132813.jpgsave_picture_132813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132813.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132814.jpgsave_picture_132814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132814.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Lynx Wallpapers (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132815.jpgsave_picture_132815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132815.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:6D2111B42FACC5A201F57FE705C1D4788D825CA4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132816.jpgsave_picture_132816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132816.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ HQ Wallpapers for a desktop (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132817.jpgsave_picture_132817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132817.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:09020B95492984719794DEC26FB19B5DF598C553
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132818.jpgsave_picture_132818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132818.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Best HD Wallpapers Pack (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132819.jpgsave_picture_132819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132819.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:A79285B4AE45B2C871EA0148815F985B8D0DD274
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132820.jpgsave_picture_132820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132820.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Best HD Wallpapers Pack (26.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132821.jpgsave_picture_132821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132821.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:6998712B3CCAE54FF0D1684F58E92B8689AD975C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132822.jpgsave_picture_132822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132822.jpg" />
 </div>
 
 

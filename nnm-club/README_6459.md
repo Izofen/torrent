@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204634.jpgsave_picture_204634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204634.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A3CB6972C31E22099FD9EA22B7A1B181F061F29B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204635.jpgsave_picture_204635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204635.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:AFA86CD910E0F59B6ABE7410D93824CE99BD2BF1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204636.jpgsave_picture_204636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204636.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:55E371E70302FCB209874BBE574CA74550142459
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204637.jpgsave_picture_204637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204637.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:57950228560AAEBAED0127CEBC764FCADEF410F6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204638.jpgsave_picture_204638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204638.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F5A7486B67514A0622C51C62740564FDDC34D826
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204639.jpgsave_picture_204639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204639.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CA9A65A751ECA09A034A972603530919A8A58AC4
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204640.jpgsave_picture_204640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204640.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F6DDC104D3274D8357C3E1311D4E7479EE0F3D9F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204641.jpgsave_picture_204641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204641.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204642.jpgsave_picture_204642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204642.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ The Greatest Show On Earth - Horizons (1970) Reissue, 1994, Repertoire Records [
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204643.jpgsave_picture_204643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204643.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:6262D982D01826EF7B6AD666F642D2DAE8C82CF0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204644.jpgsave_picture_204644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204644.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:562467F30A71A07B9B57F47DBFFF6F03D5D3CF29
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204645.jpgsave_picture_204645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204645.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4A9C63466190FAF1D1AB173144ADE566316E9965
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204646.jpgsave_picture_204646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204646.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:488CE9E72ECE7FE23CC12610185175F4F0440BE2
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204647.jpgsave_picture_204647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204647.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:345E04BF41979A4E0BF84E503732F71CE2857DF6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204648.jpgsave_picture_204648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204648.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:C2F9FD8D32F764245240304EBA9AF09BE8FDFF46
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204649.jpgsave_picture_204649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204649.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:DBA3FB19A873A2262F1D61BFE4E5E0A9692C132D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204650.jpgsave_picture_204650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204650.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - Redux Presents: The Vocal Selection 2023 [MP3|320 Kbps] <Trance, Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204651.jpgsave_picture_204651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204651.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C1F8F588025A79C4BB0F3B00FFA569268AC10A63
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204652.jpgsave_picture_204652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204652.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Heimdall - Hephaestus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204653.jpgsave_picture_204653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204653.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Udemy, GameDev.tv Team, Ben Tristem и др. | RPG Core Combat Creator: Learn In
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204654.jpgsave_picture_204654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204654.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Requiem - POPulist Agendas (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204655.jpgsave_picture_204655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204655.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:B87B952E82CC23669A7158E5CD3AAAD1DF816CCF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204657.jpgsave_picture_204657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204657.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:591B1E344F2DC2612A907A7F07E2ADD8FECCF104
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204658.jpgsave_picture_204658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204658.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:D07ADB359767338AA176F37F546F502E23072153
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204659.jpgsave_picture_204659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204659.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:5F1D2EC3449253C054E7965A76954EEBDDE14EF6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204660.jpgsave_picture_204660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204660.jpg" />
 </div>
 
 

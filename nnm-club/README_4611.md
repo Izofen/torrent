@@ -6,7 +6,7 @@ BatchOutput PDF 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144327.jpgsave_picture_144327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144327.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144328.jpgsave_picture_144328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144328.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:7666DD192AA59DD5E14A9C95D60D76929009B9A6
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144329.jpgsave_picture_144329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144329.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru OST (2019) [FL
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144330.jpgsave_picture_144330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144330.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:C3CE9BA3AD69328E2642252A22940B3ACEA8E9AA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144331.jpgsave_picture_144331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144331.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Feel The Nature: Ambient Sound (2020) [MP3|320 Kbps] <Ambient, Downtempo, N
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144332.jpgsave_picture_144332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144332.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:35D0A8919876CE15CB823063B2A711F3E9FA5BBE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144333.jpgsave_picture_144333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144333.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Di
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144334.jpgsave_picture_144334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144334.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Lindi Ortega (Линди Ортега) - The Taste Of Forbidden Fruit (2001) Las
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144335.jpgsave_picture_144335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144335.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Juggernaut - Ground Zero Conflict (2011) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144336.jpgsave_picture_144336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144336.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:B224FCDB9EFEA13C348D5889B41019E36626426B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144337.jpgsave_picture_144337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144337.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Ashampoo Photo Optimizer 7.0.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144338.jpgsave_picture_144338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144338.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Mahouka koukou no Rettousei / The Irregular at Magic High School / Непуте�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144340.jpgsave_picture_144340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144340.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Miika Kuisma, Luminescent, DJ Tab - Ambient Selection (2017) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144341.jpgsave_picture_144341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144341.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:93BE95D04620339CFCCA3FA241D34929122F8612
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144342.jpgsave_picture_144342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144342.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:DA9550E45F69F7DA8C4AC240116002CA25D842EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144344.jpgsave_picture_144344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144344.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:50DBC857A804E8C902127E7748D3F08AE2CA16DD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144345.jpgsave_picture_144345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144345.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144347.jpgsave_picture_144347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144347.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:DD984C5D616782EA40DB13C34CFF275139BE0BBF
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144348.jpgsave_picture_144348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144348.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:DD984C5D616782EA40DB13C34CFF275139BE0BBF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144349.jpgsave_picture_144349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144349.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ SvaDaRa - Pilgrim / Зареница (2020) [MP3|320 Kbps] <Progressive Folk Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144350.jpgsave_picture_144350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144350.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Subete ga F ni Naru: The Perfect Insider / Everything Becomes F: The Perfect Ins
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144351.jpgsave_picture_144351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144351.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Dash 7.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144352.jpgsave_picture_144352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144352.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:2D842A4819F955482C8A306DD1810CBE804E3271
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144353.jpgsave_picture_144353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144353.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:298413F7745EDED735F697424556F7032696A9E1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144355.jpgsave_picture_144355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144355.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:C08D097C361C2A42AC97252EACCD879240F2C770
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144357.jpgsave_picture_144357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144357.jpg" />
 </div>
 
 

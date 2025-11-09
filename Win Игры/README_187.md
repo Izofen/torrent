@@ -6,7 +6,7 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55574.jpgsave_picture_55574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55574.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.318898) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55590.jpgsave_picture_55590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55590.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55631.jpgsave_picture_55631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55631.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Scene FairLi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55636.jpgsave_picture_55636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55636.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Venture to the Vile (2024) [Ru/Multi] (1.0.1) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55639.jpgsave_picture_55639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55639.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55645.jpgsave_picture_55645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55645.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Turbo Sloths (2022) [Ru/Multi] (13189048/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55656.jpgsave_picture_55656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55656.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ BroodStar (2020) [En] (1.6.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55661.jpgsave_picture_55661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55661.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55664.jpgsave_picture_55664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55664.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack seleZen [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55672.jpgsave_picture_55672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55672.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55683.jpgsave_picture_55683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55683.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.1.361/dlc) Repack Decepticon [Ju
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55700.jpgsave_picture_55700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55700.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55729.jpgsave_picture_55729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55729.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55756.jpgsave_picture_55756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55756.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55757.jpgsave_picture_55757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55757.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Kingdom Rush (2014) [Ru/Multi] (5.6.12) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55842.jpgsave_picture_55842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55842.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55856.jpgsave_picture_55856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55856.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55862.jpgsave_picture_55862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55862.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (4.2.33) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55902.jpgsave_picture_55902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55902.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ It Happened Here 3: A Storm is Brewing / Это случилось здесь 3:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55953.jpgsave_picture_55953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55953.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Athenian Rhapsody (2024) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55955.jpgsave_picture_55955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55955.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55994.jpgsave_picture_55994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55994.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tchia (2024) [Ru/Multi] (2.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56048.jpgsave_picture_56048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56048.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Maid of the Dead (2024) [Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56076.jpgsave_picture_56076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56076.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Lorelei and the Laser Eyes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56081.jpgsave_picture_56081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56081.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ StarCraft: Remastered (2017) [Ru/En] (1.23.9.10756) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56085.jpgsave_picture_56085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56085.jpg" />
 </div>
 
 

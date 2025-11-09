@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248130.jpgsave_picture_248130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248130.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:46CB712F25E6B38AD9671FBD719442BD23D346B2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248132.jpgsave_picture_248132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248132.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:04330B2C229E6A21EDD6BC73C356F140EB8B721C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248133.jpgsave_picture_248133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248133.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0B64872DE2B1BD259F6D14D33B8ECF022A2ACD0C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248134.jpgsave_picture_248134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248134.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - The Dance Cube XXXXI 2CD (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248135.jpgsave_picture_248135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248135.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Katri Ylander - Kaikki nämä sanat (2007) [MP3|160-202 кб/с]<Pop-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248137.jpgsave_picture_248137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248137.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:DCEB10B111149CA358136A378D2C915B0A4C421F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248138.jpgsave_picture_248138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248138.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:A3338D5B8DD1E4D8E2AD7CFA3A72FBDDD5105F0C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248139.jpgsave_picture_248139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248139.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Varios 30 (2012) (2CD)[MP3|320 кб/с]<Pop, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248141.jpgsave_picture_248141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248141.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:EBE5D38491D51D4969FA9A86F351AAE2AC9BE81E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248142.jpgsave_picture_248142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248142.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:2958E05032E0B2A23C1623E8C0DBCA5CC5BC667B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248144.jpgsave_picture_248144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248144.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Готовься к Лету: СуперМегаДискотека (2012) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248146.jpgsave_picture_248146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248146.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:738EAFB0918CE6E8B693BD84033037C80DFF033B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248150.jpgsave_picture_248150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248150.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:1E5F64E66F259EBA2CA890EFC0A85CEDE574C757
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248151.jpgsave_picture_248151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248151.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5AEAE9FF2B3A2881F3879A5FB2CF9B0DD33679BA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248153.jpgsave_picture_248153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248153.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:2CCEB665D5CC4A6F1AECAD3601A2B76E8CFA3D05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248155.jpgsave_picture_248155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248155.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2933400B8A7AB7B3701AF3045915F3CC9B9EB973
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248167.jpgsave_picture_248167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248167.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Russ Diapper - Kingsnake (2012) [MP3|~225 кб/с (V1)]<Hard Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248170.jpgsave_picture_248170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248170.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:D33A067C24C958EC37A3385726B21E69BEE7A3FD
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248172.jpgsave_picture_248172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248172.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:F9A21C188D31E12C0EF9650220EAF26BED965AD9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248173.jpgsave_picture_248173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248173.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:DCF15C0381250C93F8B5B69F45494C1CA8637DF4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248174.jpgsave_picture_248174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248174.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Elf [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248176.jpgsave_picture_248176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248176.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ DJ Johnson & DJ VanBellen - Speed Garage (1998) [MP3|~225 кб/с (V1)]<Speed Ga
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248179.jpgsave_picture_248179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248179.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:6624D1F43AD1A77CEC0CB57F2F509D52B23157F3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248180.jpgsave_picture_248180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248180.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:D22A9DB93EEBA59CBCF441A750BC6E8382A1AAD5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248183.jpgsave_picture_248183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248183.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ True Steppers - True Stepping (2000) [MP3|320 кб/с]<UK Garage, 2-Step>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248189.jpgsave_picture_248189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248189.jpg" />
 </div>
 
 

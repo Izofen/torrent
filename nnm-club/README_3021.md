@@ -6,7 +6,7 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93441.jpgsave_picture_93441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93441.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93443.jpgsave_picture_93443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93443.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Hilde Louise Asbjornsen - Eleven Nights (2005) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93453.jpgsave_picture_93453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93453.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Trisquel GNU/Linux 5.0 (LXDE&NetInstall) [i686 + x86_64] (4xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93489.jpgsave_picture_93489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93489.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gravediggaz - 6 Feet Deep (Niggamortis) (1994) [MP3|320 kbps]<East Coast Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93492.jpgsave_picture_93492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93492.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Various Artists - Rap Против наркотиков (2002) [MP3|320 kbps]<Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93496.jpgsave_picture_93496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93496.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:587F9FE9EC89FA2577D1D1AC49A3525DB868BD32
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93502.jpgsave_picture_93502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93502.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Trisquel GNU/Linux 5.0 (GNOME) [i686 + x86_64] (2xCD + 2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93514.jpgsave_picture_93514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93514.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ IntroWert - Progressive Reason Episode 071 [13.02.2012] (2012) [MP3|192 kbps]<Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93516.jpgsave_picture_93516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93516.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93517.jpgsave_picture_93517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93517.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93522.jpgsave_picture_93522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93522.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93524.jpgsave_picture_93524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93524.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93531.jpgsave_picture_93531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93531.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93537.jpgsave_picture_93537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93537.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:2C1DC4D14F78E6ADF682CF3A7AC92C263A7C7806
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93538.jpgsave_picture_93538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93538.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Meander - Time Machine (2012) [MP3|320 kbps]<Psychedelic / Full On, Psy-Prog>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93540.jpgsave_picture_93540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93540.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93550.jpgsave_picture_93550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93550.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Twina - Out As A Signal (2012) [MP3|192-320 kbps]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93552.jpgsave_picture_93552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93552.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93555.jpgsave_picture_93555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93555.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93559.jpgsave_picture_93559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93559.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93562.jpgsave_picture_93562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93562.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93569.jpgsave_picture_93569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93569.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Frank Popp Ensemble - Touch And Go (2005) [FLAC|Lossless]<Acid Jazz, Synth-pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93578.jpgsave_picture_93578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93578.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Frank Popp Ensemble - Touch And Go (2005) [FLAC|Lossless]<Acid Jazz, Synth-pop>
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93581.jpgsave_picture_93581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93581.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Corby Yates - Back From Yesterday (2005) [APE|Lossless]<Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93601.jpgsave_picture_93601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93601.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ VA - Operatic Metal Voices (2011) [MP3|320 kbps]<Symphonic Metal, Power Metal, G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93604.jpgsave_picture_93604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93604.jpg" />
 </div>
 
 

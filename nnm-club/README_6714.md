@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230884.jpgsave_picture_230884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230884.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:AD61F00088E2BF0B416AB251C6F25E770501F173
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230885.jpgsave_picture_230885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230885.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Necrofier - Burning Shadows in the Southern Night (2023) [MP3|320 Kbps] <Melodic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230889.jpgsave_picture_230889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230889.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9A710E39E2F60EFC7F5ECBD8511E73A4ACF1DF85
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230890.jpgsave_picture_230890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230890.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230891.jpgsave_picture_230891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230891.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Acoustica Premium Edition 7.4.14 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230892.jpgsave_picture_230892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230892.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Decimator - Dirty, Hot & Hungry (1993) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230894.jpgsave_picture_230894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230894.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:2D08F76F6EAA6D874080E836BBF5DA29E7739E92
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230896.jpgsave_picture_230896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230896.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:046FBC94F5A71C41751ECAC3EB16CB548B3B7F25
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230897.jpgsave_picture_230897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230897.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:07553495FAE3C3D5B50ED7FF5A1AF3FD1B788E9B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230898.jpgsave_picture_230898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230898.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Necrofier - Prophecies of Eternal Darkness (2021) [MP3|320 Kbps] <Melodic Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230899.jpgsave_picture_230899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230899.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:380C452EB7B1A7AA025D7E3EE3F912ADC6C68C73
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230902.jpgsave_picture_230902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230902.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Telegram Desktop 4.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230903.jpgsave_picture_230903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230903.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D6800050EAA3037E8E5682772299874D27F3455D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230904.jpgsave_picture_230904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230904.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Telegram Desktop 4.8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230905.jpgsave_picture_230905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230905.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jag Panzer - The Hallowed (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230906.jpgsave_picture_230906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230906.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Speedtest от Ookla 5.0.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230909.jpgsave_picture_230909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230909.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Armin van Buuren - A State Of Trance 1130 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230911.jpgsave_picture_230911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230911.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Sense Flip Clock & Weather v6.25.7 / Sense V2 Flip Clock and Weather v6.28.0 [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230912.jpgsave_picture_230912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230912.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Dawnlight - Until the Dark Sun Rises (2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230915.jpgsave_picture_230915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230915.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:DE0A792DA9279C62C292C9A5B8A033F29FA21F38
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230916.jpgsave_picture_230916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230916.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:89766D8703BBD548D6117B3B7830783B7944DF96
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230917.jpgsave_picture_230917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230917.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ The Who - Who’s Next : Life House (1971) Remastered, 2022, Universal Music Cat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230919.jpgsave_picture_230919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230919.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Creedence Clearwater Revival - Легенды Зарубежного Рока (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230921.jpgsave_picture_230921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230921.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230922.jpgsave_picture_230922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230922.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:F304B994ACA0850B12BF3EF674C00D0F5BFD0279
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230923.jpgsave_picture_230923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230923.jpg" />
 </div>
 
 

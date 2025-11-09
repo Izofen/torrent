@@ -6,7 +6,7 @@ O&O Defrag Professional 29.1 Build 11206 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34129.jpgsave_picture_34129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34129.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:044758C73335A5BCE080891692F7EBB4C4DD2782
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34130.jpgsave_picture_34130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34130.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5E2F7900CA8F8184F808AD88730A9D66C7A70B16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34131.jpgsave_picture_34131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34131.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Tsuma, Shougakusei ni Naru. / If My Wife Becomes an Elementary School Student. /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34132.jpgsave_picture_34132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34132.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:493B7698FFF3E2FD2EAF4D1562DC457652A794FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34133.jpgsave_picture_34133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34133.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9672842F5B221660A7E70507CFAD2D844D31E9DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34134.jpgsave_picture_34134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34134.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2/dlc) Repack Let'sРlay [Digital D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34135.jpgsave_picture_34135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34135.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:525D638A791B72441368AD3044586D88BCD6C8AA
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34136.jpgsave_picture_34136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34136.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Adobe Photoshop Lightroom Classic 2025 14.1.0.7 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34137.jpgsave_picture_34137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34137.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Trudograd 1.0.75 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34138.jpgsave_picture_34138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34138.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34139.jpgsave_picture_34139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34139.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:80D9EB67B6A2BB775366A659BF12A20F81FF8B6F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34140.jpgsave_picture_34140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34140.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dead Cells: Netflix Edition v3.3.25 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34141.jpgsave_picture_34141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34141.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Revo Uninstaller Mobile v3.3.500G Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34142.jpgsave_picture_34142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34142.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:02F64B09AB1384D70DB8F42CC1A83A4DE5EDAB61
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34143.jpgsave_picture_34143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34143.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:31DF371D63720F6318EE1E232F5C7FBF80634C00
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34144.jpgsave_picture_34144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34144.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34145.jpgsave_picture_34145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34145.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:891F2D6A746FC792334905B84DC8072A013FFEA8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34146.jpgsave_picture_34146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34146.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:3B2BD96CAA2CF924BF0F4696F9901A51BB64CF6E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34147.jpgsave_picture_34147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34147.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ KMS Tools Portable by Ratiborus 15.12.2024 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34148.jpgsave_picture_34148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34148.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:C4545B7360B4E1FB1B032053CAF3234E00B9E477
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34149.jpgsave_picture_34149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34149.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:1BE32134F6D25286A34A08CF3C65190F9DBC71A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34150.jpgsave_picture_34150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34150.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:BB5696189D3345DA997AD78FD99528998FF57588
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34151.jpgsave_picture_34151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34151.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Moon Mystery (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34152.jpgsave_picture_34152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34152.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ NokoPrint v5.20.14 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34153.jpgsave_picture_34153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34153.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:7FA753142AB8BD364BC1931A8FCD63B823751BD2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34154.jpgsave_picture_34154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34154.jpg" />
 </div>
 
 

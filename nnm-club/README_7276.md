@@ -6,7 +6,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.4.1/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249055.jpgsave_picture_249055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Myths and Legends (2024) [Ru/Multi] (20121460/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249056.jpgsave_picture_249056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249057.jpgsave_picture_249057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249057.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20076054/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249058.jpgsave_picture_249058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249058.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Orbyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249059.jpgsave_picture_249059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249059.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Heroes of Might and Magic III (1999) [Ru/Multi] (4.0/dlc) License GOG [Complete 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249060.jpgsave_picture_249060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249060.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7BB141C30C85689E2B98470C06F1F50644A14C3C
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249061.jpgsave_picture_249061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249061.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Heroes of Might and Magic II (2) (1996) [Multi] (1.01/dlc) License GOG [Gold]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249062.jpgsave_picture_249062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249062.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249063.jpgsave_picture_249063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249063.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:D6431622859913977485BF5CB1C63598C14A3156
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249067.jpgsave_picture_249067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249067.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hopeku - The Awakening (EP) (2012) [MP3|320 кб/с]<Psychedelic / Full On, Prog
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249070.jpgsave_picture_249070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249070.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ DJ Kocmoc - RED STATION vol.4 (3.05.2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249071.jpgsave_picture_249071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249071.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:B6D3FB9CE090F141C7FF93DB94E7B7E374C89628
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249072.jpgsave_picture_249072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249072.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Reverse - Reverse (EP) (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249078.jpgsave_picture_249078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249078.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:F5A2E55C3BEB1E76FE4B514C2E967252864417AB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249081.jpgsave_picture_249081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249081.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Concept - Straight Forward (EP) (2012) [MP3|320 кб/с]<Psychedelic / Night Ful
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249084.jpgsave_picture_249084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249084.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:453C140E2993B3F917485EE71BD7F79E8E2B2EBE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249086.jpgsave_picture_249086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249086.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Etic & Double Click - Undercook (EP) (2012) [MP3|320 кб/с]<Psychedelic / Prog
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249089.jpgsave_picture_249089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249089.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:F38E076497BBDC62A516F05944A9B52A44166423
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249101.jpgsave_picture_249101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249101.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:BC5D911A684D1F1AED3EB27E733DC071D0A16572
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249102.jpgsave_picture_249102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249102.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Жажда танца. Будет жарко! (2012) [MP3|256 кб/с]<Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249103.jpgsave_picture_249103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249103.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:1A1DA2C088C5129000138ACD368422F8B438839A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249109.jpgsave_picture_249109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249109.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:4FDA639B27D0BC5D45195DBA565C9B4F947F11A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249112.jpgsave_picture_249112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249112.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:0B6E2C2450613995C095318FE75C48CA6B321A9D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249114.jpgsave_picture_249114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249114.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kaledon - Mightiest Hits (2 CD) (2012) [MP3|320 кб/с]<Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249117.jpgsave_picture_249117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249117.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:E1FFE62367EE4AD4DC44EB550D22F765619237B4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249119.jpgsave_picture_249119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249119.jpg" />
 </div>
 
 

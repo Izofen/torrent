@@ -6,7 +6,7 @@ VA - Music News For Forum vol.143 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246156.jpgsave_picture_246156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246156.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AC68DB90D0EFD7B20E72B304396180E3F7D56999
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246161.jpgsave_picture_246161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246161.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sofia Bellini - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246165.jpgsave_picture_246165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246165.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #83 (03.05.2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246316.jpgsave_picture_246316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246316.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ VA - Зарубежные Новинки Интернета (2012) [MP3|256 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246317.jpgsave_picture_246317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246317.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Сказочный Мир Русского Радио (2012) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246335.jpgsave_picture_246335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246335.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Top Club Hits Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246345.jpgsave_picture_246345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246345.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Песня мамочке любимой (2012) [MP3|320 кб/с]<Pop,Ша�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246386.jpgsave_picture_246386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246386.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Убойная Авто Дискотека DFM 50/50 (2012) [MP3|256 kbps]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246409.jpgsave_picture_246409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246409.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Песня с женским именем 2CD (2012) [MP3|256 кб/с]<Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246415.jpgsave_picture_246415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246415.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Only DubStep Vol. 1 (2012) [MP3|128-320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246500.jpgsave_picture_246500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246500.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246513.jpgsave_picture_246513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246513.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Deep House & Nu Disco Top 100 (Compiled by ZeByte) (2019) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247149.jpgsave_picture_247149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247149.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Клубные Новинки Vol.72 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247839.jpgsave_picture_247839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247839.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247841.jpgsave_picture_247841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247841.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Клубные Новинки Vol.71 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247843.jpgsave_picture_247843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247843.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Клубный Танцпол Лето Vol.1 (2012) [MP3|320 кб/с]<Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247866.jpgsave_picture_247866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247866.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Seashore Desire #26 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247880.jpgsave_picture_247880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247880.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Seashore Desire #25 (2012) [MP3|320 кб/с]<Uplifting Trance, Dream Trance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247882.jpgsave_picture_247882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247882.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Top Club Hits Vol.5 (2012) [MP3|320 кб/с]<Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247907.jpgsave_picture_247907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247907.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Двигай Попой 50\50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247961.jpgsave_picture_247961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247961.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - The Dance Cube XXXXII 2CD (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248123.jpgsave_picture_248123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248123.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ VA - Готовься к Лету: СуперМегаДискотека (2012) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248146.jpgsave_picture_248146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248146.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ VA - Новинки Радио Шансон Часть 12 (2012) [MP3|256 кб/�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248212.jpgsave_picture_248212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248212.jpg" />
 </div>
 
 
@@ -774,7 +774,7 @@ VA - Шоферской Хит - Лучшие Из Лучших (2012) [MP3|256 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248217.jpgsave_picture_248217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248217.jpg" />
 </div>
 
 
@@ -807,7 +807,7 @@ VA - Пиратская Станция Часть 13 (2012) [MP3|256 кб/с]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248233.jpgsave_picture_248233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248233.jpg" />
 </div>
 
 

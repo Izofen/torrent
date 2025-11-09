@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175439.jpgsave_picture_175439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175439.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Resistance - Skulls Of My Enemy (2022) [FLAC|Lossless|image + .cue] <Power, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175440.jpgsave_picture_175440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175440.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ray Charles - True Genius (2021) 6 x CD, Compilation, Remastered, Tangerine Reco
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175441.jpgsave_picture_175441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175441.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Valentina Studio Pro 13.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175443.jpgsave_picture_175443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175443.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ofyr - Disconnected (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175446.jpgsave_picture_175446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175446.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175447.jpgsave_picture_175447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175447.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Extrema - Tension At The Seams (2007) 30th Anniversary Edition, 2023, Extrematea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175449.jpgsave_picture_175449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175449.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Clubhouse Games: 51 Worldwide Classics (2020) [Switch] [USA] 10.2.0 [NSP] [Licen
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175450.jpgsave_picture_175450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175450.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ iNet Network Scanner 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175452.jpgsave_picture_175452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175452.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Codim.online, Денис Голиков | Программирование Minec
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175453.jpgsave_picture_175453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175453.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Dismember - Death Metal (1997) Remaster, 2023, Nuclear Blast Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175455.jpgsave_picture_175455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175455.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Не спи за баранкой 3 (Музыка в машину) (2020) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175456.jpgsave_picture_175456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175456.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Dash 7.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175458.jpgsave_picture_175458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175458.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:FABFA056A90C16053C72EC0F65273C81A5AAD979
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175459.jpgsave_picture_175459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175459.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ GraphicConverter for Mac 12.0.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175461.jpgsave_picture_175461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175461.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Music News vol.229 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175462.jpgsave_picture_175462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175462.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:C254C454F5358061CADC77980781B7CA877724C5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175463.jpgsave_picture_175463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175463.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:FFDA42ED78BA24F54B9D5DF498977D6E5080C4B1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175465.jpgsave_picture_175465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175465.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:65A04B93699058F8508633E064D636D1C21A63E5
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175466.jpgsave_picture_175466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175466.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Hall of Misery - Reverence to Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175467.jpgsave_picture_175467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175467.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175469.jpgsave_picture_175469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175469.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Araxis Merge Pro Edition 2023.5953 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175470.jpgsave_picture_175470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175470.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:72D6EBBC82B76DA9048584BCAB40BE958F14104D
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175471.jpgsave_picture_175471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175471.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:D0D07CB399647590F99888A5FC347C527D6A8367
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175473.jpgsave_picture_175473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175473.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:D68CEA21EC876F1E10C2B24AC49D92C37BC23B94
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175474.jpgsave_picture_175474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175474.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Graveyard of Souls - Pequeños Fragmentos de Tiempo Congelado (2017) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175475.jpgsave_picture_175475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175475.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Музыкальный калейдоскоп (10   выпусков) (1964
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24247.jpgsave_picture_24247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24247.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lacrimosa - Studio Albums (11 releases) (1997-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24319.jpgsave_picture_24319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24319.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24398.jpgsave_picture_24398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24398.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0C680CED789F6E17F98B1447DEF9CB3520032C1A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24508.jpgsave_picture_24508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24508.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24573.jpgsave_picture_24573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24573.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24595.jpgsave_picture_24595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24595.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Iron Maiden - Collection 1980-1982 (1993) Compilation, Unofficial Release [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24773.jpgsave_picture_24773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24773.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Zopa - Diamond Vehicle (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24786.jpgsave_picture_24786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24786.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Sasami - Blood On The Silver Screen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24990.jpgsave_picture_24990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24990.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lacrimosa - Dark is this Night (2025) Maxi-Single [FLAC 16,24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24994.jpgsave_picture_24994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24994.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Machinedrum - 3RMX82 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bass, Drum & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24995.jpgsave_picture_24995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24995.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Lights Of Skadi - A Cinematic Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24998.jpgsave_picture_24998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24998.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Disturbed - The Sickness (2000) 25th Anniversary Deluxe Edition, 2025, Reprise [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25106.jpgsave_picture_25106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25106.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Spiritbox - Studio Albums (6 releases) (2017-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25142.jpgsave_picture_25142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25142.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Scorpions - Gold Ballads (1992) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25145.jpgsave_picture_25145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25145.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Thomas Anders - … Sings Modern Talking: The 1st Album (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25441.jpgsave_picture_25441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25441.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Lady Gaga - Mayhem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25504.jpgsave_picture_25504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25504.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ serpentwithfeet - GRIP SEQUEL (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25516.jpgsave_picture_25516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25516.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Jethro Tull - Curious Ruminant (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25521.jpgsave_picture_25521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25521.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Destruction - Studio albums (21 releases) (1984-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25556.jpgsave_picture_25556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25556.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Monika Hauff & Klaus-Dieter Henkler - Моника Хуфф и Клаус-Дит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25729.jpgsave_picture_25729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25729.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Medusian - Library (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extreme Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25734.jpgsave_picture_25734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25734.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Thundermother (& The Gems) - Studio Albums (7 releases) (2014-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25749.jpgsave_picture_25749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25749.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Lisa - Alter Ego (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26047.jpgsave_picture_26047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26047.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26195.jpgsave_picture_26195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26195.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26257.jpgsave_picture_26257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26257.jpg" />
 </div>
 
 

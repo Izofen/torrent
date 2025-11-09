@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90854.jpgsave_picture_90854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90854.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Инструментальная музыка (2012) vol. № 25 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90856.jpgsave_picture_90856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90856.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Johann Sebastian Bach-Famous Organ Works: organ Helmut Walcha (1957-1972)/1985, 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90857.jpgsave_picture_90857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90857.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6442D896A70ED50FE3F61A5BF22C7D81BD0E9C0C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90858.jpgsave_picture_90858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90858.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6442D896A70ED50FE3F61A5BF22C7D81BD0E9C0C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90859.jpgsave_picture_90859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90859.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Luxury Session Ibiza 2011 (2011) [FLAC|Lossless]<Lounge, Downtempo, House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90862.jpgsave_picture_90862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90862.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - Luxury Session Ibiza 2011 (2011)
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90864.jpgsave_picture_90864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90864.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Kubuntu LTS Precise Pangolin 12.04 [i386] (1xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90866.jpgsave_picture_90866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90866.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:6E731E974EEAA10C2B813EC5E9DF0CCA970E3677
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90867.jpgsave_picture_90867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90867.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:6E731E974EEAA10C2B813EC5E9DF0CCA970E3677
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90869.jpgsave_picture_90869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90869.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:697A5D91B3F1174038C92FAB9B2C53D06D3A66C0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90871.jpgsave_picture_90871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90871.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Eminem - 8 Mile Soundtrack (2002) [APE|Lossless]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90874.jpgsave_picture_90874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90874.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Eminem - 8 Mile Soundtrack (2002) [APE|Lossless]<Rap>
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90876.jpgsave_picture_90876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90876.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Total Commander 7.57а kIT Programs PowerPack 12.4 [Рус]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90879.jpgsave_picture_90879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90879.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ kIT Programs PowerPack - набор программ, составленный �
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90881.jpgsave_picture_90881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90881.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:2E324556A4877CC0961707FA2070E1BCE477F9C7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90888.jpgsave_picture_90888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90888.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:92EEE843C29A787E842A8A88EA2299106F347BF2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90891.jpgsave_picture_90891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90891.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:92EEE843C29A787E842A8A88EA2299106F347BF2
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90892.jpgsave_picture_90892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90892.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:B00185473864D7D3FFC55C23554DB3A7CA561BA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90896.jpgsave_picture_90896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90896.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:4A3DCBAACB3C2358F1D81E6C45042048C1FF06FC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90897.jpgsave_picture_90897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90897.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90898.jpgsave_picture_90898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90898.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90900.jpgsave_picture_90900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90900.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:BFA3FB5D1C46BC2768A92B9D926E38F7D2C192C7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90901.jpgsave_picture_90901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90901.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Ford Focus III. Руководство пользователя [2011] [PDF]
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90902.jpgsave_picture_90902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90902.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:80A1D8ADF2F1EC56A895236E0000692C19D60279
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90903.jpgsave_picture_90903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90903.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Cracked Horn (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90905.jpgsave_picture_90905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90905.jpg" />
 </div>
 
 

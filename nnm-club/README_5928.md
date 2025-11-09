@@ -6,7 +6,7 @@ Traversymedia | MERN From Scratch (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186725.jpgsave_picture_186725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186725.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:094C9638D06A0EEECCC08985715B6A35D839EFB1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186726.jpgsave_picture_186726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186726.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Queen - The Miracle (2022) 4CD, Collector's Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186727.jpgsave_picture_186727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186727.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DD6BCA13764B51A8E7DD343FC71678499971BD36
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186728.jpgsave_picture_186728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186728.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ GreyscaleGorilla, Zach Corzine | Next Level Mograph Procedural Systems in C4D (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186729.jpgsave_picture_186729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186729.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Clock: Alarm Clock & Timer 8.4.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186730.jpgsave_picture_186730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186730.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:65F3C748AEDE1CCE57D35EA7FFF1F5EED48A0A00
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186731.jpgsave_picture_186731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186731.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:69713663B803D7A7513C1FF551BF0B5C5F5C54FD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186732.jpgsave_picture_186732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186732.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ ExperienceIndexOK 4.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186733.jpgsave_picture_186733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186733.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Windows 11 Manager 1.3.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186734.jpgsave_picture_186734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186734.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:8100DE984617EF6438CD21597D5AB76FF6FAB7EC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186735.jpgsave_picture_186735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186735.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F7A4B1A7D2E6796B58D4B5B015158FF92623B95A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186736.jpgsave_picture_186736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186736.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Wondershare PDFelement 9.2.1.2007 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186737.jpgsave_picture_186737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186737.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Reg Organizer 9.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186738.jpgsave_picture_186738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186738.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:50822D7028BCECF77E76B71212F5063579454CB5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186739.jpgsave_picture_186739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186739.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:3E5ECA50CE9354E7D349EDE532BD31FD55829A24
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186740.jpgsave_picture_186740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186740.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Epic Pen Pro 3.12.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186741.jpgsave_picture_186741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186741.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:D42DEA5414BAC2E4F4D7732122207974A87CFDFC
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186742.jpgsave_picture_186742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186742.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Trance 100 - Best Of Summer 2023 (2023) Extended Mix [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186743.jpgsave_picture_186743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186743.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Secret Service - Secret Mission (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186744.jpgsave_picture_186744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186744.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:B047EE9170467299C26548ED89F91FBAEEE5717F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186745.jpgsave_picture_186745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186745.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:94E3BF978C0D9F6953C158FE55681C0C301928C2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186746.jpgsave_picture_186746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186746.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:014B855265B87AC1BDD59BCC873FCE4DE25F3957
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186747.jpgsave_picture_186747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186747.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186748.jpgsave_picture_186748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186748.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Autorun Organizer 5.38 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186749.jpgsave_picture_186749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186749.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:958704542D15FC28A6DEF75DC1831F8FCA92F594
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186750.jpgsave_picture_186750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186750.jpg" />
 </div>
 
 

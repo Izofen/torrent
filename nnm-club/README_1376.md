@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36131.jpgsave_picture_36131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36131.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CE7B4E9DCE2A3F29AD0CFFD15727CE8085E26B7F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36132.jpgsave_picture_36132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36132.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Drunken Fist: Totally Accurate Beat 'em up (2019) [En] (1.0) Scene DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36133.jpgsave_picture_36133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36133.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Relaxing Radiance - Fire Sounds White Noise (2024) [MP3|320 Kbps] <Easy Listenin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36134.jpgsave_picture_36134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36134.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Suicidal Angels - Studio Albums (9 releases) (2007-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36135.jpgsave_picture_36135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36135.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:283F20255D32605832DBE453E4F8E81F712E18DB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36136.jpgsave_picture_36136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36136.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36137.jpgsave_picture_36137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36137.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Визбор 85 (К 85-летию Юрия Визбора, Tribute) (2019) 
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36138.jpgsave_picture_36138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36138.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36139.jpgsave_picture_36139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36139.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Linkin Park - A Thousand Suns (2010) U.S., 525480-2, Best Buy Exclusive [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36140.jpgsave_picture_36140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36140.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:8233FA688469DECE7980DC4178F3AFDC82011D3A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36141.jpgsave_picture_36141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36141.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:CCF8D315915C6F18B45E805BE9006E375FDD2BDD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36142.jpgsave_picture_36142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36142.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:7083261E61A90C7EED79CDE0254859A7F720C675
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36143.jpgsave_picture_36143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36143.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:826944EA29B9D5333D7017D9807685CDA42B0036
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36144.jpgsave_picture_36144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36144.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Soothing Sounds: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36145.jpgsave_picture_36145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36145.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ The Pointer Sisters / The New Cast Recording - Highlights From "Ain't Misbehavin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36146.jpgsave_picture_36146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36146.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Linkin Park - Meteora (2003) Brazil, 936248462-2 [FLAC|Lossless|image + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36147.jpgsave_picture_36147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36147.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:69922A3418F9F06E9008F5E3C929A319E54D9419
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36148.jpgsave_picture_36148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36148.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:2D333F4A18F746FC13C3263208AD139266597276
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36149.jpgsave_picture_36149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36149.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Linkin Park - Meteora (2003) China, 7-88018-748-0 [FLAC|Lossless|image + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36150.jpgsave_picture_36150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36150.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:EA0C7F2B46FF8766CD065A3EDD00C01FC77F18BD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36151.jpgsave_picture_36151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36151.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - The Best Of Suanda Base 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36152.jpgsave_picture_36152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36152.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:B753DC7E0A87B56289571B98EC77F825A20BBFCB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36153.jpgsave_picture_36153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36153.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:F0920E2C6364BC418D726E4FA4870980C262196E
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36154.jpgsave_picture_36154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36154.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36155.jpgsave_picture_36155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36155.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:406A75F777970812DB5C338994C03CC41479D5B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36156.jpgsave_picture_36156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36156.jpg" />
 </div>
 
 

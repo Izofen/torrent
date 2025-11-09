@@ -6,7 +6,7 @@ Raphael Feuillatre - Visages Baroques (2023) [FLAC|Lossless|image + .cue] <Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185935.jpgsave_picture_185935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185935.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Max Richter, Vivaldi - The New Four Seasons Vivaldi Recomposed (2022) [FLAC|Loss
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188723.jpgsave_picture_188723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188723.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|t
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188801.jpgsave_picture_188801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188801.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191020.jpgsave_picture_191020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191020.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|track
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193811.jpgsave_picture_193811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193811.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, D
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193881.jpgsave_picture_193881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193881.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Han
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193917.jpgsave_picture_193917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193917.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195092.jpgsave_picture_195092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195092.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206152.jpgsave_picture_206152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206152.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ The WHOOP Group - Crimes II (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206514.jpgsave_picture_206514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206514.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Atlanta Symhonic Orchestra & Chorus - Carl Orff: Carmina Burana (1981) Remaster,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208214.jpgsave_picture_208214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208214.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Los
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210623.jpgsave_picture_210623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210623.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Anne Louise Brillon de Jouy, Nicolas Horvath  Complete Piano Sonatas - Complete 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214199.jpgsave_picture_214199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214199.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Ezio Bosso - The 12th Room (2017) [FLAC|Lossless|tracks + .cue] <Classical, Neoc
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221060.jpgsave_picture_221060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_221060.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Le Concert Des Nations, La Capella Nacional De Catalunya, Jordi Savall - Beethov
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222976.jpgsave_picture_222976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222976.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Seattle Opera - Der Ring des Nibelungen (2014) [FLAC|24/96|tracks|WEB-DL] <Class
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227533.jpgsave_picture_227533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227533.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229104.jpgsave_picture_229104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229104.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Johann Strauss-Best of Strauss: Berliner Philharmoniker & Herbert von Karajan 19
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229158.jpgsave_picture_229158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229158.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Fran
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232842.jpgsave_picture_232842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232842.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Pekka Kuusisto, Joonas Ahonen - Symmetria Pario: Creation (2023) [FLAC|Lossless|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233035.jpgsave_picture_233035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233035.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classi
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234559.jpgsave_picture_234559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234559.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Gymnopedie Chilled Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235947.jpgsave_picture_235947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235947.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Eydis Evensen - The Light (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239189.jpgsave_picture_239189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239189.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Vocal Miracles (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239670.jpgsave_picture_239670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239670.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - The Best of Classical Music - The Greatest Piano Sonatas (2023) [FLAC|Lossl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239973.jpgsave_picture_239973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239973.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Sufjan Stevens • Timo Andres • Conor Hanick - Reflections (2023) [FLAC 24/96
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240097.jpgsave_picture_240097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240097.jpg" />
 </div>
 
 

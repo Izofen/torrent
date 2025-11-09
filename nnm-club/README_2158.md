@@ -6,7 +6,7 @@ Topaz Video AI 5.0.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56475.jpgsave_picture_56475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56475.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Midori Browser 11.3.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56476.jpgsave_picture_56476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56476.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:7236F40B449AFF2DE4F9F1CADFE93C44CB6078ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56477.jpgsave_picture_56477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56477.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ PotPlayer 240514 (1.7.22230) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56478.jpgsave_picture_56478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56478.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F216174091DFD54734C5024227CE093D487E5795
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56479.jpgsave_picture_56479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56479.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:A25490AA231D8574AC16CD3E47142ECAC52EA578
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56480.jpgsave_picture_56480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56480.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ FreeCommander XE 2024  donor x64 build 907 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56481.jpgsave_picture_56481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56481.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ XviD4PSP 8.1.80 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56482.jpgsave_picture_56482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56482.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:BD22EF186F1CBF38A72BB1CE339122CBC0E60C64
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56483.jpgsave_picture_56483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56483.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Little Kitty, Big City (2024) [Multi] (1.24.5.8_3487) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56484.jpgsave_picture_56484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56484.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:409BA173D05F250B791C16CE66E257BE5B54D23C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56485.jpgsave_picture_56485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56485.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Start Menu X 7.77 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56486.jpgsave_picture_56486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56486.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:9369A52B1FB6AF46F837638AF0CC13EBBAFB4278
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56487.jpgsave_picture_56487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56487.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Total Commander 11.03 Extended 24.5 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56488.jpgsave_picture_56488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56488.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B61AF6AEC9A270E133BF7AFF8088B60A4037BFEE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56489.jpgsave_picture_56489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56489.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:79CF2E380EBD41B8DDC4246DF5BB3DCD28FDDB90
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56490.jpgsave_picture_56490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56490.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:61F0F0F74D8AEC0F76D0170D426907F5739101E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56491.jpgsave_picture_56491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56491.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:A69538FECF1938B27493D76FC0F229E2C7368B5E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56492.jpgsave_picture_56492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56492.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Braid (2024) [Multi] (0.444) Repack FitGirl [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56493.jpgsave_picture_56493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56493.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:58ADB898CB057FEACA0721889ED4B7068845CA6D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56494.jpgsave_picture_56494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56494.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:5E0A7EB57C4578FA201DBDEBB96DBDAA4952F2D6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56495.jpgsave_picture_56495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56495.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Adobe Acrobat Pro 24.002.20759.0 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56496.jpgsave_picture_56496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56496.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ruindog (2024) [Ru/Multi] (1.0.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56497.jpgsave_picture_56497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56497.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:00B026490656F6F6BA4B6B50202C4168885C5C83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56498.jpgsave_picture_56498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56498.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Modern Talking - Video Collection (2024) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56499.jpgsave_picture_56499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56499.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Planet VPN 2.8.3.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56500.jpgsave_picture_56500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56500.jpg" />
 </div>
 
 

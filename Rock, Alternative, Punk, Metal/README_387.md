@@ -6,7 +6,7 @@ Emerald Sun - Kingdom of Gods (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231290.jpgsave_picture_231290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231290.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Renaissance Rock Orchestra - The Ice Age Cometh (2023) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231292.jpgsave_picture_231292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231292.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mark7 - Clockwork Century (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231293.jpgsave_picture_231293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231293.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ SOG - Man Demonic (2023) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231296.jpgsave_picture_231296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231296.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:B98CDF9BBCA9E2B317600B437A1305FAB9AE135C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231297.jpgsave_picture_231297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231297.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Dead or Alive - Let Them Drag My Soul Away Singles, Demos, Sessions And Live Rec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231299.jpgsave_picture_231299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231299.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Velvet Viper - Nothing Compares To Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231311.jpgsave_picture_231311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231311.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cavalera Conspiracy - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231324.jpgsave_picture_231324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231324.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grip - Solstici (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231331.jpgsave_picture_231331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231331.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ World End Man - Suffer Leader (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231341.jpgsave_picture_231341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231341.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Pride Of Lions - Dream Higher (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231346.jpgsave_picture_231346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231346.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Witchmaster - Witchmaster (2004) [FLAC|Lossless|image + .cue] <Black, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231349.jpgsave_picture_231349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231349.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Viral Tyrant - Vultures Like You (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sto
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231356.jpgsave_picture_231356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231356.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Parallax Method - Folie a Trois (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231360.jpgsave_picture_231360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231360.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Whythre - Impregnate My Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231363.jpgsave_picture_231363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231363.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sog - Man Demonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231365.jpgsave_picture_231365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231365.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Yskelgroth - Unholy Primitive Nihilism (2010) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231371.jpgsave_picture_231371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231371.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ MotorTrinken - Involution (2023) [MP3|320 Kbps] <Heavy Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231372.jpgsave_picture_231372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231372.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Gunner - Sinners (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231373.jpgsave_picture_231373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231373.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ World End Man - Use My Knife (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231376.jpgsave_picture_231376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231376.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Residents - 13th Anniversary Show - Live In The USA (1986) Reissue, Remaster
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231379.jpgsave_picture_231379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231379.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Enslaved - Heimdal (2023) [FLAC|Lossless|image + .cue] <Progressive Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231381.jpgsave_picture_231381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231381.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Painkiller - Pain and Destruction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231382.jpgsave_picture_231382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231382.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cruxvae - Birth Of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231384.jpgsave_picture_231384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231384.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Words of Farewell - A Quiet World (2016) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231388.jpgsave_picture_231388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231388.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ King Crimson - Mister Stormy's Monday Selection, Vol. 10 (2023) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231389.jpgsave_picture_231389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231389.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ario (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60479.jpgsave_picture_60479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60479.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:556C9C70A470F1783CEE83322EC3FBD33901167F
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60480.jpgsave_picture_60480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60480.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60481.jpgsave_picture_60481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60481.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Far Manager 3.0.6300 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60482.jpgsave_picture_60482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60482.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ OBS Studio 30.1.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60483.jpgsave_picture_60483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60483.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Kodi 21.0 (Omega) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60484.jpgsave_picture_60484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60484.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ JetBrains DataGrip 2024.1.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60485.jpgsave_picture_60485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60485.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:0C12866D68A08144EA508A2EC6CD021FA9FA3774
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60486.jpgsave_picture_60486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60486.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.48412) Repack Other s [AD]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60487.jpgsave_picture_60487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60487.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Kodi 21.0 (Omega) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60488.jpgsave_picture_60488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60488.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:69378A3CEEAD00137054F373E5D6EB33AED43BF3
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60489.jpgsave_picture_60489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60489.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Withering Rooms (2024) [Multi] (1.22) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60490.jpgsave_picture_60490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60490.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:415C582D3877CE102FB1CD4C85B853D22FA841E5
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60491.jpgsave_picture_60491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60491.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ SnapTube - YouTube Downloader VIP v7.17.0.71750910 Final Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60492.jpgsave_picture_60492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60492.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60493.jpgsave_picture_60493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60493.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:0B62740F52B79055CC74BA0143A4F7978F471AB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60494.jpgsave_picture_60494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60494.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:40CB0E49166532C7B2DAF281F60E1C67B3D2A894
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60495.jpgsave_picture_60495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60495.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:40CB0E49166532C7B2DAF281F60E1C67B3D2A894
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60496.jpgsave_picture_60496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60496.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:3E2A9D1881DDE69696508C6364EEA113D4EA0C3C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60497.jpgsave_picture_60497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60497.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:C74B7388215F3A482B555F31190049F90A369F43
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60498.jpgsave_picture_60498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60498.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D6827DAAA707064FA31D9FAE639A534A2A8E79AE
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60499.jpgsave_picture_60499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60499.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60500.jpgsave_picture_60500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60500.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:59EA8F0E91EC3604BBB13902910694E8395C1E14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60501.jpgsave_picture_60501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60501.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Shingeki no Kyojin: The Final Season - Kanketsu-hen | Attack on Titan: Final Sea
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60502.jpgsave_picture_60502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60502.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Scene DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60503.jpgsave_picture_60503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60503.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:70B455260E2680AF111C8EA6AE3726AC0CA0D20F
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60504.jpgsave_picture_60504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60504.jpg" />
 </div>
 
 

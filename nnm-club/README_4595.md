@@ -6,7 +6,7 @@ VA - DJ Romantic - Vibrant Voices (1997) [MP3|320 Kbps] <Chillout, Lounge, Sexy>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143846.jpgsave_picture_143846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143846.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergole
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143847.jpgsave_picture_143847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143847.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F4928259673135ED39DCBCBEDAF0A4D04118A775
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143848.jpgsave_picture_143848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143848.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:A79432448A104F6FE6C4EE1FCAB22AC5664A9A74
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143849.jpgsave_picture_143849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143849.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:56A08C948D999D938115609E4DC786FCBC419319
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143850.jpgsave_picture_143850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143850.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Warnerbeast - Rewrite History (2015) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143851.jpgsave_picture_143851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143851.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Jasanel - The Universe Can Sing (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpgsave_picture_143853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143853.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:52F7C49E69372A40D6E36ACEE05D9F586A8BF7B8
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143854.jpgsave_picture_143854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143854.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Movavi Video Converter Premium 8.3.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143855.jpgsave_picture_143855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143855.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143856.jpgsave_picture_143856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143856.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143857.jpgsave_picture_143857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143857.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:A45911BB8B4C128C7D822CC4BE9689BA92C45EDA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143858.jpgsave_picture_143858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143858.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:A45911BB8B4C128C7D822CC4BE9689BA92C45EDA
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143859.jpgsave_picture_143859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143859.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:30ADBDCDB54CC5AB31BCBAA310DAA53B6C45E609
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143860.jpgsave_picture_143860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143860.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:B0F3280F477F8442F5781F14DC231990A5DF3765
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143861.jpgsave_picture_143861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143861.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:58A9022007868C508604D6E84F18DA9AAECC22AB
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143862.jpgsave_picture_143862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143862.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:8704EC575393253E7B4779D2D6C26B940A4142AF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143864.jpgsave_picture_143864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143864.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Arnett Cobb - Live (1982) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143865.jpgsave_picture_143865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143865.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143866.jpgsave_picture_143866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143866.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143867.jpgsave_picture_143867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143867.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143868.jpgsave_picture_143868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143868.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:DC9DAB47F70944F200896495E2062AED967A94F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143869.jpgsave_picture_143869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143869.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:553729881D9A84C99C4F07BDE17726D0BD6D59A3
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143870.jpgsave_picture_143870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143870.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:6CDFAE7C6AF9A81C2E553CBDFDC423BBD6C87026
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143871.jpgsave_picture_143871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143871.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VLC Media Player 3.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143872.jpgsave_picture_143872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143872.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ESET Smart Security 5.2.15.1 RePack (x86/x64) by SmokieBlahBlah [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143874.jpgsave_picture_143874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143874.jpg" />
 </div>
 
 

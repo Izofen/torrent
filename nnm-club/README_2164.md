@@ -6,7 +6,7 @@ Need for Speed: Underground 2 (2004) [Ru] (1.2) Repack/Mod Финиган
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56631.jpgsave_picture_56631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56631.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1F0C5260FC815836F9697B3C603D9E1BD98BE0B1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56632.jpgsave_picture_56632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56632.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1D6AABA5D602CA05B3E315A8C69ACE741B8A807E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56633.jpgsave_picture_56633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56633.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B1AA82F611F03E02B397F607C7FCA31BE1F98675
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56634.jpgsave_picture_56634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56634.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:068247DA8A31FC2C9DEEA7290902B22F09BFD836
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56635.jpgsave_picture_56635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56635.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8B58B0ED4BD28BEF98F7BFDD214E332E6E091E9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56636.jpgsave_picture_56636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56636.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3A9560C1ECEE6C229EA8C57A1F99F4B72F00504C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56637.jpgsave_picture_56637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56637.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:843FB9846408F14E7A178722685EA8C82ABD6D22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56638.jpgsave_picture_56638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56638.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:7CF8220237CD2347278396F9BB8406405AB78592
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56639.jpgsave_picture_56639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56639.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:4C4F70581A71BC73E2DDA4345D6EA8CB6F185E99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56640.jpgsave_picture_56640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56640.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:4C4F70581A71BC73E2DDA4345D6EA8CB6F185E99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56641.jpgsave_picture_56641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56641.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Workout Motivation (2018-2024) Mixed by Sergey Sychev [MP3|320 Kbps] <Club,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56642.jpgsave_picture_56642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56642.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kaspersky Free 21.17.7.539 Repack by LcHNextGen (14.05.2024) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56643.jpgsave_picture_56643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56643.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:B07B43989A05962D2D523990549C5BB120854CE0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56644.jpgsave_picture_56644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56644.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:1114768299A35CC94FE83D75942FF2D0AAC51600
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56645.jpgsave_picture_56645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56645.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A41C7AFF4EF3DA79D7E7560BAD28DF2D2EE73FCC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56646.jpgsave_picture_56646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56646.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:CE1B58919E13A4DC7E2E0F8A565B74796A484A9E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56647.jpgsave_picture_56647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56647.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:F7800478EA0C10837B9DDCF9CCD6CFDA62B6F3C3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56648.jpgsave_picture_56648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56648.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:897D01EF84C721B1EBB64DD2379951E25F8CE4D6
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56649.jpgsave_picture_56649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56649.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:128DBF2DD98CDB93D2CC20F5AAE86034CB84347E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56650.jpgsave_picture_56650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56650.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Sugar Bytes - DrumComputer 1.3.3b2024 Standalone, VSTi, VSTi 3, AAX RePack by TC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56651.jpgsave_picture_56651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56651.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:01348CB8F7C74E7A88A8887085EFA1D941116911
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56652.jpgsave_picture_56652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56652.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Emma Shapplin (1997-1999) DVDRip [MPEG2]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56653.jpgsave_picture_56653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56653.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Music News vol.375 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56654.jpgsave_picture_56654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56654.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ SRWare Iron 123.0.6250.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56655.jpgsave_picture_56655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56655.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:BB158F3EDD9F80091315A99806A9A8943A7FAD69
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56656.jpgsave_picture_56656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56656.jpg" />
 </div>
 
 

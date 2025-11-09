@@ -6,7 +6,7 @@ Movavi Slideshow Maker 6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148314.jpgsave_picture_148314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148314.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DE7DCDD2F78305EB27B04EF7853283A91B131177
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148315.jpgsave_picture_148315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148315.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CF42FC83DC563ED3D7C45A00775E87E7BCFA9382
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148316.jpgsave_picture_148316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148316.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ iMazing 2.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148317.jpgsave_picture_148317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148317.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:40FF404E61C32556DFFF30B1F14F53E598D0F724
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148318.jpgsave_picture_148318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148318.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ InfraRecorder 0.53 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148319.jpgsave_picture_148319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148319.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E3687C79CAD2B86D7823C86B64C04FCE5CC02DA9
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148320.jpgsave_picture_148320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148320.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Perfectly Clear Plugin for Photoshop 2.0.2.1 and Lightroom 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148322.jpgsave_picture_148322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148322.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ AllDup 4.5.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148323.jpgsave_picture_148323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148323.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:9638896BB2F305D5954A28DC05AB32BB7792D25A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148324.jpgsave_picture_148324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148324.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:729291758FAE6536E6D8BC0333B85DF2D28AE8EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148325.jpgsave_picture_148325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148325.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Adobe Animate CC and Mobile Device Packaging CC 2019 19.1.0.349 RePack by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148327.jpgsave_picture_148327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148327.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Hydrofoil Generation (2023) [En] (1.0.1) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148328.jpgsave_picture_148328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148328.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:792EAB3CFD608157FC799AEC3A612F8EE06C25BE
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148329.jpgsave_picture_148329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148329.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B985AF59F8553D9289254DEA9FFCC6C6A7828FAA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148330.jpgsave_picture_148330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148330.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:0AF0B9D0047AC2271B1F7AF205722A33138C0EBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148331.jpgsave_picture_148331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148331.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:08F1A346CA10BA50955AFE796EE1AACAE44CD8CD
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148332.jpgsave_picture_148332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148332.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:09B2510DB659B631760D267E73868222464FD91C
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148333.jpgsave_picture_148333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148333.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:1D80DA2D448101E2A318146E41807861CEA534E7
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148334.jpgsave_picture_148334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148334.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F279E031135BA313973D055F67E97CEE8E0FE619
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148337.jpgsave_picture_148337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148337.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:22F78AB9619050BC284C2EE71124E7687C501D63
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148338.jpgsave_picture_148338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148338.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Новогодняя Дискотека Руки Вверх 2019! (2018) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148339.jpgsave_picture_148339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148339.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:3BC2F75F2E2F44D7897452B049781FD99D1635CD
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148340.jpgsave_picture_148340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148340.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:D19CEA12182AD5F50814E011CD668A91366A067E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148341.jpgsave_picture_148341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148341.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Jethro Tull - All The Best (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148342.jpgsave_picture_148342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148342.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, Worl
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148344.jpgsave_picture_148344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148344.jpg" />
 </div>
 
 

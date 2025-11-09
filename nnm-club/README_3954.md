@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123299.jpgsave_picture_123299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123299.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NIUBI Partition Editor 9.9.2 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123300.jpgsave_picture_123300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123300.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Masterdark - In the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <gothiс, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123301.jpgsave_picture_123301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123301.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Icecream Video Converter Pro 1.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123302.jpgsave_picture_123302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123302.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Ray Orion - Sunshine 2024 (2024) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123303.jpgsave_picture_123303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123303.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:3A5EF2E79345C69EDF983A3DE684F4661AE780BD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123304.jpgsave_picture_123304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123304.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2160D30EDBD5B7224F039163FECB71CE00BF8C0F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123305.jpgsave_picture_123305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123305.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ FileMenu Tools 8.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123306.jpgsave_picture_123306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123306.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Wise Care 365 Pro 6.6.4.634 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123307.jpgsave_picture_123307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123307.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Anyma - Genesys (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123308.jpgsave_picture_123308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123308.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Celestia 1.6.4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123309.jpgsave_picture_123309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123309.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.11 Stable RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123310.jpgsave_picture_123310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123310.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:415D5B4AB3BC4311CB798348D70855DEA0512A61
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123311.jpgsave_picture_123311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123311.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123312.jpgsave_picture_123312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123312.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:06096465E34FC6AEA5CA1089BF2441929D214F40
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123313.jpgsave_picture_123313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123313.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:6A129B1FAC324CF5075479480A821D2EB20C52A9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123314.jpgsave_picture_123314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123314.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:8747ABD0EE0EE6CDF5D03AD9E86BC3896F404A9D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123315.jpgsave_picture_123315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123315.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ KStars 3.6.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123316.jpgsave_picture_123316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123316.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Sonatas For The Soul (2024) [MP3|320 Kbps] <Neoclassic, Classic, New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123317.jpgsave_picture_123317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123317.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:5ACC941B654B3C30AB5D1D5EFAE93D010C888CDD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123318.jpgsave_picture_123318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123318.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:C8ECD1FE89E59E704134CAAB7328B7238DA681EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123319.jpgsave_picture_123319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123319.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ NIUBI Partition Editor 9.9.2 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123320.jpgsave_picture_123320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123320.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Icecream PDF Editor Pro 3.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123321.jpgsave_picture_123321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123321.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:8784A0075E0703B1A310F870FC49AC87C37A4F96
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123322.jpgsave_picture_123322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123322.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Icecream Screen Recorder PRO 7.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123323.jpgsave_picture_123323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123323.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:7DC2437D4367DA6D9530EEAD64E46758C4E59AA3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123325.jpgsave_picture_123325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123325.jpg" />
 </div>
 
 

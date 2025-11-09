@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149963.jpgsave_picture_149963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B45AC43D8E3AB916D2169703BB3224AD9FC287E0
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149964.jpgsave_picture_149964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149964.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HashMyFiles 2.17 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149965.jpgsave_picture_149965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149965.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CD1588C4B4FCDF549C8F5B781B6D569B07259E8C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149966.jpgsave_picture_149966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149966.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Connecting The Dots (Alex Paterson) (2021) [AAC|~306 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149967.jpgsave_picture_149967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149967.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ XCap 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149969.jpgsave_picture_149969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149969.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Bird Mail PRO 2245.97 [Ru/Multi] - Почтовый клиент
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149970.jpgsave_picture_149970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149970.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:9102CEB5DBC7608DE497CBEC286E9991CD47C1F8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149971.jpgsave_picture_149971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149971.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:5BA21BB76AFAEB452D4B550AFCF2146AA4D0A827
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149973.jpgsave_picture_149973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149973.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:5BA21BB76AFAEB452D4B550AFCF2146AA4D0A827
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149974.jpgsave_picture_149974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149974.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C1BDCABB6D4B9D49883C62DE13437FF744FEDFAB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149975.jpgsave_picture_149975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149975.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:63354B47A1050DF64EABE2E4554D606FFF6CADDE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149976.jpgsave_picture_149976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149976.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:70B63973ABFEF1846369D7069C2AAF46632616E3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149977.jpgsave_picture_149977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149977.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:D4195F1D5F5CC129303930603329A3BCF6752B10
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149978.jpgsave_picture_149978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149978.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0408A81ABD9CC52C617A492F509FFAC77D6AC1BB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149979.jpgsave_picture_149979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149979.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Centum (2021) [AAC|~331 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149981.jpgsave_picture_149981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149981.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Viper FTP 5.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149982.jpgsave_picture_149982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149982.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ The Marshall Tucker Band - Still Holdin' On (1988) [FLAC 2.0|48/24|image+.cue|MC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149983.jpgsave_picture_149983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149983.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149984.jpgsave_picture_149984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149984.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149985.jpgsave_picture_149985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149985.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Scrollow 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149986.jpgsave_picture_149986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149986.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:FF0E54F714AEFB163C63DDFEA85F31514AE023DB
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149987.jpgsave_picture_149987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149987.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Christmas - The Ultimate Collection (2018) [MP3|320 Kbps] <Ballad, Country,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149989.jpgsave_picture_149989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149989.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:99E8927AE4141E3D132373A39440C17F3850C17F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149990.jpgsave_picture_149990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149990.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ SuperPhoto 2.21 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149991.jpgsave_picture_149991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149991.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:B997E08E526C8689A741A197E8C1451D6771CE17
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149992.jpgsave_picture_149992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149992.jpg" />
 </div>
 
 

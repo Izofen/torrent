@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153305.jpgsave_picture_153305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153305.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F08B0B99B6AC07EB9F5B24694FF1DE95087CAFC2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153307.jpgsave_picture_153307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153307.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0D5AEBE1241D0957DE968BC477C2F6800EF94A45
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153309.jpgsave_picture_153309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153309.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F592BECF54AC25B82DD06C2DFE229AB09C5EE8E3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153310.jpgsave_picture_153310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153310.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:782D0768578B17C7B93688753E2881E3E3BC1A25
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153312.jpgsave_picture_153312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153312.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VKMusic 4.84.2 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153313.jpgsave_picture_153313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153313.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153314.jpgsave_picture_153314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153314.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ CoolUtils Total PDF Converter 5.1.88 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153316.jpgsave_picture_153316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153316.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ TechSmith SnagIt 2020.0.3 Build 4960 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153317.jpgsave_picture_153317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153317.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:0DFE9E3843247BA8FB56BEEA3FE65B38B5B83F3B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153318.jpgsave_picture_153318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153318.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:A05BA0A440B9D4967CE8215693A8D26AB5FBFFAB
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153319.jpgsave_picture_153319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153319.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Do It Now: RPG список дел, ежедневник, планировщик
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153320.jpgsave_picture_153320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153320.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B43A543377E60114C1C0C5183A55D112B76C90A8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153321.jpgsave_picture_153321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153321.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:11B91CED1A89FE5BD39FF1751C301EF22A232097
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153323.jpgsave_picture_153323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153323.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ NG: Суперсооружения: Саграда Фамилья / Megastructur
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153324.jpgsave_picture_153324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153324.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:7CF495BAA2C59F0F26B61E46E8B569A65A153B58
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153325.jpgsave_picture_153325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153325.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:30C2C1BAF3718AB237DD7088EAAF233A50C01AB2
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153326.jpgsave_picture_153326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153326.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Folx Pro 5.1.13647 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153327.jpgsave_picture_153327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153327.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:1D6FF4FD2EFB7AD12E35A526ED6A77EB0D443202
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153329.jpgsave_picture_153329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153329.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:C9AFC09EC2A961DAD0BD1D284E97BE434491365F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153331.jpgsave_picture_153331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153331.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:795160240D7C38197729E09B2CCA867363D4DD30
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153332.jpgsave_picture_153332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153332.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ PDF-XChange Editor Plus 7.0.328.1 + Portable RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153333.jpgsave_picture_153333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153333.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Desktop Wallpapers (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153334.jpgsave_picture_153334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153334.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ NoMachine 7.0.211_4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153335.jpgsave_picture_153335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153335.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:0ECF3A149F34F1A155CAA5BD895A6FF0D36DDFFE
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153337.jpgsave_picture_153337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153337.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ The Flower Kings - Back in the World of Adventures (1995) Reissue, 2003, Inside 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153338.jpgsave_picture_153338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153338.jpg" />
 </div>
 
 

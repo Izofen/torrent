@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203225.jpgsave_picture_203225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203225.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Export for iTunes 3.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203226.jpgsave_picture_203226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203226.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ FurMark 1.33.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203227.jpgsave_picture_203227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203227.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203228.jpgsave_picture_203228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203228.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:CAF2391A085175863DDC654EFFF5FDB613EEBBE0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203229.jpgsave_picture_203229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203229.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ugly Kid Joe - 5 Studio Albums, 2 Compilations, 4 Singles & EPs (1991 - 2022) 11
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203230.jpgsave_picture_203230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203230.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1E7960352C73DBF82DA4A92A23215857D299F92C
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203231.jpgsave_picture_203231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203231.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E795F7C91BD10486CA19124FC88762B0DC75B698
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203232.jpgsave_picture_203232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203232.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ DxO PureRAW 3.5.0 build 19 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203233.jpgsave_picture_203233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203233.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:2B15448E6BFC5C460A76EDE7131F30B3165A65F2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203234.jpgsave_picture_203234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203234.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:FCBCE9FC36E868E114EFF93FD0555798D106983B
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203235.jpgsave_picture_203235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203235.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:1048AC573271B273814B3987DDE496FF5AD32236
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203236.jpgsave_picture_203236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203236.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ qBittorrent 4.5.5 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203237.jpgsave_picture_203237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203237.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:0C82D1D58ADC21FC169AE3D817C2FED0A06509AB
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203238.jpgsave_picture_203238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203238.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:D6E8A995D480C7FA7274DC7CBD4C2944D28B36B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203239.jpgsave_picture_203239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203239.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Tiny Robots Recharged v1.06 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203240.jpgsave_picture_203240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203240.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:AB2886295E17999789F9C7F1C30B969A88F75EF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203241.jpgsave_picture_203241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203241.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:CBF434B09300DB06C7EC54BD96F1DA52CBD85FED
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203242.jpgsave_picture_203242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203242.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:89500AD839B3B20164E26F4530890AC64A77415A
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203243.jpgsave_picture_203243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203243.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:7365CF5B329FC84FC5275BC7CACC996A12E4CDEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203244.jpgsave_picture_203244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203244.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:96179DB6663288A8D28AB53AD510C226B3482BCE
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203245.jpgsave_picture_203245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203245.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ TeamViewer 15.37.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203246.jpgsave_picture_203246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203246.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:CA33851B9FD2A0B76288A532A5432E6BD3D58A20
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203247.jpgsave_picture_203247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203247.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:70E807ACD267087EEB045263CB49EF236CA7CC91
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203248.jpgsave_picture_203248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203248.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ City Legends 3: Ghost of Misty Hill / Городские легенды 3: Пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203249.jpgsave_picture_203249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203249.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Automobilista 2 (2020) [Multi] (1.4.5.2.2247/dlc) License FLT [VR]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203250.jpgsave_picture_203250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203250.jpg" />
 </div>
 
 

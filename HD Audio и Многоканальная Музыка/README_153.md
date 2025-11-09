@@ -6,7 +6,7 @@ Joe Satriani & Steve Vai - Satch/Vai: The Sea of Emotion, Pt. 1 (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112498.jpgsave_picture_112498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112498.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Enrique Iglesias - Final (Vol.2) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112501.jpgsave_picture_112501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112501.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Rage - Afterlifelines (1990) Reissue, Remastered, 2024, Steamhammer [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112560.jpgsave_picture_112560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112560.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Moonspell - Anno Satanæ (1993 Remastered) (2024) Remastered [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112562.jpgsave_picture_112562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112562.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Quill - Wheel Of Illusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112563.jpgsave_picture_112563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112563.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Glyph - Honor. Power. Glory. (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112565.jpgsave_picture_112565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112565.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:8707C24B7643DF2D015E7B0A30C9A7D94B2EC098
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112585.jpgsave_picture_112585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112585.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Beyonce - Cowboy Carter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Soul,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112594.jpgsave_picture_112594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112594.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Sum 41 - Heaven :x: Hell (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop-punk,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112606.jpgsave_picture_112606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112606.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Slayer - Reign In Blood (1986) Reissue, 2024, American Recordings Catalog P&D [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112616.jpgsave_picture_112616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112616.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Cryptosis - The Silent Call (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112639.jpgsave_picture_112639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112639.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:1E43958B5C3DA5C7B71E1143BE30835769B9B084
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112643.jpgsave_picture_112643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112643.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cryptosis - Bionic Swarm (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112645.jpgsave_picture_112645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112645.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:8EDAAC5AF0D8614C45E7DD005698942921A2BBF0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112656.jpgsave_picture_112656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112656.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:C1128C6886CAC6EB8F03E2F579C2DF180A4FC0DE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112662.jpgsave_picture_112662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112662.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:B8BA9135586B9DE5C709E1608D59F656E60E8515
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112719.jpgsave_picture_112719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112719.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:FA32957AFFF1E09CE8C91401CB21832DC2A209C9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112733.jpgsave_picture_112733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112733.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112740.jpgsave_picture_112740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112740.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:5506CB4664DA05850D56870BC043E7711DFA3F40
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112744.jpgsave_picture_112744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112744.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Abya - Prayer Of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112745.jpgsave_picture_112745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112745.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:AFFC0C38DE6264EBAFED1A61C4B4D309F502A39F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112763.jpgsave_picture_112763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112763.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112774.jpgsave_picture_112774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112774.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:2E80D24ABA0E60A4A4314AC8C401E6BA74012FF6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112801.jpgsave_picture_112801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112801.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sons of Morpheus - Fruits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112804.jpgsave_picture_112804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112804.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Astral Gray - The Past Is In The Way (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112805.jpgsave_picture_112805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112805.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Michael van Merwyk - Blues Everywhere I Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112806.jpgsave_picture_112806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112806.jpg" />
 </div>
 
 

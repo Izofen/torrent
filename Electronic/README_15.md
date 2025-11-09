@@ -6,7 +6,7 @@ Apashe - Antagonist Remixes (Part II) (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33163.jpgsave_picture_33163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33163.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Best Releases 2024 of High Emotions (2024) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33231.jpgsave_picture_33231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33231.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Best Releases 2024 of Your Melodies (2024) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33236.jpgsave_picture_33236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33236.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - A State Of Trance Year Mix 2024 (Mixed By Armin Van Buuren) (2024) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33259.jpgsave_picture_33259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33259.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - The Best Releases 2024 of Enigma Emotions (By Abstract Moon) (2024) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33263.jpgsave_picture_33263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33263.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - 128 Bpm Afro House Workout Motivation Mix (2024) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33354.jpgsave_picture_33354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33354.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ V.A. - Christmas Lounge – The Essential (Playlist 2024) (2024) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33414.jpgsave_picture_33414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33414.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Armada Music Year Mix 2024 - Extended Versions (2024) [MP3|320 Kbps] <Dance
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33447.jpgsave_picture_33447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33447.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Happy New Year Party 2025 (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33449.jpgsave_picture_33449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33449.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Melodica 2024 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33451.jpgsave_picture_33451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33451.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Winter Top Tracks Deep House Natural Soundcloud (2024) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33454.jpgsave_picture_33454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33454.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kodeseven - Dystopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33455.jpgsave_picture_33455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33455.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - DJ's 12" Club Tunes 2024: The Best Of (2024) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33456.jpgsave_picture_33456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33456.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Orientalia - the Best of 2024 (Tibetania Orient) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33689.jpgsave_picture_33689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33689.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Black Hole Recordings - Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33755.jpgsave_picture_33755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33755.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Best of Argento 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33763.jpgsave_picture_33763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33763.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Lump Records Greatest Hits (2024) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33962.jpgsave_picture_33962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33962.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Whigfield - Whigfield Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33967.jpgsave_picture_33967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33967.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Röyksopp (Royksopp) - Nebulous Nights - An Ambient Excursion into Profound Myst
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34080.jpgsave_picture_34080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34080.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Love Lounge, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34192.jpgsave_picture_34192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34192.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - A State Of Trance Year Mix 2024 (DJ Mix) (Mixed By Armin Van Buuren) (2024)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34292.jpgsave_picture_34292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34292.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Anjunadeep The Remixes 2024 (2024) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34377.jpgsave_picture_34377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34377.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Anjunabeats presents Vocal Trance 02 (2024) [MP3|320 Kbps] <Trance, Vocal T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34381.jpgsave_picture_34381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34381.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - The Winter Chillout Collection: Chillout Your Mind (2024) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34497.jpgsave_picture_34497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34497.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Best Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34499.jpgsave_picture_34499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34499.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Love Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34553.jpgsave_picture_34553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34553.jpg" />
 </div>
 
 

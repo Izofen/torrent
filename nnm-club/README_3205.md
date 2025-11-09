@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103673.jpgsave_picture_103673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103673.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Armin van Buuren - A State Of Trance 1194 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103674.jpgsave_picture_103674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103674.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Black Hole House Music 10-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103675.jpgsave_picture_103675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103675.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5542424EB95A4F21EC6FB1603AFF0FFB461E1240
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103676.jpgsave_picture_103676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103676.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:4E444C8E0DF13D01511A111DD082F4AA3342F66C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103677.jpgsave_picture_103677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103677.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA - XX. Трибьют группе Артерия (2024) [MP3|320 Kbps] <Heavy
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103678.jpgsave_picture_103678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103678.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Summer Fresh 002 (2024) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103679.jpgsave_picture_103679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103679.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ VA - Jem Records Celebrates Jagger/Richards (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103680.jpgsave_picture_103680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103680.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Funk'N'Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103681.jpgsave_picture_103681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103681.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:84CA2B295B578E9C028535C75C4277E8F94CC7D3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103682.jpgsave_picture_103682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103682.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Iron Echo - Forged In Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103683.jpgsave_picture_103683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103683.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Summer Bossa Nova (Relaxing Brazilian Jazz Bossa) (2024) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103684.jpgsave_picture_103684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103684.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - timeless rock & new cuts (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103685.jpgsave_picture_103685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103685.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:9C944CEEDB271FD4A15B3C878B012476DC23E576
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103686.jpgsave_picture_103686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103686.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:DD9CA50D900152883DA357A5BFDCE598C4FBCD15
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103687.jpgsave_picture_103687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103687.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:9ED642F60AE584B21A5730A50898EF648EA9D7A4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103688.jpgsave_picture_103688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103688.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Olivia Newton-John - If Not For You (1971) Deluxe Edition, Remastered, 2022, Pri
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103689.jpgsave_picture_103689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103689.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Def Leppard - Live At The Leadmill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103690.jpgsave_picture_103690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103690.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Pet Shop Boys - Alternative (1995) 1st Holland Press [APE|Lossless|image + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103691.jpgsave_picture_103691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103691.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:CFCC5211D59B686B4B9A4F4C5E63653159AF1650
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103692.jpgsave_picture_103692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103692.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Rock Identifier - Stone ID v2.3.41 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103693.jpgsave_picture_103693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103693.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Pet Shop Boys - Release (2002) 1st Holland Press [APE|Lossless|image + .cue] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103694.jpgsave_picture_103694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103694.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Olivia Newton-John - Olivia Newton-John's Greatest Hits (1982) Deluxe Edition, R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103695.jpgsave_picture_103695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103695.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:AEDB00A499E1B0D958B6EFC143F4DD2F7F7BCD25
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103696.jpgsave_picture_103696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103696.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ PowerDirector – Video Editor v14.5.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103697.jpgsave_picture_103697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103697.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - PornoStar Sessions Ibiza (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103698.jpgsave_picture_103698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103698.jpg" />
 </div>
 
 

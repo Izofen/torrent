@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101915.jpgsave_picture_101915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101915.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TeachVideo | Всё о Windows® 8. Обучающий видеокурс [2012]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101916.jpgsave_picture_101916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101916.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:3DFED575C52DDA9713F46DA47471ED62A4634931
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101919.jpgsave_picture_101919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101919.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Risen {1.10} (RePack) [Ru] 2009 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101925.jpgsave_picture_101925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101925.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Diablo 2 + Lord of Destruction [En/Ru] (RePack/1.13d) 2000 | R.G. ReCoding
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101932.jpgsave_picture_101932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101932.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F1F51D096DE34EEF042FDCB22C4CBF0C44A23888
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101941.jpgsave_picture_101941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101941.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E95BD546980E86CE95AA4963932373EA042B1705
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101951.jpgsave_picture_101951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101951.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:1689FAD6BF22658383A9508C0E20A15EECC7986A
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101962.jpgsave_picture_101962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101962.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:1DF739B90F9FC7E4E7B1B9EBCED742C3E8E26A4E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101963.jpgsave_picture_101963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101963.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Blackmill - Reach for Glory (28/02/2011) [MP3|320 кб/с]<dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101964.jpgsave_picture_101964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101964.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Tiger Milk - Supernatural (2012) [MP3|~245 кб/с (V0)]<Electronic, House, Synt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101966.jpgsave_picture_101966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101966.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:03586EF4550C494B36D7EC0D5CBC79E22D292CEF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101967.jpgsave_picture_101967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101967.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Portion Control - Pure Form (2012) [MP3| ~251 кб/с ]<Industrial, EBM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101970.jpgsave_picture_101970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101970.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E77EC64DF53D743B4A0D51B5D4276243588811E2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101973.jpgsave_picture_101973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101973.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - New Top Зайцев.нет 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101977.jpgsave_picture_101977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101977.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:1C951DEE4EDEB1DA085F963C1B78483FD1A52D14
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101981.jpgsave_picture_101981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101981.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:DAE3E37E61ADD1265FCA266934F040226CE5D693
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101982.jpgsave_picture_101982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101982.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:F126579860DF00BDDBE11CFB526A6C0267AD5566
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101985.jpgsave_picture_101985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101985.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A1007E6A78C2A78B9688BC459A5C4BF2A508508C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101986.jpgsave_picture_101986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101986.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Самые горячие новинки этого года (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101992.jpgsave_picture_101992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101992.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:CB676E47723878ADC8746EA4D255847C8B1EE054
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101993.jpgsave_picture_101993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101993.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:72F30ADE37638658A4BCD4F2177E14587CE9C033
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101995.jpgsave_picture_101995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101995.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:577B90FD8528769DD4880B166217E52CD25E68F5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101998.jpgsave_picture_101998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101998.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:54A36933587733FE4AF3144B8643387514BBF38C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102006.jpgsave_picture_102006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102006.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:BA92BCECB1AF57C67758F4AA96DBA639C71486EF
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102014.jpgsave_picture_102014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102014.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ magnet:?xt=urn:btih:06DB1E373ECECE376179710DFA05B47CE9986970
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102020.jpgsave_picture_102020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102020.jpg" />
 </div>
 
 

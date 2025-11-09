@@ -6,7 +6,7 @@ Proxifier for Mac 3.11 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166858.jpgsave_picture_166858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166858.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Reallusion Cartoon Animator 4 v4.4 Pipeline macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166859.jpgsave_picture_166859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166859.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8598CA2D629783DCD8DF5FF527C1B7B260312C65
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166861.jpgsave_picture_166861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166861.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6133FFB6FE71F20B16EE01278B0E62578D4C499E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166862.jpgsave_picture_166862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166862.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:6FFD85C8ECF6126077BDD9A858FEBC87CF8DCAE3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166863.jpgsave_picture_166863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166863.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:AF7CAD9F76304FC522DB1DABFFFFB7D10A2265C7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166864.jpgsave_picture_166864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166864.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Serviio Pro 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166865.jpgsave_picture_166865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166865.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:26FDCC6C4F4413AB10AFEA22E4E5072708718031
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166866.jpgsave_picture_166866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166866.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:7DAA874D3F7582BD3BD6F8E501E632F77E8DF3C5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166867.jpgsave_picture_166867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166867.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ WinRAR 5.80 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166868.jpgsave_picture_166868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166868.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:1DA1D63E6B09E45DBDB6B5F907BF7AABEF3CB927
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166869.jpgsave_picture_166869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166869.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:4A52813E39906DA27661F781366BE76664148AC6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166870.jpgsave_picture_166870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166870.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:E3DB1DA92EBE1F592FE6266C8773316ED5610475
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166871.jpgsave_picture_166871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166871.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Louise Phelan - Octavio Herrero - Azules (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166872.jpgsave_picture_166872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166872.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ K-Lite Codec Pack Update 16.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166873.jpgsave_picture_166873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166873.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:963B6D81AAD7F8C435A16527F1F233813ED3ABE0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166874.jpgsave_picture_166874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166874.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ HDCleaner 1.320 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166875.jpgsave_picture_166875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166875.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:43048629491F1FDB9116D07E7EBC95B72E17702D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166876.jpgsave_picture_166876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166876.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:C7947CACB79A75819A07E66405BF9DBCF99C73BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166877.jpgsave_picture_166877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166877.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:6A723172F41349533A5DA717AB17C0D75532B9B8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166879.jpgsave_picture_166879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166879.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:A2577B6701B012E78B08FEEB8D84137052092F7B
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166880.jpgsave_picture_166880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166880.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Disco Getters - Disco Disco Disco (1979) LP [MP3|320 Kbps] <Electronic, Funk Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166881.jpgsave_picture_166881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166881.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:FE713301E71A194BBEDA11695403F50F186221C2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166882.jpgsave_picture_166882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166882.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:0CFACEAFF9B766D504F0A5F35FFF21C6D2352FF1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166883.jpgsave_picture_166883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166883.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:052766DFD9B7A82ACA7657C92ECD6D62CB9D2319
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166884.jpgsave_picture_166884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166884.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Opera GX 82.0.4227.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166885.jpgsave_picture_166885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166885.jpg" />
 </div>
 
 

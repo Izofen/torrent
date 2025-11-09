@@ -6,7 +6,7 @@ Creedence Clearwater Revival - The Complete Studio Albums (1968-1972) Compilatio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57342.jpgsave_picture_57342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57342.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Scorpions - Fly To The Rainbow (1974) Remastered 2023 [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57388.jpgsave_picture_57388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57388.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Scorpions - In Trance (1975) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57392.jpgsave_picture_57392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57392.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Scorpions - Virgin Killer (1976) Remastered 2023 [FLAC 24/96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57425.jpgsave_picture_57425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57425.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Michael Jackson - Bad (Remastered) (1987) 2012 [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57532.jpgsave_picture_57532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57532.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Michael Jackson - Thriller (1982) 2008 [FLAC 24/176.4|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57615.jpgsave_picture_57615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57615.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mark Knopfler - The Boy (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57704.jpgsave_picture_57704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57704.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Pabllo Vittar - Batidao Tropical Vol. 1-2 (2021-2024) [FLAC 24/44.1,48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57923.jpgsave_picture_57923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57923.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Paul Mauriat - Windy & You Don't Know Me (1986-1990) SACD, 2023, Vocalion [DST64
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58046.jpgsave_picture_58046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58046.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Scott Stapp (Creed) - Studio Albums (4 releases) (2005-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58673.jpgsave_picture_58673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58673.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58683.jpgsave_picture_58683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58683.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Bonnie Tyler - In Berlin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58767.jpgsave_picture_58767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58767.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Ghost Inside - Searching for Solace (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58983.jpgsave_picture_58983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58983.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59085.jpgsave_picture_59085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59085.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Pearl Jam - Dark Matter (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59180.jpgsave_picture_59180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59180.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59594.jpgsave_picture_59594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59594.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59611.jpgsave_picture_59611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59611.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Mark Knopfler - One Deep River (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60016.jpgsave_picture_60016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60016.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60091.jpgsave_picture_60091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60091.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60368.jpgsave_picture_60368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60368.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60749.jpgsave_picture_60749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60749.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Dire Straits - On Every Street (1991) SACD, Remastered, 2024, Mobile Fidelity So
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61012.jpgsave_picture_61012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61012.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61093.jpgsave_picture_61093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61093.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ De-Phazz - Pit Sounds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Tri
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61391.jpgsave_picture_61391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61391.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Sheryl Crow - Evolution (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61393.jpgsave_picture_61393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61393.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Deep Purple - Machine Head (Super Deluxe) (2024) [FLAC 24/96.0, 48.0, 44.1 kHz|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61402.jpgsave_picture_61402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61402.jpg" />
 </div>
 
 

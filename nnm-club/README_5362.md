@@ -6,7 +6,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166269.jpgsave_picture_166269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3CB48F1765D18F303CC136FE2174A756DCFDC251
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166270.jpgsave_picture_166270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166270.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2364]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166271.jpgsave_picture_166271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166271.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ TurboMosaic Pro 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166272.jpgsave_picture_166272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166272.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7332BFA4A0D0437F22BB955A15623854A3D536DC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166273.jpgsave_picture_166273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166273.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6FF28986EBC63D1497D176321EAB16FDA3DB9FB5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166274.jpgsave_picture_166274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166274.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - EDC Fundamental Wave (2020) [MP3|320 Kbps] <Techno, Tech House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166275.jpgsave_picture_166275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166275.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Mystical Frequencies (2021) [AAC|~328 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166276.jpgsave_picture_166276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166276.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:1F9AA5805516709F616270359A737B2A6264F034
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166277.jpgsave_picture_166277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166277.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:40546BDB6F053571472523EA82070A23D822F002
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166278.jpgsave_picture_166278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166278.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Apple Remote Desktop 3.9.3 (1A50) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166279.jpgsave_picture_166279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166279.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:DEB4C86E3D0AA85269ADF371955322F02FECB3CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166280.jpgsave_picture_166280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166280.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:AEE86C05B2E74040FD45B31AE7F608064AEEDCBC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166281.jpgsave_picture_166281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166281.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Workspaces 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166282.jpgsave_picture_166282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166282.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Doro - Maximum Celebration - Strong and Proud (2023) Promo EP [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166283.jpgsave_picture_166283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166283.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Creative Market - 100 Geometric Christmas Patterns - 2016745 [JPG, EPS]
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166284.jpgsave_picture_166284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166284.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ GraphicConverter 11 v11.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166285.jpgsave_picture_166285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166285.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Vibrion - Bacterya (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166286.jpgsave_picture_166286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166286.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VueScan Pro 9.7.96 (12.12.2022) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166287.jpgsave_picture_166287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166287.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:D4B5EAF6A70B39A1AE042704F6DBE46471409522
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166288.jpgsave_picture_166288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166288.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Lynda.com | JavaScript: Прототипы / JavaScript: Prototypes (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166289.jpgsave_picture_166289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166289.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:F9CCAC1E6F0F9361E3D27F2E5F30937C245BC424
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166290.jpgsave_picture_166290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166290.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Infuse PRO 7.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166291.jpgsave_picture_166291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166291.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:AC76BE8EEB8663A01CB99C3B0CF1CF15AAE35A14
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166292.jpgsave_picture_166292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166292.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Barcode Producer 6.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166293.jpgsave_picture_166293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166293.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:EDD67759E6E440CAFF93E3E705BDE0BD7120F238
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166294.jpgsave_picture_166294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166294.jpg" />
 </div>
 
 

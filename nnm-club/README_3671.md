@@ -6,7 +6,7 @@ Max Cruise - Night Cruise (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115821.jpgsave_picture_115821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115821.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E7A8B16F755F9AD455E35A18B4F67F0763AF38B3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115822.jpgsave_picture_115822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115822.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Samsas Traum - Pussy Supremacy – Trauma Tales Sampler, Vol. I (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115823.jpgsave_picture_115823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115823.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Armin van Buuren - A State Of Trance 1161 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115824.jpgsave_picture_115824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115824.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:24269ECE7B671A517405A33FAE265780F6000219
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115825.jpgsave_picture_115825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115825.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6799436F27D13082EF0E84F980F093C28C333406
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115826.jpgsave_picture_115826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115826.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:4905217290CFE5B1BA2BDC8C2DEF73683CD2AB5C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115827.jpgsave_picture_115827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115827.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Buddy Blake Band - Seven Ways From Someday (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115828.jpgsave_picture_115828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115828.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ TG Pro (Temperature Gauge Pro) 2.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115829.jpgsave_picture_115829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115829.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Weber & Weber - World In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115830.jpgsave_picture_115830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115830.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cathubodua - Interbellum (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115831.jpgsave_picture_115831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115831.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:833DEA85ADEEF473EBB70C03D2E36B0DCEA26F30
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115832.jpgsave_picture_115832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115832.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Artimus Pyle Band - Anthems Honoring The Music of Lynyrd Skynyrd (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115833.jpgsave_picture_115833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115833.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Katie Henry - Get Goin' (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115834.jpgsave_picture_115834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115834.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Cats Can Fly - Cats Can Fly (1986) Remaster, CCF Records, 2023 [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115835.jpgsave_picture_115835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115835.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Arkado - Open Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115836.jpgsave_picture_115836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115836.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Rosie Frater-Taylor - Featherweight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115837.jpgsave_picture_115837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115837.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Philip Sayce - The Wolves Are Coming (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115838.jpgsave_picture_115838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115838.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115839.jpgsave_picture_115839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115839.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:378DF692353816901DDB69C892BA6D3520033F53
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115840.jpgsave_picture_115840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115840.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ StaxRip 2.36.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115841.jpgsave_picture_115841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115841.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Takida - The Agony Flame (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115842.jpgsave_picture_115842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115842.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sexual Music Collection - Midnight Jazz Confessions: Sultry Jazz for a Romantic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115843.jpgsave_picture_115843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115843.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F1D7AF2C5A5C53FA5DF130838C6ECF77FE2FB081
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115844.jpgsave_picture_115844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115844.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:5B2787289CE614B0F1C90761884ADB87CCE6A271
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115845.jpgsave_picture_115845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115845.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Pure Dreams, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115846.jpgsave_picture_115846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115846.jpg" />
 </div>
 
 

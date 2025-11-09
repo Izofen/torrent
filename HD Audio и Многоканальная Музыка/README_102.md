@@ -6,7 +6,7 @@ Jason Jackson - Looking Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103388.jpgsave_picture_103388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103388.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gregory Kunde - Then and Now (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, V
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103389.jpgsave_picture_103389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103389.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kevin A Knowles - Vagabond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103390.jpgsave_picture_103390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103390.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Francesco Venerucci - INDIAN SUMMER (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103391.jpgsave_picture_103391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103391.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Grant Richards - Menagerie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103392.jpgsave_picture_103392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103392.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Brothers of Metal - Fimbulvinter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103399.jpgsave_picture_103399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103399.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kristin Korb - Sweet Dreams (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103401.jpgsave_picture_103401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103401.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Christophe Goze - My Kind Of Blue (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103404.jpgsave_picture_103404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103404.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Boney James - Slow Burn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103405.jpgsave_picture_103405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103405.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Warren Haynes - Million Voices Whisper (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103408.jpgsave_picture_103408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103408.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Rosalie Cunningham - To Shoot Another Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103413.jpgsave_picture_103413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103413.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Aaron Rimbui - Imani (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103414.jpgsave_picture_103414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103414.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Skillet - Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <christian roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103433.jpgsave_picture_103433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103433.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Miki Yamanaka - Chance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103453.jpgsave_picture_103453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103453.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Melinda Sullivan and Larry Goldings - Big Foot (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103455.jpgsave_picture_103455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103455.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Matt Panayides Trio - With Eyes Closed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103457.jpgsave_picture_103457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103457.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Melanie Scholtz - Seven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103458.jpgsave_picture_103458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103458.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Macade - Dialoghi (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103459.jpgsave_picture_103459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103459.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Lars Jansson & Erik Söderlind - What The Moment Brings (2024) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103460.jpgsave_picture_103460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103460.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Monkin' Around - 4 in 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103461.jpgsave_picture_103461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103461.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Matt Mitchell - Zealous Angles (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103462.jpgsave_picture_103462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103462.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Kris Davis Trio - Run the Gauntlet (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103463.jpgsave_picture_103463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103463.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Mark Hartsuch - India Jazz Casual (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103464.jpgsave_picture_103464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103464.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sloper - Changing Colors (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103466.jpgsave_picture_103466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103466.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ XXi - The Hard Part About Growing Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103468.jpgsave_picture_103468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103468.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Terry Marshall And Friends - Living The Blues (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103469.jpgsave_picture_103469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103469.jpg" />
 </div>
 
 

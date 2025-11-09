@@ -6,7 +6,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack FitGirl [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23664.jpgsave_picture_23664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23664.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23673.jpgsave_picture_23673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23673.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack dixen18 [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23686.jpgsave_picture_23686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23686.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wanderstop (2025) [Multi] (Build #15399) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23695.jpgsave_picture_23695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23695.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lumencraft (2022) [Ru/Multi] (9257) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23699.jpgsave_picture_23699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23699.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wonder Ball (2024) [Ru/Multi] (1.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23724.jpgsave_picture_23724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23724.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Starground (2024) [Ru/Multi] (0.11.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23725.jpgsave_picture_23725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23725.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Scene Investigators (2023) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23741.jpgsave_picture_23741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23741.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The LEGO NINJAGO Movie Video Game (2017) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23749.jpgsave_picture_23749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23749.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.3.21) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23760.jpgsave_picture_23760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23760.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kaiserpunk (2025) [Ru/Multi] (1.00.002/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23762.jpgsave_picture_23762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23762.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (Build 17793684) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23764.jpgsave_picture_23764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23764.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23767.jpgsave_picture_23767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23767.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Battlefield 4 (2013) [Ru/Multi] (1.8.2.48475) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23785.jpgsave_picture_23785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23785.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5) Repack Wanterlude [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23786.jpgsave_picture_23786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23786.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23792.jpgsave_picture_23792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23792.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23796.jpgsave_picture_23796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23796.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Contraband Police (2023) [Ru/Multi] (Build 17173236) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23799.jpgsave_picture_23799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23799.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23801.jpgsave_picture_23801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23801.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ StarCrawlers Chimera (2021) [En] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23816.jpgsave_picture_23816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23816.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23818.jpgsave_picture_23818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23818.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Sims Legacy Collection (2025) [Ru/En] (1.0.0.139/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23821.jpgsave_picture_23821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23821.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23822.jpgsave_picture_23822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23822.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Cataclismo (2024) [Ru/Multi] (1.0.0.33.199) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23855.jpgsave_picture_23855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23855.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bass Defense: Rhythm Meets Strategy (2024) [Mutli] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23868.jpgsave_picture_23868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23868.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23871.jpgsave_picture_23871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23871.jpg" />
 </div>
 
 

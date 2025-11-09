@@ -6,7 +6,7 @@ Archicad 28.1.0 Build 4001 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25908.jpgsave_picture_25908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25908.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:361F9E91A3FF80B468257BDC782D5EA446B5E5DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25909.jpgsave_picture_25909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25909.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:79004AB469013CA5AF7C5549DCFED0CFE811E77A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25910.jpgsave_picture_25910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25910.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E6D53AEE3FBFCDF0356D6A71563EEC830A88E2D3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25911.jpgsave_picture_25911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25911.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25912.jpgsave_picture_25912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25912.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9BFDFED9D8B3AE348E1E27D4BD0AF4A6F72AABD9
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25913.jpgsave_picture_25913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25913.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:976DDA03F5E0EAAC6533E305E03B7F912BB81FF3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25914.jpgsave_picture_25914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25914.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E346E31DBCDD2003ED2ED25CE7C9D554E6A5C330
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25915.jpgsave_picture_25915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25915.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3788636EAA3982FAECBB440D087856CED18638B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25916.jpgsave_picture_25916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25916.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:DFA9F60C8A21CACA8D6A1628CE6F8B48B9399021
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25917.jpgsave_picture_25917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25917.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:143723340300944FA1DBC9E1FEF32B8A71813F98
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25918.jpgsave_picture_25918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25918.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25919.jpgsave_picture_25919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25919.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ HandBrake 1.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25920.jpgsave_picture_25920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25920.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:69FD1B2C99B43AC292CEFDF962AE1D0674CE2BAE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25921.jpgsave_picture_25921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25921.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Qalculate! 5.5.2 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25922.jpgsave_picture_25922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25922.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:E4DB108A078E9FB28CBA57BDCDD41F433D751294
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25923.jpgsave_picture_25923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25923.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Overcooked! 2 (2018) [Ru/Multi] (#1034.799570/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25924.jpgsave_picture_25924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25924.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Imagine 1.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25925.jpgsave_picture_25925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25925.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:A1AEA568F3DF32060BC3E3EA9725DB177CA27F17
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25926.jpgsave_picture_25926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25926.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:72EE8DEDF2C85412449E030BC328ADF50219FA74
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25927.jpgsave_picture_25927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25927.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Little Misfortune v2.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25928.jpgsave_picture_25928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25928.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Dschinghis Khan - Mexico , Maxi And Singles Collection (2025) [FLAC|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25929.jpgsave_picture_25929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25929.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ iSenin - Устал я... (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25930.jpgsave_picture_25930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25930.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:BAA8DA35CA37E9C258C0BB20DE935EEDD1372627
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25931.jpgsave_picture_25931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25931.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Terra Memoria (2024) [Multi] (2024.6.10a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25932.jpgsave_picture_25932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25932.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25933.jpgsave_picture_25933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25933.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Thibaudet, Feinstein - Gershwin Rhapsody (2024) [FLAC|Lossless|image + .cue] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114022.jpgsave_picture_114022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114022.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tyler Hay - Field: 18 Nocturnes (2024) 2 x CD [FLAC|Lossless|image + .cue] <Clas
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115355.jpgsave_picture_115355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115355.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Peaceful Classical (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115560.jpgsave_picture_115560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115560.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Bright & Black - The Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117795.jpgsave_picture_117795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117795.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - The Best of Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118623.jpgsave_picture_118623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118623.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - Intense Piano Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118792.jpgsave_picture_118792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118792.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120134.jpgsave_picture_120134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120134.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121176.jpgsave_picture_121176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121176.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Beautiful Piano Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121726.jpgsave_picture_121726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121726.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:59463212A816AF60950F96B533D54019A97A836B
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121916.jpgsave_picture_121916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121916.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Ennio Morricone - Ennio Morricone: Winter Walks (2024) [FLAC|Lossless|WEB-DL|tra
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122619.jpgsave_picture_122619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122619.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Piano Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122922.jpgsave_picture_122922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122922.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Calming Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123101.jpgsave_picture_123101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123101.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Symphonic Landscapes - Works By Mozart, Brahms, Schubert & Mendelssohn (2023) [F
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123693.jpgsave_picture_123693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123693.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Gregorio Allegri - Miserere (The Sixteen, Christophers; et al) (2008) Compilatio
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123776.jpgsave_picture_123776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123776.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Beautiful Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123798.jpgsave_picture_123798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123798.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Agnes Obel - Riverside (2010) EP [FLAC|Lossless|tracks + .cue] <Pop, Classical, 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123812.jpgsave_picture_123812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123812.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Robin Meloy Goldsby - Dearest Things - The Piano Room Collection (2023) [FLAC|Lo
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123814.jpgsave_picture_123814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123814.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - The Rapsody Overture: Hip Hop Meets Classic (1997) [FLAC|Lossless|image + .
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123960.jpgsave_picture_123960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123960.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131220.jpgsave_picture_131220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131220.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Vladimir Horowitz - Horowitz Plays Clementi, Piano Sonatas (1989) [FLAC|Lossless
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131303.jpgsave_picture_131303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131303.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Sviatoslav Richter - Tchaikovsky Recital (1993) [FLAC|Lossless]<Classical, Roman
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131408.jpgsave_picture_131408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131408.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131821.jpgsave_picture_131821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131821.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Placido Domingo - Christmas With Placido Domingo (1981) [FLAC|Lossless]<Classica
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132534.jpgsave_picture_132534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132534.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ The Three Tenors - The Three Tenors Christmas ( L Album di Natale ) (2000) [FLAC
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132546.jpgsave_picture_132546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132546.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133043.jpgsave_picture_133043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133043.jpg" />
 </div>
 
 

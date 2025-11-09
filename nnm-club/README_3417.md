@@ -6,7 +6,7 @@ Soul Browser 1.4.21 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109203.jpgsave_picture_109203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109203.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FE210966B11A17F9A4041D3B6585F78D7638F008
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109204.jpgsave_picture_109204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109204.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C07EADA22DF5CEE101F48ADBF7DBDF7AECF0DAF2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109205.jpgsave_picture_109205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109205.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sensual Lounge Music Universe, Jazz Lounge Zone - Deep Sexy Jazz Lounge (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109206.jpgsave_picture_109206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109206.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Fort Firewall 3.12.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109207.jpgsave_picture_109207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109207.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109208.jpgsave_picture_109208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109208.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Good Morning Best Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109209.jpgsave_picture_109209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109209.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Togu Audio Line - TAL-Pha 1.2.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109210.jpgsave_picture_109210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109210.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Togu Audio Line - TAL-J-8 1.8.2 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109211.jpgsave_picture_109211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109211.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Karsten Bagge, Claus Waidtløw, Jesper Bodilsen - The Song Remains (A Jazz Tribu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109212.jpgsave_picture_109212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109212.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:D90CCD034E24CA5AE28A097F3BC03C5E3081E27F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109213.jpgsave_picture_109213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109213.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Togu Audio Line - TAL-U-NO-LX-V2 4.8.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109214.jpgsave_picture_109214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109214.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:9CA3AAC5370FFB82B42C3BCE397AC1C906D40EBE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109215.jpgsave_picture_109215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109215.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:CC030A433B899FF5F1FD9683CDC4B27AE10CC187
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109216.jpgsave_picture_109216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109216.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:AB2A1FCFC4A4BB628D0F49688AD7CD296DEC5261
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109217.jpgsave_picture_109217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109217.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Things - Coloured Heaven (1984) Remastered, 2024, Teen Sound [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109218.jpgsave_picture_109218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109218.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Boys of Fall - Boys of Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109219.jpgsave_picture_109219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109219.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Resurrect Tomorrow - The Eagle (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109220.jpgsave_picture_109220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109220.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Saint Agnes - Bloodsuckers (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109221.jpgsave_picture_109221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109221.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:15CDD1A349BFC41236212546B7D96A31FCCA0D70
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109222.jpgsave_picture_109222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109222.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:3F7F935298D9AE5D8E5553D6B579583250682F49
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109223.jpgsave_picture_109223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109223.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Pixomatic Photo Editor / Pixomatic - фоновый ластик 5.16.2 Mod by d
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109224.jpgsave_picture_109224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109224.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Glary Utilities Pro 6.10.0.14 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109225.jpgsave_picture_109225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109225.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Fulltime Production Disco Classic, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109226.jpgsave_picture_109226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109226.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:F2A0DA4480539935E93586055CE24E85511CBE87
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109227.jpgsave_picture_109227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109227.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Video Converter Pro 0.2.37 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109228.jpgsave_picture_109228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109228.jpg" />
 </div>
 
 

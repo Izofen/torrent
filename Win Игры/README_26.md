@@ -6,7 +6,7 @@ Dragon Ruins II (2) (2025) [En] (250701) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7586.jpgsave_picture_7586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7586.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GearCity (2022) [Ru/Multi] (2.0.0.14 hf1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7587.jpgsave_picture_7587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7587.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Edge of Allegoria (2024) [Multi] (1.0.1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7589.jpgsave_picture_7589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7589.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Quasimorph (2023) [Ru/Multi] (0.9.5.1.100g.409ff48) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7595.jpgsave_picture_7595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7595.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Monster Prom 2: Monster Camp (2020) [En] (2.29.b/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7600.jpgsave_picture_7600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7600.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Barony (2015) [En] (4.3.2-150625-hf2/dlc) License GOG [Blessed Addition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7604.jpgsave_picture_7604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7604.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Figment 2: Creed Valley (2023) [Ru/Multi] (1.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7607.jpgsave_picture_7607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7607.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Wizordum (2023) [En] (1.0.09.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7608.jpgsave_picture_7608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7608.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Scrapnaut (2021) [Ru/Multi] (1.6.17) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7736.jpgsave_picture_7736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7736.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Eridani Survivors (2025) [Multi] (12.08.2025) Repack AIexandro
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7751.jpgsave_picture_7751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7751.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wan
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7754.jpgsave_picture_7754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7754.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.710170/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7768.jpgsave_picture_7768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7768.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Pinball Spire (2024) [Ru/Multi] (1.02.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7770.jpgsave_picture_7770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7770.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ys X (10): Nordics (2024) [Multi] (1.0.9/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7776.jpgsave_picture_7776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7776.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack Decepticon [Campaig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7778.jpgsave_picture_7778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7778.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tiny Witch (2023) [Ru/Multi] (1.1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7783.jpgsave_picture_7783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7783.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7784.jpgsave_picture_7784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7784.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tennis Manager 25 (2025) [Multi] (5.0.1007) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7789.jpgsave_picture_7789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7789.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ CraftCraft: Fantasy Merchant Simulator (2025) [Multi] (1.1.23) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7790.jpgsave_picture_7790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7790.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Impaler Gold (2022) [Ru/Multi] (1.1.653) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7799.jpgsave_picture_7799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7799.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Ys: The Oath in Felghana (2012) [En] (2020.03.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7801.jpgsave_picture_7801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7801.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Last Spell (2023) [Ru/Multi] (1.2.20.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7814.jpgsave_picture_7814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7814.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Vagrus: The Riven Realms (2021) [En] (1.2100730/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7816.jpgsave_picture_7816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7816.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Witchfire (2024) [Ru/En] (0.7.3) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7822.jpgsave_picture_7822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7822.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7823.jpgsave_picture_7823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7823.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.06.06/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7824.jpgsave_picture_7824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7824.jpg" />
 </div>
 
 

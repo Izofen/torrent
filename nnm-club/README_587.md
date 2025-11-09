@@ -6,7 +6,7 @@ Jeff Lynne's ELO - Wembley or Bust (2017) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15573.jpgsave_picture_15573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15573.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AC6C13BAFD9AA4F92FAECCBE3F14FA63228D6586
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15574.jpgsave_picture_15574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15574.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Paul McCartney - Pipes Of Peace (1983) Japanese Edition, SHM-CD, Reissue, Remast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15575.jpgsave_picture_15575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15575.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Peaceful State: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15576.jpgsave_picture_15576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15576.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:28095E03F8C6D65F0F09996DC2E05B6BA07B820E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15577.jpgsave_picture_15577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15577.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Metallica - Welcome To The Snakepit (1993) 2 x CD, Unofficial Release [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15578.jpgsave_picture_15578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15578.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Rasmus - Weirdo (2025) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15579.jpgsave_picture_15579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15579.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ The Rasmus - Weirdo (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15580.jpgsave_picture_15580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15580.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Volbeat - God Of Angels Trust (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15581.jpgsave_picture_15581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15581.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ KIBORG (2025) [Ru/Multi] (20 2.50. 5_31: 0:01) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15582.jpgsave_picture_15582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15582.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:D0E62D02DDFB059115B696404B91242D1F99893C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15583.jpgsave_picture_15583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15583.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:D89D5259DF7EE6F970D54ACFD0A60C5EF7D3AEBB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15584.jpgsave_picture_15584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15584.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Kingston SSD Manager 1.5.5.5 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15585.jpgsave_picture_15585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15585.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ R-Studio Network 9.5 Build 191520 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15586.jpgsave_picture_15586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15586.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:DC4A83834F8B6641FD66979210444E46887009C1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15587.jpgsave_picture_15587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15587.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Kaodi (2025) [Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15588.jpgsave_picture_15588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15588.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VirtualBox 7.1.10 Build 169112 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15589.jpgsave_picture_15589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15589.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Capture One 23 Enterprise 16.6.1.2962 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15590.jpgsave_picture_15590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15590.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VCap Downloader 0.1.32.6555 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15591.jpgsave_picture_15591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15591.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:74B23B03A12A5536B44DBA9C607B5EE4A945E600
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15592.jpgsave_picture_15592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15592.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:BC666324B70987C7A43C8263837297916FDBFC1B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15593.jpgsave_picture_15593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15593.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.3.104/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15594.jpgsave_picture_15594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15594.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ V.A. - 80's Best Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15595.jpgsave_picture_15595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15595.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:73E33C1B92188AC27A0E508868B66986ACC45DBC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15596.jpgsave_picture_15596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15596.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:96524AB4B4DA5FCD95C81589AA8B5E43658DF252
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15597.jpgsave_picture_15597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15597.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:E34CA7CF786A8E1247091C84620A724DEC23220A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15598.jpgsave_picture_15598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15598.jpg" />
 </div>
 
 

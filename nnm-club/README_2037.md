@@ -6,7 +6,7 @@ Icecream Video Converter Pro 1.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53329.jpgsave_picture_53329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53329.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D35FCEB94691D4C969CB5583E0B71FB9568852B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53330.jpgsave_picture_53330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53330.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D35FCEB94691D4C969CB5583E0B71FB9568852B2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53331.jpgsave_picture_53331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53331.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera One 111.0.5168.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53332.jpgsave_picture_53332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53332.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DACB4067CBB6BF7B53E21B2D94225F4533884D7A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53333.jpgsave_picture_53333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53333.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Wander Hero (2023) [Multi] (1.0.240608) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53334.jpgsave_picture_53334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53334.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Rob Papen - UniMagic 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53335.jpgsave_picture_53335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53335.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Opera One 111.0.5168.25 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53336.jpgsave_picture_53336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53336.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ AIMP 5.30 Build 2555 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53337.jpgsave_picture_53337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53337.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:405151F545FBC320498D022333ECF2A0FF904444
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53338.jpgsave_picture_53338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53338.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53339.jpgsave_picture_53339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53339.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3CC2A520855F3F2276EC176D3CE94E9CB5E0E493
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53340.jpgsave_picture_53340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53340.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Star Stuff (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53341.jpgsave_picture_53341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53341.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:EC23AE57D29E12999F7FFBD548308676B992F2D0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53342.jpgsave_picture_53342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53342.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Enigma Virtual Box 10.80 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53343.jpgsave_picture_53343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53343.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53344.jpgsave_picture_53344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53344.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:6437FFBC83466B028F2FDDD63E19795B5E383E8E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53345.jpgsave_picture_53345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53345.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53346.jpgsave_picture_53346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53346.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:35DEF869717EDF396009A0F85081731B85A418FE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53347.jpgsave_picture_53347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53347.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Scene SKIDROW [Delux
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53348.jpgsave_picture_53348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53348.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Lost Lands 9: Stories of the First Brotherhood / Затерянные земли
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53349.jpgsave_picture_53349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53349.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:015ECC6A29CBCDFF7A0DDB1D7B19240B12ADAF40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53350.jpgsave_picture_53350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53350.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Music News vol.389 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53351.jpgsave_picture_53351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53351.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Icecream Photo Editor Pro 1.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53352.jpgsave_picture_53352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53352.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:4DFFE83CA5400552FBE92FF6AB3C087701B7EEEF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53353.jpgsave_picture_53353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53353.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:53CC5F51AE8D62CD016581B82C8CB4CCEE24A20C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53354.jpgsave_picture_53354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53354.jpg" />
 </div>
 
 

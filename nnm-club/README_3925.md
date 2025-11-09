@@ -6,7 +6,7 @@ DxO PhotoLab 7 ELITE Edition 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122532.jpgsave_picture_122532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122532.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C40415859F17B49186CCE5F679A78ECC93661AA2
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122533.jpgsave_picture_122533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122533.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:DD98880513D64386D8006B0D9AE71B27AA1C9228
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122534.jpgsave_picture_122534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122534.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Caro Emerald - The Shocking Miss Emerald (2013) Remaster, 2023, MVKA/Grandmono R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122535.jpgsave_picture_122535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122535.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Fort Firewall 3.10.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122536.jpgsave_picture_122536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122536.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:47FCFD6D58E4B7445B08BFF5331F8C4251461D42
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122537.jpgsave_picture_122537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122537.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B49A645ADEF53F720E3710C1F5EBB4734003BCA9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122538.jpgsave_picture_122538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122538.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VueScan Pro for Mac 9.8.25 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122539.jpgsave_picture_122539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122539.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ FBackup 9.9.849 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122540.jpgsave_picture_122540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122540.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ HitPaw Video Enhancer for Mac 3.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122541.jpgsave_picture_122541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122541.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ OneCommander Pro 3.65.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122542.jpgsave_picture_122542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122542.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ StaxRip 2.33.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122543.jpgsave_picture_122543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122543.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:EC599BB06D1A845D706B3032FD400EDFC73C9105
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122544.jpgsave_picture_122544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122544.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Connected Hearts 4: Cost of Beauty (2024) [Multi] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122545.jpgsave_picture_122545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122545.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:5D33C2D75B122F3AB8F2EFAFE1847E77773B8FA4
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122546.jpgsave_picture_122546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122546.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C1FD5E95615809B317011070F6CBC743451C4B89
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122547.jpgsave_picture_122547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122547.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0DA2976428578645D39416BF853D38A6246369D5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122548.jpgsave_picture_122548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122548.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4B65531D9F3E3142E455F2B7E531746A3FFBC564
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122549.jpgsave_picture_122549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122549.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:61DE6B4988DA65CD4CB59D390639C363163F2B98
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122550.jpgsave_picture_122550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122550.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Process Lasso Pro 12.4.7.20 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122551.jpgsave_picture_122551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122551.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Rhinoceros 8 v.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122552.jpgsave_picture_122552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122552.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:8660DBC1FAD3BDCCE1EC0AE53CB47E346FA80F3E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122553.jpgsave_picture_122553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122553.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ XYplorer 25.40.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122554.jpgsave_picture_122554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122554.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:285672124A93F3016DFFED2EE4CE491D47D7BFFC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122555.jpgsave_picture_122555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122555.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:02E57FE4C8B52D794FB1C702EBD4EA40883087B9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122556.jpgsave_picture_122556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122556.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Chris Rea - Stony Road (2002) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122557.jpgsave_picture_122557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122557.jpg" />
 </div>
 
 

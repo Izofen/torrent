@@ -6,7 +6,7 @@ ZBrush 2023.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208411.jpgsave_picture_208411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208411.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CGcircuit, Bishoy Khalifa | PBD Cloth Tearing in Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208413.jpgsave_picture_208413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208413.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:949847A0B8EEE8D4F003C161AF264ABD25615005
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208415.jpgsave_picture_208415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208415.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Google Chrome 115.0.5790.102 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208417.jpgsave_picture_208417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208417.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:BB6289D83CD14F13CCCE5022D9F7176DAA3E17E1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208419.jpgsave_picture_208419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208419.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Mozilla Thunderbird 115.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208421.jpgsave_picture_208421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208421.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Multi Commander Full Edition 13.0 Build 2953 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208423.jpgsave_picture_208423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208423.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:869E45E554B02D6C6245FE674A83FAD1BCCAA190
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208425.jpgsave_picture_208425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208425.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:89CDD308E97C0113298795132BD3FE0A35680C7B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208427.jpgsave_picture_208427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208427.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:A4FEA9BC03D8F6B3F912F4E370E7872DEB9C2C89
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208429.jpgsave_picture_208429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208429.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:D6D271574AF23A9B479A8A281A01DC4DC579E54E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208432.jpgsave_picture_208432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208432.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:86D2716FFBF27D6CBECF20C498AE336530C5BF37
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208433.jpgsave_picture_208433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208433.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MEmu 9.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208436.jpgsave_picture_208436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208436.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ CGcircuit, VFX Magic | Houdini Flip – Chocolate (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208439.jpgsave_picture_208439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208439.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Motion 5.6.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208442.jpgsave_picture_208442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208442.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:94A65B584557792CE328E01F823555C132409935
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208444.jpgsave_picture_208444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208444.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Macrorit Disk Scanner 6.6.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208445.jpgsave_picture_208445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208445.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ App Builder 2023.36 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208447.jpgsave_picture_208447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208447.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Tablacus Explorer 23.7.12 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208450.jpgsave_picture_208450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208450.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ StartAllBack 3.6.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208452.jpgsave_picture_208452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208452.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ NoMachine 8.7.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208453.jpgsave_picture_208453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208453.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:D53B5B947C8E6DDB81D31DB758F8CE1FE8A61DE1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208458.jpgsave_picture_208458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208458.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:95FF34C4E6D5D582BB20E69F71516C1748C2D0D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208461.jpgsave_picture_208461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208461.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:EE892DFA412523C0FED7AADC1515455F8E514736
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208464.jpgsave_picture_208464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208464.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Sante DICOM Viewer Pro 12.2.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208465.jpgsave_picture_208465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208465.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ The Gnomon Workshop, Adrien Paguet-Brunella | Creating a Swamp Scene for Games w
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208467.jpgsave_picture_208467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208467.jpg" />
 </div>
 
 

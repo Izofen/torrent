@@ -6,7 +6,7 @@ Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233158.jpgsave_picture_233158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233158.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vortex - The Future Remains In Oblivion (2023) [MP3|320 Kbps] <Melodic Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233160.jpgsave_picture_233160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233160.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ VA - Bass House NNM 2 (2023) [MP3|320 Kbps] <Bass House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233161.jpgsave_picture_233161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233161.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:D01DC9ED746DCD0FCF3ABD328CEB7BD02689A222
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233163.jpgsave_picture_233163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233163.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:065085D1454DCD3B71CD82769EC49E6DBDF4CD80
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233164.jpgsave_picture_233164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233164.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sonny Rollins - Milestone Profiles (1972 - 2000) 2CD, 2006, Milestone [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233165.jpgsave_picture_233165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233165.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:8B50888EEDFB21EFD576C5E0231731744B2D4D9B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233166.jpgsave_picture_233166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233166.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Deville - Heavy Lies the Crown (2022) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233167.jpgsave_picture_233167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233167.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Music News vol.265 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233168.jpgsave_picture_233168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233168.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:E34CB0D866B3C3A57DF75357DAF7477C999753C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233169.jpgsave_picture_233169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233169.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:725B08E892BB9AD8D57F704D4E5F4106BAF62A55
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233170.jpgsave_picture_233170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233170.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:B542DF541ACAC139A57B594A9C5DD79B77ADD71B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233171.jpgsave_picture_233171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233171.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Raven - All Hell's Breaking Loose (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233172.jpgsave_picture_233172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233172.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:4DC9F6B54D337B763F0388EBD04F8F1DEB1CEBAB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233173.jpgsave_picture_233173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233173.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Def Leppard - Let's Get Rocked (1992) Single [OGG Vorbis|484 Kbps] <Rock, Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233174.jpgsave_picture_233174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233174.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:0D613F7CB26D72515CA05832121F35235CBB7804
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233175.jpgsave_picture_233175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233175.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ AmanVPN 2.2.0.0525 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233176.jpgsave_picture_233176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233176.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233177.jpgsave_picture_233177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233177.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Brian Culbertson - The Trilogy, Pt. 3: White (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233178.jpgsave_picture_233178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233178.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Free Download Manager 6.19.1.5263 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233179.jpgsave_picture_233179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233179.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ GrandTotal 8.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233180.jpgsave_picture_233180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233180.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:75A9EBEB883F984265AB5C0BD8A3279E3A7B2C56
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233181.jpgsave_picture_233181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233181.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:0314D1628607CE69F3219FDE3857382A431D65A9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233182.jpgsave_picture_233182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233182.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:5E1E881951B133F2E8B231C5CB5EB94E865D841A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233183.jpgsave_picture_233183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233183.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - classic rock classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233184.jpgsave_picture_233184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233184.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:C565A559066B82FB21D0B171C0BC56280E570629
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233185.jpgsave_picture_233185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233185.jpg" />
 </div>
 
 

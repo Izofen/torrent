@@ -6,7 +6,7 @@ Tony Kofi Quartet - Plays Monk (2004) Specific Jazz[FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244266.jpgsave_picture_244266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244266.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:61ED511FDD1C93EF69654E1931C1F6E0BA62BBAD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244267.jpgsave_picture_244267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244267.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Peter Gee - Pilgrim (2023) [MP3|320 Kbps] <Neo-Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244268.jpgsave_picture_244268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244268.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:F95089FA9200B4292DF49933954E8334B05E860B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244270.jpgsave_picture_244270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244270.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Text Edit Plus 12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244271.jpgsave_picture_244271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244271.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Brave Browser 1.49.128 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244272.jpgsave_picture_244272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244272.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Ethno Sorcery, Vol. 2 (Compiled by Salvo Migliorini) (2020) [AAC|~328 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244273.jpgsave_picture_244273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244273.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Steve Khan - Backlog (2017) Tone Center [FLAC|Lossless|tracks + .cue] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244274.jpgsave_picture_244274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244274.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:83D94AC46DCA4963CCFC9C8CD049E301279A4E23
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244275.jpgsave_picture_244275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244275.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Noctem - Credo certe ne cras (2022) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244276.jpgsave_picture_244276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244276.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ DefenderUI 1.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244277.jpgsave_picture_244277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244277.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:792390E3AEC1A7729E4C4B3DCA44D092902B2818
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244278.jpgsave_picture_244278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244278.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Francisco "Paquito" Hechavarria - Frankly (2009) [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244279.jpgsave_picture_244279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244279.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Ray Bordelon - Getting Better (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244280.jpgsave_picture_244280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244280.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:44A3784AC9A5D684CBED3E868AC8BE7E1E726F6B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244281.jpgsave_picture_244281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244281.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Stellarium 23.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244282.jpgsave_picture_244282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244282.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:9155507D456B188970B728BB41949EDBFC5C423E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244283.jpgsave_picture_244283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244283.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Data Guardian 6 v.6.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244284.jpgsave_picture_244284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244284.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Boxy SVG 3  v3.78.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244285.jpgsave_picture_244285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244285.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244286.jpgsave_picture_244286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244286.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Dj Para - Fallen On Def Ears (2009) [FLAC|Lossless|tracks + .cue] <Funk, Nu Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244287.jpgsave_picture_244287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244287.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Sandboxie plus 1.9.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244288.jpgsave_picture_244288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244288.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:0548A0A35D334A78B30F93DA8A789E3C299433ED
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244289.jpgsave_picture_244289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244289.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Windows 10 Manager 3.6.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244290.jpgsave_picture_244290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244290.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Chill Out Lovers, Vol. 2 (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244291.jpgsave_picture_244291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244291.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ O&O DiskImage Professional 18.3 Build 280 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244292.jpgsave_picture_244292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244292.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Opus3 - A Selection from Test-records 1,2 & 3 (2008) [DSD64 5.1, 2.0|image(iso)|
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210000.jpgsave_picture_210000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210000.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alan Parsons – A Valid Path (2004) 2006 [DTS 5.1 CD-DA|16/44.1|image+.cue|Audi
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210121.jpgsave_picture_210121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210121.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:3262412E32FDD850A372D6CAF1105A062D682DD6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210315.jpgsave_picture_210315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210315.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paul McCartney – The McCartney Years (2007) 2 discs [DTS 5.1 CD-DA|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210529.jpgsave_picture_210529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210529.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD6
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210627.jpgsave_picture_210627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210627.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210633.jpgsave_picture_210633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210633.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Di
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210672.jpgsave_picture_210672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210672.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:695242D560B937D657DE3853DCA81FF126D29FE2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpgsave_picture_210780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Alice Cooper - Легенды Зарубежного Рока (2000) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpgsave_picture_211108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211409.jpgsave_picture_211409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211409.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpgsave_picture_211473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpgsave_picture_211804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpgsave_picture_211934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Sweet - Легенды Зарубежного Рока (2000) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212054.jpgsave_picture_212054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212054.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Brahms - Piano Quartet No. 1 Op. 25 · Schumann - Fantasiestücke Op. 88 (Martha
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212559.jpgsave_picture_212559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212559.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213540.jpgsave_picture_213540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213540.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphon
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpgsave_picture_213667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpgsave_picture_213671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpgsave_picture_214043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214264.jpgsave_picture_214264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214264.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphoni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214374.jpgsave_picture_214374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214374.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216114.jpgsave_picture_216114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216114.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216793.jpgsave_picture_216793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216793.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Rock House - Rockin' With Rock House (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216910.jpgsave_picture_216910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216910.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Естрадна Панорама 3 (1984) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217708.jpgsave_picture_217708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217708.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Some Broken Hearts... - Schlager International (1982) [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217891.jpgsave_picture_217891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217891.jpg" />
 </div>
 
 

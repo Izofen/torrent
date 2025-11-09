@@ -6,7 +6,7 @@ Endseeker - Global Worming (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170541.jpgsave_picture_170541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170541.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GoodSync Enterprise 10.10.14.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170542.jpgsave_picture_170542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170542.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A5E4F2067B03D34F17E7D82B09464B5A756EEEB9
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170543.jpgsave_picture_170543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170543.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Untouch 1.2.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170544.jpgsave_picture_170544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170544.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - The Sound Of Dance House (2019) [MP3|320 Kbps] <Dance House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170545.jpgsave_picture_170545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170545.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:0ABDD944E099F5AA7709A1F5BB995880A56DF552
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170546.jpgsave_picture_170546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170546.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ xScope 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170547.jpgsave_picture_170547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170547.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ PaintCode 3 v3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170548.jpgsave_picture_170548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170548.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:4EB1723EDD46D439DE1454C9FB651C8F8EFE2C4A
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170549.jpgsave_picture_170549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170549.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Atlas Fallen (2023) [Ru/Multi] (Build 12227267/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170550.jpgsave_picture_170550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170550.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - A Tribe Called Kotori 3 (2019) [AAC|~328 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170551.jpgsave_picture_170551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170551.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CF3D1C7A213F1D783048856E3077FC5FBBB0A7EC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170552.jpgsave_picture_170552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170552.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:EE31B980AD05FAB9B85C1164D0087C51EEEB2DB2
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170553.jpgsave_picture_170553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170553.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Lord of the Rings: Return to Moria (2023) [Ru/Multi] (1.0.0.112055) Repack O
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170554.jpgsave_picture_170554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170554.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D4C9F4DC4FAFD207387CC8843C987781B972D7A8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170555.jpgsave_picture_170555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170555.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ DJ Shadow - Our Pathetic Age (2019) 2CD [FLAC|Lossless|tracks + .cue] <Trip Hop,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170556.jpgsave_picture_170556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170556.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Lich King - Toxic Zombie Onslaught (2008) [WavPack|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170557.jpgsave_picture_170557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170557.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170558.jpgsave_picture_170558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170558.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:FF9586A08684DC408CCB18A211B85F805E006D76
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170559.jpgsave_picture_170559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170559.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ MarsEdit 4 v4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170560.jpgsave_picture_170560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170560.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:5BE8F70FCA7C3EBE49E499D24E95887B2414CA30
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170561.jpgsave_picture_170561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170561.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:76AC0B98805946191E4576859B490A0AA96F7C9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170562.jpgsave_picture_170562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170562.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:EAABDBEFF89C8FB6EE6AD09AD4B9F7D6F740554A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170563.jpgsave_picture_170563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170563.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Image Resizer – Resize Photos 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170564.jpgsave_picture_170564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170564.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Awaken 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170565.jpgsave_picture_170565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170565.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Cent Browser 4.3.9.227 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170566.jpgsave_picture_170566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170566.jpg" />
 </div>
 
 

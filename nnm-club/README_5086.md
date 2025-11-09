@@ -6,7 +6,7 @@ Radioactive - Yeah (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158945.jpgsave_picture_158945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158945.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C36D078BA06ACCA4487FD995933E147F033541FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158946.jpgsave_picture_158946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158946.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Pablo Hasel письмо из тюрьмы. (11.11.2023) WEBRip [H.264/1080p-LQ]
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158947.jpgsave_picture_158947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158947.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ KORG - Wavestate Native 1.1.1 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158948.jpgsave_picture_158948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158948.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:DF24305AAE0EC6A11BCD34B4A7EA055C71C406BA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158949.jpgsave_picture_158949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158949.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:4A5C308753B9C57402F2D6F8352AFCEB3821109E
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158950.jpgsave_picture_158950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158950.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ TweakNow WinSecret Plus! 4.9.14 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158951.jpgsave_picture_158951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158951.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D80804B4AA1D9F52E326EC6EB8CF5C3837626003
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158952.jpgsave_picture_158952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158952.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Radiant Photo 1.1.2.341 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158953.jpgsave_picture_158953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158953.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Mater a Clivis Imperat - Atrox Locus (2022) [MP3|320 Kbps] <Progressive Rock, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158954.jpgsave_picture_158954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158954.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Perfectly Clear WorkBench 4.6.0.2614 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158955.jpgsave_picture_158955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158955.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Overlord SR - Medieval Metal Too (2012) [FLAC|Lossless|image + .cue] <Heavy/Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158956.jpgsave_picture_158956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158956.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:A0ABDC23E1A69033F2D732AE09A0E129908FCF6B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158957.jpgsave_picture_158957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158957.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:506D0F710F677843724FAE254BCB9C44170FDD34
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158958.jpgsave_picture_158958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158958.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Piano Jazz Christmas by JazzEcho (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158959.jpgsave_picture_158959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158959.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Dynamic Wallpaper Engine 16.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158960.jpgsave_picture_158960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158960.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:A8B5DCEB96DE472BFD3DA632E085DEC6E8832827
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158961.jpgsave_picture_158961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158961.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Zhimin Zhan | Selenium WebDriver Recipes in Ruby (2022) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158962.jpgsave_picture_158962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158962.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:4AF1578B9E9FAD1924ED1FFE0AC81DAD8AA6F194
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158963.jpgsave_picture_158963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158963.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Best of the Best 2022 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158964.jpgsave_picture_158964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158964.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:0E142EB8F37901D5CD9E2161D793A6BC5207E99B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158965.jpgsave_picture_158965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158965.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158966.jpgsave_picture_158966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158966.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Overland - S.I.X (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158967.jpgsave_picture_158967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158967.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Infuse PRO 7.4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158968.jpgsave_picture_158968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158968.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:9D8E70862D44CEED9B48AAC3C18983F09A32EDA0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158969.jpgsave_picture_158969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158969.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - The Best Of House 2023 Part 1 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158970.jpgsave_picture_158970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158970.jpg" />
 </div>
 
 

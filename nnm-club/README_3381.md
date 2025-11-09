@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108267.jpgsave_picture_108267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Liam Kane - Metronomic Perfection (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108268.jpgsave_picture_108268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108268.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Margaux - Inside the Marble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <indie po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108269.jpgsave_picture_108269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108269.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:1AFFEE446D8407BB3E01E0C742FC032E2D29DE64
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108270.jpgsave_picture_108270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108270.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:537A083CC428688853D6D6F1FEBA7D2E500B801E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108271.jpgsave_picture_108271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108271.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:CDF1E4BF7244D6B1C845125E1386057E7AC26F59
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108272.jpgsave_picture_108272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108272.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Dream Drop - Acne Superstar (2023) Extended version, 2024, GAIN [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108273.jpgsave_picture_108273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108273.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Holy Mother - Rise (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108274.jpgsave_picture_108274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108274.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Archives - No Bliss In Ignorance (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108275.jpgsave_picture_108275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108275.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Белая метель (2024) [FLAC|Lossless|WEB-DL|tracks] <Шансон,
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108276.jpgsave_picture_108276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108276.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Summer Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108277.jpgsave_picture_108277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108277.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:65BCD91AED6624FB6E74A072C3EE6882D906C92D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108278.jpgsave_picture_108278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108278.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Electric Yawn - Deliverance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108279.jpgsave_picture_108279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108279.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:95D393C1F3DAA183AF98331CFE3CCA1089D05343
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108280.jpgsave_picture_108280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108280.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Booka Shade - Link To The Invisible (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108281.jpgsave_picture_108281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108281.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:ED4B3786D9B19FB8AC0019F327699CC0D24A2DF3
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108282.jpgsave_picture_108282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108282.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ From Ashes to New - Blackout (2023) Deluxe, 2024, Better Noise Music [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108283.jpgsave_picture_108283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108283.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:88CB582DF49936089E66C74842BE0DF2F3B21A08
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108284.jpgsave_picture_108284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108284.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - The Deep Collective -  Rhythmica (2023) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108285.jpgsave_picture_108285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108285.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Soul Browser 1.4.23 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108286.jpgsave_picture_108286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108286.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Soul Browser 1.4.23 Mod by AnBo39 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108287.jpgsave_picture_108287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108287.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - DJ Hits Volume 36 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108288.jpgsave_picture_108288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108288.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Evergrey - Theories Of Emptiness (2024) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108289.jpgsave_picture_108289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108289.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Speedtest от Ookla 5.4.0 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108290.jpgsave_picture_108290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108290.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:8A2B5F24F3798C7A95573E4BCE60511919D5A4A5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108291.jpgsave_picture_108291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108291.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Quantic - Dancing While Falling (2023) Deluxe Edition, 2024, [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108292.jpgsave_picture_108292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108292.jpg" />
 </div>
 
 

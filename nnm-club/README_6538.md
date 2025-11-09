@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208297.jpgsave_picture_208297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208297.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Clipboard Master 5.5.0.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208300.jpgsave_picture_208300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208300.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9F5D317DCBC41FF6AE720908112284E45DDC0EA2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208303.jpgsave_picture_208303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208303.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ CGcircuit, Ciobanu Razvan | Advanced Destruction Series: Lightning Strike (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208304.jpgsave_picture_208304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208304.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:7C4F15290E9F7A00F2C9D528D51EDC92EB011811
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208306.jpgsave_picture_208306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208306.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Crescendo Music Notation Editor 9.62 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208308.jpgsave_picture_208308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208308.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Icecream Screen Recorder PRO 7.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208310.jpgsave_picture_208310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208310.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Truecaller BETA: определитель номера 13.26.6 Mod by LITEAPKS, 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208312.jpgsave_picture_208312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208312.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Alight Motion 5.0.94.103891 Mod by t1n0r, Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208315.jpgsave_picture_208315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208315.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F12411F0EBC958478A1F458FB1EE40C99F10ED69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208317.jpgsave_picture_208317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208317.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Sigh - The Eastern Forces of Evil 2022 (Live) (2023) [FLAC|Lossless|image + .cue
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208318.jpgsave_picture_208318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208318.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:18EBEF0D20F4E529BD46C94E8E3225137F7E59F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208320.jpgsave_picture_208320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208320.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:27F18C340FBF6A764E795551D507E3C4093F7511
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208322.jpgsave_picture_208322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208322.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:65F690F154B5474FE3A05854407CB2B42B7C0579
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208325.jpgsave_picture_208325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208325.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ IOWA - Кассиопея (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208326.jpgsave_picture_208326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208326.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Music News vol.282 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208328.jpgsave_picture_208328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208328.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:5563D3FCC5A561BFE05E5142E21D88CB19EE5808
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208329.jpgsave_picture_208329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208329.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ PdfFactory Std & Pro 8.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208333.jpgsave_picture_208333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208333.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:3A758FDAEF1F417F81853A5BFA4ABE3F84A9CE45
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208334.jpgsave_picture_208334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208334.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Telegram Desktop 4.8.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208337.jpgsave_picture_208337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208337.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:BD517AFDB63690CC74DFB73B9B8518137F405FEA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208339.jpgsave_picture_208339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208339.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:EA65B800FA110B929BBDB608FAF69E5549FFDEBE
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208340.jpgsave_picture_208340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208340.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Videoleap by Lightricks 1.6.4 Mod by ImanAlien, 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208342.jpgsave_picture_208342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208342.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208344.jpgsave_picture_208344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208344.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ ProPresenter 7.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208346.jpgsave_picture_208346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208346.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ FireAlpaca 2.11.4 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208350.jpgsave_picture_208350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208350.jpg" />
 </div>
 
 

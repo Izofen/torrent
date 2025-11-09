@@ -6,7 +6,7 @@ Psychework - Spark of Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179083.jpgsave_picture_179083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179083.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mob Rules - Ethnolution A.D. (2006) [FLAC|Lossless|image + .cue] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179087.jpgsave_picture_179087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179087.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:AF5E42412E255B985E46C2422940C80D2E2F3133
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179088.jpgsave_picture_179088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179088.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mob Rules - Hollowed Be Thy Name (2002) [FLAC|Lossless|image + .cue] <Melodic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179090.jpgsave_picture_179090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179090.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ I Compagni di Baal - I Compagni di Baal (2012) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179093.jpgsave_picture_179093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179093.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Xorsist - At the Somber Steps To Serenity (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179104.jpgsave_picture_179104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179104.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Metallica - Lux Æterna (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179118.jpgsave_picture_179118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179118.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Kiss - Creatures Of The Night (1982) 5xCD, 40th Anniversary, Super Deluxe, 2022,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179241.jpgsave_picture_179241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179241.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ David Bowie - Divine Symmetry (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179247.jpgsave_picture_179247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179247.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:276551456926D472AB488DB238AB2CC3B956D2A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179281.jpgsave_picture_179281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179281.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Angra - OMNI Live (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179335.jpgsave_picture_179335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179335.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:600A749A4B548342DF2BC8401EF1AEDE15EC4773
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179382.jpgsave_picture_179382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179382.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Czyszy - Scent Emmental (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179401.jpgsave_picture_179401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179401.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Furio Chirico's The Trip - Equinox (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179410.jpgsave_picture_179410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179410.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Josh Read - God Fodder (A-B-Sides) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179414.jpgsave_picture_179414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179414.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Marked As An Enemy - Meanwhile (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179416.jpgsave_picture_179416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179416.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Khymera - 4 Albums (2003-2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179462.jpgsave_picture_179462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179462.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Hatters - По ходу люблю (Полная версия) (2023) [FLAC|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179544.jpgsave_picture_179544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179544.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Unheilig - Schattenland (2021) 5CD Box Set [FLAC|Lossless|image + .cue] <Industr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179550.jpgsave_picture_179550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179550.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Deep Purple - Greatest Hits (2022) 3 x CD, Compilation, Japanese Edition [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179585.jpgsave_picture_179585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179585.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Iron Savior - Firestar (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179611.jpgsave_picture_179611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179611.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Unheilig - Lichterland - Best Of (2021) 2CD Deluxe Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179613.jpgsave_picture_179613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179613.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:ABFD22A970AFB542404EE3DC11447804AD8F12AB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179629.jpgsave_picture_179629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179629.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Evile - The Unknown (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179633.jpgsave_picture_179633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179633.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Saypink! - Когда погаснет свет (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179642.jpgsave_picture_179642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179642.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ The Veer Union - Covers Collection Vol.1-2 (2020-2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179644.jpgsave_picture_179644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179644.jpg" />
 </div>
 
 

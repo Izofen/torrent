@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104496.jpgsave_picture_104496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104496.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AFI - Silver Bleeds the Black Sun... (2025) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104497.jpgsave_picture_104497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104497.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A176C8D9C9DABFCAAD8615AA6616B91A680FCC7C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104498.jpgsave_picture_104498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104498.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:93D30ABC19A3D57262D7B6096743E82AF05ED11B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104499.jpgsave_picture_104499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104499.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A3B0441B6817A174753F66C750CB299B080AF1B0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104500.jpgsave_picture_104500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104500.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9224815DA790858D39F44CE6DBF34B7F3C2CF41F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104501.jpgsave_picture_104501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104501.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1DD11932460DB49B434EEC9A017505F36C74851B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104502.jpgsave_picture_104502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104502.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Photo Supreme 2025.3.3.8106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104503.jpgsave_picture_104503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104503.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:9325F10B0D4085A0783243D87D7D79B9D7ED8180
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104504.jpgsave_picture_104504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104504.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:E512AE2B8C967CD5836FBBF1C99AE38051914FEC
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104505.jpgsave_picture_104505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104505.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E22EF86C621E1FC7C9223A7DBB0AC6FA4D5AF47C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104506.jpgsave_picture_104506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104506.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:73967C4D95462FD3AD71EB75E907FAA117C2E3F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104507.jpgsave_picture_104507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104507.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Terry Stafford - Suspicion (1994) [WavPack|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104508.jpgsave_picture_104508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104508.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:BFB62F2EB23C50E0D632EB7066FE0384FA9C4BC2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104509.jpgsave_picture_104509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104509.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D6A178B3DC37595B4E43752970503C4F541B1371
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104510.jpgsave_picture_104510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104510.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ The Red Jumpsuit Apparatus - X’s For Eyes (2025) [MP3|320 Kbps] <Alt. Rock, Ma
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104511.jpgsave_picture_104511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104511.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:14C7CD7210D4BD349ED81CB4907A5813D722F681
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104512.jpgsave_picture_104512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104512.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:2AF3D2EAA79C45AF3C5C79672F7BA2453D629B7E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104513.jpgsave_picture_104513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104513.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:EAB1594886A0B20BFE2159B0C0D3E231A2392306
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104514.jpgsave_picture_104514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104514.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:0AC1500BBDFE925AECED5114529510495FA8B3B8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104515.jpgsave_picture_104515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104515.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ GRANDpolitics | Кто такой бог (2025) [PDF]
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104516.jpgsave_picture_104516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104516.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:5ED3F550B63277ECAAC32A00E70E6DBDD931AE70
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104517.jpgsave_picture_104517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104517.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:0E26B77609B7F04175DB723C32F7D352A31D31BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104518.jpgsave_picture_104518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104518.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Stryper - When We Were Kings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104519.jpgsave_picture_104519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104519.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Solitude Aeturnus - Through The Darkest Hour, Downfall (1994-1996) Compilation, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104520.jpgsave_picture_104520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104520.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Soulful Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104521.jpgsave_picture_104521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104521.jpg" />
 </div>
 
 

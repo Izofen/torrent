@@ -6,7 +6,7 @@
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56007.jpgsave_picture_56007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56007.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CF5AACD5B6333189C627D15178077C014CF449E4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56008.jpgsave_picture_56008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56008.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2D9BCB3B4391BB15761E20FE1D00320D03A7E019
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56009.jpgsave_picture_56009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56009.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D1C084C9691B45A562BFDA78CDB5CF9CBC8452B5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56010.jpgsave_picture_56010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56010.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:772D28B28DF6CE79E49055D111107410929BCBB8
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56011.jpgsave_picture_56011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56011.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:AB497433E4713773470334B56457D4EDDD8AB882
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56012.jpgsave_picture_56012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56012.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:6CF50033B4EE52B4D25FA84D315C48B289268829
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56013.jpgsave_picture_56013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56013.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2E62705E04C98C35ED7B4CFDD31FCCC95951E7B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56014.jpgsave_picture_56014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56014.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B86D8ABE0BE02728D9F63D0DB0B8B519F43B5A19
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56015.jpgsave_picture_56015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56015.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:E5F804560D9A0CD303DDDB7A7438F1ADAA8D7743
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56016.jpgsave_picture_56016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56016.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:4C795C2965F8DD9F658E61DF8957609FF3589C1A
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56017.jpgsave_picture_56017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56017.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:0B5206CADD8B048EB7877DB2D5835B0611726394
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56018.jpgsave_picture_56018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56018.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:3E3A3A479D24E2ADA8C3D8AC8094B3C3D5BE44D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56019.jpgsave_picture_56019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56019.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:3E3A3A479D24E2ADA8C3D8AC8094B3C3D5BE44D8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56020.jpgsave_picture_56020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56020.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - A State of Trance 2024 (mixed by Armin van Buuren) (2024) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56021.jpgsave_picture_56021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56021.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:AB5D2971E2585BFD7202BB2640819AE33BBD3AA7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56022.jpgsave_picture_56022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56022.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:7D098C60999C09CAB8EC9D950FC5A5F91BB68976
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56023.jpgsave_picture_56023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56023.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ FanControl V191 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56024.jpgsave_picture_56024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56024.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ PhotoRoom v4.9.6 b1403 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56025.jpgsave_picture_56025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56025.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6350B33FFA116DD248312624238837CF296B613C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56026.jpgsave_picture_56026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56026.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:733F07C74C71D69ABEE8ACB58655C5E38FA12E76
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56027.jpgsave_picture_56027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56027.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:1B8B9E208E8C9E75E922EDFA80C3ED00AD10D93E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56028.jpgsave_picture_56028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56028.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Music News vol.378 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56029.jpgsave_picture_56029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56029.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Electronic compilation part 78 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56030.jpgsave_picture_56030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56030.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Colorfy PLUS - Coloring Book v3.26 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56031.jpgsave_picture_56031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56031.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - A State of Trance 2024 (DJ Mix) [Mixed by Armin Van Buuren] (2024) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56032.jpgsave_picture_56032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56032.jpg" />
 </div>
 
 

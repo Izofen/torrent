@@ -6,7 +6,7 @@ Lee Morgan - The Rajah (1966) Remaster, 2014, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139407.jpgsave_picture_139407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139407.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4966CBFB55B71271FCBCE6FA816C7D022EA5988D
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139408.jpgsave_picture_139408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139408.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2101C6E29496C4DBFCE6D5462A14A1B1C4545793
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139410.jpgsave_picture_139410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139410.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4EA0371057EBE6A079B3E447901C134A48F649CE
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139411.jpgsave_picture_139411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139411.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139412.jpgsave_picture_139412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139412.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ DxO PhotoLab Elite 7.1.0 build 94 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139414.jpgsave_picture_139414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139414.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRem
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139415.jpgsave_picture_139415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139415.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:6F8EA0ABD956E070C80AAFCA3E6A7BD66216BFE9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139417.jpgsave_picture_139417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139417.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 012 (2016) [MP3|320 Kbps] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139418.jpgsave_picture_139418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139418.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ RaceTime: Undercover (2017) [Ru/En] (1.0.2) License
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139420.jpgsave_picture_139420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139420.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Aerosmith - Music from Another Dimension! (2012) [FLAC 2.0 24/192|image (Vinyl-R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139421.jpgsave_picture_139421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139421.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ KMPlayer 2023.11.24.16 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139422.jpgsave_picture_139422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139422.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:94C249BDB8A2E1B9F32A3516BBEDE4FF3AB7DE63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139423.jpgsave_picture_139423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139423.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - December Rock Party (2021) [MP3|320 Kbps] <Rock, Punk, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139424.jpgsave_picture_139424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139424.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:5B4CA80D688F16C1E2EC9E1258EF70BECC79D665
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139426.jpgsave_picture_139426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139426.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:F2186E585FD4D8804A391698112C547DB0557087
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139427.jpgsave_picture_139427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139427.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:483A9F9DD4FC52B24807A70124FE157606BC1A75
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139429.jpgsave_picture_139429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139429.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Outside 3.1.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139430.jpgsave_picture_139430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139430.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:658649BF55D38FD12C34634DA7B4FFBD1A93B618
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139431.jpgsave_picture_139431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139431.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ The Miles Davis All-Stars featuring John Coltrane - Broadcast Sessions (1958-59)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139433.jpgsave_picture_139433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139433.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Joseph Jarman & Anthony Braxton - Together Alone (1971) 1994, Delmark[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139434.jpgsave_picture_139434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139434.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ ClipGrab 3.8.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139435.jpgsave_picture_139435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139435.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:E64DF1063477EFC86D2252088FED32E9E126C70E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139437.jpgsave_picture_139437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139437.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:CCCD56BC521D6AF81214F54758F1F30BB43DAB97
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139438.jpgsave_picture_139438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139438.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:8571FC88523A87F0BC6100C60A49331F47705FAD
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139439.jpgsave_picture_139439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139439.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:D720F0F741DE5A8E4F2288721BBE096A80E14B08
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139440.jpgsave_picture_139440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139440.jpg" />
 </div>
 
 

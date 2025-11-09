@@ -6,7 +6,7 @@ Rainmaker - Rainmaker (2000) Reissue, 2023, Pride & Joy Music [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159010.jpgsave_picture_159010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159010.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Joe Cocker - Joe Cocker! (1969) Reissue, 2017, Audio Fidelity [OGG Vorbis|480 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159017.jpgsave_picture_159017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159017.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Meshuggah - Immutable (2022) [FLAC|Lossless|image + .cue] <Death Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159019.jpgsave_picture_159019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159019.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Trevor Rabin - Rio (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159023.jpgsave_picture_159023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159023.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Neopera - Tuba Mirum (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159028.jpgsave_picture_159028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159028.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Casus Belli - In the Name of Rose (2005) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159033.jpgsave_picture_159033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159033.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bethzaida - Nine Worlds (1996) [FLAC|Lossless|image + .cue] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159037.jpgsave_picture_159037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159037.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Man Machine Industry - Doomsday Clock (2020) [FLAC|Lossless|WEB-DL|tracks] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159039.jpgsave_picture_159039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159039.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Werewolf Jones - Rot Away (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Rock, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159053.jpgsave_picture_159053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159053.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Garrett Smith - Volume III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159055.jpgsave_picture_159055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159055.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Xenoform - Zombietown (2022) [MP3|320 Kbps] <Alternative Rock, Space Rock, Elect
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159057.jpgsave_picture_159057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159057.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Various Artists - Gods Of Grind (1992) Japanese Ed. [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159063.jpgsave_picture_159063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159063.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Aidan Black - About Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159065.jpgsave_picture_159065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159065.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ FRAGILE ART - The World You Wanted (2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159071.jpgsave_picture_159071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159071.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Arctic Winter - CCCXXXIII (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159077.jpgsave_picture_159077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159077.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159079.jpgsave_picture_159079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159079.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Thammuz - Sons of the Occult (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159081.jpgsave_picture_159081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159081.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Ice Chemicals - Alchemy (2022) [MP3|320 Kbps] <Progressive Metal, Death Metal, M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159083.jpgsave_picture_159083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159083.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Aerial - Semangat Serigala (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159086.jpgsave_picture_159086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159086.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ The Rolling Stones - Goats Head Soup (1973) 3CD, Deluxe Edition, 2020, Polydor R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159238.jpgsave_picture_159238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159238.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:D4BCA16DFD78E6356C5AA5779EF4BBA1FFA739E5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159273.jpgsave_picture_159273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159273.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Sepultura - The Roadrunner Albums: 1985-1996 (2017) Box Set, 6xCD, Compilation, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159283.jpgsave_picture_159283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159283.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:60B51CE4CB007D49534ADC1B363227E5A26F947F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159287.jpgsave_picture_159287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159287.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Seether - Acoustic Originals (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159304.jpgsave_picture_159304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159304.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Slade - Singles & Rarities 3CD (2007) (1969-1984) [MP3|320 Kbps] <Rock, Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159319.jpgsave_picture_159319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159319.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:01336834424AD25622FA9F4B06F9E5400A02A50D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159326.jpgsave_picture_159326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159326.jpg" />
 </div>
 
 

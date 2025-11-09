@@ -6,7 +6,7 @@ Love Prophecy - Belle & The Beast (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183331.jpgsave_picture_183331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183331.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183333.jpgsave_picture_183333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183333.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FF0EBD2379A5659FD7CD3D5002D97C008AB09EFC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183335.jpgsave_picture_183335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183335.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Asako Toki - Standards (2004) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183336.jpgsave_picture_183336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183336.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - МАГНИТОАЛЬБОМЫ (1976-2009) [MP3|128-320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183338.jpgsave_picture_183338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183338.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Disturbed - Evolution (2018) Deluxe Edition [FLAC|Lossless|image + .cue] <Nu Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183340.jpgsave_picture_183340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183340.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Night In Gales - The Black Stream (2023) [FLAC 24/44.1|WEB-DL|tracks] <Death Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183341.jpgsave_picture_183341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183341.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Beyond All Misery - Beyond All Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183343.jpgsave_picture_183343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183343.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:F0F8B62E031AE40DDD263B66A76B13C9403A4350
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183344.jpgsave_picture_183344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183344.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183346.jpgsave_picture_183346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183346.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:5B931EDF1117518584E5DE032C35BBEDB4EB4349
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183347.jpgsave_picture_183347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183347.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Udemy, Artem Daysun | Create a 3D Game Asset in Blender & Substance Painter - Vi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183349.jpgsave_picture_183349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183349.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Autumn, Leaves, Scars - Unter dem Füsse der trauerd Winde (2021) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183350.jpgsave_picture_183350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183350.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:CA9B9414A5BE183AE9A4579C00F306C0FC539198
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183351.jpgsave_picture_183351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183351.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Malwarebytes Free 4.5.18.226 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183352.jpgsave_picture_183352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183352.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:B5FE4082022C79B8EA319801363780DF039385EA
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183354.jpgsave_picture_183354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183354.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:C22F92246DFCE7531BF933B311042AAEAE763EEB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183355.jpgsave_picture_183355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183355.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:37739E0F066B4170ACBC388AB52FF99B6E0E67EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183357.jpgsave_picture_183357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183357.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ FlippedNormals, Ben Erdt | Advanced Character Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183359.jpgsave_picture_183359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183359.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - House Clubhits 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183360.jpgsave_picture_183360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183360.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:E4D4EFD9CB7917B66309338E84B4BEA73772C271
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183362.jpgsave_picture_183362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183362.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:BF559F306DC191015AA2109C647197456E77CE07
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183364.jpgsave_picture_183364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183364.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:005F24F639FF3AC8EC362587F5FEFD884B70A823
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183365.jpgsave_picture_183365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183365.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:0873EC435C4FAC9E484DA0FFB2DE53CD0CC3ABE8
 >>Доктор Хаус / House M.D.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183367.jpgsave_picture_183367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183367.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Sensei 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183369.jpgsave_picture_183369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183369.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:EF4FF2ABA18783FF75089825802CCD6FA2F78755
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183370.jpgsave_picture_183370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183370.jpg" />
 </div>
 
 

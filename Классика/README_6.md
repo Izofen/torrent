@@ -6,7 +6,7 @@
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133120.jpgsave_picture_133120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133120.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Wolfgang Amadeus Mozart - Piano Concertos K.453 & 482 (Kristian Bezuidenhout, Pe
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133429.jpgsave_picture_133429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133429.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Serj Tankian - Invocations (2023) Live [MP3|320 Kbps] <Classical, Modern>
 >>Концерты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134237.jpgsave_picture_134237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134237.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Il Divo - The Greatest Hits (2012) 2CD Deluxe Edition [FLAC|Lossless]<Neo-Classi
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134386.jpgsave_picture_134386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134386.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lindsey Stirling - Best Of Christmas Classics (2023) [FLAC|Lossless|WEB-DL|track
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134495.jpgsave_picture_134495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134495.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Mendelssohn - Piano Concertos 1 & 2, Songs without words: Schiff, Dutoit - SOBR 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134657.jpgsave_picture_134657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134657.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Gergely Boganyi - Frederic Chopin: The Complete Nocturnes (2008) [DST 2.0 1bit/2
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135191.jpgsave_picture_135191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135191.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violi
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135632.jpgsave_picture_135632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135632.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:092E0F9FBFED3CC941C61A69BD84168218057F7F
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136351.jpgsave_picture_136351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136351.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Jose Carreras, Luciano Pavarotti, Mario Lanza, Placido Domingo - Opera Favourite
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136376.jpgsave_picture_136376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136376.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ PALLADIUM Electric Band - Energy (2011) [MP3|256 Kbps] <Instrumental, Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136803.jpgsave_picture_136803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136803.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical C
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136805.jpgsave_picture_136805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136805.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Sai
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136858.jpgsave_picture_136858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136858.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137187.jpgsave_picture_137187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137187.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137957.jpgsave_picture_137957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137957.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142484.jpgsave_picture_142484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142484.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Baroque Christmas Album - Various Artists (2005) [APE|Lossless] <Classical, 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143100.jpgsave_picture_143100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143100.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143117.jpgsave_picture_143117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143117.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Andre Rieu - Happy Together (2021) [MP3|320 Kbps] <Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143259.jpgsave_picture_143259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143259.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Schubert: Symphony no.8 'Unfinished' - Schumann: Symphony no.4 (Karl Bohm & Orch
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143438.jpgsave_picture_143438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143438.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Bond - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143787.jpgsave_picture_143787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143787.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergole
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143847.jpgsave_picture_143847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143847.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146896.jpgsave_picture_146896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146896.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146960.jpgsave_picture_146960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146960.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147865.jpgsave_picture_147865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147865.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelb
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150817.jpgsave_picture_150817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150817.jpg" />
 </div>
 
 

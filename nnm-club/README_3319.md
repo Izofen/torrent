@@ -6,7 +6,7 @@ Radiant Photo 1.3.1.486 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106655.jpgsave_picture_106655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106655.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FastFlix 5.7.3 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106656.jpgsave_picture_106656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106656.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0837AD1A492FAB1892AE2720AB3E117AA1877EC9
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106657.jpgsave_picture_106657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106657.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ R-Studio Network / Technician 9.4 Build 191338 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106658.jpgsave_picture_106658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106658.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Mountainroad DSP - Lumina Delay 2.2.0.308 VST 3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106659.jpgsave_picture_106659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106659.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sumatra PDF 3.6.16424 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106660.jpgsave_picture_106660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106660.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BFABF4808D05C62C361CF7EDDD14D43E3A15574A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106661.jpgsave_picture_106661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106661.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:2451860BE24B782CBA03C0F39E51A5779A25035C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106662.jpgsave_picture_106662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106662.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Van Halen - For Unlawful Carnal Knowledge (1991) Expanded Edition, 2024, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106663.jpgsave_picture_106663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106663.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:9C241359C1AB786DD3A0EE7D8A0CB9E99690B866
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106664.jpgsave_picture_106664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106664.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:85E9DD28DB275F90192CEC231A9E7D93C5D3C6D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106665.jpgsave_picture_106665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106665.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ YT Downloader 9.9.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106666.jpgsave_picture_106666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106666.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ XYplorer 26.20.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106667.jpgsave_picture_106667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106667.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:5B803477E0DDB3693FD57D6F1BE4A07A8AA39315
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106668.jpgsave_picture_106668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106668.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Life is about Love (2024) [MP3|320 Kbps] <Pop, Rock, Blues, Jazz>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106669.jpgsave_picture_106669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106669.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Dalida - La Dolce Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson franç
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106670.jpgsave_picture_106670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106670.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:4C1ED1A27AF04B1B11F1D757772338B574EB3772
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106671.jpgsave_picture_106671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106671.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:59C35E5DA1235C8991F7B8A9D2394F1FCF3519DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106672.jpgsave_picture_106672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106672.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:7301682C56A03908E0E44113AB08692A993E6731
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106673.jpgsave_picture_106673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106673.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Pain - I Am (Remixes) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breakbea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106674.jpgsave_picture_106674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106674.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:2C4FBD297FCD4F6DD33079380B5151335FE13E4A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106675.jpgsave_picture_106675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106675.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Opera One 112.0.5197.24 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106676.jpgsave_picture_106676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106676.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ MediaHuman YouTube Downloader 3.9.9.93 (0713) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106677.jpgsave_picture_106677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106677.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Clairo - Charm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bedroom Pop, Dream Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106678.jpgsave_picture_106678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106678.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:B81B53F45B3380507683AD24A86E93712441C5C0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106679.jpgsave_picture_106679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106679.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:6B9531D88AF475A1F04976E5605BBFB3A5D4F9FC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106680.jpgsave_picture_106680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106680.jpg" />
 </div>
 
 

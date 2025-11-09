@@ -6,7 +6,7 @@ ON1 Photo RAW 2020.6 v14.6.0.9837 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151641.jpgsave_picture_151641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151641.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Reg Organizer 9.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151642.jpgsave_picture_151642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151642.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:688B740A618A173443733CC5449738AEC0A550E7
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151644.jpgsave_picture_151644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151644.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7FDD1E1299C409792B2C651E821A5F285F82D39F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151645.jpgsave_picture_151645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151645.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:36F632BE75F483C97BC79EBB9BD8A3F8FDCED7B4
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151647.jpgsave_picture_151647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151647.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:53A6AA09D5879C7804DBB73E02B861C110FCEB13
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151648.jpgsave_picture_151648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151648.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:0D606FA705759E8086FB7782B2A1FB6345D7675D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151649.jpgsave_picture_151649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151649.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:E2106CE512AEC0A1333928247A8B601DF1ECCF67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151650.jpgsave_picture_151650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151650.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Anne Murray - The Ultimate Christmas Collection (2020) [MP3|320 Kbps] <Pop, Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151651.jpgsave_picture_151651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151651.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:AE69527A458F4F04083E56DD595E474B8B2D26B0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151652.jpgsave_picture_151652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151652.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1E9E7E748CE3322B277E3FF9E59B6B6AB43386A6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151653.jpgsave_picture_151653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151653.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:FB5CC49C34A11813FC033CF993DD8BF34D70A186
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151655.jpgsave_picture_151655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151655.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:BF2DC879BA8672B1785E9E452D609C371FFC3AB7
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151656.jpgsave_picture_151656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151656.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:7D5E5A50BECEB058BFBF103358274E1EDE417B6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151658.jpgsave_picture_151658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151658.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ VA - The Best Of Suanda True (Mixed By Universal Sense) (2015) [MP3|320 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151659.jpgsave_picture_151659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151659.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:59792597EC0F1762883CF656AD70DC28EE55459F
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151660.jpgsave_picture_151660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151660.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:513CC715D684F7B8C77174EC3EA32073CC29AE63
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151661.jpgsave_picture_151661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151661.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:298B8F1508DD556C6B0400E7FE6391135496B4C9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151662.jpgsave_picture_151662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151662.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:298B8F1508DD556C6B0400E7FE6391135496B4C9
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151663.jpgsave_picture_151663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151663.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:5711AC8D44430C48AEB46596CE974EC01688F3F9
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151664.jpgsave_picture_151664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151664.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151665.jpgsave_picture_151665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151665.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Wise Care 365 Pro 5.4.6.542 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151667.jpgsave_picture_151667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151667.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:0F8A2C9711D713FFBA649F360AA47B20B33C115E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151669.jpgsave_picture_151669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151669.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:4DC3C223EF6562997C12C1B32AAEA70910A1DCE1
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151671.jpgsave_picture_151671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151671.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:0CD80EF03A076269493F1136C28103C19F11E1CC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151672.jpgsave_picture_151672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151672.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D3BF128B5FAE65B43171B2C9C243FB9C4FA9360B
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151673.jpgsave_picture_151673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151673.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63677.jpgsave_picture_63677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63677.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:10E78F2E3DCE0C8B762423F1BA6493D72D5BA051
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63678.jpgsave_picture_63678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63678.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4374033/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63679.jpgsave_picture_63679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63679.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Flud v1.11.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63680.jpgsave_picture_63680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63680.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ITsets | Дизайн-симулятор - Middle UI - UX-дизайнер (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63681.jpgsave_picture_63681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63681.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3A3ABC560C36AE646149658228249636AD72AE79
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63682.jpgsave_picture_63682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63682.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F1E60625BA714BD26915843483C0454E814EF3FB
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63683.jpgsave_picture_63683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63683.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8BC0AF4897D977F2531202280C19388F500936F9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63684.jpgsave_picture_63684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63684.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ HitPaw Video Converter for Mac 4.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63685.jpgsave_picture_63685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63685.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:EA6F55F5ECF772061DC5486921584E465BB08452
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63686.jpgsave_picture_63686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63686.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:DCC0429BD6EB17B08E440DC4B11CE80D42927786
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63687.jpgsave_picture_63687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63687.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Process Lasso Pro 14.0.0.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63688.jpgsave_picture_63688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63688.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Pepakura Designer 5.0.19 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63689.jpgsave_picture_63689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63689.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Judas Priest - Invincible Shield (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63690.jpgsave_picture_63690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63690.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ GIMP 2.10.36-1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63691.jpgsave_picture_63691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63691.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:95E440FE9CEEABD34E7AA83D893253DF260748C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63692.jpgsave_picture_63692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63692.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:E87633EA4F1DC8ECFC030DCAA512045F93CAC1E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63693.jpgsave_picture_63693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63693.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:ED17A2FC1943452B4163F1D97FDF4DA68A0FB496
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63694.jpgsave_picture_63694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63694.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ PotPlayer 240307 (1.7.22125) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63695.jpgsave_picture_63695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63695.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ SweetScape 010 Editor 14.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63696.jpgsave_picture_63696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63696.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Nirvana - In Utero (2023) 5 x CD, 30th Anniversary Super Deluxe Edition [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63697.jpgsave_picture_63697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63697.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VueScan Pro 9.8.29 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63698.jpgsave_picture_63698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63698.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Alice Cooper - Billion Dollar Babies (50th Anniversary Deluxe Edition) (1973) Re
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63699.jpgsave_picture_63699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63699.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:CED6100A0731A02FEAB39C85708507D3AF56858C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63700.jpgsave_picture_63700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63700.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Joe Dassin - Поет Джо Дассен (1979) [FLAC 24/192|Lossless|tracks] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63701.jpgsave_picture_63701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63701.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:A7BBFEC264B1B1115A0EFE1B689924D0D57B2F73
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63702.jpgsave_picture_63702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63702.jpg" />
 </div>
 
 

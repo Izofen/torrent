@@ -6,7 +6,7 @@ Ghost Buster Pro 2.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122902.jpgsave_picture_122902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122902.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D7F7066D191CE64D8C2671490BC55C78BF2A6DD5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122903.jpgsave_picture_122903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122903.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Antarsys - The North Star (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122904.jpgsave_picture_122904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122904.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2F38353CD85859D129810F9CD4421726EA0FB2C4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122905.jpgsave_picture_122905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122905.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Cocteau Twins - Four-Calendar Cafe (1993) Remastered, 2024, 4AD [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122906.jpgsave_picture_122906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122906.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ MacPilot 15 v.15.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122907.jpgsave_picture_122907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122907.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:DEB3D30BE98879ACE0A2A30D3DE65305F68849EB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122908.jpgsave_picture_122908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122908.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122909.jpgsave_picture_122909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122909.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Temple Balls - Avalanche (2023) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122910.jpgsave_picture_122910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122910.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:709CC1DB964D881668CF8BAE7B29EB2AAC901B61
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122911.jpgsave_picture_122911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122911.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Dead Fish - Labirinto da Memória (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122912.jpgsave_picture_122912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122912.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Cocteau Twins - Milk & Kisses (1996) Remastered, 2024, 4AD [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122913.jpgsave_picture_122913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122913.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Bookends 14.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122914.jpgsave_picture_122914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122914.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Beyond The Black - Beyond The Black (Deluxe Edition) (2024) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122915.jpgsave_picture_122915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122915.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:79C37B0913DE1CCFB7F656E81AB849FFE58751FF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122916.jpgsave_picture_122916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122916.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Beyond The Black - Beyond The Black (2023) Deluxe Edition, 2024, Nuclear Blast [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122917.jpgsave_picture_122917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122917.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Living Colour - Vivid (1988) Remastered, 2023, Epic / 1988 Sony Music Entertainm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122918.jpgsave_picture_122918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122918.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Surya Kris Peters - There's Light In The Distance (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122919.jpgsave_picture_122919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122919.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Laudanum - As blue as my veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122920.jpgsave_picture_122920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122920.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:ADFCDDA35B0FA27CC11298F926154F8F41CC9839
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122921.jpgsave_picture_122921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122921.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Piano Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122922.jpgsave_picture_122922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122922.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:22EB4C49AFAF5717D577E42A6B888FE528A7222E
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122923.jpgsave_picture_122923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122923.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:6AD240E8688EEF7F6A01FB09D01B5FBA41D8E582
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122924.jpgsave_picture_122924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122924.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:97B954851F69B7F9D8FC415FDF98584D163576F0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122925.jpgsave_picture_122925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122925.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acous
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122926.jpgsave_picture_122926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122926.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122927.jpgsave_picture_122927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122927.jpg" />
 </div>
 
 

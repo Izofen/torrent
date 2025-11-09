@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4764.jpgsave_picture_4764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4764.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A949EB1233CEB89D65FB4DDCA950B06536536476
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4765.jpgsave_picture_4765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4765.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5F4D0F9EEB05BEC873D07CBC3FA3D39A3D7E1178
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4766.jpgsave_picture_4766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4766.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8661034C43FE5657F61E8DB17146D323E9639367
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4767.jpgsave_picture_4767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4767.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Maria Muldaur - One Hour Mama: The Blues of Victoria Spivey (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4768.jpgsave_picture_4768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4768.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ghosts of Sunset - California Girl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4769.jpgsave_picture_4769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4769.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Makiisma - The Heart Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4770.jpgsave_picture_4770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4770.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Evocatus - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4771.jpgsave_picture_4771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4771.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:0B59F17ED7164D2B3C0603BAA29A619103314621
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4772.jpgsave_picture_4772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4772.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Linkin Park - From Zero (Deluxe Edition) (2024) U.S., 093624834908, 2025, 2xCD [
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4773.jpgsave_picture_4773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4773.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:D5F182A36F89F53F7FD89E303F4E164551A666A4
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4774.jpgsave_picture_4774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4774.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:10AE29558840BF6449729F69FF990C3D70ECDD05
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4775.jpgsave_picture_4775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4775.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:1E0A8EA2D84820EC77D473D95981F95DF58C504B
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4776.jpgsave_picture_4776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4776.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ No Bull - Rock N Roll Remains Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4777.jpgsave_picture_4777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4777.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:0F4ECE4C34D914EEF7E66E3B477E8553DFCE425A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4778.jpgsave_picture_4778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4778.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:44AD48ADAEDEC7E3C872D8CE48D52937E5172C2D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4779.jpgsave_picture_4779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4779.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:C098016457ABB659F4FF85E2EB81FB794D7A1BB8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4780.jpgsave_picture_4780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4780.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Maria Oswen - Nu Woman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4781.jpgsave_picture_4781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4781.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Chimpan A - M.I.A. Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4782.jpgsave_picture_4782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4782.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:43EA6324DBB77D49341C314DA53499E7FA21084F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4783.jpgsave_picture_4783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4783.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:341D0356BB747B8A296C28B21204B7FF4A29CE03
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4784.jpgsave_picture_4784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4784.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Steve Fair - Play Fair (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4785.jpgsave_picture_4785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4785.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:9D7F137FDBE9DBF74C0566F6FE97C4E6009ED18D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4786.jpgsave_picture_4786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4786.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Slant KX - Endless Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4787.jpgsave_picture_4787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4787.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4788.jpgsave_picture_4788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4788.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Mr. Creatovsky - Braincity Blues EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4789.jpgsave_picture_4789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4789.jpg" />
 </div>
 
 

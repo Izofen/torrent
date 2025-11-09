@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106187.jpgsave_picture_106187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106187.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106188.jpgsave_picture_106188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106188.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AudioRealism - ABL3 3.3.3.2 Standalone, VSTi, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106189.jpgsave_picture_106189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106189.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:3EEFF718CB7CE4B957C12FFAE40259C1C325D380
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106190.jpgsave_picture_106190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106190.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Sunrise Sessions Vol. 1 - Mixed by Robilardo (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106191.jpgsave_picture_106191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106191.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Redux Selection Vol. 8 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106192.jpgsave_picture_106192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106192.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ The Blues Vultures - You Can't Ruffle My Feathers (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106193.jpgsave_picture_106193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106193.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Sparrow Blue - No Lies, No Tricks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106194.jpgsave_picture_106194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106194.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Photo Supreme 2024.2.2.6599 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106195.jpgsave_picture_106195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106195.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Christopher Wyze & the Tellers - Stuck in the Mud (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106196.jpgsave_picture_106196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106196.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Sam Joyner - COME WHAT MAY (I'll Always Love You) (2024) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106197.jpgsave_picture_106197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106197.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Rusty Apollo - Apollo-III (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106198.jpgsave_picture_106198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106198.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ The Conqueror Root - The Conqueror Root (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106199.jpgsave_picture_106199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106199.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The B. Christopher Band - 106 Miles to Chicago (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106200.jpgsave_picture_106200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106200.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Sierra Green & the Giants - Here We Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106201.jpgsave_picture_106201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106201.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ The Chatham Singers - Blues That Kills (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106202.jpgsave_picture_106202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106202.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Rodrigo Belloni - Like a Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106203.jpgsave_picture_106203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106203.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Paul Bley - The Complete Remastered Recordings on Black Saint & Soul Note (1984 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106204.jpgsave_picture_106204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106204.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bill Nadeau - Mutts and Mongrels (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106205.jpgsave_picture_106205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106205.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Category 7 - Category 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106206.jpgsave_picture_106206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106206.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Memento Database Pro 5.4.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106207.jpgsave_picture_106207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106207.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jethro Tull - Live - Bursting Out (1978) 3 x CD, Reissue, 2024, Chrysalis [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106208.jpgsave_picture_106208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106208.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ FontViewOK 8.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106209.jpgsave_picture_106209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106209.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106210.jpgsave_picture_106210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106210.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ FanControl V197 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106211.jpgsave_picture_106211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106211.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ XYplorer 26.30.0000 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106212.jpgsave_picture_106212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106212.jpg" />
 </div>
 
 

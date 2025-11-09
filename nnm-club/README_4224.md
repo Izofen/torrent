@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130930.jpgsave_picture_130930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130930.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PGWare PCBoost 4.1.1.2013 [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130931.jpgsave_picture_130931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130931.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Incredible Mixed Wallpapers (31.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130932.jpgsave_picture_130932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130932.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:28D685E9EB99FAC18ED7BD4D5793A9322E0FFE4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130933.jpgsave_picture_130933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130933.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Krita 5.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130934.jpgsave_picture_130934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130934.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C3DBC9348B478B0701C1BDBF012A8CE44EA9D028
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130936.jpgsave_picture_130936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130936.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:306C8DAB280C1B1DAAF61101E3B69BBC47271944
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130938.jpgsave_picture_130938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130938.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Doug MacLeod - Brand New Eyes (2011) [FLAC|Lossless]<Blues, Acoustic>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130941.jpgsave_picture_130941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130941.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Doug MacLeod - Brand New Eyes (2011) [FLAC|Lossless]<Blues, Acoustic>
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130942.jpgsave_picture_130942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130942.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:E6F44F9560CB66892ED7A2BA2DBA1FBC9755CA20
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130944.jpgsave_picture_130944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130944.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:B0E56AEBC655FD77FAADBF9D8888017364416B50
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130946.jpgsave_picture_130946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130946.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:65978EDB6C6E0A7FA2108ECEEC3065B0400B2D6A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130948.jpgsave_picture_130948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130948.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Transmission 4.0.5 (a6fe2a64aa) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130949.jpgsave_picture_130949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130949.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ SGS We The People (2023) [Ru/Multi] (23.10.18) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130950.jpgsave_picture_130950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130950.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:CC0653BD8CE48757F05E43D377FCF54A899B3030
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130951.jpgsave_picture_130951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130951.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:D7F564ED98A17B3EA9500E4326A09CE2D0C4E9EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130952.jpgsave_picture_130952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130952.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:D7F564ED98A17B3EA9500E4326A09CE2D0C4E9EF
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130953.jpgsave_picture_130953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130953.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - 111 Golden Lounge Tunes (2012) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130954.jpgsave_picture_130954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130954.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:7791844848A37971D056BD0ADABB1A7B21466851
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130955.jpgsave_picture_130955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130955.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:BCFDFBDF029C66C261FDD63A59D2F0D69BBFCE72
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130957.jpgsave_picture_130957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130957.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:544D954D974F771AEB2D641A2DBD6C52E6B562C9
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130959.jpgsave_picture_130959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130959.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Viber 21.4.0.0 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130960.jpgsave_picture_130960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130960.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:217B426F902DA1FC2E00FA7E0B2B06F45A2A1FEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130963.jpgsave_picture_130963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130963.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:217B426F902DA1FC2E00FA7E0B2B06F45A2A1FEF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130964.jpgsave_picture_130964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130964.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:24AF04BD71C915717E2E77BC6E8E1F692B42C520
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130965.jpgsave_picture_130965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130965.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Rayearth | Magic Knight Rayearth | Рыцари магии [1997, OVA, 3 из 3]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130967.jpgsave_picture_130967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130967.jpg" />
 </div>
 
 

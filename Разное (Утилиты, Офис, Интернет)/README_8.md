@@ -6,7 +6,7 @@ PortableApps.com Platform 29.5.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107354.jpgsave_picture_107354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107354.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VueScan Pro 9.8.33 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109499.jpgsave_picture_109499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109499.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ DesktopSnowOK 6.26 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109828.jpgsave_picture_109828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109828.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ WinPaletter 1.0.9.3 Standalone [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110679.jpgsave_picture_110679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110679.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ DirPrintOK 6.96 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110858.jpgsave_picture_110858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110858.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ ReffPassGen 1.0 + Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114070.jpgsave_picture_114070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114070.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ WizTree 4.19 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114199.jpgsave_picture_114199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114199.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ MeinPlatz 8.25 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114395.jpgsave_picture_114395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114395.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Stardock Start 2.0.6.4 RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114455.jpgsave_picture_114455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114455.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DesktopClock3D 1.93 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114878.jpgsave_picture_114878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114878.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Ivideon Server 1.3.2 / Client 3.4.1 [Multi/Rus]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115281.jpgsave_picture_115281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115281.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ ImageUSB 1.5.1006 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115593.jpgsave_picture_115593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115593.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ OneLoupe 5.77 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116414.jpgsave_picture_116414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116414.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ ClassicDesktopClock 5.53 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117840.jpgsave_picture_117840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117840.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PIDKey Lite 1.64.4 b50 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121433.jpgsave_picture_121433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121433.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Stardock Fences 5.0.4.1 (x64) RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122283.jpgsave_picture_122283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122283.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Celestia 1.6.4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123309.jpgsave_picture_123309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123309.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ oCam 550.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123584.jpgsave_picture_123584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123584.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Volume2 1.1.8.465 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124262.jpgsave_picture_124262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124262.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ W10 Digital Activation v1.5.5.5 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125862.jpgsave_picture_125862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125862.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ TechSmith Camtasia 25.2.4 Build 12581 RePack by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128593.jpgsave_picture_128593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128593.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ O&O ShutUp10++ 2.0.1009 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128894.jpgsave_picture_128894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128894.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ FastStone Capture 11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128956.jpgsave_picture_128956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128956.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wise Windows Key Finder Portable 1.0.2.13 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128995.jpgsave_picture_128995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128995.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Maxlim New Year 2020 2.2.1.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136664.jpgsave_picture_136664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136664.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ imyPass Windows Password Reset Standart / Platinum / Ultimate 1.0.16 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136952.jpgsave_picture_136952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136952.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126369.jpgsave_picture_126369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126369.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5E8D9FA0EE062BB227957802BD8B9A7D68540EE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126370.jpgsave_picture_126370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126370.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AOMEI Partition Assistant Technician Edition 10.2.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126371.jpgsave_picture_126371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126371.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E7D3C998A5B52632C3CD59BCD553FF27DCC6FF90
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126372.jpgsave_picture_126372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126372.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:184B633CB9C1587A4439DD83C4959000AB190F59
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126373.jpgsave_picture_126373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126373.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:DC57A90CF32122B81F36F8C62E87D04B4555C593
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126374.jpgsave_picture_126374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126374.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3B762143D8D5BFEEFD59FF8A600BC44D6DE06DB0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126375.jpgsave_picture_126375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126375.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:348267DC6656FD25806866CE66ACDBB9FEC4443F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126376.jpgsave_picture_126376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126376.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:FA3B2C2F48C043650035351F32BF342B02ED39CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126377.jpgsave_picture_126377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126377.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 24.12.2023) [Ru] (а
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126378.jpgsave_picture_126378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126378.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C9EC72C52D4B3D636AC655ECE490B0D25071B6D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126379.jpgsave_picture_126379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126379.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126380.jpgsave_picture_126380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126380.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F4C3E1808FB82B019BE3D5C592837082422B8D89
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126381.jpgsave_picture_126381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126381.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:8F5563235E2D1F973353179DB95641E32F9F2B77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126382.jpgsave_picture_126382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126382.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Skillbox, Даниил Пилипенко, Сурен Хоренян | Python-ф
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126383.jpgsave_picture_126383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126383.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:FB99AE3523CDC76939509C0169763E8F690B6B97
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126384.jpgsave_picture_126384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126384.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Buried Alive: Breathless Rescue (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126385.jpgsave_picture_126385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126385.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Trinity Fusion (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126386.jpgsave_picture_126386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126386.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:58D0AA660455A21606A6F1818B5E11F358D63A44
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126387.jpgsave_picture_126387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126387.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:68EF0903EF6D6552B10F2A0A4D98EE625D973827
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126388.jpgsave_picture_126388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126388.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Spy x Family 2 / Семья шпиона 2 [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126389.jpgsave_picture_126389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126389.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:0D289F005A1620EDD46C88E2E56D024A51EB7595
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126390.jpgsave_picture_126390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126390.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Skillbox, Алексей Pixelord, Сергей Saburov, Анна A.Fruit и д�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126391.jpgsave_picture_126391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126391.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:189B9FD8E2F86E932DBDB906F89145AFAF272048
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126392.jpgsave_picture_126392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126392.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Sylvania - Purgatorium (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126393.jpgsave_picture_126393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126393.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Bud Shank, Manny Albam, Vic Lewis - Bud Shank Plays (1984, 1985) 1987, Mole Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126394.jpgsave_picture_126394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126394.jpg" />
 </div>
 
 

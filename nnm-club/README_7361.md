@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251877.jpgsave_picture_251877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251877.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:94E0323CE412BAC4DF55E9238DE315C3FF060F26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251878.jpgsave_picture_251878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251878.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Star Wars: Knights of the Old Republic 2 (II): The Sith Lords (2005) [Multi] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251879.jpgsave_picture_251879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251879.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:09E1779CDC0C5A40242531A627DF01ED8409E10E
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251880.jpgsave_picture_251880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251880.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:92F71065620EB835B1689CB941AD22FEE3E46B8A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251881.jpgsave_picture_251881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251881.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D113BC8B675CCEE7F47C1C195CD8419E5A6583E7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251882.jpgsave_picture_251882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251882.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A86AC14A85B588097D9789E7AE0EA9FB88532FB0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251883.jpgsave_picture_251883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251883.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Vanced Tube v5.5.80.142 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251884.jpgsave_picture_251884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251884.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:ADA64112AA8F02401A199E7036E5DD1057A37624
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251885.jpgsave_picture_251885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251885.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:2D41FECB0FDBE7C19E7CD40E29054F3FB754A35E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251886.jpgsave_picture_251886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251886.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ NG: Авто S.O.S. / Car S.O.S. (2013-) [H.264/1080p-LQ] (сезон 1-11) [AD]
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251887.jpgsave_picture_251887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251887.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E32F403700C275276EAD01820CD0780E0A060BD1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251888.jpgsave_picture_251888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251888.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:6C5083562092EFED3E658C363D60981E07F13B10
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251889.jpgsave_picture_251889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251889.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:CB4EF97E8FAB1ABD967891A3383E51BFCFE6543F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251890.jpgsave_picture_251890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251890.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Rufus 4.1 (Build 2045) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251891.jpgsave_picture_251891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251891.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:54CCD4FDCB16AD55A95A4137E314B764F8D4E324
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251892.jpgsave_picture_251892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251892.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251893.jpgsave_picture_251893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251893.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:EAF3371AD4A7DE8CEA25D5B9F4E67119EA5BBEEE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251894.jpgsave_picture_251894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251894.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:604BC38A4632084B2B2D4E1A08CB28655A98FB32
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251895.jpgsave_picture_251895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251895.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:604BC38A4632084B2B2D4E1A08CB28655A98FB32
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251896.jpgsave_picture_251896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251896.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:785DB8E93E2C24D5180B3750D5C3B7F451199EA5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251897.jpgsave_picture_251897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251897.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ MEDUZA - Live @ Meduza³ (Futur Stage, Kappa FuturFestival) Turin, Italy (2025-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251898.jpgsave_picture_251898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251898.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:D64B614595A49AB6D695A8EC6EB5406482BEF402
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251899.jpgsave_picture_251899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251899.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:094C89044B4D94DC60C35065F6D386749D75F4A5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251900.jpgsave_picture_251900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251900.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251901.jpgsave_picture_251901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251901.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:5E4A1F7A5F177ED713094F3A69377DDE7B53934F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251902.jpgsave_picture_251902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251902.jpg" />
 </div>
 
 

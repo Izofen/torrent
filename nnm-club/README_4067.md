@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126317.jpgsave_picture_126317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126317.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Proprofiling, Алексей Филатов, Илья Анищенко | Как 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126318.jpgsave_picture_126318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126318.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:29F19417FF68D984AC76B2FFEC38074E9C3D1AAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126319.jpgsave_picture_126319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126319.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:11938BA7B498C2A55324DDB9E9D3425BB75D9A1C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126320.jpgsave_picture_126320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126320.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Wolfram Mathematica 13.3.1 [x64] (.sh)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126321.jpgsave_picture_126321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126321.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ JetBrains GoLand 2023.3.2 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126322.jpgsave_picture_126322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126322.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F2B0B124A1D3F6EF08C86A64906126DE0D6CDD7B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126323.jpgsave_picture_126323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126323.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:CE4C9D35A4DCC633E061FC8F7533E5AB1B3EB1AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126324.jpgsave_picture_126324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126324.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:FA3BF2C662AA8E7C5CEC944EEF62EC9F3AC20DC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126325.jpgsave_picture_126325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126325.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7E3686D8259F22671EE47F8F2FA874A029E5FDB2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126326.jpgsave_picture_126326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126326.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:ADF164E2BC881AE1A1FD25F522109F23F2020505
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126327.jpgsave_picture_126327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126327.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:33E806913AA62B860505B223FCEF31B78D8AF070
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126328.jpgsave_picture_126328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126328.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:4B260F5770F5228298808782AD11D62CF362923C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126329.jpgsave_picture_126329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126329.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:E1FABE63D4F32DA65B1F3249F3655BBA8FFF5BB6
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126330.jpgsave_picture_126330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126330.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:1EA9C2258CFD67887E214D85AE09EF05B50E1E63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126331.jpgsave_picture_126331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126331.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:E46CA9786AC1E34A1B4FD31582E094549012DA64
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126332.jpgsave_picture_126332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126332.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Atarashii Joushi wa Do Tennen | My New Boss Is Goofy | Мой новый бос�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126333.jpgsave_picture_126333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126333.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Mathworks Matlab R2023b (23.2.0) [x64] (iso)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126334.jpgsave_picture_126334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126334.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The Idolmaster Million Live! / IDOLM@STER Million Live! / Миллион iDOLM@S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126335.jpgsave_picture_126335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126335.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:99CFA67F8BB02FB5F6537C30AF25C5AB5630B192
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126336.jpgsave_picture_126336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126336.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:B7DB0D1256AD6358A42397DF566B70A166EF0905
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126337.jpgsave_picture_126337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126337.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:C20324540C1D42324F1E58179A1B5BD8A91BEB6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126338.jpgsave_picture_126338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126338.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:36459C438BA11FBAF44896E125E9514156EFFB07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126339.jpgsave_picture_126339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126339.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:7EADAD1B3424F025022243F903677CF7A769A6C4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126340.jpgsave_picture_126340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126340.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ You Will Die Here Tonight (2023) [En] (20231102) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126341.jpgsave_picture_126341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126341.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Cyber Shadow (2021) [Ru/Multi] (1.04) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126342.jpgsave_picture_126342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126342.jpg" />
 </div>
 
 

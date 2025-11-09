@@ -6,7 +6,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.1.1893 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174550.jpgsave_picture_174550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174550.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cesare Cremonini - 1 Album, 1 Single (2022) [MP3|320 Kbps] <Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174551.jpgsave_picture_174551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174551.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Linguist 2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174552.jpgsave_picture_174552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174552.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F8D01D470422AD6FB28CF8CC3956B3F881363D99
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174554.jpgsave_picture_174554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174554.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Microsoft .NET 8.0.0 RC2 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174555.jpgsave_picture_174555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174555.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ EverWeb (Standalone) 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174556.jpgsave_picture_174556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174556.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:756943B2AAB9BB1FBE67026FD2685D4C95A68FEA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174557.jpgsave_picture_174557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174557.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:AB1C4FD1C31439DC8090DD40A3EAC37A876EA6D0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174559.jpgsave_picture_174559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174559.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ GIF'ted 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174561.jpgsave_picture_174561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174561.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:23990A4AF5EEAAC17C4EE9DF83C5D49588972E4A
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174562.jpgsave_picture_174562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174562.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Olshanoe - 2 Albums (2021-2022) [MP3|320 Kbps] <Folk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174563.jpgsave_picture_174563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174563.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ AYVY 1.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174564.jpgsave_picture_174564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174564.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Microsoft .NET 7.0.12 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174566.jpgsave_picture_174566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174566.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:580951C34273CE8ADBBFFD487B6518E413270E44
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174567.jpgsave_picture_174567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174567.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ PDF Squeezer 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174568.jpgsave_picture_174568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174568.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:28D8B279FB21C8396E8F544D92D721B852265278
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174570.jpgsave_picture_174570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174570.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:681DA9671993A30AFE26121F4677C9AB7BEE2E6A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174571.jpgsave_picture_174571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174571.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174573.jpgsave_picture_174573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174573.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Top of the Morning (2023) [MP3|320 Kbps] <Pop, House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174574.jpgsave_picture_174574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174574.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:5A2776459268FC0705983F6D2DBE24DCF0EAF934
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174575.jpgsave_picture_174575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174575.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Texpad 1.8.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174577.jpgsave_picture_174577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174577.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:6A41086FFDF252927894112D6958682F0D1DE011
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174578.jpgsave_picture_174578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174578.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Chico Hamilton - Seven Classic Albums (1955 - 1959) 4CD, 2013, Real Gone Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174579.jpgsave_picture_174579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174579.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Permute 3 v3.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174580.jpgsave_picture_174580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174580.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174582.jpgsave_picture_174582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174582.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Arrayan Path - Thus Always to Tyrants (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174583.jpgsave_picture_174583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174583.jpg" />
 </div>
 
 

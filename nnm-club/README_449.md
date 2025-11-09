@@ -6,7 +6,7 @@ Evo-Lution - Progress (2025) [MP3|320 Kbps] <EBM, Synthpop, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11915.jpgsave_picture_11915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11915.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Double Vision - Double Vision (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11916.jpgsave_picture_11916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11916.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hibi wa Sugiredo Meshi Umashi OST (2025) [MP3|320 kbps] <3CD+OP+ED+Character Son
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11917.jpgsave_picture_11917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11917.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Hibi wa Sugiredo Meshi Umashi OST (2025) [FLAC|tracks] <3CD+OP+ED+Character Song
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11918.jpgsave_picture_11918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11918.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Eternal Idol - Behind A Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11919.jpgsave_picture_11919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11919.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Front Row Warriors - Running Out Of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11920.jpgsave_picture_11920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11920.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Madhouse - Plead The Fifth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11921.jpgsave_picture_11921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11921.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Celestial Wizard - Regenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11922.jpgsave_picture_11922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11922.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Zebra Type 1 - Teleport (2025) [MP3|320 Kbps] <Darkwave, EBM>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11923.jpgsave_picture_11923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11923.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Stygian Fair - The Hidden Realm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11924.jpgsave_picture_11924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11924.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Apowersoft Video Download Capture 6.5.9.1 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11925.jpgsave_picture_11925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11925.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:BE440CE7F903A61473A5293244A8DAA85C40683B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11926.jpgsave_picture_11926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11926.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:F61CF68585B9DD1256F8B5F24E492D22E3F2C61B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11927.jpgsave_picture_11927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11927.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:DFD3C4D78723AE4EE38A3D6617BD4B17BCA6884B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11928.jpgsave_picture_11928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11928.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:CB256C0098975BE15D00318B6DAFA3BB930871F2
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11929.jpgsave_picture_11929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11929.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:DA9A8B234F263AE041B3E780F477BD06E408ADE9
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11930.jpgsave_picture_11930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11930.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:C07DB0498CFC95B4A858B9BDFE389A9CB217D9F7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11931.jpgsave_picture_11931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11931.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Chris Rea - New Light Through Old Windows (1988) Reissue, Remastered, 2025, Rhin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11932.jpgsave_picture_11932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11932.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:C0AB260EC32DFF79A942390B1E019AF6D87A128C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11933.jpgsave_picture_11933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11933.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:7C4AC353D8C63BDF19D021A93C0916414CF78E0B
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11934.jpgsave_picture_11934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11934.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Udemy, Yasar VURDEM | Digital Hair Painting Masterclass: Realistic Techniques (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11935.jpgsave_picture_11935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11935.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Scooter - Live at Parookaville festival (2024) IPTVRip [H.265/2160p] [hand made 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11936.jpgsave_picture_11936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11936.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.8 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11937.jpgsave_picture_11937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11937.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:4F2D444F5263AED1AAE1BA8E50ABBA7AACA97C9D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11938.jpgsave_picture_11938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11938.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:5B745493C089BC6C97624B43FBDDD9AE252E5E31
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11939.jpgsave_picture_11939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11939.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:B976C9508F7870AA29456F60EB0E235C561BE9EC
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11940.jpgsave_picture_11940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11940.jpg" />
 </div>
 
 

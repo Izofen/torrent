@@ -6,7 +6,7 @@ Lillusion (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160040.jpgsave_picture_160040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160040.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Racine (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160049.jpgsave_picture_160049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160049.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ City of Stories: Stephan's Journey / Город Историй: Путешест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160127.jpgsave_picture_160127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160127.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Company of Crime (2020) [Ru/Multi] (1.0.5.1178) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160347.jpgsave_picture_160347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160347.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DreamWorks All-Star Kart Racing (2023) [Multi] (1.0/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160501.jpgsave_picture_160501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160501.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Incredible Dracula 10: Dark Carnival / Невероятный Дракула 10:
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160529.jpgsave_picture_160529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160529.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tiny Thor (2023) [Multi] (6125) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160710.jpgsave_picture_160710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160710.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Moviehouse - The Film Studio Tycoon (2023) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160712.jpgsave_picture_160712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160712.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160719.jpgsave_picture_160719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160719.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Parking Tycoon: Business Simulator (2023) [Ru/Multi] (2021.3.16.5719) Scene Teno
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160727.jpgsave_picture_160727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160727.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160729.jpgsave_picture_160729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160729.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160737.jpgsave_picture_160737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160737.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160738.jpgsave_picture_160738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160738.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160748.jpgsave_picture_160748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160748.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Everyone Must Die: A Western Standoff (2023) [En] (1.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160754.jpgsave_picture_160754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160754.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Little Goody Two Shoes (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160776.jpgsave_picture_160776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160776.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160784.jpgsave_picture_160784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160784.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160914.jpgsave_picture_160914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160914.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160919.jpgsave_picture_160919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160919.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) License G
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160937.jpgsave_picture_160937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160937.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ A Quest That Became Legend (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160970.jpgsave_picture_160970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160970.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Legacy: Witch Island 4 Last Bastion / Наследие: Остров Ведьм�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161089.jpgsave_picture_161089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161089.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Halloween Stories 5: The Neglected Dead / Хеллоуинские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161460.jpgsave_picture_161460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161460.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161546.jpgsave_picture_161546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161546.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Skabma - Snowfall (2022) [Ru/Multi] (1.1.110) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161552.jpgsave_picture_161552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161552.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lovecraft's Untold Stories (2019) [Ru/Multi] (1.35) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161571.jpgsave_picture_161571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161571.jpg" />
 </div>
 
 

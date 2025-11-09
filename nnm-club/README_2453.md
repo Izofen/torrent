@@ -6,7 +6,7 @@ Notification Widget v1.5.186 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64528.jpgsave_picture_64528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64528.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fort Firewall 3.18.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64529.jpgsave_picture_64529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64529.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:97254C14C6CD3C2F2D54FB76046E46B4FC6C5113
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64530.jpgsave_picture_64530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64530.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A54D4EE45299F8B859F6D010A33BC2019E0F50B8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64531.jpgsave_picture_64531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64531.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ YT Downloader 9.15.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64532.jpgsave_picture_64532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64532.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Process Lasso 16.0.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64533.jpgsave_picture_64533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64533.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64534.jpgsave_picture_64534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64534.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64535.jpgsave_picture_64535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64535.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64536.jpgsave_picture_64536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64536.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64537.jpgsave_picture_64537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64537.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:781C1D7FAA02F776CB65B99CA52BB02A6AB1FF70
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64538.jpgsave_picture_64538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64538.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Trance Fusion, Vol. 12 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64539.jpgsave_picture_64539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64539.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Nighthawk - Six Three O (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64540.jpgsave_picture_64540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64540.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:0C20C73FD82EAB724C3E06AA8BE1D06B3BCBCB6B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64541.jpgsave_picture_64541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64541.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Trancendence, Vol. 03 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64542.jpgsave_picture_64542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64542.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:1BFCFBE37DA0E5260B65FC39BEEDC5828C8C5B4E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64543.jpgsave_picture_64543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64543.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 12 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64544.jpgsave_picture_64544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64544.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Reneé Rapp - BITE ME (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64545.jpgsave_picture_64545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64545.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Keep It Trance Vol. 30 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64546.jpgsave_picture_64546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64546.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Findroid | Контрактор (Книга 1) (2025) [MP3, Максим Пол�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64547.jpgsave_picture_64547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64547.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Findroid | Возвращение демонического мастера (К�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64548.jpgsave_picture_64548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64548.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Findroid | Контрактор (Книга 3) (2025) [MP3, Максим Пол�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64549.jpgsave_picture_64549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64549.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:13DAADE73F34C372FDAD551453A04E89DB2F025A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64550.jpgsave_picture_64550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64550.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Nothing But... Trancetopia, Vol. 28 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64551.jpgsave_picture_64551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64551.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:2DD810B0E7F1CB5E62650AFDB95ABBC9A008F41F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64552.jpgsave_picture_64552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64552.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Hemelbestormer - The Radiant Veil (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64553.jpgsave_picture_64553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64553.jpg" />
 </div>
 
 

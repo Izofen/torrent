@@ -6,7 +6,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Othe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91201.jpgsave_picture_91201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91201.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Dece
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91202.jpgsave_picture_91202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91202.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0/dlc) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91203.jpgsave_picture_91203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91203.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Castle of Heart Retold (2025) [Multi] (Build 19960600) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91254.jpgsave_picture_91254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91254.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91302.jpgsave_picture_91302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91302.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91311.jpgsave_picture_91311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91311.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94587.jpgsave_picture_94587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94587.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Derailed (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94590.jpgsave_picture_94590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94590.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ No, I'm not a Human (2025) [Ru/Multi] (1.1.3) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94599.jpgsave_picture_94599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94599.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94728.jpgsave_picture_94728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94728.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ M.A.S.S. Builder (2019) [Multi] (1.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99931.jpgsave_picture_99931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99931.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101610.jpgsave_picture_101610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101610.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104419.jpgsave_picture_104419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104419.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104459.jpgsave_picture_104459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104459.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104467.jpgsave_picture_104467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104467.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104468.jpgsave_picture_104468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104468.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104469.jpgsave_picture_104469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104469.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ SWORN (2025) [Ru/Multi] (1.0.1.0.1018/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104914.jpgsave_picture_104914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104914.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112316.jpgsave_picture_112316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112316.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Absolum (2025) [Ru/Multi] (02 r34045) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112360.jpgsave_picture_112360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112360.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112378.jpgsave_picture_112378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112378.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117527.jpgsave_picture_117527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117527.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dreams of Another (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117533.jpgsave_picture_117533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117533.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Little Nightmares III (2025) [Ru/Multi] (1.0.0/dlc) Repack Let'sРlay [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117535.jpgsave_picture_117535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117535.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117623.jpgsave_picture_117623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117623.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121415.jpgsave_picture_121415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121415.jpg" />
 </div>
 
 

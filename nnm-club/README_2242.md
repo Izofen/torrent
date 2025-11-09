@@ -6,7 +6,7 @@ IObit Driver Booster Pro 11.4.0.60 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58659.jpgsave_picture_58659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58659.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Sensual Chillout Beats (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58660.jpgsave_picture_58660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58660.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C8B6C0F590C1871AD48D470CDA14FECA11842C4C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58661.jpgsave_picture_58661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58661.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:EE2C090373E15E04FD4B2F41EF96A0E712AE3370
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58662.jpgsave_picture_58662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58662.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Audacity 3.5.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58663.jpgsave_picture_58663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58663.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4E0D8B5D941100F0291B7E4E5BB6CE65AA088857
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58664.jpgsave_picture_58664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58664.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4E0D8B5D941100F0291B7E4E5BB6CE65AA088857
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58665.jpgsave_picture_58665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58665.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ AI-conic: первый в мире кофе, созданный ИИ, предс
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58666.jpgsave_picture_58666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58666.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Wise Care 365 Pro 6.6.7.637 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58667.jpgsave_picture_58667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58667.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ HWiNFO 8.01 Build 5425 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58668.jpgsave_picture_58668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58668.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:4BCA97DD91803FAED4B195937007F88A869B3E6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58669.jpgsave_picture_58669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58669.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:EAE19E3114A5DB62163325BF9F12C6D541F83328
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58670.jpgsave_picture_58670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58670.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:225CF34BE17079A186E8025582F40D35645A38A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58671.jpgsave_picture_58671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58671.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ IObit Driver Booster Pro 11.4.0.60 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58672.jpgsave_picture_58672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58672.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Scott Stapp (Creed) - Studio Albums (4 releases) (2005-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58673.jpgsave_picture_58673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58673.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:E6E40C39139F5B3CD9B537D75BB206FC49AC94BF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58674.jpgsave_picture_58674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58674.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:746E295D0E6B36993594FF136F86BEAC9EA6B055
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58675.jpgsave_picture_58675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58675.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1A30A61F66B0287A129A5B06A5CDECFA01481FF9
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58676.jpgsave_picture_58676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58676.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:36418C86900D551FDFBFE023A5C1721487A95E4C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58677.jpgsave_picture_58677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58677.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ NetLimiter 5.3.10.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58678.jpgsave_picture_58678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58678.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:F6A5A4C91E1C8FEE7866A5626327F9BBB25A3B2D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58679.jpgsave_picture_58679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58679.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:25E86D3E9A653F04E44F75BD29966DFB1B25DA9D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58680.jpgsave_picture_58680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58680.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:531C8634329AF7F5C4C939945B89DD827BCC8828
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58681.jpgsave_picture_58681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58681.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ IObit Driver Booster Pro 11.4.0.60 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58682.jpgsave_picture_58682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58682.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Art Of Anarchy - Studio Albums (3 releases) (2015-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58683.jpgsave_picture_58683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58683.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:87A7F4451CF54FB2D3DB77C7A603D88919FB4430
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58684.jpgsave_picture_58684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58684.jpg" />
 </div>
 
 

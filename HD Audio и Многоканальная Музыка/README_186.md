@@ -6,7 +6,7 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132568.jpgsave_picture_132568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132568.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132664.jpgsave_picture_132664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132664.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132720.jpgsave_picture_132720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132720.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132742.jpgsave_picture_132742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132742.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Deep Purple - Live On The BBC (1972) /2004, Audio Fidelity/ [DST 2.0 1bit/2822,4
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132942.jpgsave_picture_132942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132942.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ P!nk (Pink) - Trustfall (2023) Tour Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132987.jpgsave_picture_132987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132987.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133044.jpgsave_picture_133044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133044.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Fate - Ghosts From The Past (2011) remastered version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133062.jpgsave_picture_133062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133062.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Fate - If Not For The Devil (2013) Remastered Version, 2023, Frontiers Records [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133066.jpgsave_picture_133066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133066.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Alan Parsons Project - The Sicilian Defence (2014) Reissue, 2023, Arista - L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133077.jpgsave_picture_133077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133077.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Status Quo - Official Archive Series Vol. 2 (Live in London 2012) (2023) New Mix
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133091.jpgsave_picture_133091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133091.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133106.jpgsave_picture_133106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133106.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133116.jpgsave_picture_133116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133116.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133133.jpgsave_picture_133133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133133.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133515.jpgsave_picture_133515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133515.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Peter Gabriel - i/o (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133756.jpgsave_picture_133756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133756.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Cobra Spell - 666 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133827.jpgsave_picture_133827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133827.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Brian Eno - ForeverAndEverNoMore (2022) Forever Voiceless Edition, 2023, UMC (Un
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133848.jpgsave_picture_133848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133848.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Paradise Lost - Icon 30 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133852.jpgsave_picture_133852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133852.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Visions Of Atlantis - A Pirate's Symphony (2023) Orchestral Version [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133873.jpgsave_picture_133873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133873.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133897.jpgsave_picture_133897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133897.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133930.jpgsave_picture_133930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133930.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133939.jpgsave_picture_133939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133939.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133951.jpgsave_picture_133951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133951.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Axenstar - Chapter VIII (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133965.jpgsave_picture_133965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133965.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Opeth - Sorceress (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133972.jpgsave_picture_133972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133972.jpg" />
 </div>
 
 

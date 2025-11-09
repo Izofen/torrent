@@ -6,7 +6,7 @@ VA - NeРусский Шторм - 54 (2012) [MP3|320 кб/с]<Pop,Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97215.jpgsave_picture_97215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97215.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:D5AFE4607B2B6DF7A80ECFE5C24CBF4A010AC9D8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97219.jpgsave_picture_97219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97219.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97220.jpgsave_picture_97220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97220.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97222.jpgsave_picture_97222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97222.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97223.jpgsave_picture_97223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97223.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Dj DIESEL{BG} - Hangover (2012) [MP3|320 кб/с]<Club House, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97225.jpgsave_picture_97225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97225.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Nation Of Trance Vol 1 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97226.jpgsave_picture_97226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97226.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VA - Ночная Авто Дискотека (2012) [MP3|192 кб/с]<Dance, Cl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97227.jpgsave_picture_97227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97227.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:5E6778CDFC08DF03FD2EAD484BB0D378A3AAA13E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97230.jpgsave_picture_97230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97230.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:F9D143374878DF19214C85538A9CBDEBA4C91C05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97233.jpgsave_picture_97233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97233.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:F538A2BAB06939F3CA62F34B57CA56ABAD9BEE8A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97236.jpgsave_picture_97236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97236.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Groove Attack (2CD) (2012) [MP3|320 кб/с]<Psychedelic Trance, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97238.jpgsave_picture_97238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97238.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Prodвинутые Новинки Радиостанций 50\50(2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97241.jpgsave_picture_97241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97241.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97243.jpgsave_picture_97243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97243.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97244.jpgsave_picture_97244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97244.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97247.jpgsave_picture_97247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97247.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:395F85C473A0A849F1035DE32A016BC0E233842E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97250.jpgsave_picture_97250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97250.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:6859C45D2067726973B43B01400ECF12678D34CA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97251.jpgsave_picture_97251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97251.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:5EF6C00A77D4F769E6D422DFA18DB1C939BE9C77
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97252.jpgsave_picture_97252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97252.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97253.jpgsave_picture_97253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97253.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97255.jpgsave_picture_97255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97255.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97256.jpgsave_picture_97256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97256.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97258.jpgsave_picture_97258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97258.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97259.jpgsave_picture_97259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97259.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97261.jpgsave_picture_97261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97261.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97262.jpgsave_picture_97262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97262.jpg" />
 </div>
 
 

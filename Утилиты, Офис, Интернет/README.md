@@ -6,7 +6,7 @@ Desktop Info 3.21.0 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81.jpgsave_picture_81.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fan Control V241 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95.jpgsave_picture_95.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ SimilarImagesFinder 1.021 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96.jpgsave_picture_96.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ IsMyHdOK 4.44 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97.jpgsave_picture_97.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ YT Downloader 9.17.7 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104.jpgsave_picture_104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Volume2 1.1.9.470 Beta + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112.jpgsave_picture_112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ InnoExtractor Ultra 11.1.0.153 Portable by 7997 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_297.jpgsave_picture_297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_297.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Master PDF Editor 5.9.95 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_305.jpgsave_picture_305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_305.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ MassTube Ultra 21.0.3.167 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_307.jpgsave_picture_307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_307.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ O&O Defrag Professional + Server 30.0 Build 1056 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_310.jpgsave_picture_310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_310.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Wise Disk Cleaner 11.2.7.847 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_312.jpgsave_picture_312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_312.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ MassTube Ultra 21.0.3.167 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_321.jpgsave_picture_321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_321.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:99118EA0B3D7C59ED66DF3016FA101BC9D75620F
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_327.jpgsave_picture_327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_327.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Internet Download Manager 6.42 Build 48 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_337.jpgsave_picture_337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_337.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Driver Easy Pro 7.1.0.2641 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_364.jpgsave_picture_364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_364.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Internet Download Manager 6.42 Build 48 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_372.jpgsave_picture_372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_372.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DISMTools 0.7.0.25092 (Update 1) + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_376.jpgsave_picture_376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_376.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Rufus 4.10 (Build 2279) + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_427.jpgsave_picture_427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_427.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Firefox Browser ESR 140.3.1 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_547.jpgsave_picture_547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_547.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Calibre 8.11.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_565.jpgsave_picture_565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_565.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ PDF24 Creator 11.28.2 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_575.jpgsave_picture_575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_575.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Display Driver Uninstaller 18.1.3.4 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_581.jpgsave_picture_581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_581.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ PrivaZer Pro 4.0.111 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_596.jpgsave_picture_596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_596.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Atlantis Word Processor 5.0.0.1 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_597.jpgsave_picture_597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_597.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Internet Download Manager 6.42 Build 48 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_614.jpgsave_picture_614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_614.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 23.09.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_628.jpgsave_picture_628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_628.jpg" />
 </div>
 
 

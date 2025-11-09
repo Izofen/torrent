@@ -6,7 +6,7 @@ Elite Force - Modern Primitive (2006) [MP3|320 Kbps] <House, Downtempo, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237281.jpgsave_picture_237281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237281.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C6812C5D58A90D63A59B892AB7EE4E32B53B6FD3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237283.jpgsave_picture_237283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237283.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:56B9092B7C21CABE37F439E17F436764A90DF226
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237286.jpgsave_picture_237286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237286.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Screen Recorder 22.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237287.jpgsave_picture_237287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237287.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Export for iTunes 2.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237288.jpgsave_picture_237288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237288.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237289.jpgsave_picture_237289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237289.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:627804D2529AD31D1B074DDBD732F69B3E7B325E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237291.jpgsave_picture_237291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237291.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:78B91D439CF95F163F7E213D9B6C72D847CFF2F0
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237294.jpgsave_picture_237294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237294.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:9EF415B756A8554E0EC4A5E241D85AA792721985
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237295.jpgsave_picture_237295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237295.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ FSNotes 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237296.jpgsave_picture_237296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237296.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Victor Smolski - Majesty & Passion (2004) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237298.jpgsave_picture_237298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237298.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ RizomUV Virtual Spaces 2022.1.37 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237299.jpgsave_picture_237299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237299.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:DBBF2BA0E9093DDA24F5722442041D070C3DA0B4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237304.jpgsave_picture_237304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237304.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Killer Be Killed - Killer Be Killed (2014) [FLAC|Lossless|tracks + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237305.jpgsave_picture_237305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237305.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:3BC8E5221ECF940C602ECBBDA4D1E375864FECD5
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237306.jpgsave_picture_237306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237306.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:62590682EE9B506E12AD77D3DE46CAF110F865F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237307.jpgsave_picture_237307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237307.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:1C6058B64A22581D67B4FE4DBBDB8B768F26B2C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237308.jpgsave_picture_237308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237308.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:A497D8B6B55299D3DA498241F538B377998B6E57
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237310.jpgsave_picture_237310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237310.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Midnight Phantom - L.A. Nights (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237312.jpgsave_picture_237312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237312.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Daniel[i] - Terra Amica I (2020) Pyramid Blood Recordings [FLAC|Lossless|WEB-DL|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237313.jpgsave_picture_237313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237313.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:AE1B80A3D6837E0F328DB97A3D16E2E38E2F8188
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237315.jpgsave_picture_237315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237315.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:7F94566181E88C4AEB161497ACB2F539EEBBAEFF
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237316.jpgsave_picture_237316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237316.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ RJ TextEd 15.90.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237317.jpgsave_picture_237317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237317.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237318.jpgsave_picture_237318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237318.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ NCH MixPad Masters 10.61 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237321.jpgsave_picture_237321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237321.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Roy Eldridge - Classic Jazz Archive 1935 - 1945 (2004) 2CD, Membran Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237323.jpgsave_picture_237323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237323.jpg" />
 </div>
 
 

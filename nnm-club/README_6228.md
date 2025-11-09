@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195433.jpgsave_picture_195433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195433.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6E28B2FC0537CAE17035395B3EBC0BCA0ABC59A5
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195435.jpgsave_picture_195435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195435.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BB697C3B065FF391E9622A32AF63692C92B5D520
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195436.jpgsave_picture_195436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195436.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Absolute Drift (2015) [En] (5f6049d) License GOG [Zen Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195437.jpgsave_picture_195437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195437.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9AE021446A89BC488CA9507EC6CE4BDF95CC67D4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195438.jpgsave_picture_195438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195438.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hudozhnik Online, Дарья Куцаева, Екатерина Бердюгин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195439.jpgsave_picture_195439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195439.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:47BF75110EFE1C7D5FCCB67CFD1A501A25F281F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195440.jpgsave_picture_195440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195440.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:1A4EB21C6A8ED12F7B13CD5AAD026D96ECA80B12
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195441.jpgsave_picture_195441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195441.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:375D726990333D9074D795545030130788E171BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195442.jpgsave_picture_195442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195442.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DAEMON Tools Lite 11.2.0.2092 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195443.jpgsave_picture_195443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195443.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:84BA57B0A507051452633B6643F9DCC48E81AD82
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195444.jpgsave_picture_195444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195444.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ LibreOffice 7.5.5.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195445.jpgsave_picture_195445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195445.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Foxit PDF Reader 12.1.3.15356 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195446.jpgsave_picture_195446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195446.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:13AD8A127E328F78E3910FB42D88EBBF4D1D6D9E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195447.jpgsave_picture_195447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195447.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Udemy, Ali Gelenler | Microservices: Clean Architecture, DDD, SAGA, Outbox & Kaf
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195448.jpgsave_picture_195448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195448.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ MiniTool Power Data Recovery 11.6 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195450.jpgsave_picture_195450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195450.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:4F5D6647988ADA0433285EC3D78405974CEFEC95
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195451.jpgsave_picture_195451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195451.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:734825AB39C8F9682B3CD77F424BB5F25FBABFFB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195452.jpgsave_picture_195452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195452.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:F8B9B2957B737EFBC7A9817E7BD7943D8D66B02F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195453.jpgsave_picture_195453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195453.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:1018E98E063A7D35F7FA48BF0A9599B6E0B8FCE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195454.jpgsave_picture_195454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195454.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:01A8660AD41667EF27DC7298538B9866330C06B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195455.jpgsave_picture_195455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195455.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:11FB00ACF700A72687892BA1B9BBEECA05B0CFEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195456.jpgsave_picture_195456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195456.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:390B0B86CA8A4FBF7440B4546794A3A88A60D263
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195457.jpgsave_picture_195457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195457.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:1BB0259150192425697CA77665F3DB0EFAA37A35
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195458.jpgsave_picture_195458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195458.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:B8FA479DD7029C397CA4CC005125FCE47E5F948C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195459.jpgsave_picture_195459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195459.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ CCleaner 6.14.10584 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195460.jpgsave_picture_195460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195460.jpg" />
 </div>
 
 

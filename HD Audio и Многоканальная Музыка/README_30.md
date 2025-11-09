@@ -6,7 +6,7 @@ VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34707.jpgsave_picture_34707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34707.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ the Gathering - Studio Albums (14 releases) (1992-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34821.jpgsave_picture_34821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34821.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sexual Music Collection - Jazz SEXtet: Sexy Sounding Jazz for Couples in Love (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34889.jpgsave_picture_34889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34889.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dua Lipa - Dua Lipa Live from the Royal Albert Hall (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34890.jpgsave_picture_34890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34890.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, 2024, Warn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35021.jpgsave_picture_35021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35021.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Xandria - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35046.jpgsave_picture_35046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35046.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Virgin Steele - Studio Albums (15 releases) (1982-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35101.jpgsave_picture_35101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35101.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Golden Hitss  III. Классика Зарубежной Эстрады (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35125.jpgsave_picture_35125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35125.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Duran Duran - Evil Woman (2024) The Remixes, 2024, BMG [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35134.jpgsave_picture_35134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35134.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Denigrate - To the Goddess Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35216.jpgsave_picture_35216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35216.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Clannad - Studio Albums (15 releases) (1973-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35264.jpgsave_picture_35264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35264.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Little Glee Monster - Break Out of Your Bubble (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35317.jpgsave_picture_35317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35317.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Il Volo - Ad Astra (2024) International Edition, 2024, Masterworks [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35408.jpgsave_picture_35408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35408.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ CYN - Valley Girl (2024) Extended [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Euro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35413.jpgsave_picture_35413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35413.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Megan McDuffee - Crimson Legacy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35416.jpgsave_picture_35416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35416.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Alphaville - Afternoons in Utopia (1986) Remaster, 2021, WM Germany[FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35516.jpgsave_picture_35516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35516.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Lara Fabian - Je suis la (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Fren
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35608.jpgsave_picture_35608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35608.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Cliff Richard - Exclusive (2024) Remastered, 2024, DMI [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35619.jpgsave_picture_35619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35619.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ The Smoothies - Variations of Autumn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35631.jpgsave_picture_35631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35631.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Various Artists - Eric Clapton's Crossroads Guitar Festival 2023 (Live) (2023) 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35723.jpgsave_picture_35723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35723.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ AC/DC - Back In Black (1980) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35777.jpgsave_picture_35777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35777.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ David Rose - In Your Embrace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35827.jpgsave_picture_35827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35827.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Ginger Evil - Hands Move to Midnight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35833.jpgsave_picture_35833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35833.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ We Are The Catalyst - Friction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35836.jpgsave_picture_35836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35836.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Benjamin Croft - We Are Here to Help (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35839.jpgsave_picture_35839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35839.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Keep of Kalessin - Studio Albums (9 releases) (1997-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35841.jpgsave_picture_35841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35841.jpg" />
 </div>
 
 

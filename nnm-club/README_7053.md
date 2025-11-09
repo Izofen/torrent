@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241603.jpgsave_picture_241603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241603.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Impedigon - As Desires Fade... (2001) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241604.jpgsave_picture_241604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241604.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Luxury Bar Grooves, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241605.jpgsave_picture_241605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241605.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Creative Convert 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241606.jpgsave_picture_241606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241606.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:25B45E1224A25FC08FD7B2F995BE44079A7E4FB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241608.jpgsave_picture_241608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241608.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:0BCD0180E11D8DEFC00D26E11AE01209153B742D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241609.jpgsave_picture_241609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241609.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - E-Dance: Synergetic Nightclub (2021) [MP3|320 Kbps] <EDM, Club, Dance, Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241610.jpgsave_picture_241610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241610.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Isole - Anesidora (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241611.jpgsave_picture_241611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241611.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Black eXpression - Mundo Real (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241612.jpgsave_picture_241612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241612.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:F264EBB53F1CE0B50B914D4DC142404E4026662B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241613.jpgsave_picture_241613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241613.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Xliff Editor 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241614.jpgsave_picture_241614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241614.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:8B5C0A0CDF5C1F68B3606DB84A9F7125BC18BE5F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241615.jpgsave_picture_241615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241615.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Windows 11 Manager 1.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241616.jpgsave_picture_241616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241616.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:EA3C16E0E36811269EBDD07EE7C5597E248B97B2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241617.jpgsave_picture_241617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241617.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Handgemeng - Ultraritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241618.jpgsave_picture_241618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241618.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:6D2865E982BAA42DF0D990A5B2E7448D008E76C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241619.jpgsave_picture_241619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241619.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MediaInfo 0.7.93 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241620.jpgsave_picture_241620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241620.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Adventure - Tales of Belle Part 1: Across the Ocean (2022) [FLAC 2.0|44.1/24|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241621.jpgsave_picture_241621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241621.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:9BB903915DCA50669AC277D5289841177AFEED19
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241622.jpgsave_picture_241622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241622.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Wise Care 365 Pro 6.5.3.625 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241623.jpgsave_picture_241623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241623.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B9FE2FDC0A62E9643E9C7E3587FC04126D730217
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241624.jpgsave_picture_241624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241624.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Dead Shaman - Under the Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241625.jpgsave_picture_241625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241625.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - ЕвроХит Топ 40 Europa Plus 12.08.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241626.jpgsave_picture_241626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241626.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Brinklz - How do you like my hairdo? (2017) [FLAC|Lossless|WEB-DL|tracks + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241628.jpgsave_picture_241628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241628.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:126B7E930EDCC14463C42992B138E8D16B2379EF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241629.jpgsave_picture_241629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241629.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:D3FB58F7040C750D10F6AB42523C1BD25EF5AC90
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241630.jpgsave_picture_241630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241630.jpg" />
 </div>
 
 

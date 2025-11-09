@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38953.jpgsave_picture_38953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38953.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DCCEA10EF96F1B79D30F037A76314776D4587B46
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38957.jpgsave_picture_38957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38957.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E0AD801A166D48435DFCB2914303D57356F34048
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38963.jpgsave_picture_38963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38963.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0ECAE8CE5759260CF8D3FDB403E6C2672076BD54
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39034.jpgsave_picture_39034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39034.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7958D10DD4343123EA2C6697A54CC9A7E87D56FC
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39045.jpgsave_picture_39045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39045.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:433AD0F297D14CE40CD7CE26C4956A57E811FDFC
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39048.jpgsave_picture_39048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39048.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:99908529346007FA14D950162E868A35E585A588
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39104.jpgsave_picture_39104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39104.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CEE6606E1E064E85FEE4131A0C0B436C02687F73
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39159.jpgsave_picture_39159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39159.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:248224104787512DFFA15DB8CD2E1236CAFE79EB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39189.jpgsave_picture_39189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39189.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:3E083E244F6F4E11A005458A38516E442B75C5C8
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39325.jpgsave_picture_39325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39325.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:1D39406A48D87893406C4613D508B79E82DEEA2B
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39326.jpgsave_picture_39326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39326.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:6B8C7DE0E86E1C6D4C9C562512908331AA6C7B03
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39339.jpgsave_picture_39339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39339.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:40D8668E8E60484B1C12AE26F64D43DF487F5B50
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39346.jpgsave_picture_39346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39346.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:8FAAC72339832A177700AE973C946EC79FB243C4
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39400.jpgsave_picture_39400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39400.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:C812C9C325B7CF6E051C540F093D718F5BA0F015
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39415.jpgsave_picture_39415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39415.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:A5CB861D65A74909B4B113F13E7FB1FB302D94B4
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39435.jpgsave_picture_39435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39435.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:5988DCA76645A6CD2AD3BD9C80C791D3265947AD
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39441.jpgsave_picture_39441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39441.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:813D964EFC755E897D5D959AC41015798625D9AC
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39448.jpgsave_picture_39448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39448.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:DEE7B693AEC729C831AB6D90510BD5B7561FCE5B
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39603.jpgsave_picture_39603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39603.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:8BAB75F76FD7629EA0E9B1B00ECA23DC2973EF24
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39607.jpgsave_picture_39607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39607.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:4649826CF73A1CDADE21C2F555AFE3D333193DC4
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39613.jpgsave_picture_39613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39613.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:A8455266289F24659FB9B67E674A4C60B912E855
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39614.jpgsave_picture_39614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39614.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:1BAA7FC51A3ECD69C6E1D43241F79E637B750A32
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39617.jpgsave_picture_39617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39617.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:B6A249A3DDEA4944BC88B82DCC277ED3352861E0
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39621.jpgsave_picture_39621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39621.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:5F11D57970D4480C9D1B3A4912A0079731C70C32
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39622.jpgsave_picture_39622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39622.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:AD5BD18A04A898AC854C96049248AD598D285133
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39628.jpgsave_picture_39628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39628.jpg" />
 </div>
 
 

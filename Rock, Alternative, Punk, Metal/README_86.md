@@ -6,7 +6,7 @@ Prong - Carved into Stone (2012) [FLAC|Lossless]<Crossover/Thrash/Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90798.jpgsave_picture_90798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90798.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Richie Sambora(Bon Jovi) - Acoustic Set At Spain (1998) [MP3|320 кб/с]<Acoust
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90802.jpgsave_picture_90802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90802.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Manowar - Японские издания и Сборники (1982-2002) [MP3|1
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90852.jpgsave_picture_90852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90852.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:6657978D93AEAFB692088DD888E38148DEB6D243
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90937.jpgsave_picture_90937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90937.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6657978D93AEAFB692088DD888E38148DEB6D243
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91137.jpgsave_picture_91137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91137.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4E41EF5E792D414FB2808E333A26196A25ED50BC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91139.jpgsave_picture_91139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91139.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:20E91540DBC13F364013E8FD16DE8120A2840016
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91143.jpgsave_picture_91143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91143.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Bryan Adams - Roll With The Punches (2025) 3 x CD, Deluxe Edition, Limited Editi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91181.jpgsave_picture_91181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91181.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Buckingham Nicks - Buckingham Nicks (1973) Remastered, 2025, Rhino [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91189.jpgsave_picture_91189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91189.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:6DFC9F2B89B46859E37D3870E92F4A509D75D98A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91206.jpgsave_picture_91206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91206.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Caligula's Horse - Bloom (2015) Reissue, 2018, Inside Out Music [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91281.jpgsave_picture_91281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91281.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:608BB2CC386106116B03FF7B8F0BAAD17FE9C9D8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91300.jpgsave_picture_91300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91300.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91301.jpgsave_picture_91301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91301.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:7520BBEB1FB030148E0186B09DD7AE7848A541A6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91304.jpgsave_picture_91304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91304.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:5CCB597A0E2AB04CB9459C1943260BF068BD44EA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91306.jpgsave_picture_91306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91306.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:BAFEF867909D5D4A565D0A0849C082034124F217
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91308.jpgsave_picture_91308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91308.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:C021000E34D91730D7BFCFB1DB9FBE23731E84DA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91309.jpgsave_picture_91309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91309.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ The Magnificent - The Magnificent (2011) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92962.jpgsave_picture_92962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92962.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Fastway - 14 альбомов (1983 — 2011) Дискография [MP3|192-32
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93073.jpgsave_picture_93073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93073.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Opera IX - Maledictae In Aeternum (2012) [FLAC|Lossless]<Black Metal,Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93228.jpgsave_picture_93228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93228.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93569.jpgsave_picture_93569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93569.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Dollar Co. - Country Beatles (1981) [MP3|320 kbps]<Сountry, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93646.jpgsave_picture_93646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93646.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Bap Kennedy - The Sailor's Revenge (2012) [MP3|320 kbps]<Rock / Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93650.jpgsave_picture_93650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93650.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93859.jpgsave_picture_93859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93859.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ VA - Metal Violin (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93925.jpgsave_picture_93925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93925.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ My Best Fiend - In Ghostlike Fading (2012) [MP3|320 кб/с]<Alternative, Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94263.jpgsave_picture_94263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94263.jpg" />
 </div>
 
 

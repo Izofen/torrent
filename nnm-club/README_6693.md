@@ -6,7 +6,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229650.jpgsave_picture_229650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229650.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9B4079D8B3FB47A9B2C34EF80D786B06A9B157DB
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229651.jpgsave_picture_229651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229651.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ floater-io - 4 альбома (2010-2012) Touhou Instrumental /Doujin/ [FLAC|Los
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229652.jpgsave_picture_229652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229652.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:79F956864FF39BE7B71E7AD8084768E30F3606BD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229653.jpgsave_picture_229653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229653.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C989E1E7C5C450543437EA2204D16D270448E120
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229654.jpgsave_picture_229654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229654.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CFB6FB81748505BA8ADC7145100D7485FD48C0F8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229655.jpgsave_picture_229655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229655.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8EF51DA4C3133947EE3487BF5091E1F9A2B50BE7
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229657.jpgsave_picture_229657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229657.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:7C50C2DFF5CD7ABE099ED45C107973A34C33403D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229660.jpgsave_picture_229660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229660.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:C344C4A7F3E65D4133DC835F7D5D94AC3AF451D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229661.jpgsave_picture_229661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229661.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:DA938AA279A168A3C1D2EDEB9FB801FC05B2ECF1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229663.jpgsave_picture_229663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229663.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Okolokolo - The Legend Of The Amazon Indians (1996) [MP3|320 Kbps] <Native ameri
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229664.jpgsave_picture_229664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229664.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:BAC5E77584BAAB5A332AC483751B62EC9C8C53C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229665.jpgsave_picture_229665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229665.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:30B9DA228AABFEE98DA5E689D420346C9BA9D652
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229667.jpgsave_picture_229667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229667.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:76F36ACACDC973B5C1853F62FB71CF9C536EAD3C
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229668.jpgsave_picture_229668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229668.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:353B95C9715BD0263D627D1D4065D43B66DE1C99
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229669.jpgsave_picture_229669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229669.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:35787B53CD0E3F0124D4A7F9406D8FB8A6D5EFE0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229670.jpgsave_picture_229670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229670.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:5B79F0E67AF17D32BA5772FA85EF35C87979D762
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229672.jpgsave_picture_229672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229672.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Iridient Developer 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229673.jpgsave_picture_229673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229673.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Topaz Gigapixel AI 5.7.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229674.jpgsave_picture_229674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229674.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:546CEB4F8E7DB8CD4B8237F1E8E7C7AB3987CB29
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229675.jpgsave_picture_229675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229675.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:97168905D2A355AA56EB432B1DAB84A5F7066BCA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229677.jpgsave_picture_229677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229677.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Sensei 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229678.jpgsave_picture_229678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229678.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Dolly Parton - Dumplin' (2018) Original Motion Picture Soundtrack [FLAC|Lossless
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229679.jpgsave_picture_229679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229679.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:967414EE276D683EC90D15F7A1CC234CF87E7FA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229682.jpgsave_picture_229682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229682.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:35B2D8EEFFBD14D3293F6E18B937891D799DC1E8
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229683.jpgsave_picture_229683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229683.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:DEC591C97811EE2C418CFD33B46264CCE291377B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229684.jpgsave_picture_229684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229684.jpg" />
 </div>
 
 

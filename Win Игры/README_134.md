@@ -6,7 +6,7 @@ Harvest Moon: The Winds of Anthos (2023) [Multi] (1.42/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38467.jpgsave_picture_38467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38467.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Repack FitGirl [Ultimat
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38498.jpgsave_picture_38498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38498.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chrono Ark (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38515.jpgsave_picture_38515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38515.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38519.jpgsave_picture_38519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38519.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38523.jpgsave_picture_38523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38523.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38530.jpgsave_picture_38530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38530.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38534.jpgsave_picture_38534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38534.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38536.jpgsave_picture_38536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38536.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38537.jpgsave_picture_38537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38537.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38542.jpgsave_picture_38542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38542.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38547.jpgsave_picture_38547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38547.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38550.jpgsave_picture_38550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38550.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.046.0/dlc) Scene Run
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38552.jpgsave_picture_38552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38552.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WWE 2K24 (2024) [Multi] (1.22/dlc) Scene Rune [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38557.jpgsave_picture_38557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38557.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Guilty Gear -Strive- (2021) [Multi] (1.40/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38558.jpgsave_picture_38558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38558.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38572.jpgsave_picture_38572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38572.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38600.jpgsave_picture_38600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38600.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38620.jpgsave_picture_38620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38620.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.105/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38627.jpgsave_picture_38627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38627.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38642.jpgsave_picture_38642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38642.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Shadows of the Damned: Hella Remastered (2024) [Multi] (Build 15991776) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38648.jpgsave_picture_38648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38648.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38649.jpgsave_picture_38649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38649.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38650.jpgsave_picture_38650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38650.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38652.jpgsave_picture_38652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38652.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38653.jpgsave_picture_38653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38653.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38654.jpgsave_picture_38654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38654.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249121.jpgsave_picture_249121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249121.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9CC605E05DD2AD4E3D9DFE7C6917D55A775221D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249124.jpgsave_picture_249124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249124.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Berna Arici - Kitap Gibi Kadinim (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249130.jpgsave_picture_249130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249130.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Phil Woods Quartet & Jon Hendricks Group - Tribute To Charlie Parker (2003) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249132.jpgsave_picture_249132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249132.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249133.jpgsave_picture_249133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249133.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:BDDF6AF5D5D785E190EE6131D0294651786F34C3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249135.jpgsave_picture_249135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249135.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:6567405FE215601E4D458D85BCF3306EDF3B2115
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249137.jpgsave_picture_249137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249137.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Francis Rossi - 2 albums (1996, 2010) [MP3|320 кб/с]<Rock, Pop-rock, R'n'B>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249140.jpgsave_picture_249140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249140.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Laura Wilde - Sold My Soul (2012) [MP3|320 кб/с]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249141.jpgsave_picture_249141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249141.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:953D51B6E8D5160D272159FD452ECD7C3D83FE48
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249143.jpgsave_picture_249143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249143.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:7A37661E0FEA690AF7C9215804A148D175B1D689
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249147.jpgsave_picture_249147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249147.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ DJ Kocmoc - The lyrics of my heart (ChillOut 2012) (30.04.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249149.jpgsave_picture_249149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249149.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:A642482698204A42D28E0DBC0A654F6C60350027
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249155.jpgsave_picture_249155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249155.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Forthcoming Fire - 10 albums (1991-2010) [mp3|160-320 kbps] <Darkwave, Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249156.jpgsave_picture_249156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249156.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Boppin [En] (RePack) 1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249160.jpgsave_picture_249160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249160.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Dj Starscream (Sid Wilson) - Abunaii Sounds (2003) [MP3|128 кб/с]<Drum'n'Bass
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249169.jpgsave_picture_249169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249169.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Balance 021: Nic Fanciulli (2012) [MP3|~245 кб/с (V0)]<Deep House Tech H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249170.jpgsave_picture_249170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249170.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Simple Minds - Black & White 050505 (2005) [FLAC|Lossless]<Рок>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249174.jpgsave_picture_249174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249174.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Cattle Decapitation - Monolith Of Inhumanity (2012) [FLAC|Lossless]<Technical De
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249176.jpgsave_picture_249176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249176.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Лучшая clubная музыка сезона (2012) [MP3|256 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249178.jpgsave_picture_249178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249178.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:4606A6E03125EF06A874BF335079CB2B7724B299
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249181.jpgsave_picture_249181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249181.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:5D7524ED7A558265B20C9D5601F6406309BBA496
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249183.jpgsave_picture_249183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249183.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:5D7524ED7A558265B20C9D5601F6406309BBA496
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249184.jpgsave_picture_249184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249184.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:C638E7442CAF8332990883C640EC9483AB1C41F1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249186.jpgsave_picture_249186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249186.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Adrosoft Steady Recorder 2.7.2 [Eng+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249188.jpgsave_picture_249188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249188.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Грезы любви (2012) [MP3|320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249190.jpgsave_picture_249190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249190.jpg" />
 </div>
 
 

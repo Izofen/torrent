@@ -6,7 +6,7 @@ WiFi Analyzer v5.5 (b91) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45376.jpgsave_picture_45376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45376.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IPTV Pro v8.1.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45392.jpgsave_picture_45392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45392.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Music and mp3 Player v6.9.7 Premium Unlimited Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45394.jpgsave_picture_45394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45394.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CAA4A7F666A7F658BAD46B643A3D1E01AEB6F850
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45433.jpgsave_picture_45433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45433.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Picture Mushroom - Mushroom ID v2.9.23 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45649.jpgsave_picture_45649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45649.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:CDE6B5D4587A3583975CB2C71058B155704C259D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45671.jpgsave_picture_45671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45671.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ ViewBox v1.8.11 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45686.jpgsave_picture_45686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45686.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Reface: Face Swap AI Generator v4.19.3 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45757.jpgsave_picture_45757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45757.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Picture Insect: Bug Identifier v2.8.30 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45864.jpgsave_picture_45864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45864.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VRadio - Online Radio App v2.7.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45908.jpgsave_picture_45908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45908.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Browsec VPN: ВПН, анонимайзер 5.105 Mod by Jenny66 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46147.jpgsave_picture_46147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46147.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9C3570309AE9925834F2A8C46C0601383B3CC11A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46220.jpgsave_picture_46220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46220.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:E6EAA2AB792FAB299A4A4513FEA6B237AEB7FB1A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46244.jpgsave_picture_46244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46244.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ TV+ HD v1.2.5 Mod by ajrys [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46254.jpgsave_picture_46254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46254.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Bria Mobile: VoIP Softphone v6.16.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46325.jpgsave_picture_46325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46325.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ AR Ruler App: Линейка Рулетка v2.8.7 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46375.jpgsave_picture_46375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46375.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PictureThis - Plant Identification v4.3.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46380.jpgsave_picture_46380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46380.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ ADV Screen Recorder v4.13.1 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46393.jpgsave_picture_46393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46393.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ PDF Extra PDF Editor & Scanner v10.16.2608 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46433.jpgsave_picture_46433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46433.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.85 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46699.jpgsave_picture_46699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46699.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Unified Remote v3.24.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46977.jpgsave_picture_46977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46977.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:07CF6B78D3937315D9E24E16761F770C7B509AAA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47003.jpgsave_picture_47003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47003.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ PhotoRoom v5.2.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47109.jpgsave_picture_47109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47109.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Horary Chart / Астрология: Хорарная Карта v4.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47118.jpgsave_picture_47118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47118.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:D55F385AFF5AAA6161431B7C88F2A7CECD970F28
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47135.jpgsave_picture_47135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47135.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ jetAudio HD Music Player Plus v12.2.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47136.jpgsave_picture_47136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47136.jpg" />
 </div>
 
 

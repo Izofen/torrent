@@ -6,7 +6,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_323.jpgsave_picture_323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_323.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Blackwell Unbound (2007) [En] (4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2849.jpgsave_picture_2849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2849.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ STORROR Parkour Pro (2025) [En] (0.1 Hotfix) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3032.jpgsave_picture_3032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3032.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4336.jpgsave_picture_4336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4336.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4685.jpgsave_picture_4685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4685.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Emperor of the Fading Suns / Император Угасающих Звезд (1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4731.jpgsave_picture_4731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4731.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Lords of Magic (1998) [En] (1.0) License Sierra
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5024.jpgsave_picture_5024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5024.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Blackwell Legacy (2006) [En] (4.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6212.jpgsave_picture_6212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6212.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6218.jpgsave_picture_6218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6218.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | P
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7006.jpgsave_picture_7006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7006.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Emergency: Fighters for Life (1998) [En] (1.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8133.jpgsave_picture_8133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8133.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8460.jpgsave_picture_8460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8460.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8693.jpgsave_picture_8693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8693.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ OpenSCP (2025) [Ru/En] (01.05) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9368.jpgsave_picture_9368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9368.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9581.jpgsave_picture_9581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9581.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9606.jpgsave_picture_9606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9606.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9614.jpgsave_picture_9614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9614.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9794.jpgsave_picture_9794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9794.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10503.jpgsave_picture_10503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10503.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11011.jpgsave_picture_11011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11011.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:BF1A3B0FAFAB1A7B5B5040816EB996AEFCEA5392
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11766.jpgsave_picture_11766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11766.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13155.jpgsave_picture_13155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13155.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13187.jpgsave_picture_13187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13187.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Manhunt (2004) [Ru] (1.1) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13203.jpgsave_picture_13203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13203.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Far Cry (2004) [Ru] (1.40) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13219.jpgsave_picture_13219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13219.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13221.jpgsave_picture_13221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13221.jpg" />
 </div>
 
 

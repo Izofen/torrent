@@ -6,7 +6,7 @@ Handgemeng - Ultraritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241618.jpgsave_picture_241618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241618.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adventure - Tales of Belle Part 1: Across the Ocean (2022) [FLAC 2.0|44.1/24|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241621.jpgsave_picture_241621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241621.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dead Shaman - Under the Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241625.jpgsave_picture_241625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241625.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:1767453EA18BDDDDDBA7B21F9165CF01AB0847BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241630.jpgsave_picture_241630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241630.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kreeature - Two Leaves / Dos Hojas (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241632.jpgsave_picture_241632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241632.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Two Sinners - Brutal Emotion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241635.jpgsave_picture_241635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241635.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Motus - Here Comes the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241641.jpgsave_picture_241641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241641.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dagoba - By Night (2022) [FLAC|Lossless|tracks + .cue] <Groove Metal, Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241643.jpgsave_picture_241643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241643.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Harry Chapin - Cats In the Cradle (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Fol
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241645.jpgsave_picture_241645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241645.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Witherfall - Curse Of Autumn (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241654.jpgsave_picture_241654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241654.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Story of the Year - Tear Me To Pieces (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241662.jpgsave_picture_241662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241662.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:F2BE4BC47FFF5D5EFB848ED60324784F3EA89875
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241679.jpgsave_picture_241679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241679.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Septicflesh - A Fallen Temple (1998) [MP3|320 Kbps] <Atmospheric, Symphonic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241689.jpgsave_picture_241689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241689.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Vita Imana - VI (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241690.jpgsave_picture_241690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241690.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Domkraft - Seeds (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241694.jpgsave_picture_241694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241694.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:07F5673E596992C905AD2E7AB9C2E33C1FCED0C4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241697.jpgsave_picture_241697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241697.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Afraid of Destiny - Contra Omnes (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241699.jpgsave_picture_241699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241699.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ As Light Dies - The Laniakea Architecture vol. II (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241715.jpgsave_picture_241715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241715.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Fratellis - Half Drunk Under a Full Moon (2021) Deluxe Edition [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241716.jpgsave_picture_241716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241716.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:DADFAE63788B3BDEFEB6CEA47B5DBE19AD81E9EE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241720.jpgsave_picture_241720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241720.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Crowne - Operation Phoenix (2023) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241725.jpgsave_picture_241725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241725.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Bog Monkey - Hollow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241729.jpgsave_picture_241729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241729.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241731.jpgsave_picture_241731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241731.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Kitchen Sink - Clandestiny  (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241738.jpgsave_picture_241738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241738.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Fuzztones - Encore (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241739.jpgsave_picture_241739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241739.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The L.A. Maybe - Dirty Damn Tricks (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241746.jpgsave_picture_241746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241746.jpg" />
 </div>
 
 

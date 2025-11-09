@@ -6,7 +6,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53339.jpgsave_picture_53339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53339.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53358.jpgsave_picture_53358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53358.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53361.jpgsave_picture_53361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53361.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53381.jpgsave_picture_53381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53381.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hood Story: Kaito Yamazaki (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53445.jpgsave_picture_53445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53445.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Outward (2022) [Ru/Multi] (1.1.0/dlc) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53482.jpgsave_picture_53482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53482.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sinderfury (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53530.jpgsave_picture_53530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53530.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Whispers in the Moss (2024) [En] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53545.jpgsave_picture_53545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53545.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53565.jpgsave_picture_53565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53565.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ SKALD: Against the Black Priory (2024) [En] (1.0.3d/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53681.jpgsave_picture_53681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53681.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Baladins (2024) [Multi] (1.0.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53684.jpgsave_picture_53684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53684.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53764.jpgsave_picture_53764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53764.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack Wagner [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53783.jpgsave_picture_53783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53783.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Coromon (2022) [Ru/Multi] (1.3.0/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53793.jpgsave_picture_53793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53793.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53804.jpgsave_picture_53804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53804.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53843.jpgsave_picture_53843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53843.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53887.jpgsave_picture_53887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53887.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.1170.0.8/dlc) Repack dix
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53905.jpgsave_picture_53905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53905.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Elegy of Fate / Элегия судьбы (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53997.jpgsave_picture_53997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53997.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54008.jpgsave_picture_54008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54008.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cryptmaster (2024) [Multi] (1.032) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54212.jpgsave_picture_54212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54212.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54229.jpgsave_picture_54229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54229.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.0.1/dlc) Repack FitGirl [Ultimate Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54295.jpgsave_picture_54295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54295.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:8D1AD84E5A0000E10812779949754565E394008D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54312.jpgsave_picture_54312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54312.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.2.101) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54418.jpgsave_picture_54418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54418.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.0.1) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54423.jpgsave_picture_54423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54423.jpg" />
 </div>
 
 

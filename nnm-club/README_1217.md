@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31997.jpgsave_picture_31997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Flud v1.11.6.4 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31998.jpgsave_picture_31998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:650A9D1BE16C3C19D783580F48CB795822D02A72
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31999.jpgsave_picture_31999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31999.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32000.jpgsave_picture_32000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32000.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32001.jpgsave_picture_32001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32001.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:DCDA9B73E1506A8233C8AF28F7809904128C7808
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32002.jpgsave_picture_32002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:938C2A9BC3408A0732FC6C51D5C6889EF7FFEC7B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32003.jpgsave_picture_32003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32003.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F8606FD59BD06BEFAC2A351F333CDD08622CB4EE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32004.jpgsave_picture_32004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32004.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E4DA79D228391D6F9C2255B015B95A99990169C5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32005.jpgsave_picture_32005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32005.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:D7232E40B2D93F7F257DAE2ECDE93AC78C42D45D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32006.jpgsave_picture_32006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32006.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:BCE16713A8A2F98425D6128CB7318688DDB704A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32007.jpgsave_picture_32007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32007.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Afro House: Deep Roots (M-Sol Deep Essentials) (2025) [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32008.jpgsave_picture_32008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32008.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:D85285A1CB794ABF0025F07BF0D4BE4CE5832CAB
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32009.jpgsave_picture_32009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32009.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Gigi D'Agostino - Gin Lemon E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo Dan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32010.jpgsave_picture_32010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32010.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:FF933113ACF59F306665BC01E7F88C29FB6A936A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32011.jpgsave_picture_32011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32011.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Guardians of the Sanctree (2024) [Ru/Multi] (1.1.2f6/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32012.jpgsave_picture_32012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32012.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:5B918E3CA9AB2E9A2169CC555D349297F3F6D38D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32013.jpgsave_picture_32013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32013.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:8B959F4F943F24768B5E20D104930F62D83E1409
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32014.jpgsave_picture_32014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32014.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Doomsday Hunters (2023) [Ru/En] (1.1.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32015.jpgsave_picture_32015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32015.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Mullti] (3.0.351.5498) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32016.jpgsave_picture_32016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32016.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Milchbar Seaside Season 7 (Compiled By Blank & Jones) (2015) [MP3|320 кб/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32017.jpgsave_picture_32017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32017.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Marcus Koch - Chillscapes Vol.1 (2014) [MP3|320 кб/с] <Downtempo, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32018.jpgsave_picture_32018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32018.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:DF7E725A5C9BEAD5580FCABD120A67C09973B189
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32019.jpgsave_picture_32019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32019.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Blank & Jones - Chilltronica №5 (2015) [MP3|320 кб/с]<Chillout, Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32020.jpgsave_picture_32020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32020.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32021.jpgsave_picture_32021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32021.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:D663C9AD8507F4CC13F2CEAED0899CA48FE41A94
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32022.jpgsave_picture_32022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32022.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147968.jpgsave_picture_147968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147968.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FA58917D5CC3791AC7DD7152B9F00B81603898F8
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147969.jpgsave_picture_147969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147969.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:49CBB911499ABF114CD6643512E6EF9CEB8B3032
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147970.jpgsave_picture_147970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147970.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4622520C29683BF1049DE973E06B1A2AB62C214F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147971.jpgsave_picture_147971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147971.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:4622520C29683BF1049DE973E06B1A2AB62C214F
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147973.jpgsave_picture_147973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147973.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Space Clash: The last frontier / Космические войны: Послед
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147974.jpgsave_picture_147974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147974.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5056D403F593D17322ADC1708BE20C4CEC636B0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147975.jpgsave_picture_147975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147975.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Sandra - The Wheel Of Time (2002) [FLAC|Lossless|image + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147976.jpgsave_picture_147976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147976.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B9E56D42FE4AE09FF1C8023378AA963CA9C53442
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147977.jpgsave_picture_147977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147977.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Adriano Celentano - 20 Greatest Hits (2005) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147978.jpgsave_picture_147978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147978.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:D310AD234FBEAFF498FCE20183D4680F7CD8DC02
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147979.jpgsave_picture_147979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147979.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:98421BD6CBEFB11222A8BCD81F1850C1F164864F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147980.jpgsave_picture_147980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147980.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Hasard - Malivore (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147981.jpgsave_picture_147981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147981.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Winsor Pilates (ENG) - это революционная система трен
 >>Гимнастика, Бодибилдинг, Красота тела
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147983.jpgsave_picture_147983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147983.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:8AF01859E0F6E0A4BC3A1C95F6BE548093F5A119
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147984.jpgsave_picture_147984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147984.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:8AF01859E0F6E0A4BC3A1C95F6BE548093F5A119
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147985.jpgsave_picture_147985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147985.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:2AD704869C049B399C5F283E7D20337A75A44F95
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147986.jpgsave_picture_147986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147986.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:DB0928EED052DAE573901FF305F413D2BF48DBFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147987.jpgsave_picture_147987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147987.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:0FC106DC143A545F14121F2E6C19C84B67BFA740
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147988.jpgsave_picture_147988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147988.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:D9CE366DF94BB756CC372211D4DAE3547FF82C6E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147989.jpgsave_picture_147989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147989.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Nightparty 90-х-Ностальгия (2018) [MP3|256-320 Kbps] <Dance, Eur
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147990.jpgsave_picture_147990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147990.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Grand Theft Auto (1997) [Ru/Multi] (1.0) Lossless Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147991.jpgsave_picture_147991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147991.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Unite 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147992.jpgsave_picture_147992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147992.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:8C8541612C8F2E9A368D818922BC2707430D45B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147993.jpgsave_picture_147993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147993.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ OmniGraffle Pro 7.22.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147994.jpgsave_picture_147994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147994.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:5B90380625A0941F873A38B45BF0BB9EBB8807FC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147995.jpgsave_picture_147995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147995.jpg" />
 </div>
 
 

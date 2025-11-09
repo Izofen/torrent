@@ -6,7 +6,7 @@ Lord Of The Lost - LIVE at W:O:A (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105823.jpgsave_picture_105823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105823.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Los Lonely Boys - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105824.jpgsave_picture_105824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105824.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:70E9BBDADF2821D5C5A13F27FD742A266D8CBEE5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105825.jpgsave_picture_105825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105825.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Blind Guardian - Somewhere Far Beyond (Live at Rock Hard Festival 2022) (2024) [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105826.jpgsave_picture_105826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105826.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:21C4B4657C54FFBDF1640313798D23016B327686
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105827.jpgsave_picture_105827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105827.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ aurorawave - aurorawave (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World, Reg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105828.jpgsave_picture_105828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105828.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:3F08588075D7E66DF25A580D570AF50FD9FB9AF1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105829.jpgsave_picture_105829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105829.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Los Lonely Boys - Resurrection (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105830.jpgsave_picture_105830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105830.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:EAC1DCDDB612BAFFAFF5D180FF413C324F3D4C14
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105831.jpgsave_picture_105831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105831.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:90695E3A577599D3CFE50BA313310B310AF8D165
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105832.jpgsave_picture_105832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105832.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:ABCEF04765201A27C1306A848103B8FA3DCAC271
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105833.jpgsave_picture_105833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105833.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Blacklist - With Murderous Intent (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105834.jpgsave_picture_105834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105834.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:44AD54AABB4DBBE551F122978C149571DEA03533
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105835.jpgsave_picture_105835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105835.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:96CF663A45BA4A0EBA84F02D1970BA2E21917DD2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105836.jpgsave_picture_105836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105836.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:9EAEC26086C9999227AA77FE03B8ACB2111D26D8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105837.jpgsave_picture_105837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105837.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:975C79F8053BC694747907881943F89727104338
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105838.jpgsave_picture_105838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105838.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Electronica Confessions, Vol. 5 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105839.jpgsave_picture_105839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105839.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 05 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105840.jpgsave_picture_105840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105840.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:B8F7FC4BFCEFBD2361F9C512B5FA888A2D28BF38
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105841.jpgsave_picture_105841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105841.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - EDM Dance Summer 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105842.jpgsave_picture_105842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105842.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:BDFE00907D110D249655B6D58EE7E368C30381BF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105843.jpgsave_picture_105843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105843.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Electronica Confessions, Vol. 10 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105844.jpgsave_picture_105844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105844.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Electronica Confessions, Vol. 7 (2014) [MP3|320 Kbps] <Electro, House>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105845.jpgsave_picture_105845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105845.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:1E1337E4C6DDD23993DE59A3A2C5C733C7D2734D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105846.jpgsave_picture_105846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105846.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:C9ECF6FB1395074F6B174343109D88B215576636
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105847.jpgsave_picture_105847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105847.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:42383541A1F3F566E277D07DFF3C37AD6AEC9A14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105848.jpgsave_picture_105848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105848.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bruce Soord - Luminescence (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186868.jpgsave_picture_186868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186868.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Neonfly - The Future, Tonight (2021) [FLAC|Lossless|image + .cue] <Melodic Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186870.jpgsave_picture_186870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186870.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Xiphos - New World (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186871.jpgsave_picture_186871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186871.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sekta Core - Sinfonia del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, g
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186872.jpgsave_picture_186872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186872.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Promise Of Plague - Let Those Unjust Creatures Be Burnt (2023) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186875.jpgsave_picture_186875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186875.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:82A205F4E68602C67E0D92BF3D5561A408BEBC8A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186878.jpgsave_picture_186878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186878.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Death Dealer Union - Initiation (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186883.jpgsave_picture_186883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186883.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Gravestone - Creating A Monster (1986) 2005 Reissue, Remastered [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186887.jpgsave_picture_186887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186887.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Vision Master - Sceptre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186889.jpgsave_picture_186889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186889.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Aortha - Monolit (2023) [FLAC|Lossless|WEB-DL|tracks] <power-metal, thrash-metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186892.jpgsave_picture_186892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186892.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Palace Of Black - Palace Of Black (2002) 2003 CD-Maximum [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186896.jpgsave_picture_186896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186896.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:B7FB04D131840A8D61DF83DE65561D4966C56E39
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186897.jpgsave_picture_186897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186897.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Threshold - Dividing Lines (2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186915.jpgsave_picture_186915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186915.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Candlemass - Green Valley (Live in Lockdown, July 3rd 2020) (2021)  [FLAC 2.0|44
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186925.jpgsave_picture_186925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186925.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Riot City - Electric Elite (2022) [FLAC|Lossless|image + .cue] <Heavy, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186927.jpgsave_picture_186927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186927.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Repus Tuto Matos - МЫ(НЕ)МЫ (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Indus
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186929.jpgsave_picture_186929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186929.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Pagan Sword - Enter the Mountain (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186933.jpgsave_picture_186933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186933.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dominus - The First 9 (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186935.jpgsave_picture_186935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186935.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Andysoul - 08535510n (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186936.jpgsave_picture_186936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186936.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:37637DAB7FCCE9CD2FD63EADD5CAD64D1A0F5EEC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186939.jpgsave_picture_186939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186939.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:F9DFBD80FA0314A81604FA4AA8A5C83D0E1E82A2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186989.jpgsave_picture_186989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186989.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Slade - The No.1's (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187089.jpgsave_picture_187089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187089.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ LOUNA - Рубикон (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187109.jpgsave_picture_187109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187109.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ LOUNA - Рубикон (2022) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187113.jpgsave_picture_187113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187113.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Freternia - The Final Stand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187124.jpgsave_picture_187124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187124.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Cannibal Corpse - Chaos Horrific (2023) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187134.jpgsave_picture_187134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187134.jpg" />
 </div>
 
 

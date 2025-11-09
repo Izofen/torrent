@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205108.jpgsave_picture_205108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205108.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205109.jpgsave_picture_205109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205109.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Wonders - The Fragments of Wonder (2021) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205110.jpgsave_picture_205110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205110.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:DB8316968912333782CAEA722D6B8BD37F16563E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205111.jpgsave_picture_205111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205111.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ FigrCollage Pro 3.3.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205112.jpgsave_picture_205112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205112.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Overlay 4.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205113.jpgsave_picture_205113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205113.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ R-Studio Network 9.1 Build 191060 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205114.jpgsave_picture_205114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205114.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Wonders - Beyond the Mirage (2023) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205115.jpgsave_picture_205115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205115.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205116.jpgsave_picture_205116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205116.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205117.jpgsave_picture_205117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205117.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:A63D21340776BD68646D766413BC45E2CB73ACA4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205119.jpgsave_picture_205119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205119.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:5B867ED24DA0E468E98D25356B41D0921C84E42D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205120.jpgsave_picture_205120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205120.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:94F0309D6F69BA2A4B07154D91061936FC51AE97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205121.jpgsave_picture_205121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205121.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpgsave_picture_205122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Disturbed - Divisive (2022) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205123.jpgsave_picture_205123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205123.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Duplicate File Doctor for Mac 1.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205124.jpgsave_picture_205124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205124.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Sonny Stitt - The Hard Swing (1959) 2001, Verve [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205125.jpgsave_picture_205125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205125.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205126.jpgsave_picture_205126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205126.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Rannoch - Conflagrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205127.jpgsave_picture_205127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205127.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ R-Drive Image System Recovery Media Creator 7.0 Build 7008 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205128.jpgsave_picture_205128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205128.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Scott Springer - Hello Forever (1993) Reissue, Remastered, 2020, Girder Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205129.jpgsave_picture_205129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205129.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:ED856E00F71C1F52E96343127D4FC309357EEC62
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205130.jpgsave_picture_205130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205130.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Ian Elliott - Astride The Pale Horse (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205131.jpgsave_picture_205131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205131.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:3E0248C1BE6E630EA809E2DFACFCC48A5F7B14A5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205132.jpgsave_picture_205132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205132.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Fighter - The Waiting (1991) Reissue, Remastered, 2019, Girder Records [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205133.jpgsave_picture_205133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205133.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:C5B083214B3B38417830B07866935AEF9A4BC330
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205134.jpgsave_picture_205134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205134.jpg" />
 </div>
 
 

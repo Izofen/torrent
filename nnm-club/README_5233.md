@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162826.jpgsave_picture_162826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162826.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6E4BBE8DD3465CA34099F66E64B4EFCBBE01E6EC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162827.jpgsave_picture_162827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162827.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4B07AFCBE9E3095CC3EA7909F5B519DF3288B654
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162828.jpgsave_picture_162828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162828.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7A47CAAAE0F5723ED9D415AFA4CA730173A1FC0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162829.jpgsave_picture_162829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162829.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Chris Norman - Just A Man (2021) [FLAC|Lossless|image + .cue] <Pop-Rock, Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162830.jpgsave_picture_162830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162830.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:07E37C84C894F673B8B86D7B5CF1F88BE29E4D3A
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162831.jpgsave_picture_162831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162831.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D01F847224609E6609BB0D009D0BDF06F67D328B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162832.jpgsave_picture_162832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162832.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Planeta Mix Hits 2022: Winter Edition (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162833.jpgsave_picture_162833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162833.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:73DEE850B963F0C1EE8A2B2AD299F1CE10E7AD6F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162834.jpgsave_picture_162834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162834.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ V.A. - В русском ресторане - Романсы (Выпуск 2) (2
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162835.jpgsave_picture_162835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162835.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Plexim Plecs 4.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162836.jpgsave_picture_162836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162836.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:144E3E3A45AF378ED7F1FA126C39852CC303C786
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162837.jpgsave_picture_162837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162837.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:974ECE2360612F47BC744295F4AC5225E4D9CB15
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162839.jpgsave_picture_162839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162839.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ CG Cookie, Jonathan Lampel | POTHEAD: Create a Hard Surface Character in Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162840.jpgsave_picture_162840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162840.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:41BF00F2498F65683295DBBFD1510EF929FA966C
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162841.jpgsave_picture_162841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162841.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:02C15A8A3C8B94DAE2611E87E94D4F7D0D04B09C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162842.jpgsave_picture_162842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162842.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:ACFBB1B4CC5E31D438B14B77674CF67E3C9A8CF4
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162843.jpgsave_picture_162843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162843.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ macOS 13 Ventura 13.1 (Installer) [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162844.jpgsave_picture_162844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162844.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Do Your Data Recovery Pro 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162845.jpgsave_picture_162845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162845.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:1BACEEF185B813AC34DCDD305B1A7135D7B04036
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162846.jpgsave_picture_162846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162846.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:A275EB73590B984A258E1335F54065B379CD4BBB
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162847.jpgsave_picture_162847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162847.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ UVI - Synth Anthology 3 v1.0.1 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162848.jpgsave_picture_162848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162848.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:0D8A7FECA796E37F20108E6886DCC517DFF6D215
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162849.jpgsave_picture_162849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162849.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:7C704F6C1A57B6C6C69FB7CD790306EE82919B2C
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162850.jpgsave_picture_162850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162850.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:63B7841E993BC3E437DC24088A64BF012CC7D17D
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162851.jpgsave_picture_162851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162851.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Beartooth - Aggressive (2016) Remixed, Remastered, 2020, Red Bull Records [MP3|3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162852.jpgsave_picture_162852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162852.jpg" />
 </div>
 
 

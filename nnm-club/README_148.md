@@ -6,7 +6,7 @@ Eric Gales - Compilation (1991-2025) [MP3|320 Kbps] <Blues rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3898.jpgsave_picture_3898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3898.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2AD77B1D53A80553168406B1710EB0D3CB9781FD
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3899.jpgsave_picture_3899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3899.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Lady Gaga - Mayhem (2025) [MP3|320 Kbps] <Pop, Dance-Pop, Art Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3900.jpgsave_picture_3900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3900.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:410FA1F4FE59CB60F0D9AB12420D0EC4EB86AF98
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3901.jpgsave_picture_3901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3901.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ PhotoFiltre Studio X 11.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3902.jpgsave_picture_3902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3902.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:DCB5DA23AFFBB25D19F8434A42D79E17E71B2FAF
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3903.jpgsave_picture_3903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3903.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:9E1D523435BBCA4CA316CCF954CAAC8159C2D889
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3904.jpgsave_picture_3904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3904.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:41258E14175D1C619401D45EBF8EAEA221F6548E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3905.jpgsave_picture_3905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3905.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Steinberg - SpectraLayers Pro 12 12.0.20.426 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3906.jpgsave_picture_3906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3906.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C70ACEFAAE51B02A4EBD28FC6BCA4561500A5FA8
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3907.jpgsave_picture_3907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3907.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:21D7B2CBCF581D58033662A4F51D1D34FA635402
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3908.jpgsave_picture_3908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3908.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:5983DE855EFB08076D6742C9398C96CD65D9B7E9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3909.jpgsave_picture_3909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3909.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B166DA4228CB333009CF5699D4642B12C24A13B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3910.jpgsave_picture_3910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3910.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Content Punks, Саша Чернышев | Хевирайтинг. Челлен�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3911.jpgsave_picture_3911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3911.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E17932F5E194CF6033B5E2ACC295C18AE683C160
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3912.jpgsave_picture_3912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3912.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:8DB56F4539D960B77AD3B99861F27FB935C6F56C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3913.jpgsave_picture_3913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3913.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Frezee - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3914.jpgsave_picture_3914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3914.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Glary Utilities Pro 6.30.0.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3915.jpgsave_picture_3915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3915.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ The Last Ski Trip (2025) [Ru/Multi] (3.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3916.jpgsave_picture_3916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3916.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:62D860C0074E492DFCE1132C2176F954C4B1A25D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3917.jpgsave_picture_3917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3917.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:DA49E8873E70E3098CCC8D4557BEC9DC81D774CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3918.jpgsave_picture_3918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3918.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:735EA178EA035A37AB54910D684DC1BAFE821D0F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3919.jpgsave_picture_3919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3919.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ StaxRip 2.50.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3920.jpgsave_picture_3920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3920.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:87AC05376E7FD15CAD3499FAA0098452C42D23AB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3921.jpgsave_picture_3921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3921.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:EDE0A2CEC2985082925D4E575669381BBE297E6E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3922.jpgsave_picture_3922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3922.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Franzis FOTO projects 3D #1 Pro 1.12.04285 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3923.jpgsave_picture_3923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3923.jpg" />
 </div>
 
 

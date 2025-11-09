@@ -6,7 +6,7 @@ Skype 8.128.0.207 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43231.jpgsave_picture_43231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43231.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Trance In Motion Vol.379 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43232.jpgsave_picture_43232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43232.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A5EA399846D590EB2BA4CD62BFBC5453F5967C38
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43233.jpgsave_picture_43233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43233.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1B6947E209D3A16A8ECFD2A235E22178F8A13993
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43234.jpgsave_picture_43234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43234.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7A950B431BCD9CA183AA7248B57C619C70DF7830
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43235.jpgsave_picture_43235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43235.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ocenaudio 3.14.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43236.jpgsave_picture_43236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43236.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F262E54DEBEA831857B5981F4C7A078F3A0B43F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43237.jpgsave_picture_43237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43237.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F262E54DEBEA831857B5981F4C7A078F3A0B43F5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43238.jpgsave_picture_43238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43238.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:07843FD414AFD06A948EDFF2D977666CB6197E2B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43239.jpgsave_picture_43239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43239.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:CEB7581F03B54207FF4EE55E866B6E536734E04D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43240.jpgsave_picture_43240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43240.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Morning Lounge Retreat: Chillout Your Mind (2024) (2024) [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43241.jpgsave_picture_43241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43241.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1FB2402A46F86E13AAA18E3CA786899C2B72FAE9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43242.jpgsave_picture_43242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43242.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:728FDFEBECC47A6C4A02A584C1903932B8181B3D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43243.jpgsave_picture_43243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43243.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D3F8D5B6553A271020F03553DE23A5F35A477BF2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43244.jpgsave_picture_43244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43244.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:B63DB983F4DC8E46893D4F96D9C00BAB977B6DC1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43245.jpgsave_picture_43245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43245.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43246.jpgsave_picture_43246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43246.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:33D41B6BD052B6096F2576EBE209E0652D9B1B6C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43247.jpgsave_picture_43247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43247.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:A301EED47CDEEAC7F5A6084D00C56E86049EC740
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43248.jpgsave_picture_43248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43248.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - DJ Hits Vol. 2040 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43249.jpgsave_picture_43249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43249.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Lakeview - Lakeview (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43250.jpgsave_picture_43250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43250.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ He Is Legend - Studio Albums (9 releases) (2004-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43251.jpgsave_picture_43251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43251.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Lao Tizer Band - Amplify (2024) [FLAC|Lossless|image + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43252.jpgsave_picture_43252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43252.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Julian Smith - Being with You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smoo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43253.jpgsave_picture_43253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43253.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Jhene Aiko - Chilombo (2020) Deluxe, 2020, Def Jam Recordings [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43254.jpgsave_picture_43254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43254.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Microsoft Visual Studio 2022 Enterprise 17.11.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43255.jpgsave_picture_43255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43255.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:5D309048CFFB74892A6630384F5174EADFDC6F4D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43256.jpgsave_picture_43256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43256.jpg" />
 </div>
 
 

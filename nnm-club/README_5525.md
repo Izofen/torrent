@@ -6,7 +6,7 @@ Internet Download Manager 6.38 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170622.jpgsave_picture_170622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170622.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Realpolitiks II (2021) [Ru/Multi] (1.09) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170623.jpgsave_picture_170623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170623.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Opera 65.0.3467.69 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170624.jpgsave_picture_170624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170624.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EC901FE1B745E92CAEFBBDB1A4630FF56CD93CAA
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170625.jpgsave_picture_170625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170625.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wireshark 3.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170626.jpgsave_picture_170626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170626.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Corona Renderer 9.1 for 3ds Max 2016-2023 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170627.jpgsave_picture_170627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170627.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Omni Recover 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170628.jpgsave_picture_170628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170628.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4F0BE7F9C46AC360E59D57AF481E098643B19DA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170629.jpgsave_picture_170629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170629.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1B2E958A412C2B3AB166F40CEE7B0EEDB52C10FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170630.jpgsave_picture_170630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170630.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:1608D460E20C04CC10D95E0FABCE09DF08827D49
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170631.jpgsave_picture_170631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170631.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Maxo Kream - Brandon Banks (2019) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170632.jpgsave_picture_170632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170632.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170633.jpgsave_picture_170633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170633.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:C832788D7C4D54CFE9209B23CCA330A1EC1B401D
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170634.jpgsave_picture_170634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170634.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:D91BF7CBD7C83FDC726615B324471E4F4B1AD81C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170635.jpgsave_picture_170635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170635.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ SyncBird Pro 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170636.jpgsave_picture_170636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170636.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Adobe Photoshop 2024 25.1.0.120 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170637.jpgsave_picture_170637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170637.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:A2F33D884DA26D929321C592A44C9C8E5C1A4824
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170638.jpgsave_picture_170638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170638.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Auslogics Duplicate File Finder 9.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170639.jpgsave_picture_170639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170639.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Maxon Cinema 4D Studio 2023.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170640.jpgsave_picture_170640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170640.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [En] (1.02) License
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170641.jpgsave_picture_170641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170641.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Reboot Restore Rx Professional 12.5 Build 2708962800 RePack by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170642.jpgsave_picture_170642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170642.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Navicat Premium 15.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170643.jpgsave_picture_170643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170643.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:A37FFF1DA275864B9B7522F1DD5A0CF45A4FFE79
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170644.jpgsave_picture_170644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170644.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:1447789B17A39C3B9526D072ABAEE0D844DBDCB5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170645.jpgsave_picture_170645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170645.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (4041) License GOG [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170646.jpgsave_picture_170646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170646.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:4F2C00629436E8F1F1EBA750CD85473F79A9D06A
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170647.jpgsave_picture_170647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170647.jpg" />
 </div>
 
 

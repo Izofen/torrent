@@ -6,7 +6,7 @@ Globular - Untangled Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175081.jpgsave_picture_175081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175081.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Menschdefekt - Recombination (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175103.jpgsave_picture_175103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175103.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175307.jpgsave_picture_175307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175307.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175323.jpgsave_picture_175323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175323.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Bra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175376.jpgsave_picture_175376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175376.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:2D702B25EAB7433B6DD58682E1F241FE09A3FF68
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175515.jpgsave_picture_175515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175515.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Domenique Dumont - People On Sunday (2020) Leaf [FLAC|Lossless|tracks + .cue] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175991.jpgsave_picture_175991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175991.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rian Treanor - File Under UK Metaplasm (2020) Planet Mu [FLAC|Lossless|tracks + 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176025.jpgsave_picture_176025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176025.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176162.jpgsave_picture_176162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176162.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hammock - Discography 40 Releases (2005-2020) Hammock Music, Darla Records [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176172.jpgsave_picture_176172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176172.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Depeche Mode - Delta Machine | The 12" Singles (2023) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177218.jpgsave_picture_177218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177218.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ ZHU - Musical Chairs Mixtape (Vol. 1) (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177311.jpgsave_picture_177311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177311.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Acryl Madness - Afterlife (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177350.jpgsave_picture_177350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177350.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electron
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177352.jpgsave_picture_177352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177352.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177438.jpgsave_picture_177438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177438.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Trance 2023 Vol.9 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177464.jpgsave_picture_177464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177464.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Levitated Trance: Autumn (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177576.jpgsave_picture_177576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177576.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Eleventyseven - Gloom & Bloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177578.jpgsave_picture_177578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177578.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Soothing Relaxation Lounge: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177936.jpgsave_picture_177936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177936.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ V.A. - Vintage Cafe – The Remixes Vol. 1-2 (2023) 2CD [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178070.jpgsave_picture_178070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178070.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Milk & Sugar House Nation Ibiza 2023 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178194.jpgsave_picture_178194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178194.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Chill with Colors: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178259.jpgsave_picture_178259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178259.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178357.jpgsave_picture_178357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178357.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Michael Rother - Solo (2019) 5×CD, Compilation [FLAC|Lossless|tracks + .cue] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178699.jpgsave_picture_178699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178699.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178929.jpgsave_picture_178929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178929.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Michael Rother - Solo II (2020) 7 × CD, Box Set, Compilation [FLAC|Lossless|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179255.jpgsave_picture_179255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179255.jpg" />
 </div>
 
 

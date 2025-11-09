@@ -6,7 +6,7 @@ Yat-Kha (Ят-Ха) - We Will Never Die (2021) [MP3|320 Kbps] <Ethno Rock, Folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238957.jpgsave_picture_238957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238957.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BusyCal 3 v3.12.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238960.jpgsave_picture_238960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238960.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ App Cleaner & Uninstaller Pro 7.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238961.jpgsave_picture_238961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238961.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:BF8CA3344597CB09D5DA979CE20EA361A7B5C01C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238962.jpgsave_picture_238962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238962.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B6BF88EF529F11D676C59DD46D6C85489AA5BEA3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238963.jpgsave_picture_238963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238963.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Allivm - Survivante (2023) [FLAC 2.0|192/24|tracks|WEB-DL] <Pop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238965.jpgsave_picture_238965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238965.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:0BC2E1F8FE6B9A1373FCCE58C47D5D9B325337FE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238966.jpgsave_picture_238966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238966.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Alice Cooper - School's Out (1972) 2CD, Expanded and Remastered, 2023, Rhino - W
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238967.jpgsave_picture_238967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238967.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - Hits Disco and Pop Dance - Part VI (2016) [MP3|256 Kbps] <Pop, Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238969.jpgsave_picture_238969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238969.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Campfire Sigh - Different Peninsulas (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238971.jpgsave_picture_238971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238971.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:9D2D7D1778AFBBAF6FAE3176A09EEFF9863C796D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238972.jpgsave_picture_238972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238972.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ BusyContacts 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238974.jpgsave_picture_238974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238974.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Marc Bolan & T. Rex - Star King (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238975.jpgsave_picture_238975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238975.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Pasquale Grasso - Solo Masterpieces (2021) Sony Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238976.jpgsave_picture_238976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238976.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238977.jpgsave_picture_238977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238977.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - I Love Ballads - Part XII (2016) [MP3|224 Kbps] <Rock, Pop, Chanson>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238979.jpgsave_picture_238979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238979.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Policromia - Sintagma (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, He
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238980.jpgsave_picture_238980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238980.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ xStand 6.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238981.jpgsave_picture_238981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238981.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:8A9E5AAA928EA94FD4C4F9C755944C6F0BADD67F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238983.jpgsave_picture_238983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238983.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:39E6023043328F4C7C3F76AFE47863C8666C9039
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238985.jpgsave_picture_238985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238985.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Menschdefekt - Empty World (2020) [FLAC|Lossless|image + .cue] <EBM, Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238987.jpgsave_picture_238987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238987.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Aletsch - 2 Albums (2019, 2021) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238988.jpgsave_picture_238988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238988.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ AmanVPN 2.1.7.0425 RePack by pablo-escalade [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238989.jpgsave_picture_238989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238989.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:ED4303FD3DB27E76C082EE5889AA94FEA5070769
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238990.jpgsave_picture_238990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238990.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:2590A819164458790D085F43FE49D40147EDAC6D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238991.jpgsave_picture_238991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238991.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:58DE17D9D52B2EBF0485319EACA4DD364B9ED378
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238993.jpgsave_picture_238993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238993.jpg" />
 </div>
 
 

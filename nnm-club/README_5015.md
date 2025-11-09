@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156733.jpgsave_picture_156733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156733.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:241FA42D67355718C9DD71E6F0B5B2459D77361E
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156734.jpgsave_picture_156734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156734.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F85A3938A72ADA03C85EFB40097C1C2743AA2D20
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156735.jpgsave_picture_156735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156735.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Music News vol.58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156736.jpgsave_picture_156736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156736.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - The Christmas Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156737.jpgsave_picture_156737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156737.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:01AC8BE62FE7E85FD5016876AF20871D2F22CE9F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156739.jpgsave_picture_156739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156739.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A828934B1FDEED3714243A09D601B8B29F27C0AD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156741.jpgsave_picture_156741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156741.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Amazon Music Best Songs Of 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156742.jpgsave_picture_156742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156742.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Chris Rea - King Of The Beach (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156744.jpgsave_picture_156744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156744.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:54034C1C8A326640D0724D2879ACB28BDC863867
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156745.jpgsave_picture_156745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156745.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:EDB09AA8CB5C61B228DE8FAC8AE96CA63BDB270E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156746.jpgsave_picture_156746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156746.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:2930B45B37BF65CD8C12A269934052875F8F235C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156747.jpgsave_picture_156747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156747.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:7530B9762775E71544511E31A52CEB1D91ABA504
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156748.jpgsave_picture_156748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156748.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:BD80BC044A24D32EE018B00A78C9E172DB8F782B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156749.jpgsave_picture_156749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156749.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E24E4D60EC92448406FD24388600E5D311FD8621
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156752.jpgsave_picture_156752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156752.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:427DE7DC322048209FC9ED8C1F30871CD1C40970
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156753.jpgsave_picture_156753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156753.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Ocean Waves & Sea Sound Relax (2016) [MP3|320 Kbps] <Downtempo, Chillout, I
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156755.jpgsave_picture_156755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156755.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:C45AB66E50824B8CCB0365AD48DE85FF78D0A8DD
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156756.jpgsave_picture_156756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156756.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Corynne Charby - Reference 80 (2011) Compilation [MP3|320 Kbps] <New Wave, Chans
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156757.jpgsave_picture_156757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156757.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:DA62931009E03362314DCE4921BD177DA211CCC2
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156758.jpgsave_picture_156758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156758.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Conceiva DownloadStudio 10.0.4.0 RePack by вовава [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156759.jpgsave_picture_156759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156759.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Native Instruments - Kontakt 6.2.1 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156760.jpgsave_picture_156760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156760.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:C35D8490389ADF6C33665AF70B1D6B4A2E9D6E60
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156764.jpgsave_picture_156764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156764.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ AOMEI Partition Assistant Technician Edition 8.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156765.jpgsave_picture_156765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156765.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Corporate Templates - Business Stationery 3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156766.jpgsave_picture_156766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156766.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:49E1BFE22FA5DFBF566753B1B42C7A71FEE0BDAF
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156767.jpgsave_picture_156767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156767.jpg" />
 </div>
 
 

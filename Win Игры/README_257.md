@@ -6,7 +6,7 @@ Starri (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174369.jpgsave_picture_174369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174369.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174698.jpgsave_picture_174698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174698.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174866.jpgsave_picture_174866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174866.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174930.jpgsave_picture_174930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174930.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Pentiment (2022) [Multi] (1.0.1212) License Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175226.jpgsave_picture_175226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175226.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.6a/dlc) License GOG [Dress
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175522.jpgsave_picture_175522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175522.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Base One (2021) [Ru/Multi] (1.4.0.8_e41965c41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175744.jpgsave_picture_175744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175744.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (1.1.15.5/dlc) License FLT [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175747.jpgsave_picture_175747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175747.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mystery Case Files 24: The Last Resort / За семью печатями 24: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175916.jpgsave_picture_175916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175916.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Living Legends 10: The Blue Chamber / Живые легенды 10: Синяя �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175918.jpgsave_picture_175918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175918.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Christmas Stories 11: Taxi of Miracles (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176053.jpgsave_picture_176053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176053.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Batman: Arkham Origins / Batman: Летопись Аркхема (2013) [Ru/En] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176100.jpgsave_picture_176100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176100.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Surge (2017) [Ru/Multi] (55623) License GOG [Augmented Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176157.jpgsave_picture_176157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176157.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.513/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176218.jpgsave_picture_176218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176218.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Tenants (2021) [Ru/Multi] (1.2.9/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176229.jpgsave_picture_176229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176229.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176233.jpgsave_picture_176233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176233.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Christmas Stories 9: The Christmas Tree Forest / Рождественские и
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176299.jpgsave_picture_176299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176299.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176312.jpgsave_picture_176312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176312.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (1.0/dlc) Scene Rune [Digital Deluxe
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176320.jpgsave_picture_176320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176320.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Iron Dungeon (2023) [Ru/En] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176346.jpgsave_picture_176346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176346.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176371.jpgsave_picture_176371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176371.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (0.5.9) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176392.jpgsave_picture_176392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176392.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176408.jpgsave_picture_176408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176408.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176418.jpgsave_picture_176418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176418.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bilkins Folly (2023) [En] (1.0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176443.jpgsave_picture_176443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176443.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Halloween Stories 6: Mark on the Bone / Хеллоуинские истории 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176538.jpgsave_picture_176538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176538.jpg" />
 </div>
 
 

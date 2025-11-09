@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183201.jpgsave_picture_183201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183201.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1DC733C8F715112C467592B02311C291233DBE2E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183202.jpgsave_picture_183202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183202.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183203.jpgsave_picture_183203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183203.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:0B21BD40FAFB97AF20AC965FB64E0BE21F0A406A
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183204.jpgsave_picture_183204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183204.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Don Letts - Outta Sync (2023) [MP3|320 Kbps] <Dub Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183207.jpgsave_picture_183207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183207.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Foreigner - The Can't Slow Down: B-Sides and Extra Tracks (2020) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183208.jpgsave_picture_183208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183208.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Marfa Motel - Wild Lifee Strangers (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183210.jpgsave_picture_183210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183210.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:F8098E03F47D8150AD8ED98196E3C08B9A22F816
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183211.jpgsave_picture_183211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183211.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:CB26C539457B5234B5C452C650F16D80A548E76E
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183213.jpgsave_picture_183213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183213.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:0CD08E6E0950C5D506F144B8236DA45B389E971B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183214.jpgsave_picture_183214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183214.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:784D24E93C2C7ADC1B001773C095F76178EEB7B6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183216.jpgsave_picture_183216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183216.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Annette Lowman - Movies Memories (1992) Le Chant du Monde [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183217.jpgsave_picture_183217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183217.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ VA - ЕвроХит Топ 40 Europa Plus 27.11.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183219.jpgsave_picture_183219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183219.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Steve Turre - Fire And Ice (1988) Stash [WavPack|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183220.jpgsave_picture_183220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183220.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Alex Remark - Nephertity (1996) [OGG Vorbis|480 Kbps] <Electronic, Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183222.jpgsave_picture_183222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183222.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Thomas Anders - Christmas For You (Remastered 2020) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183223.jpgsave_picture_183223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183223.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Ibiza Autumn Mix 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183226.jpgsave_picture_183226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183226.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Lawful Killing - The First Division (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183227.jpgsave_picture_183227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183227.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ FontExplorer X Pro 7 v7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183228.jpgsave_picture_183228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183228.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:ED23AB64278E5C0B5B540AA33FBAC61927876F40
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183231.jpgsave_picture_183231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183231.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:25E6BAB0C8803BE49C96D35D25892198C5D6F06F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183232.jpgsave_picture_183232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183232.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:030B872779599FB68EBB6FEB64A45C1239F592B6
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183233.jpgsave_picture_183233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183233.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:20ECEB445180E071FA3EF5A9442DE560FE034ABC
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183235.jpgsave_picture_183235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183235.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Within Temptation - Live In Hell (2023) Compilation [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183237.jpgsave_picture_183237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183237.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:63480C703C8101ECDA2E55616E70E7469360F656
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183238.jpgsave_picture_183238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183238.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VA - Electrónica Para Fiestas 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, H
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183241.jpgsave_picture_183241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183241.jpg" />
 </div>
 
 

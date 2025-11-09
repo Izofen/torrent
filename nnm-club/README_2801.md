@@ -6,7 +6,7 @@
 >>Kinder Games для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80091.jpgsave_picture_80091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80091.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:6CF14B5F2321A895D00C9C0967D57FEFB002E711
 >>Обучающее Видео для родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80092.jpgsave_picture_80092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80092.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kateikyoushi Hitman Reborn! / Учитель-мафиози Реборн! [2006,
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80093.jpgsave_picture_80093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80093.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Kateikyoushi Hitman Reborn! / Учитель-мафиози Реборн! [2006,
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80094.jpgsave_picture_80094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80094.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Kateikyoushi Hitman Reborn! / Учитель-мафиози Реборн! [2006,
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80100.jpgsave_picture_80100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80100.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Alien Skin Blow Up 3.0.0.628 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80101.jpgsave_picture_80101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80101.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Blow Up включает продвинутые возможности таки�
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80104.jpgsave_picture_80104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80104.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Blow Up включает продвинутые возможности таки�
 >>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80108.jpgsave_picture_80108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80108.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ FORMULA 1 - 2012
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80111.jpgsave_picture_80111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80111.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Bandicam 1.7.5.166 [Multi / Rus]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80113.jpgsave_picture_80113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80113.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Deep Black Reloaded [Ru] (L) 2012 | SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80114.jpgsave_picture_80114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80114.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Nero Multimedia Suite Platinum 11.2.00400 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80115.jpgsave_picture_80115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80115.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Nero 11 позволяет по-новому создавать и предос�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80119.jpgsave_picture_80119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80119.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:FEDD23129DC4CCE99BAB1D369B31C6FCFCE625A1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80127.jpgsave_picture_80127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80127.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:4A5D2A4225A1F4356416AEB82132FD468EE6E65F
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80133.jpgsave_picture_80133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80133.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:D9B4907A8936E502B865322C4CB4A9F06A517FD1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80136.jpgsave_picture_80136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80136.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:D9B4907A8936E502B865322C4CB4A9F06A517FD1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80141.jpgsave_picture_80141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80141.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Serebro - Опиумroz (2009) [FLAC|Lossless]<Рop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80142.jpgsave_picture_80142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80142.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Serebro - Опиумroz (2009) [FLAC|Lossless]<Рop>
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80144.jpgsave_picture_80144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80144.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Katie Melua - Secret Symphony (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80146.jpgsave_picture_80146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80146.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Xilisoft DVD Copy Express 2.0.1 build-0112 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80148.jpgsave_picture_80148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80148.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Xilisoft DVD Copy 2 - gростая в использовании и быстр�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80154.jpgsave_picture_80154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80154.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Xilisoft DVD Copy 2 - gростая в использовании и быстр�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80155.jpgsave_picture_80155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80155.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Stevie Wonder - World Ballads Collection (1999) [MP3|320 кб/с]<Pop, Soul, Jaz
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80156.jpgsave_picture_80156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80156.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:C1795F1C457E6C6908D6BD807F342B96C400FD3B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80158.jpgsave_picture_80158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80158.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Mauro - Buona Sera - Ciao Ciao (1987) [FLAC|Lossless]<Italo-Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80159.jpgsave_picture_80159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80159.jpg" />
 </div>
 
 

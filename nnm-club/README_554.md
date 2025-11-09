@@ -6,7 +6,7 @@ Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14715.jpgsave_picture_14715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14715.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14716.jpgsave_picture_14716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14716.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14717.jpgsave_picture_14717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14717.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Insania - The Great Apocalypse (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14718.jpgsave_picture_14718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14718.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:FCB83541CCE621F78A1D31E49E073CCFB5CBFF76
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14719.jpgsave_picture_14719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14719.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14720.jpgsave_picture_14720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14720.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Saxon - Eagles Over Hellfest (2025) Live [MP3|320 Kbps] <Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14721.jpgsave_picture_14721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14721.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ NoiZZy - Dreamland (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14722.jpgsave_picture_14722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14722.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:FCAB9B9618EF77C098A267E67060A1D733AD6BC2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14723.jpgsave_picture_14723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14723.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14724.jpgsave_picture_14724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14724.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Beautiful South - Welcome to the Beautiful South (1990) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14725.jpgsave_picture_14725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14725.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14726.jpgsave_picture_14726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14726.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Highsociety - Datamosh (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14727.jpgsave_picture_14727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14727.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14728.jpgsave_picture_14728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14728.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [MP3|320 Kbps]
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14729.jpgsave_picture_14729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14729.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14730.jpgsave_picture_14730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14730.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14731.jpgsave_picture_14731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14731.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14732.jpgsave_picture_14732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14732.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Compilation Part 168 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14733.jpgsave_picture_14733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14733.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:CC105876DF687B84F0F8751F898BE16D78A21A8C
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14734.jpgsave_picture_14734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14734.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:1F880ED10830F9472D5FD46588423C6938921DBD
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14735.jpgsave_picture_14735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14735.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:6BC9A0497E36A90D75A943C83F9B291FA302B2DA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14736.jpgsave_picture_14736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14736.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E9C5B289EC2468D90E33A61867E3747AD2A0B75F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14737.jpgsave_picture_14737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14737.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:4D258BDFDA66C678A5198F5CF11BF0B802CD910B
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14738.jpgsave_picture_14738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14738.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:182057F8544E75A11AFC79F16ED0F47B88EC6C9D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14739.jpgsave_picture_14739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14739.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ AirBrush: ИИ Фоторедактор v7.9.0 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14740.jpgsave_picture_14740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14740.jpg" />
 </div>
 
 

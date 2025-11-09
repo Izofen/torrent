@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164883.jpgsave_picture_164883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164883.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D65AFBEEA9D58251DDDFFF61B3045F0F87AF1E9F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164884.jpgsave_picture_164884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164884.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ B.B. King - One Kind Favor (2008) [WavPack|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164885.jpgsave_picture_164885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164885.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Hetman Partition Recovery 4.5 Home / Office / Commercial / Unlimited Edition ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164886.jpgsave_picture_164886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164886.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D838077D691DE9658E6A74B4F78BA9D7E1D10FAB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164887.jpgsave_picture_164887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164887.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:97BC4DCB768141067A11B23509DA6C6187E12D27
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164889.jpgsave_picture_164889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164889.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:44C23702B045D6D539142080FD0D6C84B102E6FD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164890.jpgsave_picture_164890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164890.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Top Dance Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Electro Pop, Indie D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164891.jpgsave_picture_164891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164891.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:E103E8BC8610F433BCBB160BA6381CBE601F7384
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164892.jpgsave_picture_164892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164892.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:F4CA1677934B86E3475E3AE5E7CEBBC00BAF7558
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164893.jpgsave_picture_164893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164893.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Transcend SSD Scope 4.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164894.jpgsave_picture_164894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164894.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:F5BB1190246A7434FAB306269A49882F5D809B67
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164895.jpgsave_picture_164895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164895.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:0280730D31377872325F3C8B965B82854ADAC1E2
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164896.jpgsave_picture_164896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164896.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:670444A800BF98BED6C2F9DF189DCCED684B0142
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164897.jpgsave_picture_164897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164897.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:A06C9C165CCF8F2D54C6057705E77353E13FD52F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164898.jpgsave_picture_164898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164898.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ TechSmith Camtasia 21.0.15 (Build 34558) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164899.jpgsave_picture_164899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164899.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Light Image Resizer 6.1.6.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164900.jpgsave_picture_164900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164900.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:3E84780EC8C1A7F085A859A527BFE4A119631C3B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164901.jpgsave_picture_164901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164901.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Logic Pro X 10.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164902.jpgsave_picture_164902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164902.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:B7F63358D12FBEE0397CC33CCFB9B89A3B6F344D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164903.jpgsave_picture_164903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164903.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:A6C648EDF3F412AAFD2AE18C38E57D9E43417F9F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164904.jpgsave_picture_164904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164904.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:2475ABCA03BCD2E34A11BDC9E007ECA9A378E6CD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164905.jpgsave_picture_164905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164905.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:4BCF2743F976701333382BCA99AFC31A791DB8F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164906.jpgsave_picture_164906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164906.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Arturia - Synth Collection 2019.12 STANDALONE, VSTi, VSTi3, AAX (x64) RePack by 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164907.jpgsave_picture_164907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164907.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ YTD Video Downloader Pro 7.6.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164908.jpgsave_picture_164908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164908.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:BD671CF1665A1002E9229EC1241A158BE4603759
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164909.jpgsave_picture_164909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164909.jpg" />
 </div>
 
 

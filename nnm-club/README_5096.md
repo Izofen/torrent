@@ -6,7 +6,7 @@
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159212.jpgsave_picture_159212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159212.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E2A754C02B0D685F4673E38A8891FFEDBCAC0BE8
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159213.jpgsave_picture_159213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159213.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:52DA9E94CCB182D378CB7CDAC957E164D9A7F6BB
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159214.jpgsave_picture_159214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159214.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Immense slow blues (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159215.jpgsave_picture_159215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159215.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ WPS Office + PDF 18.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159216.jpgsave_picture_159216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159216.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by maxi123444 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159217.jpgsave_picture_159217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159217.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:54CEE7A823476478953F0D226FA23BA4BE200224
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159218.jpgsave_picture_159218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159218.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:668027A2AEF9FF88C453B6EA56BE115F1CF725C8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159219.jpgsave_picture_159219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159219.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ DVDFab StreamFab 6.1.4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159220.jpgsave_picture_159220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159220.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Kalachevaschool, Анна Чайникова | Рассвет акрила. Та
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159221.jpgsave_picture_159221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159221.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Notepad++ 8.4.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159222.jpgsave_picture_159222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159222.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:091EEED535CBAED596731904C13E3303E131A05D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159223.jpgsave_picture_159223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159223.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6AB52138E526500CECC1343CAAF17F13A27FD067
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159224.jpgsave_picture_159224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159224.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:8DC9E42DB57E44851F412EC0BADACB928051BC83
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159225.jpgsave_picture_159225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159225.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:359A7AAE86305D4BBACBE766478B912FD6F03586
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159226.jpgsave_picture_159226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159226.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Easy Listening Chill Affairs, Vol. 3 (2023) [MP3|320 Kbps] <Electronic, Eas
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159227.jpgsave_picture_159227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159227.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:12BBF60B714ECAACD392A81F2E8919A510E85FEC
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159228.jpgsave_picture_159228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159228.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ MailWasher Pro 7.12.184 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159229.jpgsave_picture_159229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159229.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:FC94B54F205E40EA9C115D7BFE7D4D68B0957967
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159230.jpgsave_picture_159230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159230.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:0A01E7A4F812A5FDD0383F7D5BC572F0AF60FF94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159231.jpgsave_picture_159231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159231.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Image Uploader 1.3.3 Build 4957 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159232.jpgsave_picture_159232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159232.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Grim Tales 24: All Shades of Black (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159233.jpgsave_picture_159233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159233.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:F376AE575070459604E8C5475B39163D950363AE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159234.jpgsave_picture_159234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159234.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Easy Listening Chill Affairs, Vol. 1 (2022) [MP3|320 Kbps] <Electronic, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159235.jpgsave_picture_159235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159235.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Cockos REAPER 6.73 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159236.jpgsave_picture_159236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159236.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Frank Sinatra - Platinum (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159237.jpgsave_picture_159237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159237.jpg" />
 </div>
 
 

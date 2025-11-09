@@ -6,7 +6,7 @@ VA - Compilation of the Year (2020) [FLAC|Lossless|WEB-DL|tracks] <Pure Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183242.jpgsave_picture_183242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183242.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mister Earthbound - Shadow Work (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183243.jpgsave_picture_183243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183243.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7481A5B45CE21B4E41B1FF22DEB7015F79392460
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183245.jpgsave_picture_183245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183245.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A99C512DC079E7EE60203E89140B160CB3C78894
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183247.jpgsave_picture_183247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183247.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Powerhead - Curse Of Stone (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183249.jpgsave_picture_183249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183249.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:1EFAACA0806C13A66FDA9B1731110DFBA0DFAB6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183251.jpgsave_picture_183251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183251.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183253.jpgsave_picture_183253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183253.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mindless Paradise - Faerie's Aire and Death Waltz (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183256.jpgsave_picture_183256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183256.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183257.jpgsave_picture_183257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183257.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Alanis Morissette - Jagged Little Pill (1995) Maverick 9362-45901-2 [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183258.jpgsave_picture_183258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183258.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:4A8F01958206FF05C34FC6669DFC99F428A30340
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183260.jpgsave_picture_183260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183260.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Legal Hate - Moral Destruction (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183262.jpgsave_picture_183262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183262.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC|Lossless|tracks + .cue] <Brutal De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183263.jpgsave_picture_183263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183263.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Mono Inc. - Melodies in Black (2020) 2xCD [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183266.jpgsave_picture_183266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183266.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:C2930374E287A7701FE43A6B1ED3E99B3C2E5330
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183267.jpgsave_picture_183267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183267.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:9EE19FCC00608C64D824EB86198E853B21781573
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183268.jpgsave_picture_183268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183268.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:0D5CD0173BBBF4D6D2F9BFEDCBCE426E64A15782
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183271.jpgsave_picture_183271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183271.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ We Killed The Lion - Boogie Shoe Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183272.jpgsave_picture_183272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183272.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:6BB61D4BB4B2C6DA89445FF1C64BE03D0CC541FB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183273.jpgsave_picture_183273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183273.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:59A70B7B4993F1EE4C43C0F6FD9DA30D548A0E94
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183276.jpgsave_picture_183276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183276.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Doodseskader - Year One (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Grun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183277.jpgsave_picture_183277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183277.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Tuple - Paradise Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183278.jpgsave_picture_183278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183278.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (2023) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183281.jpgsave_picture_183281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183281.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Wondershare Recoverit 9.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183282.jpgsave_picture_183282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183282.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Law of Contagion - Oecumenical Rites for the Antichrist (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183283.jpgsave_picture_183283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183283.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:BED33114565EA233112AB75D80F3B7C01A12DB40
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183285.jpgsave_picture_183285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183285.jpg" />
 </div>
 
 

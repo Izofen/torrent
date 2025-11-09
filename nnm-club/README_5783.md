@@ -6,7 +6,7 @@ CintaNotes Pro + Portable 3.14 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179939.jpgsave_picture_179939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179939.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:795B23282AB0DF92BB283564507A6AACB4B0E559
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179941.jpgsave_picture_179941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179941.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0C3F5E0835CA1638E0C6422D57A3CC11D46BAE22
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179944.jpgsave_picture_179944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179944.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:199E99FC822A4805B30253C5DCEF62892ADEDED5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179945.jpgsave_picture_179945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179945.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:0061B7B676A1817A442C4975458F6D464D77CB02
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179948.jpgsave_picture_179948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179948.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ AIMP 5.11 Build 2436 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179949.jpgsave_picture_179949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179949.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Reg Organizer 9.30 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179952.jpgsave_picture_179952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179952.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dark Matter - The Rectory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179954.jpgsave_picture_179954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179954.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Glary Disk Cleaner 5.0.1.283 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179957.jpgsave_picture_179957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179957.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ WonderFox HD Video Converter Factory Pro 26.7 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179958.jpgsave_picture_179958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179958.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Psiphon 3 build 179 (03.10.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179960.jpgsave_picture_179960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179960.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Once Human - Scar Weaver (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179962.jpgsave_picture_179962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179962.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B45FB1572CB6060B9BDED2462F592DC67CEF0332
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179963.jpgsave_picture_179963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179963.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CDE98679C89D452099F57F9197D7A20FFEA15B22
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179966.jpgsave_picture_179966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179966.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:0D3C2A3722BB78CFE432EB9E8B27C6024FA6EDE0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179967.jpgsave_picture_179967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179967.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:397F8A3D10794278F1C0C442BD9048D617676454
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179973.jpgsave_picture_179973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179973.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:33F055258DCA1457AD95B28D05F1B509CEF131BE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179974.jpgsave_picture_179974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179974.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:59211528648CF60F64D9CF914C95445B6C53E1ED
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179975.jpgsave_picture_179975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179975.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ League Of Distortion - League of Distortion (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179977.jpgsave_picture_179977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179977.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:FF650E6A6F6E666DEE0F2E660D2323B17AF3550E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179979.jpgsave_picture_179979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179979.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Steelwings - Still Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179982.jpgsave_picture_179982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179982.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Black Paisley - Human Nature (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179983.jpgsave_picture_179983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179983.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:66B4312F91BFF41FB693BE829BF557AC500ADBDD
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179986.jpgsave_picture_179986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179986.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:ECD199419BDAF5A4BA3EDA331FBB07A81D5410A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179988.jpgsave_picture_179988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179988.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:04B4E53DF8A0097C5F83C45BBED1B6EF7F92044B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179990.jpgsave_picture_179990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179990.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Wildness - Wildness (2017) Reissue, 2022, ERFX Productions [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179991.jpgsave_picture_179991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179991.jpg" />
 </div>
 
 

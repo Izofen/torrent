@@ -6,7 +6,7 @@ Udemy, Bogdan Stashchuk | CSS - Полный Курс по CSS (2024) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120915.jpgsave_picture_120915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120915.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Patreon, Timur Shemsedinov | Технологический стек Node.js (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120918.jpgsave_picture_120918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120918.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ OTUS , Алексей Кулиничев, Роман Помазанов, Ива�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121241.jpgsave_picture_121241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121241.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Udemy, Andre LaMothe | Fast and Furious Game Development with JavaScript and AI 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121357.jpgsave_picture_121357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121357.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121367.jpgsave_picture_121367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121367.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:639AE0591A902AA9C7846EE8D4D823FA726F330D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121463.jpgsave_picture_121463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121463.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Udemy, John Smilga | NextJS & OpenAI - 2024 Edition (2023) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121609.jpgsave_picture_121609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121609.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121630.jpgsave_picture_121630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121630.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121640.jpgsave_picture_121640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121640.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121782.jpgsave_picture_121782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121782.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121793.jpgsave_picture_121793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121793.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121934.jpgsave_picture_121934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121934.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121968.jpgsave_picture_121968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121968.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122064.jpgsave_picture_122064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122064.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ WebRTCcourse, Tsahi Levent-Levi | Higher-level WebRTC Protocols (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122201.jpgsave_picture_122201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122201.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Net Ninja | TypeScript Masterclass (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122257.jpgsave_picture_122257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122257.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ education.empireschool | Excel и Google-таблицы (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122296.jpgsave_picture_122296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122296.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ learn.nestjs.com | NestJS. Architecture and Advanced Patterns (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122299.jpgsave_picture_122299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122299.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ WebRTCcourse, Tsahi Levent-Levi | Low-level WebRTC Protocols (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122399.jpgsave_picture_122399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122399.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:5D80DEA06F49C7D8E8769ACEBF097CD5E5CC6B34
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122669.jpgsave_picture_122669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122669.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:491F6208EB23BD0DE46BC3CBCCA482CCC0C38735
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122692.jpgsave_picture_122692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122692.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Softwaretesting, Арсений Батыров, Виталий Котов | Ав
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122984.jpgsave_picture_122984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122984.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Podlodka Crew | Podlodka QA Crew. Сезон 7. Оптимизируем про�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122992.jpgsave_picture_122992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122992.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:8AC92B8530A239EA0F267B11E8594A169CC8823E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123005.jpgsave_picture_123005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123005.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Stepik, Глеб Учитель | Проектирование архитект�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123010.jpgsave_picture_123010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123010.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ frontcat1 | Грокаем собеседования. Frontend developer (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123014.jpgsave_picture_123014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123014.jpg" />
 </div>
 
 

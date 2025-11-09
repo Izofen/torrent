@@ -6,7 +6,7 @@ Tidy Up 6.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233894.jpgsave_picture_233894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233894.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Librarian Pro 7 v7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233896.jpgsave_picture_233896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233896.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinTools.net Premium 23.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233897.jpgsave_picture_233897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233897.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5BDE4B5D7F10DC4A8043F9D0DE2FE579D3471238
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233898.jpgsave_picture_233898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233898.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C6EA8552903170FD5BD075A21D31BE021764C10D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233899.jpgsave_picture_233899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233899.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Carrol McLaughlin - Jazz Harp (1985) 1997, Self-Released [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233900.jpgsave_picture_233900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233900.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B44CE88410C651E8DB803E5931121891B66F9FB9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233901.jpgsave_picture_233901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233901.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:26AB86BD509F1A53E40E6E2304DFEE54E08A49EB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233903.jpgsave_picture_233903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233903.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ CG Cookie, Kent Trammell | Creating Hair Cards for Realtime Characters in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233904.jpgsave_picture_233904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233904.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:7ADB2CAF3EEE1089383AF96BDB6136CC4FD9BD17
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233905.jpgsave_picture_233905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233905.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E8B578208043B5F134D8C32CC1DB5A9781E5C693
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233906.jpgsave_picture_233906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233906.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Altaria - Invitation (2003) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233907.jpgsave_picture_233907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233907.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Degrees of Truth - The Reins of Life (2016) [MP3|320 Kbps] <Symphonic Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233908.jpgsave_picture_233908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233908.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:6F342D3FD3AA414632443A89659E807BF0502015
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233910.jpgsave_picture_233910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233910.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ FSNotes 5.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233911.jpgsave_picture_233911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233911.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ V Recorder - Запись видео с экрана 7.0.9 Mod by 0x7d, Mixroot 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233914.jpgsave_picture_233914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233914.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Norium - A Journey Through the Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233915.jpgsave_picture_233915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233915.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ PureSync 7.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233916.jpgsave_picture_233916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233916.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:EA5EA984326C18A7EB3FE478D7ADACB45CB2D0ED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233917.jpgsave_picture_233917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233917.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Geezer - 9 Relises (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blues Rock, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233919.jpgsave_picture_233919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233919.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:B7F1538BBCB23BC7D997D2153F560334DD6DFF44
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233920.jpgsave_picture_233920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233920.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Phase One Capture One 22 Enterprise 15.4.0.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233921.jpgsave_picture_233921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233921.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Dexter Gordon Quartet - Live in Chateauvallon (1978) 2CD, 2020, Elemental Music 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233922.jpgsave_picture_233922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233922.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Kytowrath - Past to Become (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233923.jpgsave_picture_233923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233923.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Maxthon Browser 7.0.2.2001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233924.jpgsave_picture_233924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233924.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:46E7C63E0D8D2E160B8C8CA872B57229C8DE98B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233925.jpgsave_picture_233925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233925.jpg" />
 </div>
 
 

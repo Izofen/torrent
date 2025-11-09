@@ -6,7 +6,7 @@ RJ TextEd 15.95.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188569.jpgsave_picture_188569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188569.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nixil - From the Wound Spilled Forth Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188571.jpgsave_picture_188571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188571.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Brad Mehldau - Your Mother Should Know: Brad Mehldau Plays The Beatles (2020) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188573.jpgsave_picture_188573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188573.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MacX MediaTrans 7.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188574.jpgsave_picture_188574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188574.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:AE8F9CB56067B6343D19B62FBE7E917D931436D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188576.jpgsave_picture_188576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188576.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:9567DA27F6FA7EF57287254E812A633BAAD911B2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188577.jpgsave_picture_188577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188577.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:571CB38DDB594DCAAD63DBBF7EAAB578C5A619AC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188578.jpgsave_picture_188578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188578.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:5A5FF552C0BBAE1410D3BDD5513930575F9E77BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188579.jpgsave_picture_188579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188579.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ ZEDGE 8.17.0-beta Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188581.jpgsave_picture_188581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188581.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:3E4345402CB03915B44F74D726169679F7511111
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188582.jpgsave_picture_188582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188582.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ File Cabinet Pro 8.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188583.jpgsave_picture_188583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188583.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:CDB905B5874AE052766AA8B4F099AF618F0CD319
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188585.jpgsave_picture_188585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188585.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Eunomia - The Chronicles Of Eunomia, Pt. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188586.jpgsave_picture_188586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188586.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Native Instruments - Guitar Rig 6 Pro 6.2.4 STANDALONE, VST, VST3, AAX (x64) [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188587.jpgsave_picture_188587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188587.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ignition - Vengeance (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188588.jpgsave_picture_188588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188588.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:5C0255A8FCD7C1F76D774B81DF5BBC21DFADBC7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188590.jpgsave_picture_188590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188590.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ PCalc 4.10.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188591.jpgsave_picture_188591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188591.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Jag Panzer - Casting the Stones (2004) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188592.jpgsave_picture_188592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188592.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:2A7F772768F213CF8649CBD643B84B011CD62F8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188594.jpgsave_picture_188594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188594.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Mortician - Chainsaw Dismemberment (1999) [FLAC|Lossless|WEB-DL|tracks] <Brutal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188595.jpgsave_picture_188595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188595.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:DA5E03605AEDF8B49B14B0701EB2356E490B37E2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188597.jpgsave_picture_188597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188597.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Yoink 3.6.86  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188598.jpgsave_picture_188598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188598.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:3B6291B15F01F0D250E746007F31FA3D635440C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188599.jpgsave_picture_188599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188599.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:2C6C44E97A734ED53371E82ED3A9922F8C74A227
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188600.jpgsave_picture_188600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188600.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:939AF40DDAE4F6573950DF316DBE8E4F10F1CE89
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188601.jpgsave_picture_188601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188601.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:56274FE2C4D4BC28372C7113D3FAD5CE45E8A2A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188602.jpgsave_picture_188602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188602.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137217.jpgsave_picture_137217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137217.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Duke of Alpha Centauri (2016) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137232.jpgsave_picture_137232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137232.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137256.jpgsave_picture_137256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137256.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137259.jpgsave_picture_137259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137259.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vaccine Rebirth (2023) [Multi] (1.3.4) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137278.jpgsave_picture_137278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137278.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Cramped Room of Death (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137294.jpgsave_picture_137294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137294.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.33.2.12s/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137342.jpgsave_picture_137342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137342.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ NecroVisioN + NecroVisioN: Lost Company (2009-2010) [Ru/En] (1.2/1.1) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137346.jpgsave_picture_137346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137346.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Minecraft: Story Mode A Telltale Games Series (2015) [Ru/En] (1.0) Repack R.G. �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137360.jpgsave_picture_137360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137360.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grave Danger (2016) [En] (1.0.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137373.jpgsave_picture_137373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137373.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Champions of Anteria (2016) [Ru/En] (1.7.499537.X/dlc) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137416.jpgsave_picture_137416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137416.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137454.jpgsave_picture_137454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137454.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven / Темные Истории 10: Э�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137465.jpgsave_picture_137465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137465.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137469.jpgsave_picture_137469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137469.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Yuletide Legends 2: Frozen Hearts / Святочные истории 2: Хол�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137514.jpgsave_picture_137514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137514.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Helldorado (2009) [Multi] (2.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137521.jpgsave_picture_137521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137521.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Teslagrad (2013) [Ru/Multi] (1.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137532.jpgsave_picture_137532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137532.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137588.jpgsave_picture_137588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137588.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Delicious: Emily's Christmas Carol (2016) [Ru] (1.0) Unofficial  [Collector's Ed
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137612.jpgsave_picture_137612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137612.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137630.jpgsave_picture_137630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137630.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Memoirs of Murder 3: Behind the Scenes / Воспоминание об убий�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137694.jpgsave_picture_137694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137694.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138289.jpgsave_picture_138289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138289.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.10.f) Repack R.G. Ca
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138328.jpgsave_picture_138328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138328.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:4D69E1C1F72E2E6687C44D82B51213109825176F
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138343.jpgsave_picture_138343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138343.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Panzar: Forged by Chaos (2012) [Ru/En] (46.4) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138359.jpgsave_picture_138359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138359.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] ( 2.2.10.f) License PROPH
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138374.jpgsave_picture_138374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138374.jpg" />
 </div>
 
 

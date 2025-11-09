@@ -6,7 +6,7 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14575.jpgsave_picture_14575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14575.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14576.jpgsave_picture_14576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14576.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Geometry Dash (2014) [En] (2.207) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14628.jpgsave_picture_14628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14628.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U56-674504-SCR/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14631.jpgsave_picture_14631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14631.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Outlast (2013) [Ru/En] (1.0.12046.0/dlc) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14645.jpgsave_picture_14645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14645.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mortal Kombat (2013) [Ru] (1.0.7) Repack EXROW [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14650.jpgsave_picture_14650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14650.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Northgard (2018) [Ru/Multi] (3.7.26.42112/dlc) Repack FitGirl [The Viking Age Ed
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14658.jpgsave_picture_14658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14658.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Loco Motive (2024) [Multi] (1.0.5a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14661.jpgsave_picture_14661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14661.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Last Guest (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14664.jpgsave_picture_14664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14664.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14665.jpgsave_picture_14665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14665.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mindseye (2025) [Multi] (4598223/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14671.jpgsave_picture_14671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14671.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14672.jpgsave_picture_14672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14672.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Roboquest (2020) [Ru/Multi] (1.6.1) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14686.jpgsave_picture_14686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14686.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.4.110480/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14706.jpgsave_picture_14706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14706.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mind Echoes 2: Remnants of the Past / Эхо разума 2: Отголоски 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14761.jpgsave_picture_14761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14761.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SeaOrama: World of Shipping (2023) [Multi] (2.2.4.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14777.jpgsave_picture_14777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14777.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14809.jpgsave_picture_14809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14809.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Repack seleZen [Ultimate Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14823.jpgsave_picture_14823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14823.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wrap House Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14846.jpgsave_picture_14846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14846.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Fable Hospital (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14859.jpgsave_picture_14859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14859.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Astro Colony (2022) [Ru/Multi] (1.7.43) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14871.jpgsave_picture_14871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14871.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Rosewater (2025) [Multi] (1.05.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14882.jpgsave_picture_14882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14882.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14883.jpgsave_picture_14883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14883.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14889.jpgsave_picture_14889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14889.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Death and Taxes (2020) [Ru/Multi] (1.2.59) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14891.jpgsave_picture_14891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14891.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14905.jpgsave_picture_14905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14905.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110399.jpgsave_picture_110399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110399.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 125.0.3 (x86/x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110400.jpgsave_picture_110400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110400.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FireAlpaca 2.11.20 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110401.jpgsave_picture_110401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110401.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ghost on Mars - Out of Time and Space (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110402.jpgsave_picture_110402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110402.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Auslogics Disk Defrag Pro 11.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110403.jpgsave_picture_110403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110403.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FM - Old Habits Die Hard (2024) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110404.jpgsave_picture_110404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110404.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ FanControl V188 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110405.jpgsave_picture_110405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110405.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ghost on Mars - Out of Time and Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110406.jpgsave_picture_110406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110406.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Sensual Lounge Music Universe - Sexiest Ballads: Smooth Instrumental Erotic Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110407.jpgsave_picture_110407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110407.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Adobe Animate  2024 24.0.2.12 x64 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110408.jpgsave_picture_110408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110408.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:03408229CA1B042C34F7C5F87E4931F5A9E927DE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110409.jpgsave_picture_110409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110409.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Q-Dir 11.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110410.jpgsave_picture_110410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110410.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ KAAZE - Live @ Illuzion Phuket, Thailand (2024-04-20) [MP3|320 Kbps] <Dance, Ele
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110411.jpgsave_picture_110411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110411.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Auslogics Registry Cleaner Pro 10.0.0.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110412.jpgsave_picture_110412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110412.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:0628EF9B432E15953EF208B3E2B9444033EBD8F0
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110413.jpgsave_picture_110413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110413.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Tablacus Explorer 24.4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110414.jpgsave_picture_110414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110414.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Sexual Music Collection - Erotic Bath with Jazz (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110415.jpgsave_picture_110415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110415.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ LibreOffice 7.6.6.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110416.jpgsave_picture_110416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110416.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:DFA9A775909A4E3AFD7779833518373B2C48FE8D
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110417.jpgsave_picture_110417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110417.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:B8A1E0407A668B4AA1F16249A04AE9DF5421725D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110418.jpgsave_picture_110418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110418.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:090121E138B5B204F80702DFAA6DCDFCFC2D06DC
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110419.jpgsave_picture_110419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110419.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Fort Firewall 3.12.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110420.jpgsave_picture_110420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110420.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ ibis Paint X 12.0.5 Lite-Mod by NURIK [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110421.jpgsave_picture_110421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110421.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:2492AC1C1425C7842EF73295C4E7762316155469
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110422.jpgsave_picture_110422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110422.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:2492AC1C1425C7842EF73295C4E7762316155469
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110423.jpgsave_picture_110423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110423.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:2492AC1C1425C7842EF73295C4E7762316155469
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110424.jpgsave_picture_110424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110424.jpg" />
 </div>
 
 

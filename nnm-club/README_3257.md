@@ -6,7 +6,7 @@ Mick Pini - Papa Voodoo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105043.jpgsave_picture_105043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105043.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Almah - Studio Albums (5 releases) (2006-2016) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105044.jpgsave_picture_105044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105044.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rune Robert Friis - Built For Comfort, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105045.jpgsave_picture_105045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Matyas Gayer Trio - Westbourne Park (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105046.jpgsave_picture_105046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105046.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alltheprettythings - Prose (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105047.jpgsave_picture_105047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105047.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ High-Logic FontCreator Professional 15.0.0.2999 RePack (& Portable) by elchupaca
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105048.jpgsave_picture_105048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105048.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mike Tramp - Songs Of White Lion, Vol. I-II (2023-2024) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105049.jpgsave_picture_105049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105049.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:2A5FCCBEBFAD8069D09FFCE7891261A5F0851254
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105050.jpgsave_picture_105050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105050.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ reaConverter Pro 7.822 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105051.jpgsave_picture_105051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105051.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ High-Logic FontCreator Professional 15.0.0.2999 Portable by 7997 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105052.jpgsave_picture_105052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105052.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ VA - DJ Hits 14 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105053.jpgsave_picture_105053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105053.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Photo Supreme 2024.2.2.6626 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105054.jpgsave_picture_105054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105054.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Hardy - Мир криминала (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105055.jpgsave_picture_105055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105055.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Angra - Studio Albums (11 releases) (1993-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105056.jpgsave_picture_105056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105056.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shaman (a.k.a. Shaaman) - Studio Albums (5 releases) (2002-2022) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105057.jpgsave_picture_105057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105057.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ The Georgia Thunderbolts - Rise Above It All (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105058.jpgsave_picture_105058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105058.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Footloose - Footloose (1980) Japanese Edition, Reissue, 2001, Cool Sound [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105059.jpgsave_picture_105059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105059.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Miller and the Other Sinners - Thieves In The Breadline (2024) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105060.jpgsave_picture_105060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105060.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105061.jpgsave_picture_105061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105061.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Grace Bowers & The Hodge Podge - Wine On Venus (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105062.jpgsave_picture_105062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105062.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Steve Cropper and The Midnight Hour - Friendlytown (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105063.jpgsave_picture_105063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105063.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jeff Lorber - Elevate (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105064.jpgsave_picture_105064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105064.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ of Books&Blues - That Ain't It (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105065.jpgsave_picture_105065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105065.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Budderside - Good For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105066.jpgsave_picture_105066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105066.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Silvera - World Behind Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105067.jpgsave_picture_105067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105067.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ TweakNow WinSecret Plus! 5.6.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105068.jpgsave_picture_105068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105068.jpg" />
 </div>
 
 

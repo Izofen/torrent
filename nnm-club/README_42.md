@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1129.jpgsave_picture_1129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1129.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Buddha Bar - Premium Playlist {b} (2007-2025) [MP3|320 Kbps] <Lounge, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1130.jpgsave_picture_1130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1130.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Buddha Bar - Premium Playlist {#, a} (2007-2025) [MP3|320 Kbps] <Lounge, Ch
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1131.jpgsave_picture_1131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1131.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bajofondo Tango Club - Premium Playlist (2002-2013) [MP3|320 Kbps] <Neotango, el
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1132.jpgsave_picture_1132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1132.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E32BEDB5D59E4801C76DEE3D536D09BB4C4755F6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1133.jpgsave_picture_1133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1133.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:C7915D7E1AABC93FE8877A2011537859284F68C8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1134.jpgsave_picture_1134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1134.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:1E90DC3E28BFEC397B00812AFBA5742874648EF4
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1135.jpgsave_picture_1135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1135.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:CF2E7817942085EFFF68365E70D6376B44175D36
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1136.jpgsave_picture_1136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1136.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:121F652CF93A2ADBE5C1A93020A20C179B147A7E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1137.jpgsave_picture_1137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1137.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1138.jpgsave_picture_1138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1138.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Arcade Fire - Premium Playlist (2005-2025) [MP3|320 Kbps] <Indie Rock, Art Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1139.jpgsave_picture_1139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1139.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:6D0472AD95415FF87A81A1ED8D6DDC5240FF3B5B
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1140.jpgsave_picture_1140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1140.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:B16AD2FE79B461270E7234B40FA6DA243D24AB03
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1141.jpgsave_picture_1141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1141.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F45C75B385FC33D80935394013B9D9259D49C990
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1142.jpgsave_picture_1142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1142.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:9B257E4D3B436551D2D8FFFAA7BA24FF29A8ECFD
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1143.jpgsave_picture_1143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1143.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:1941F65BBC006B0792FDE7EE7F942F27DCEDB0D9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1144.jpgsave_picture_1144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1144.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:1A8AC7875E22881CC8DC372AD075DD586BC9AB5A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1145.jpgsave_picture_1145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1145.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D66DD32027C47FA6B05E285D9450F5709039CF27
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1146.jpgsave_picture_1146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1146.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:64F90597093540911AA818FC2BF42DBD509DBC93
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1147.jpgsave_picture_1147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1147.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:F8D45C316E38FE3461CA9E817409207A40A76673
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1148.jpgsave_picture_1148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1148.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:F1FAF17DCB698D94FBDEAD90D6057853C83385AE
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1149.jpgsave_picture_1149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1149.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:71EEDA3B3CC97C01369D4B904C70E25A51AC5641
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1150.jpgsave_picture_1150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1150.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Serif Affinity Publisher 2.6.4.3634 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1151.jpgsave_picture_1151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1151.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:FB13CE6735184A92281EF6A814CD99605C3457AD
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1152.jpgsave_picture_1152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1152.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Buddha Bar - Premium Playlist {c} (2007-2025) [MP3|320 Kbps] <Lounge, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1153.jpgsave_picture_1153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1153.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:0DE3AF614F56232047D85E500F4286204E27C4F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1154.jpgsave_picture_1154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1154.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Bubblegum Is Back (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108345.jpgsave_picture_108345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108345.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chorus and Orchestra of Teatro Communale, Firenze, cond. E. Ghili - Bizet – Ca
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108346.jpgsave_picture_108346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108346.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Louis King - Little Devil! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108347.jpgsave_picture_108347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108347.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:DE3748178F1E28B0B124352A8539AA9B768FBD3D
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108348.jpgsave_picture_108348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108348.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:6B31004EC3293E70A2BF18BB02C8EBCA3A67B923
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108349.jpgsave_picture_108349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108349.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Amber - The Hits Remixed (2000) [FLAC|Lossless|tracks + .cue] <House, Euro House
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108350.jpgsave_picture_108350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108350.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Levee Town - Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108351.jpgsave_picture_108351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108351.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ James Dean Brown, Christine Coombe (еditors) | The Cambridge Guide to Research 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108352.jpgsave_picture_108352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108352.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ OneCommander Pro 3.81.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108353.jpgsave_picture_108353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108353.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - drama (2024) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108354.jpgsave_picture_108354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108354.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Acode - code editor | FOSS 1.10.3 (959) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108355.jpgsave_picture_108355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108355.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:2816513B04F8AC5B433720103D01776B21C6DAE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108356.jpgsave_picture_108356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108356.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ VA - Anjunadeep 15 (Mixed By Jody Wisternoff & James Grant) - 2024 [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108357.jpgsave_picture_108357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108357.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Cactus - Temple Of Blues: Influences And Friends (2024) [MP3|320 Kbps] <Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108358.jpgsave_picture_108358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108358.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:CD511D9B90D1E8C50DB674970DD04C301E215D18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108359.jpgsave_picture_108359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108359.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Ibiza Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108360.jpgsave_picture_108360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108360.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:A7A582EAB2109CF15F1BF6C60F19C47C1DB93AF9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108361.jpgsave_picture_108361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108361.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Speedtest от Ookla 5.4.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108362.jpgsave_picture_108362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108362.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Blizzen - World In Chains (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108363.jpgsave_picture_108363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108363.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Duality - Elektron (2016) [FLAC|Lossless|image + .cue] <Death Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108364.jpgsave_picture_108364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108364.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Echo of Silence - Misplaced Reality (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108365.jpgsave_picture_108365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108365.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:3601CC20E1B6003B76E212AE2C476B31850EB036
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108366.jpgsave_picture_108366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108366.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:C3B1EBD921D6F191BC75299A1AFE2E1B9C314D9B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108367.jpgsave_picture_108367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108367.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ My Journey to the Void - Невозможность (2024) [FLAC|Lossless|WEB-DL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108368.jpgsave_picture_108368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108368.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:1F1971CAB0C7523CA4B7568B4FCA88E27F65E277
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108369.jpgsave_picture_108369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108369.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Spleen - Dead Creature (2024) [MP3|320 Kbps] <Progressive Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108370.jpgsave_picture_108370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108370.jpg" />
 </div>
 
 

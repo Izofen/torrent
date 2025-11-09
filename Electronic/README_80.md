@@ -6,7 +6,7 @@ Innellea - The Belonging (2024) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Progressi
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117638.jpgsave_picture_117638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117638.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The No.1 Electro Album (2012) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Elect
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117684.jpgsave_picture_117684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117684.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Deep Sexy Funky House (2024) [MP3|320 Kbps] <House, Funky House, Nu Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117956.jpgsave_picture_117956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117956.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Nothing But... Trancetopia Vol. 12 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117973.jpgsave_picture_117973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117973.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Erotic Trap -  Bondage, BDSM, Role Play, Fetish, Domination, Rough Sex (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117977.jpgsave_picture_117977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117977.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Keep It Trance Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118237.jpgsave_picture_118237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118237.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ash - Self-Discovery (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118255.jpgsave_picture_118255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118255.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Armin van Buuren - A State Of Trance 1159 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118258.jpgsave_picture_118258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118258.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Winter Selection 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118269.jpgsave_picture_118269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118269.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Laserdance - Strikes Back (2000) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118281.jpgsave_picture_118281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118281.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Laserdance - Trans Space Express (2018) [OGG Vorbis|480 Kbps] <Electronic, Space
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118286.jpgsave_picture_118286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118286.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Laserdance Orchestra - Volume 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Spaces
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118288.jpgsave_picture_118288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118288.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Laserdance - Force Of Order (2016) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118289.jpgsave_picture_118289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118289.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Fatboy Slim - Fatboy Slim Loves Carnival (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118302.jpgsave_picture_118302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118302.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Infected Mushroom - Re:born (2024) [MP3|320 Kbps] <Psy-Trance, Electro-House>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118320.jpgsave_picture_118320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118320.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Cooperation Trance Selection: Year of the Rabbit (2024) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118545.jpgsave_picture_118545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118545.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Vintage Culture - Live @ Thunder Machine, Passio das Aguas, Goiania, Brazil (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118583.jpgsave_picture_118583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118583.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Depeche Mode - Album Collection (1981-1990) German Press Intercord [APE|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118652.jpgsave_picture_118652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118652.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Laserdance - Fire On Earth (1994) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118739.jpgsave_picture_118739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118739.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Sy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118767.jpgsave_picture_118767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118767.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Cafe Ease: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118771.jpgsave_picture_118771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118771.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Top 10 January 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118772.jpgsave_picture_118772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118772.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118775.jpgsave_picture_118775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118775.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spaces
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118929.jpgsave_picture_118929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118929.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118955.jpgsave_picture_118955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118955.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118958.jpgsave_picture_118958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118958.jpg" />
 </div>
 
 

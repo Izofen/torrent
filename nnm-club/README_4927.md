@@ -6,7 +6,7 @@ SolarFlow - Zodiac (2021) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigma
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154108.jpgsave_picture_154108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154108.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154109.jpgsave_picture_154109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154109.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:113639C44A2D0D8661CA4B2A5DFA2030615F81FA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154110.jpgsave_picture_154110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154110.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:485ACB2DDC3931861890FADB4EEBE7BECAE6E8A7
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154111.jpgsave_picture_154111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154111.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:580C608AA9BE569E762487E09C4E1F484B18D789
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154112.jpgsave_picture_154112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154112.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:89D6D1D52AEB3BA2C0B0647FCF801953E5D1E899
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154113.jpgsave_picture_154113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154113.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5D640FC706882962D382AEB17DEBE37306C35E8F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154114.jpgsave_picture_154114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154114.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:5942D6E4C77E106AF998979D3C7CADD81C1822D8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154115.jpgsave_picture_154115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154115.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:F4BBEA64968082902A3BA3BFD237FA88FF9DF1DF
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154116.jpgsave_picture_154116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154116.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3EF9307127243D23DE3D4F3E5D2D971BAA41DE46
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154117.jpgsave_picture_154117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154117.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:5703079A3D4F355CF84B4585A4D8008117224449
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154118.jpgsave_picture_154118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154118.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:294CD9DC4D4106CD687351ECD93B1F8057E6EBA6
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154119.jpgsave_picture_154119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154119.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:28BCDF3D1F8B5EBCDFDAD5031CF6431D155CB052
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154120.jpgsave_picture_154120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154120.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Wipr – Ad and Tracker Blocker 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154121.jpgsave_picture_154121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154121.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7D54FE697B7CA7693DF04DAFB996EC6193252C14
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154122.jpgsave_picture_154122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154122.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:634A23825F208E3D8C7AADAB17742D531FFF776D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154123.jpgsave_picture_154123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154123.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Just Dance 2017 - The Playlist Compilation (2016) [MP3|320 Kbps] <Euro Danc
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154124.jpgsave_picture_154124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154124.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Google Chrome 119.0.6045.160 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154125.jpgsave_picture_154125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154125.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D167AC08704EF7A044FBAEFF82457613271449C9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154126.jpgsave_picture_154126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154126.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SolarFlow - Eternal Peace (2020) [AAC|~342 Kbps] <Electronic, Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154127.jpgsave_picture_154127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154127.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:530AACEE66586FB44E749974D86742F33205066F
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154128.jpgsave_picture_154128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154128.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:85422132FE9E4FBEAA054173E488E90C96EC8545
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154129.jpgsave_picture_154129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154129.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:397BF5D0C87411858F09C777B6F3F2D8F5CB4699
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154130.jpgsave_picture_154130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154130.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Downie 4 v.4.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154131.jpgsave_picture_154131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154131.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Andre Previn - Jazz Milestones Of A Legend (1955 - 1962) 10CD, 2016, The Intense
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154132.jpgsave_picture_154132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154132.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:5813E3E79F7581BB44529C1F4E9B47DA4AACE03C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154133.jpgsave_picture_154133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154133.jpg" />
 </div>
 
 

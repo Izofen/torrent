@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141663.jpgsave_picture_141663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141663.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F02A0172133D4C10BB68D94F2F4DEB4D3F690926
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141664.jpgsave_picture_141664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141664.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Foreca Погода / Foreca Weather 4.27.1 + 4.29.2 Mod by kristik, funnysith [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141667.jpgsave_picture_141667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141667.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:997B3024C696AB170CCBEC2DC10D11BBE214BD5C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141668.jpgsave_picture_141668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141668.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:477A8E8081F5BDEB92B4B89BE811D4274D15C3E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141669.jpgsave_picture_141669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141669.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Total Uninstall 6.21.1 Professional Edition  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141670.jpgsave_picture_141670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141670.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:513D8892BAE453DA45D8BECC8903E334F5319A11
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141671.jpgsave_picture_141671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141671.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Infix PDF Editor Pro 7.1.2 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141672.jpgsave_picture_141672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141672.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Monster Jam: South Africa, Cape Town (27.04.2019) WEB-DL [H.264/720p-LQ] [hand m
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141673.jpgsave_picture_141673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141673.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Harold Budd & Hector Zazou - Glyph (1995) MTM [FLAC|tracks +.cue]<Trip Hop, Ambi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141674.jpgsave_picture_141674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141674.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3854870677A077830FF5689259FEE9811E640572
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141675.jpgsave_picture_141675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141675.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:4E5CE135DE419595BDBB937793BC61D9B7A8FECF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141676.jpgsave_picture_141676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141676.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Google Earth Pro 7.0.2.8415 Final PortableAppZ [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141678.jpgsave_picture_141678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141678.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141679.jpgsave_picture_141679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141679.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:27E9B9C5E691D5B6DDC35F0DE0DFC2FE730F1C82
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141680.jpgsave_picture_141680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141680.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:D3290F8FF34DE630C8F9B5A9C805C38B80FDF4E0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141681.jpgsave_picture_141681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141681.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:993BD6727976A3A2F1FD7020FE5F0CD2CCECAB8F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141682.jpgsave_picture_141682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141682.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FGFC820 - Homeland Insecurity (Limited Edition)(2012) [FLAC|lossless] <Electro I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141683.jpgsave_picture_141683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141683.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ FGFC820 - Homeland Insecurity (Limited Edition)(2012) [FLAC|lossless] <Electro I
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141684.jpgsave_picture_141684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141684.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ FGFC820 - Homeland Insecurity (Limited Edition)(2012) [FLAC|lossless] <Electro I
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141685.jpgsave_picture_141685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141685.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:6C2043752B52FD1BDE9B8FE4BCEABCFB7D93587B
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141686.jpgsave_picture_141686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141686.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Anders Wihk, Steve Gadd, Svante Henryson - Same Tree Different Fruit - ABBA (201
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141687.jpgsave_picture_141687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141687.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:EB05B9F319DA261217B0A38305B64771D8646861
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141689.jpgsave_picture_141689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141689.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:EB05B9F319DA261217B0A38305B64771D8646861
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141690.jpgsave_picture_141690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141690.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:32CACB1E1954FF6B3289FC64FA1E38484A36BAAD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141691.jpgsave_picture_141691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141691.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:C376590EBF5A9C4D40A6306F36A8E339A20A85B1
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141692.jpgsave_picture_141692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141692.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167951.jpgsave_picture_167951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167951.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:30DD07EA60887FC40F55A51E7B13FF09155236F6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167952.jpgsave_picture_167952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167952.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3F87293CA16738B6BC3E5DD4A9585FA76F8D822A
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167953.jpgsave_picture_167953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167953.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Loopback 2.2.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167954.jpgsave_picture_167954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167954.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Infix PDF Editor Pro 7.4.4 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167955.jpgsave_picture_167955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167955.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Vhaldemar - Straight To Hell (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167956.jpgsave_picture_167956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167956.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:CB70AC3843FFE6F91E6057BDD903D981382BB78B
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167957.jpgsave_picture_167957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167957.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Home Inventory 3.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167958.jpgsave_picture_167958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167958.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ PDF Extra: сканер и редактор 10.6.2171 Lite-Mod by Number one' [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167959.jpgsave_picture_167959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167959.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Queen - The Miracle (1989) 2xCD, Japanese Edition, Reissue, 2022, EMI [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167960.jpgsave_picture_167960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167960.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:4ECFEFDA308ECCD4F644A9ED97F528E058851770
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167961.jpgsave_picture_167961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167961.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:0D6AD97A3E2826EA823F5DE8434CDE0FE39BBB50
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167962.jpgsave_picture_167962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167962.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Malwarebytes AdwCleaner 8.0.1.0 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167963.jpgsave_picture_167963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167963.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:3AF4B0508A0C3558C586344D15CEAA579EB110D9
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167964.jpgsave_picture_167964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167964.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:A41B2C44DCA58A70F850E6D2EA94E3106394A138
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167965.jpgsave_picture_167965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167965.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Bolt Thrower - Studio Albums (8 releases) (1988-2005) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167966.jpgsave_picture_167966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167966.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167967.jpgsave_picture_167967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167967.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:7E42B9A8091C07CEE63F71F36079E1F6D85A7AEF
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167968.jpgsave_picture_167968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167968.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:B262A4F5E4716796BDB12570A4ABF91A33D32A62
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167969.jpgsave_picture_167969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167969.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ SophiApp 1.0.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167970.jpgsave_picture_167970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167970.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:214821F60EAE6E2B03CD3E3685474E637521D24B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167971.jpgsave_picture_167971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167971.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B265A4E1C225528FC7B25D6D5B95C6D5A23D9F27
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167972.jpgsave_picture_167972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167972.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Groovy Day: Beach Party (2019) [MP3|320 Kbps] <Techno, Tech House, Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167973.jpgsave_picture_167973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167973.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:55CAB0769089CE9E7DF009211895F989711942D1
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167974.jpgsave_picture_167974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167974.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:E686D9A7B63A4C0FA7D284DEEF36511238E209B5
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167975.jpgsave_picture_167975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167975.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Deep Night Deep House 4 (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167976.jpgsave_picture_167976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167976.jpg" />
 </div>
 
 

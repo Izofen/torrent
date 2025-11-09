@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141457.jpgsave_picture_141457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141457.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0F37345959300460B2971574EC8EC29C6266BEFB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141458.jpgsave_picture_141458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141458.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:205476FBAB4A7EEC25658132DB42DE976E79DCF7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141459.jpgsave_picture_141459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141459.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4C0FB09F6437EBD6466C814722E9CABC1995B4D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141460.jpgsave_picture_141460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141460.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:87B0362821A973661E46235E131A79AEA406B7AA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141463.jpgsave_picture_141463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141463.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Garmin: City Navigator Taiwan 2015.40 [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141464.jpgsave_picture_141464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141464.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:BC6178640E1BD2B3BA8191CB989748C1AB7CC630
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141465.jpgsave_picture_141465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141465.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:AC7DEDAA97C062E411D9E1C9DD73153E9337B822
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141466.jpgsave_picture_141466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141466.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:D4B86765D290452D6E959512A9A75257346005CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141467.jpgsave_picture_141467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141467.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C2B1FBDF8FF1B46487D0CA043D3EC22F24B344E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141469.jpgsave_picture_141469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141469.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Need for Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s) RePack =nemos= [Limited Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141470.jpgsave_picture_141470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141470.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:839C2F7C527AFDEE7F7A701260F7ACAA4E49BCFF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141471.jpgsave_picture_141471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141471.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Chris Carter - Miscellany (2018) Anthology [FLAC|Lossless|tracks + .cue] <Minima
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141472.jpgsave_picture_141472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141472.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:D9A1DEED9CED849EBC46345C66C76D9C43D9FD61
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141475.jpgsave_picture_141475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141475.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:6D7B066C39055389CE8F47C45FDBA9BBA4337484
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141476.jpgsave_picture_141476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141476.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:1710449E90162CF29FC6718C22D5B344304D6A48
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141477.jpgsave_picture_141477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141477.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A0D9CCFA02518CF3C2A95CBF879BEA3CDBDB1FB6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141478.jpgsave_picture_141478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141478.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:9AD42087EEE2D80F276B91C7423778D74B199E4A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141479.jpgsave_picture_141479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141479.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Phill Veras - Alma (2018) [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141480.jpgsave_picture_141480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141480.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:948AABBE4C4448C750AD6EDC75B1AAAFCA80E4E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141481.jpgsave_picture_141481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141481.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:F7086C00D2CE1931C9EBC252A36E05F0325F6E71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141482.jpgsave_picture_141482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141482.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:F7086C00D2CE1931C9EBC252A36E05F0325F6E71
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141485.jpgsave_picture_141485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141485.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141486.jpgsave_picture_141486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141486.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:4038EBBF3862E866D03DAE2D284B90D4628B934D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141487.jpgsave_picture_141487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141487.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Scott Robert Lim | Scott Robert Lim Complete Pack (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141488.jpgsave_picture_141488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141488.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B414C40FD2867F03DA2C99091E19AA9D9895E7B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141489.jpgsave_picture_141489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141489.jpg" />
 </div>
 
 

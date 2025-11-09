@@ -6,7 +6,7 @@ Nixvir | Американские Горки: Дураки и Дороги / Rol
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9693.jpgsave_picture_9693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nixvir | Американские Горки: Дураки и Дороги / Rol
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9694.jpgsave_picture_9694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9694.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9695.jpgsave_picture_9695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Miami Hotel Simulator (2025) [Ru/Multi] (0.13.345.pa) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9696.jpgsave_picture_9696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9696.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9697.jpgsave_picture_9697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9697.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9698.jpgsave_picture_9698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9698.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2291DDBC1A0525AB417C02E13C1C4BD6A7027829
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9699.jpgsave_picture_9699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9699.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:EA7C4E22EBB134785CA967798217183E66C586B0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9700.jpgsave_picture_9700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9700.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8CE0D4CE44ABDF5A6761448122782B2709F4FA48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9701.jpgsave_picture_9701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9701.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:8CE0D4CE44ABDF5A6761448122782B2709F4FA48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9703.jpgsave_picture_9703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9703.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:8CE0D4CE44ABDF5A6761448122782B2709F4FA48
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9704.jpgsave_picture_9704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9704.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Joe Bonamassa - 20 Studio Albums, 19 Live, 1 Compilation (1994 - 2025) 53 CD [FL
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9705.jpgsave_picture_9705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9705.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:55B6E3EDA6D11385F7EE4C735D3EB9933A44CB60
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9706.jpgsave_picture_9706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9706.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack Wanterlude [Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9707.jpgsave_picture_9707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9707.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:AEB8E1E001F3E62E03AB8DACFA23DBDE9B88A94B
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9708.jpgsave_picture_9708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9708.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:1F16BF804F68DF38F8D2B6AF347115369A38325C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9709.jpgsave_picture_9709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9709.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:02E9A0810D20B0D011DB626D6F663F04F073391E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9710.jpgsave_picture_9710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9710.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Kaspersky Free | Standard | Plus | Premium 21.22.7.466 [Ru/En]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9711.jpgsave_picture_9711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9711.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:63C50A92100041C45478D9B6172DF9B663C38165
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9712.jpgsave_picture_9712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9712.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A88663FD879039214CA3FF18C2CC45C91B32C9D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9713.jpgsave_picture_9713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9713.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:A88663FD879039214CA3FF18C2CC45C91B32C9D2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9714.jpgsave_picture_9714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9714.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:7AAB813FE4FE9341493CE22024D1B07D9FB95A98
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9715.jpgsave_picture_9715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9715.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:10B11784EB635D467A60ED95EA42D04726728D29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9716.jpgsave_picture_9716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9716.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:D470DA3207E233BFE720EF8E9682A5960C186A30
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9717.jpgsave_picture_9717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9717.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Takopi no Genzai | Takopi's Original Sin | Первородный грех Та�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9718.jpgsave_picture_9718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9718.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:CD717674FDF623686BF1FE54FAFD2E89B2397B9A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9719.jpgsave_picture_9719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9719.jpg" />
 </div>
 
 

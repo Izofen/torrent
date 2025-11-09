@@ -6,7 +6,7 @@ OfficeSuite + PDF & HD + Modificstions & Addons 11.10.39034 Mod by Mihz, Alex004
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163308.jpgsave_picture_163308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163308.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.1) Repack Bu
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163309.jpgsave_picture_163309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163309.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:029C312F4FC5D7A328B4214326630EC545C39136
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163310.jpgsave_picture_163310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163310.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1AF9B9E0312BEEBA60D8AB18CEE1B1B0E1ABB760
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163311.jpgsave_picture_163311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163311.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ iconStiX 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163312.jpgsave_picture_163312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163312.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Wolfram SystemModeler 13.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163313.jpgsave_picture_163313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163313.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:B8467F81551D767E0C440599D991FD6505BCB9E9
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163314.jpgsave_picture_163314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163314.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:A6CD261E07A8F7C71EB9FFF1AD5C68931F3EEBBE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163315.jpgsave_picture_163315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163315.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Ableton - Live Suite 10.1.6 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163316.jpgsave_picture_163316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163316.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Display Maid 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163317.jpgsave_picture_163317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163317.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:790ABC419EF8C4567C201FA0D83ED9A92E9777FC
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163318.jpgsave_picture_163318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163318.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:E3B71FD6FE36D6115C99AB8FCDF29C1E9112B4FB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163319.jpgsave_picture_163319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163319.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F497032868D97894AF2B934FE327A6CB88978A7B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163320.jpgsave_picture_163320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163320.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Microsoft Windows 10.0.18362.535 Version 1903 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163321.jpgsave_picture_163321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163321.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Timemator 2 v2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163322.jpgsave_picture_163322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163322.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Rock Legends 70s от ALEXnROCK часть 2 (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163323.jpgsave_picture_163323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163323.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AudKit Spotify Music Converter for Mac 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163324.jpgsave_picture_163324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163324.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Van Morrison - Accentuate The Positive (2023) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163325.jpgsave_picture_163325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163325.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:9F117AEAEFC7376AFBB798935875E98784EF09C2
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163326.jpgsave_picture_163326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163326.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:964F076F4F3CA1445526F51743F5B23145ADCC73
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163327.jpgsave_picture_163327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163327.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:C06BE7D7ED2E7A2ACE1DDD37EE8145D7AD62A8CA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163328.jpgsave_picture_163328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163328.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Website Watchman 2.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163329.jpgsave_picture_163329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163329.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:08D4360497C18FF8DAF0131D125F098127DE0645
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163330.jpgsave_picture_163330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163330.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ If Not for Me - Eulogy (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163332.jpgsave_picture_163332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163332.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ MarsEdit 4 v4.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163333.jpgsave_picture_163333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163333.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A845C46E02A85F899CB0695E82DE7CFE2354D8CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163334.jpgsave_picture_163334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163334.jpg" />
 </div>
 
 

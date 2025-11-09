@@ -6,7 +6,7 @@ Flight Catastrophe (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22207.jpgsave_picture_22207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Out of the Park Baseball 26 (2025) [Multi] (26.1 Build 39) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24364.jpgsave_picture_24364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24364.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WWE 2K25 (2025) [Multi] (1.03/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24938.jpgsave_picture_24938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24938.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tennis Manager 2024 (2024) [Multi] (4.4.1357b) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26215.jpgsave_picture_26215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26215.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.25/dlc) Repack Let'sРlay [Year One 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26595.jpgsave_picture_26595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26595.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Riders Republic (2021) [Ru/Multi] (1.26.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26703.jpgsave_picture_26703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26703.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Ru/Multi] (Build 12545762/dlc) Repack Let's
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26706.jpgsave_picture_26706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26706.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Backyard Boxing (2025) [En] (1.1.3) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28157.jpgsave_picture_28157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28157.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Helskate (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29651.jpgsave_picture_29651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29651.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WWE 2K24 (2024) [Multi] (1.24/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30815.jpgsave_picture_30815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30815.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (2.1.1) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32142.jpgsave_picture_32142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32142.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2891297/dlc) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34475.jpgsave_picture_34475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34475.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2891297/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35112.jpgsave_picture_35112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35112.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shredders (2022) [Ru/Multi] (Glacier Update/dlc) Repack FitGirl [540INDY Edition
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35454.jpgsave_picture_35454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35454.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Shredders (2022) [Ru/Multi] (Glacier/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35851.jpgsave_picture_35851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35851.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.1.1/dlc) Repack Let'sРlay [Ul
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35898.jpgsave_picture_35898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35898.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Revhead (2017) [Multi] (1.9.11049/dlc) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36543.jpgsave_picture_36543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36543.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Repack FitGirl [Ultimat
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38498.jpgsave_picture_38498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38498.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ WWE 2K24 (2024) [Multi] (1.22/dlc) Scene Rune [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38557.jpgsave_picture_38557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38557.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38875.jpgsave_picture_38875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38875.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Looney Tunes: Wacky World of Sports (2024) [Multi] (1.0/dlc) Repack FitGirl [Del
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39838.jpgsave_picture_39838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39838.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.106/dlc) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44367.jpgsave_picture_44367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44367.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tour de France 2024 (2024) [Multi] (1.7.2.924/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47462.jpgsave_picture_47462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47462.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Gym Simulator 24 (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48099.jpgsave_picture_48099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48099.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (20231109/dlc) Scene Tenoke [Digital
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48683.jpgsave_picture_48683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48683.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Pro Cycling Manager 2024 (2024) [Multi] (1.4.1.141/dlc) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49436.jpgsave_picture_49436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49436.jpg" />
 </div>
 
 

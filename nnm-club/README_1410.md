@@ -6,7 +6,7 @@ Macrorit Partition Expert 8.3.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37015.jpgsave_picture_37015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37015.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DEC137FCE2F60A67E08219F256A7518D607D2798
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37016.jpgsave_picture_37016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37016.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A9854786AA0206BC866BFD6670017B5608688D88
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37017.jpgsave_picture_37017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37017.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37018.jpgsave_picture_37018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37018.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Inkulinati (2023) [Ru/Multi] (1.48.1.0/dlc) License GOG [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37019.jpgsave_picture_37019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37019.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C9A35464297C808EFF70ABAC9FE086F53F0DE608
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37020.jpgsave_picture_37020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37020.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C9A35464297C808EFF70ABAC9FE086F53F0DE608
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37021.jpgsave_picture_37021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37021.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5DE8FD2C9D772FEBAC2C9C79DE02A197404C1A13
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37022.jpgsave_picture_37022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37022.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:221AE880B82E2C977214CAC0CFA68BF35C7FF6B1
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37023.jpgsave_picture_37023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37023.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:354E24F3BBD3D0869BB4A6E69CA4697CEBD9BE36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37024.jpgsave_picture_37024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37024.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ WinDjView Extended 4.0.1 Portable [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37025.jpgsave_picture_37025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37025.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack dixen18 [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37026.jpgsave_picture_37026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37026.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5F07CBA7BD4753396589D11A079F517C33DFE934
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37027.jpgsave_picture_37027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37027.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:12DFF1B5F6BC4E79A0BD5770FA377303918F4C21
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37028.jpgsave_picture_37028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37028.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:34DBE3D10CD4E2901D97E46DB944B99429A44643
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37029.jpgsave_picture_37029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37029.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:7619404F64E34000CF854C88DBAEFB6D29F0BFA1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37030.jpgsave_picture_37030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37030.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ OTXO (2023) [Ru/Multi] (1.106) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37031.jpgsave_picture_37031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37031.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AB2F32AEE289FACF96B420FC4D560122BE77593F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37032.jpgsave_picture_37032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37032.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Udemy, Yassine Larayedh | Master Simulations Using Geometry Nodes in Blender (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37033.jpgsave_picture_37033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37033.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:147B7ABC47E39971B600E5A0CAEBE7ECF4765A6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37034.jpgsave_picture_37034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37034.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Snappy Driver Installer Origin R772 | Драйверпаки 24.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37035.jpgsave_picture_37035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37035.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:22828A319439A59AFFA3E4BC98D29A40728A7597
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37036.jpgsave_picture_37036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37036.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:BDC48E6FECD043E84F7F3E246D8FBCCD0A2C9A68
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37037.jpgsave_picture_37037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37037.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Sid Meier’s Civilization VII игроки ждут уже девять лет 
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37038.jpgsave_picture_37038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37038.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:B3798C338C17F2568B4E564BE1B54254710C2F7E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37039.jpgsave_picture_37039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37039.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2024.11.
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37040.jpgsave_picture_37040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37040.jpg" />
 </div>
 
 

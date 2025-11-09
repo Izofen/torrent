@@ -6,7 +6,7 @@
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26896.jpgsave_picture_26896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26896.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare PDFelement 11.4.6.332 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26897.jpgsave_picture_26897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26897.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7CC6322D195D23450899605B06A3A8C2B2D3FCCF
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26898.jpgsave_picture_26898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26898.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:734A773E59A43E5810367D7834A1EE7B8A1FB3EF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26899.jpgsave_picture_26899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26899.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Carmen Sandiego NETFLIX v1.0.1g [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26900.jpgsave_picture_26900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26900.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:349FB2976F042726CFE17FA2CD74B0B680E08C7B
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26901.jpgsave_picture_26901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26901.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0FC99286F35FF782E8E6027BB6CBC04CF2A473E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26902.jpgsave_picture_26902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26902.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FC1BFFD5FC522FB2FFF8F49C9C60D01F42E79071
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26903.jpgsave_picture_26903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26903.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:FC1BFFD5FC522FB2FFF8F49C9C60D01F42E79071
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26904.jpgsave_picture_26904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26904.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Perfectly Clear WorkBench 4.6.1.2724 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26905.jpgsave_picture_26905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26905.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ExamDiff Pro 15.0.1.26 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26906.jpgsave_picture_26906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26906.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:A5B102302A1E10DC1850F2E0742C43D28885814E
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26907.jpgsave_picture_26907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26907.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ TikTok Private Plus (PayBack Edition) v38.8.5 Mod by TikTok + Plugin Update [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26908.jpgsave_picture_26908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26908.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Shogun's Curse v1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26909.jpgsave_picture_26909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26909.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B87874C5A69E8D02596A0E5D6654DF70BDF80B36
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26910.jpgsave_picture_26910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26910.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26911.jpgsave_picture_26911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26911.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:41BE23BC433E2CC6B903C72DF002F82311228BD6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26912.jpgsave_picture_26912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26912.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 17.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26913.jpgsave_picture_26913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26913.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:7633E09E448CC1BBD4B06C6CE7769E67B19F3910
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26914.jpgsave_picture_26914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26914.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Любэ 35. Всё опять начинается. Трибьют (час
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26915.jpgsave_picture_26915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26915.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ninja Turtles: Legends v1.26.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26916.jpgsave_picture_26916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26916.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Udemy, Krishan pathirana | Learn D5 Render Advance 2025 (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26917.jpgsave_picture_26917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26917.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ ELSA 5.3 AUDI - 02.2016 5.3 [Multi/Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26918.jpgsave_picture_26918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26918.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:0AD29DEAC403B0D1CBEF2C38DC04CCB9DA2FB848
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26919.jpgsave_picture_26919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26919.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:F8A720F42B4EF4C06E0A36D2DA8757227DF8F9AE
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26920.jpgsave_picture_26920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26920.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:F494DBD4F53F08340313F60E2D1E9113DC4F8B73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26921.jpgsave_picture_26921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26921.jpg" />
 </div>
 
 

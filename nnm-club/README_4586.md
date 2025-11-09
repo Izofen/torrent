@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143549.jpgsave_picture_143549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143549.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lost Society - Braindead (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143550.jpgsave_picture_143550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143550.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ LibreWolf 120.0-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143551.jpgsave_picture_143551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143551.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:E72680699D5273C886C7B9A6D175D1E8A9653282
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143553.jpgsave_picture_143553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143553.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A1A17EE57233D54BCDEC356835B457F552BBE00E
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143554.jpgsave_picture_143554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143554.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9F8F0C17F1E4B67AF495C8D052B3B542B9F5BE08
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143556.jpgsave_picture_143556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143556.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - German Top 100 Single Charts 27.12.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143557.jpgsave_picture_143557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143557.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Keijo!!!!!!!! / Кейджо !!!!!!!! [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143558.jpgsave_picture_143558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143558.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:86C4A4606A3FCED0DFDA746B15662D84D8C579EF
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143561.jpgsave_picture_143561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143561.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Disco Fantasy '79 (1979) 2LP [MP3|320 Kbps] <Funk / Soul, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143562.jpgsave_picture_143562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143562.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:51E90CEB345060B46EB406F29894629B4C77BE27
 >>17
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143563.jpgsave_picture_143563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143563.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Mozilla Firefox 44.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143565.jpgsave_picture_143565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143565.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Allavsoft Video Downloader Converter 3.22.0.7300 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143567.jpgsave_picture_143567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143567.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Mystery Case Files 26: A Crime in Reflection (2023) [En] (1.0) Unofficial [Colle
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143568.jpgsave_picture_143568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143568.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:DABD852B30E71CFCB8F36B4625EFBA0E86FE3E15
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143570.jpgsave_picture_143570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143570.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - The Official UK Top 40 Singles Chart 27.12.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143572.jpgsave_picture_143572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143572.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ RadioBOSS Advanced 6.0.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143573.jpgsave_picture_143573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143573.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:8FC4AEAB9DC404CEBB2805071E198ECD7394C395
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143574.jpgsave_picture_143574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143574.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:0EDB9A96A02AA5874722B7FCC8B88B89AD7A30E8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143575.jpgsave_picture_143575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143575.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:97CF694725D7BC420CFE1AA4A3CC85D7F88DF460
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143577.jpgsave_picture_143577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143577.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:DDE84C911C75DEA8FD493C64C548BA3911767ECC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143578.jpgsave_picture_143578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143578.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:D69D65BD61AE99A2A0DA746A6BED1E34EE2D427C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143580.jpgsave_picture_143580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143580.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - The Choice (2015) [MP3|196 - 320 кб/с] <Spacesynth, Spacedisco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143581.jpgsave_picture_143581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143581.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pretenders - Pretenders II (1981) SACD, Reissue 2010, Mobile Fidelity Sound Lab 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143582.jpgsave_picture_143582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143582.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:AB934FF0257045777F689040B820F064393170E5
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143583.jpgsave_picture_143583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143583.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:967B0D31C0132986F733891B5C90792818385739
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143584.jpgsave_picture_143584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143584.jpg" />
 </div>
 
 

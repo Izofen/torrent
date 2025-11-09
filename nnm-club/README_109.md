@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2874.jpgsave_picture_2874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2874.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BB9C814E177BA1BD4E638DEB928024D910C2DB6B
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2875.jpgsave_picture_2875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2875.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EECAEB3C24F8AD5DCE26595931BF209AF56FA4F4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2876.jpgsave_picture_2876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2876.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:EECAEB3C24F8AD5DCE26595931BF209AF56FA4F4
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2877.jpgsave_picture_2877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2877.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4E35A6571A220D7395457D60E9754F33872CDF3E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2878.jpgsave_picture_2878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2878.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BC2D8CD9BEB6809164ADE6CF55752148D548F6D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2879.jpgsave_picture_2879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2879.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7D706D92E25CD40EF2DE7E894679F5517810648F
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2880.jpgsave_picture_2880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2880.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2881.jpgsave_picture_2881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2881.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:8DA5F2FA62E66EFFBD28E59F8A37D3E0550D8994
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2882.jpgsave_picture_2882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2882.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Galactic Civilizations IV (2023) [Ru/Multi] (3.01/dlc) Repack Let'sРlay [Supern
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2883.jpgsave_picture_2883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2883.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:D0200363AD4C2EF8E69E388506E46BBD5E0C2A19
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2884.jpgsave_picture_2884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2884.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:00E46D30584B5B9F8F523098F6F0F83D3D26F17A
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2885.jpgsave_picture_2885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2885.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:527A9711909FEE95A62217045EB47BD5747398B8
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2886.jpgsave_picture_2886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2886.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0 Build 19682311/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2887.jpgsave_picture_2887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2887.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:96F95A764280A31B0840BED765A2C957A40E232E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2888.jpgsave_picture_2888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2888.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:62DEE2209457965779D6E854D7FE0A8F28FE1C0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2889.jpgsave_picture_2889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2889.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ SWAT Commander (2025) [Ru/Multi] (0.7.7.4) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2890.jpgsave_picture_2890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2890.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2891.jpgsave_picture_2891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2891.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Tu Bian Yingxiong X | To Be Hero X | Быть героем Икс [2025, WEB, 24
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2892.jpgsave_picture_2892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2892.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:456F06B69E64C81B9B901F68B6A4D7ECA9A862EA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2893.jpgsave_picture_2893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2893.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:B61766AFFF71BF7EF7A0F384118BC38A8B1819E4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2894.jpgsave_picture_2894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2894.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:2E80432E83BFE687E8F3D7C85441ED73F3EC979D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2895.jpgsave_picture_2895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2895.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:0376DEA0750A903D7FFE8583722BC106E5549141
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2896.jpgsave_picture_2896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2896.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:19E213FD6716FC12593F9A4B04D8D903A9D772FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2897.jpgsave_picture_2897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2897.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Shardlight (2016) [En] (3.4) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2898.jpgsave_picture_2898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2898.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:10D9531D2C55AB6848EA20532AD18013D0162583
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2899.jpgsave_picture_2899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2899.jpg" />
 </div>
 
 

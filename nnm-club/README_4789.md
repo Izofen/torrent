@@ -6,7 +6,7 @@ Jeff Liberman - Celebrate the Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149864.jpgsave_picture_149864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149864.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:82C8CB826DE657C5264675FC66E271B57A382888
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149865.jpgsave_picture_149865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149865.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:CBB8EF2DDCFB14AD3D96ACB4611C16F8C72B44F4
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149866.jpgsave_picture_149866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149866.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149868.jpgsave_picture_149868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149868.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:5DEF1FCF106D4E95263990BE09025FA5EFBD408F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149869.jpgsave_picture_149869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149869.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ MonsterTools - Renegade (2019) [MP3|320 Kbps] <Darkwave, Electro Industrial rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149870.jpgsave_picture_149870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149870.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Europe - Best ballads (1995) Compilation [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149871.jpgsave_picture_149871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149871.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Magic Kaito / Волшебник Кайто [2010, Special, 12 из 12] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149873.jpgsave_picture_149873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149873.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Hate Forest - Hour of the Centaur (2020) [MP3|320 Kbps] <Black Metal, Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149874.jpgsave_picture_149874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149874.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Allavsoft Video Downloader Converter 3.24.2.8025 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149876.jpgsave_picture_149876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149876.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:C80D6DEF6760F15B8C723934489927929EFC53F4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149878.jpgsave_picture_149878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149878.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Memories Of Old - The Zeramin Game (2020) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149879.jpgsave_picture_149879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149879.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ The Ancestry Program [TAP] - Mysticeti Ambassadors Part 1 (2021) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149880.jpgsave_picture_149880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149880.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:B8DB9AF3F11BA346499091C0D6BDD453C068114D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149882.jpgsave_picture_149882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149882.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:F658AEE78D6BA23967A0A7F2036459B299E7C4C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149883.jpgsave_picture_149883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149883.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:F658AEE78D6BA23967A0A7F2036459B299E7C4C0
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149885.jpgsave_picture_149885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149885.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:D6E40A3427AA5F4BF0D3C3D1F95C7F3EF0DE76DA
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149886.jpgsave_picture_149886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149886.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 5 Years of Delights: Earthly Reflections (2021) [AAC|~321 Kbps] <Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149887.jpgsave_picture_149887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149887.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:56BCC298869C7ADA8527442E5BDFF185E14849FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149889.jpgsave_picture_149889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149889.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:8039C07666EA5B52297C4FCB987233BF17D43EB2
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149890.jpgsave_picture_149890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149890.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Classy Lounge (2021) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149892.jpgsave_picture_149892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149892.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Last Trial - А Время Шло (2020) [MP3|320 Kbps] <Modern Melodic Death Me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149894.jpgsave_picture_149894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149894.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:62EF4513D6605EC74C84F5F99E7DF60206382719
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149895.jpgsave_picture_149895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149895.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ana Gazzola - Brazilian Blues (2018) [MP3|320 Kbps] <Vocal Jazz, Soul, Blues, Bo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149896.jpgsave_picture_149896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149896.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:91E2EAAC2648165A3E8C3FEFDA10E793A654264B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149897.jpgsave_picture_149897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149897.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:706CA4AE7C19AF2009643FA543D803E0B5AD08A4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149898.jpgsave_picture_149898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149898.jpg" />
 </div>
 
 

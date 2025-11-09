@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195019.jpgsave_picture_195019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195019.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7EC6278C844FFC11454E7E03B58229AEB068E8B7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195020.jpgsave_picture_195020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195020.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FF199F67EE5F155751F79F747BFBB5795B24B421
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195021.jpgsave_picture_195021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195021.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FE2B6D388295F27C86B585EF17919E32988399C1
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195022.jpgsave_picture_195022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195022.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Advanced Exterior Visualizations (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195023.jpgsave_picture_195023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195023.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C7B36F45DD365CF2DE30C775AC802E14C198BAEF
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195026.jpgsave_picture_195026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195026.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C498DFF6EDD44D1E9FA4B4C8EE5D4DD13EE07F56
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195027.jpgsave_picture_195027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195027.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:AF2FF106773DB0AB3102CF4B788B793E25DFE7F9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195028.jpgsave_picture_195028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195028.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:F08EBDE6E7037BBCB5D6E753B4B273C0F309A3B9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195029.jpgsave_picture_195029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195029.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C3D5EF3F8428CE7D1C980F136CB47CCEEA84C340
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195030.jpgsave_picture_195030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195030.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Windows 11 (v22h2) x64 PRO by KulHunter v5 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195031.jpgsave_picture_195031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195031.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Udemy, Unreal RPG Mastery | Unreal Engine 5: Soulslike Melee Combat System (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195032.jpgsave_picture_195032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195032.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Advanced Interior Visualizations (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195033.jpgsave_picture_195033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195033.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Modern Talking - Original 80's (2014) 3CD [MP3|320 Kbps] <Eurodisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195034.jpgsave_picture_195034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195034.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ NG. Самая огромная акула-бык / World's Biggest Bull Shark (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195035.jpgsave_picture_195035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195035.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The Frozen Garden (2023) [En] (Build 11771483) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195036.jpgsave_picture_195036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195036.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:DC4530F3DE7AD6C72DF82C5DDE254A54F875C5CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195037.jpgsave_picture_195037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195037.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:114E92E6AC3EC6B57616A6651BC98ADDA7EE1457
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195038.jpgsave_picture_195038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195038.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: Самые опасные животные: От пустыни до сав�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195039.jpgsave_picture_195039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195039.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:9E0B855CF8A6CC2A450F04EBB4A336478B743F0A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195040.jpgsave_picture_195040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195040.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:4E3250C5C40F0F9131E6DB16680758FEE24881AD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195041.jpgsave_picture_195041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195041.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:7FF2863422D6151981DBC03F4FBF6A3FF2D9B3D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195042.jpgsave_picture_195042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195042.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:925553E56DBDDC499D6A4FE5B60C44440B9C1B01
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195043.jpgsave_picture_195043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195043.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Udemy, Maya Pundale | Unreal Engine 5 Essentials (2022) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195044.jpgsave_picture_195044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195044.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Exterior & Interior Visualizations 2.0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195045.jpgsave_picture_195045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195045.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:D46136C49366CC1C00DF1187B3F7BC22C1E8C65A
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195046.jpgsave_picture_195046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195046.jpg" />
 </div>
 
 

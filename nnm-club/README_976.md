@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25726.jpgsave_picture_25726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25726.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blue Ambition - Seduction of the Innocent (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25727.jpgsave_picture_25727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25727.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - The Best of Sounemot 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25728.jpgsave_picture_25728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25728.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Monika Hauff & Klaus-Dieter Henkler - Моника Хуфф и Клаус-Дит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25729.jpgsave_picture_25729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25729.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Venamoris, Dave Lombardo - To Cross or To Burn (2025) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25730.jpgsave_picture_25730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25730.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ VA - In the Mix with Neil MD (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25731.jpgsave_picture_25731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25731.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:17938DF72079849082026F09E930F9A024754D60
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25732.jpgsave_picture_25732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25732.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:BC4E2BEE51971702E29BAA5FEA78F0316EEF25BA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25733.jpgsave_picture_25733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25733.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Medusian - Library (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extreme Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25734.jpgsave_picture_25734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25734.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:7441B45829760210ED08763BBBF3C74293D77232
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25735.jpgsave_picture_25735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25735.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Owlbear and Katy Scary - Feather and Claw (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25736.jpgsave_picture_25736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25736.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:61BA1FAFB4A692442D359DA65FA07839F7F75507
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25737.jpgsave_picture_25737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25737.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:10D6B3DD7097B03B8F3CF225C7F7D3B5DD07D157
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25738.jpgsave_picture_25738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25738.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:C5EB1112BA62DEB180283884D790D4B1D0D7876C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25739.jpgsave_picture_25739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25739.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Skype 8.137.0.425 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25740.jpgsave_picture_25740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25740.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - New Music Releases Week 03 (2025) [MP3|320 Kbps] <Pop, Rock, R&B, Hip-Hop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25741.jpgsave_picture_25741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25741.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Firefox Browser ESR 128.8.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25742.jpgsave_picture_25742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25742.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:96E1B299780E15E8B329F38EA9795A2AF98DD77F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25743.jpgsave_picture_25743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25743.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Firefox Browser ESR 115.21.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25744.jpgsave_picture_25744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25744.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:CDBE78A8A4BF4D2A6B89D86FB050BE0C565B72ED
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25745.jpgsave_picture_25745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25745.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:565FBA7ECDA670CACD9C1EE573D6BA7C75E7045C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25746.jpgsave_picture_25746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25746.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:08FC747E143AE2C928CCC2B248550C4AE256B5FC
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25747.jpgsave_picture_25747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25747.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:00CFD9D5C71BA73129A8C07FE70F0F2EA2CBE6AB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25748.jpgsave_picture_25748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25748.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Thundermother (& The Gems) - Studio Albums (7 releases) (2014-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25749.jpgsave_picture_25749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25749.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:1BFF1734C1724A3A9B23CC97F779C868C9E96790
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25750.jpgsave_picture_25750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25750.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:1271366722073E381EE7EE710A30B00C580C1177
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25751.jpgsave_picture_25751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25751.jpg" />
 </div>
 
 

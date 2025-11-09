@@ -6,7 +6,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64616.jpgsave_picture_64616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64616.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C0F4BA805B1FFC2E230094C9624FB32F1E1E813B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65054.jpgsave_picture_65054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65054.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VideoShow Pro v10.2.4.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65192.jpgsave_picture_65192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65192.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ TrackChecker Mobile v2.28.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65214.jpgsave_picture_65214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65214.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Daily Yoga (Ежедневная йога) v8.72.00 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65220.jpgsave_picture_65220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65220.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Shazam v16.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65235.jpgsave_picture_65235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65235.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65242.jpgsave_picture_65242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65242.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Speedtest от Ookla v6.2.1 Mod by Balatan [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65252.jpgsave_picture_65252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65252.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Gaia GPS (Topo Maps) v2025.5 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65256.jpgsave_picture_65256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65256.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Picsart AI Photo Editor, Video v27.9.8 Final Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65262.jpgsave_picture_65262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65262.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Screenshot touch v2.5.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65655.jpgsave_picture_65655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65655.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65704.jpgsave_picture_65704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65704.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Photo Studio PRO v2.8.2.4354 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66132.jpgsave_picture_66132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66132.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Display Tester v5.35.5 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66191.jpgsave_picture_66191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66191.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Electrical Cost / Стоимость электроэнергии v6.1.3 Mod by 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66337.jpgsave_picture_66337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66337.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VivaCut v4.2.0 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66423.jpgsave_picture_66423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66423.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VN - Video Editor / VN - Видеоредактор v2.6.0 Mod by PieMods [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66424.jpgsave_picture_66424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66424.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Easy Voice Recorder - Pro / Простой диктофон Про v2.9.9 Mod by
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66440.jpgsave_picture_66440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66440.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:CCC38F660C3B16920D350BEE04DB3E5947395918
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66631.jpgsave_picture_66631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66631.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Smart AudioBook Player Pro v11.2.8 (A8.0+) Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66928.jpgsave_picture_66928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66928.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ KineMaster - Video Editor & Maker v7.6.16.34690.GP Mod by Shadow_Patcher [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67222.jpgsave_picture_67222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67222.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:BE9775DA84966DA1A8115510479ADFA68064C4BC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67723.jpgsave_picture_67723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67723.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Resize Me! Pro v2.4.1 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68546.jpgsave_picture_68546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68546.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:14FE38F4582CD99592E9839B1199D86CD6B796EA
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68701.jpgsave_picture_68701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68701.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Unit Converter Pro / Конвертер Единиц Pro v2.6.3 Mod by Balatan [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68885.jpgsave_picture_68885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68885.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ CastBox - Популярные подкасты v11.21.1 Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69067.jpgsave_picture_69067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69067.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Lacrimosa - Nachts (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169151.jpgsave_picture_169151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169151.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5CBD2C8D0F75973FE5E5FB0DC20CDED988E96DCA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169152.jpgsave_picture_169152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169152.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:266B260024DB8EA16944BAD4531BEA15541D9183
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169153.jpgsave_picture_169153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169153.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Unto The End (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169154.jpgsave_picture_169154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169154.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Judas Iscariot - Heaven in Flames (1999) Reissue 2000 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169155.jpgsave_picture_169155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169155.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E24ABA9CCA2F54D7AFF25001BDE01F9849F03176
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169156.jpgsave_picture_169156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169156.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:396B532CEE47ABAF3638FEF6A7F49763050749DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169157.jpgsave_picture_169157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169157.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:9BAF786033D9377D1E72CD42EFFF4D73BE5081FE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169158.jpgsave_picture_169158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169158.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Windows 10, Version 20H2 with Update [19042.685] AIO 64in2 (x86-x64) by adguard 
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169159.jpgsave_picture_169159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169159.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:14A739EA8D6D307B1951B831935DFBF48672FA09
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169160.jpgsave_picture_169160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169160.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ FoldersSynchronizer 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169161.jpgsave_picture_169161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169161.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ PictureThis - Plant Identification v3.68 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169162.jpgsave_picture_169162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169162.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ John Norum - Gone To Stay (2022) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169163.jpgsave_picture_169163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169163.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Bereaved - Daylight Deception (2009) [FLAC|Lossless|image + .cue] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169164.jpgsave_picture_169164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169164.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:2DA75715489D23657BEA35908516DB14702DE0CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169165.jpgsave_picture_169165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169165.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:ABCFDF941F9556EC002BEEAC9E6715F4FE752423
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169166.jpgsave_picture_169166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169166.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CCleaner 5.75.8238 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169167.jpgsave_picture_169167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169167.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Windows 10 Enterprise 2019 LTSC with Update [17763.1637] AIO 4in2 (x86-x64) by a
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169168.jpgsave_picture_169168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169168.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169169.jpgsave_picture_169169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169169.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Coleman Hawkins - In Europe 1934-1939 (1993) Timeless Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169170.jpgsave_picture_169170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169170.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Skype 8.79.0.95 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169171.jpgsave_picture_169171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169171.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:F50DDFCF373D6C96137DD0F7B41C6CD09DF246F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169172.jpgsave_picture_169172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169172.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:CCD874920E974E1027A1AF43A46622DF6951785B
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169173.jpgsave_picture_169173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169173.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Jashin-chan Dropkick Dash | Dropkick on My Devil!! Dash | Дропкик зло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169174.jpgsave_picture_169174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169174.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Nemesis - The Day Of Retribution (1982) Reissued 1990 [WavPack|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169175.jpgsave_picture_169175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169175.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:578A9D85BD112A6E7A8EFDBB07D1FABD5CAB342D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169176.jpgsave_picture_169176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169176.jpg" />
 </div>
 
 

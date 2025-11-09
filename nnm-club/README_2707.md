@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71132.jpgsave_picture_71132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71132.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deviated Instinct - Terminal Filth Stench-Core... the 86 Demo (2022) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71133.jpgsave_picture_71133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71133.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C3FAB7DF52AD1AFD18B581DC92F17C2A0A9E77BE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71134.jpgsave_picture_71134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71134.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Polar Impact Records: Essentials 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71135.jpgsave_picture_71135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71135.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Kovenant (Covenant) - Studio Albums (4 releases) (1997-2003) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71136.jpgsave_picture_71136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71136.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Zivatar - Apocalypse Campaign (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71137.jpgsave_picture_71137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71137.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ We Sell The Dead - Studio Albums (2 releases) (2018-2020) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71138.jpgsave_picture_71138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71138.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Folterkammer - Die Lederpredigt (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71139.jpgsave_picture_71139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71139.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Frank Morgan - Mood Indigo (1989) Antilles [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71140.jpgsave_picture_71140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71140.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Art Farmer + Bill Evans - Modern Art (1958, 1959) 2004, Lone Hill Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71141.jpgsave_picture_71141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71141.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Red Mitchell & George Cables - Live At Port Townsend (1992) 2005, Challenge Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71142.jpgsave_picture_71142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71142.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Don Patterson - Steady Comin' At 'Ya (1972 - 1977) 1998, 32 Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71143.jpgsave_picture_71143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71143.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:03547BCDB24DBA9814F8F58C88A1DEED5AFE3281
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71144.jpgsave_picture_71144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71144.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Chasys Draw IES 5.34.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71145.jpgsave_picture_71145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71145.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:CC46A844CBF4DEFCF112830FB6279746740532AB
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71146.jpgsave_picture_71146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71146.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E61E1FB915BE17FF0EAC78CBF82023DBA0D917D3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71147.jpgsave_picture_71147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71147.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:AEA785D7C77BEAA98D897CCFCA22DF43D5734A38
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71148.jpgsave_picture_71148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71148.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:2E559FB3A2A8CF85990C523E04DFAE0DACDDEC54
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71149.jpgsave_picture_71149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71149.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ RegCool 2.022 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71150.jpgsave_picture_71150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71150.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:5F9937DDF9E240DEA2BE99063A9C4353CCF0CD92
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71151.jpgsave_picture_71151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71151.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:0D57F182FE29F7BD0CBE87023985ABD5C45C49E2
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71152.jpgsave_picture_71152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71152.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Ibiza Winter 2025 (House Hotties from the Heart) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71153.jpgsave_picture_71153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71153.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Trance Anthems 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71154.jpgsave_picture_71154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71154.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:46B5101E3E6E2212841723A909EA989DB0C41399
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71155.jpgsave_picture_71155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71155.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0F1916859B3EAD9AED1F6AB84AF851090F7A1BCB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71156.jpgsave_picture_71156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71156.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Alex Sonata & TheRio - 25 Years Of Anjuna (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71157.jpgsave_picture_71157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71157.jpg" />
 </div>
 
 

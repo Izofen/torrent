@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109333.jpgsave_picture_109333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109333.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:50B230C9BFDDFA52C3AC0987EB3657A2284C6723
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109334.jpgsave_picture_109334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109334.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F6919466B6066067715FC46E3A3259B63FF1ECD6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109335.jpgsave_picture_109335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109335.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Orchestre Mario Cavallero - Hit Parade Chante - Pop Hits - Vol. 6 (1973) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109336.jpgsave_picture_109336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109336.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C668C239C5237EF2C9AC043A292F1035680A2DB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109337.jpgsave_picture_109337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109337.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Everyone's Getting Involved (2024) A tribute to Talking Heads’ Stop Makin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109338.jpgsave_picture_109338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109338.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Combichrist - Cmbcrst (2CD) (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109339.jpgsave_picture_109339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109339.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ A. G. Cook - Britpop (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109340.jpgsave_picture_109340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109340.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:CDA1581F7075D4524771A6E56E7B549C76B4559E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109341.jpgsave_picture_109341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109341.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Soul Button - Master Minds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109342.jpgsave_picture_109342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109342.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Cocteau Twins - Treasure (1984) [FLAC 2.0|24/192|tracks|Vinyl-Rip|image + .cue] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109343.jpgsave_picture_109343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109343.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:F88E39BD6C7A5C708763044BE006C15D8662A670
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109344.jpgsave_picture_109344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109344.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Teisutis Makacinas (T. Makačinas) - Disko Muzika (1982) Reissue, 2018, Makačin
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109345.jpgsave_picture_109345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109345.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:B970186E10B847F8466A7088BFA046D319B5EB83
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109346.jpgsave_picture_109346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109346.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Everyone's Getting Involved (2024) A tribute to Talking Heads’ Stop Makin
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109347.jpgsave_picture_109347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109347.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:AD83E7A78A510CEB192E5069DF5EF253A7832A4D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109348.jpgsave_picture_109348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109348.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:30A7A1199321BCB20030FF40FD12FAA1BD2C8217
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109349.jpgsave_picture_109349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109349.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Halestorm - Live At Wembley (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109350.jpgsave_picture_109350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109350.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:86CF38BFAD5B46C774BC4DD649EC57AE998D0A3E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109351.jpgsave_picture_109351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109351.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Motörhead - Remorse? No! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109352.jpgsave_picture_109352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109352.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Speedtest от Ookla 5.3.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109353.jpgsave_picture_109353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109353.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [MP3|320 Kbps] <Alternative rock, Alter
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109354.jpgsave_picture_109354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109354.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Godsmack - Awake (2000) Reissue, 2024, Universal Records [MP3|320 Kbps] <Alterna
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109355.jpgsave_picture_109355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109355.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:738C74A6B9C5B3CFAC4A0289C0E20384C4342E88
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109356.jpgsave_picture_109356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109356.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Halestorm - Live At Wembley (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109357.jpgsave_picture_109357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109357.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:4C8AB2D3360585434F88429D68EF83E5CA72D9D3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109358.jpgsave_picture_109358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109358.jpg" />
 </div>
 
 

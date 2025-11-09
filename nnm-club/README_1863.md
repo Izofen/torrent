@@ -6,7 +6,7 @@ By Click Downloader Premium 2.4.9 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48795.jpgsave_picture_48795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48795.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52371F9B6F517804CF0737DD160F3ADF2E832A0A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48796.jpgsave_picture_48796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48796.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Master PDF Editor 5.9.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48797.jpgsave_picture_48797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48797.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:2E5F61B69B65793AC246D0D2E2208CFCA3E08B19
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48798.jpgsave_picture_48798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48798.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2E5F61B69B65793AC246D0D2E2208CFCA3E08B19
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48799.jpgsave_picture_48799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48799.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2E5F61B69B65793AC246D0D2E2208CFCA3E08B19
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48800.jpgsave_picture_48800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48800.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6B4800C87CFD1C6C9B5BE4C4E28CEC2F4EDE37E0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48801.jpgsave_picture_48801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48801.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6E2037792D2D4C53E2F77A80A5BD40FF65F8240E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48802.jpgsave_picture_48802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48802.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:92E61B98E8982DE08AB974EDF75E5A92C9CFD194
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48803.jpgsave_picture_48803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48803.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Icecream Screen Recorder Pro 7.42 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48804.jpgsave_picture_48804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48804.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:D62539B320E7D54C852CFAF71855DF930607A88A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48805.jpgsave_picture_48805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48805.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3CCE14F2531B502E836970E96058674946601176
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48806.jpgsave_picture_48806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48806.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:DF9DEF24BEA9D2490CFE9E23BF8D9DA608A02E13
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48807.jpgsave_picture_48807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48807.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Veeam Agent 6.1.2.134 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48808.jpgsave_picture_48808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48808.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:CAA0E0EE89A6AA358472D07A92F680824D68C956
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48809.jpgsave_picture_48809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48809.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:C6C74A258E07339A1CAA92B9A0FD343E561AF8E7
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48810.jpgsave_picture_48810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48810.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Fast Video Downloader 4.0.0.62 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48811.jpgsave_picture_48811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48811.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:BDF9ABC0D9485252B468A67B40CCA342A0C30C05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48812.jpgsave_picture_48812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48812.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:4D6D6DD07A40DFD51B7EF4BC5AD05878DD10CD18
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48813.jpgsave_picture_48813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48813.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:AD530C3C98DB90290CAC449274E5B7A6AAE3F737
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48814.jpgsave_picture_48814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48814.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Topaz Video AI 5.2.2 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48815.jpgsave_picture_48815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48815.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:3770AFDF59B20021D3294E5D534AED2740C7F296
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48816.jpgsave_picture_48816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48816.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Genesis - The Video Show 2004 DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48817.jpgsave_picture_48817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48817.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:707ADA769643AFC41B3F2633E1DE86796B141D6A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48818.jpgsave_picture_48818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48818.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Doro - 25 Years In Rock... And Still Going Strong (2010) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48819.jpgsave_picture_48819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48819.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:713EB98420AC447E4CF0C4FC4E8DE1A5A9C98656
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48820.jpgsave_picture_48820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48820.jpg" />
 </div>
 
 

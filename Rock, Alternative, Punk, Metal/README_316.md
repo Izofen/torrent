@@ -6,7 +6,7 @@ Starblind - Black Bubbling Ooze (2020) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183974.jpgsave_picture_183974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183974.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anxious Arms - Crimes of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Emo, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183977.jpgsave_picture_183977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183977.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tempel - The Moon Lit Our Path (2015) [FLAC|Lossless|tracks + .cue] <Post-Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183980.jpgsave_picture_183980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183980.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dramanduhr - Tramohr (2022) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183982.jpgsave_picture_183982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183982.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183989.jpgsave_picture_183989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183989.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Heavy Water - Dreams Of Yesterday (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183992.jpgsave_picture_183992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183992.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Heldmaschine - Flachenbrand (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184000.jpgsave_picture_184000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184000.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blackbriar - A Dark Euphony (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184011.jpgsave_picture_184011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184011.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Asinhell - Impii Hora (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184021.jpgsave_picture_184021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184021.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mayhem - Daemon (2019) Limited edition [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184026.jpgsave_picture_184026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184026.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Suidakra - Echoes of Yore (2019) [FLAC|Lossless|image + .cue] <Melodic Death, Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184034.jpgsave_picture_184034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184034.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Frozen Dawn - The Decline of the Enlightened Gods (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184037.jpgsave_picture_184037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184037.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Paladine - Entering The Abyss (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184039.jpgsave_picture_184039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184039.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Joachim Witt - Rubezahl (2018) [FLAC|Lossless|image + .cue] <Goth Rock, Darkwave
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184043.jpgsave_picture_184043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184043.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Stepmother - Planet Brutalicon (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184045.jpgsave_picture_184045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184045.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Powertryp - Midnight Marauder (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184056.jpgsave_picture_184056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184056.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Origins - Edge Of Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184059.jpgsave_picture_184059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184059.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Great Master - Lion & Queen (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184066.jpgsave_picture_184066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184066.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wolves In The Throne Room - Crypt of Ancestral Knowledge (2023) EP [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184090.jpgsave_picture_184090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184090.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Primitai - Violence Of The Skies (2021) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184094.jpgsave_picture_184094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184094.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:277D521D2F8FA1FE49588CFD161C4982DFEB0F53
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184095.jpgsave_picture_184095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184095.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:07704D41D83528A8482ED66F4DAAE4D01B740155
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184167.jpgsave_picture_184167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184167.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Orion's Reign - Scores Of War (2018) Japanese Edition, 2019, Radtone Music [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184237.jpgsave_picture_184237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184237.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ U.D.O. - The Legacy (2022) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184251.jpgsave_picture_184251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184251.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Suzi Quatro - Stumblin' In (2020) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184252.jpgsave_picture_184252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184252.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Slipknot - The End, So Far (2022) [FLAC|Lossless|image + .cue] <Alternative Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184270.jpgsave_picture_184270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184270.jpg" />
 </div>
 
 

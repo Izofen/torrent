@@ -6,7 +6,7 @@ Aggressor - Procreate the Petrifactions (1993) Reissue, 2012, Roundsound [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110693.jpgsave_picture_110693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110693.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Abhorration - Despondent (2018) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110703.jpgsave_picture_110703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110703.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aggressor - Of Long Duration Anguish (1994) [APE|Lossless|image + .cue] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110704.jpgsave_picture_110704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110704.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pixies - Surfer Rosa & Come On Pilgrim (1988) [FLAC|Lossless|tracks + .cue] <Alt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110713.jpgsave_picture_110713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110713.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:2A8569B71A43D95634A27EFBDEC3F84549BF5368
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110715.jpgsave_picture_110715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110715.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Gartenparty - Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110720.jpgsave_picture_110720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110720.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Angel Da Rock - Теряя целый мир (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110724.jpgsave_picture_110724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110724.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Rock the world (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110728.jpgsave_picture_110728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110728.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Plotnik82 - Мои барды (2024) [MP3|320 Kbps] <Rock, Electronic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110736.jpgsave_picture_110736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110736.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Rock no Volante (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110742.jpgsave_picture_110742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110742.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Rock Alternative (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110743.jpgsave_picture_110743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110743.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Митьки никого не хотят победить! (2023) [FLAC|Lo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110777.jpgsave_picture_110777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110777.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tina Turner - What's Love Got to Do with It (1984) 30th Anniversary Deluxe Editi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110797.jpgsave_picture_110797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110797.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1065B54D042724828E036CEA02A737184CDCF5C0
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110807.jpgsave_picture_110807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110807.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Def Leppard - Pyromania (1983) Super Deluxe, 2024, UMC [MP3|320 Kbps] <Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110808.jpgsave_picture_110808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110808.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Neil Young & Crazy Horse - Fu##in' Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110840.jpgsave_picture_110840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110840.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ GasILove - Морфей (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110841.jpgsave_picture_110841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110841.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Ramses - 3 Albums (1976-1981) 2LP+1CD [MP3|320 Kbps] <Krautrock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110847.jpgsave_picture_110847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110847.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Transatlantic - Live at Morsefest 2022: The Absolute Whirlwind (2024) Live at Mo
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110853.jpgsave_picture_110853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110853.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Ozzy Osbourne - No More Tears (1991) Reissue, 2001, CD-Maximum [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110854.jpgsave_picture_110854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110854.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Lee Aaron - Tattoo Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110860.jpgsave_picture_110860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110860.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ringo Starr - Crooked Boy (2024) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110863.jpgsave_picture_110863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110863.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Accept - Humanoid (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110905.jpgsave_picture_110905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110905.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Stormborn - Zenith (2024) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110909.jpgsave_picture_110909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110909.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Six By Six - Beyond Shadowland (2024) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110910.jpgsave_picture_110910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110910.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Ethereal Flames - Myths And Legends Of Our Land (2024) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110911.jpgsave_picture_110911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110911.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Neal Francis - Francis Comes Alive (2023) Deluxe Edition, 2023, ATO Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111278.jpgsave_picture_111278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111278.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vella la Vella - Revolution (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111279.jpgsave_picture_111279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111279.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bless Her Evil - We Are Mystery... (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111287.jpgsave_picture_111287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111287.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Crimson Train - Crimson Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111290.jpgsave_picture_111290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111290.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Void Chapter - humAnIty (2023) Deluxe, 2024, FiXT[FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111301.jpgsave_picture_111301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111301.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111305.jpgsave_picture_111305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111305.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kevin & JD - Island Of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111314.jpgsave_picture_111314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111314.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Voided - One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111317.jpgsave_picture_111317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111317.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jeff Russo - Fargo Year 5 (Soundtrack from the MGM/ FXP Series) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111320.jpgsave_picture_111320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111320.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jeff Russo - Fargo Year 4 (Soundtrack from the MGM/FXP Series) (2020) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111322.jpgsave_picture_111322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111322.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Estopa - Estopía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Latin Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111329.jpgsave_picture_111329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111329.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Nick Cave & Warren Ellis - Back to Black (2024) Original Motion Picture Score [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111349.jpgsave_picture_111349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111349.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Susan Santos - Sonora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111355.jpgsave_picture_111355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111355.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:D183FE86C10502B035F15A3D32FD8AB79C2CB30F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111357.jpgsave_picture_111357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111357.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Caru de Souza - Amor, Pele e Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111358.jpgsave_picture_111358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111358.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Stonehurst - Wild Visions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111359.jpgsave_picture_111359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111359.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Starsailor - Where The Wild Things Grow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111360.jpgsave_picture_111360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111360.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Love Sex Machine - Trve (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111368.jpgsave_picture_111368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111368.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Frank & Tony - Ethos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111372.jpgsave_picture_111372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111372.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Chicane - Far From The Maddening Crowds (Symphonic Rehearsals) (2024) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111385.jpgsave_picture_111385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111385.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ A La Carte - The Ultimate Best of Album (2016) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111415.jpgsave_picture_111415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111415.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Imminence - The Black (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111420.jpgsave_picture_111420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111420.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ BlackRain - Hot Rock Time Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111425.jpgsave_picture_111425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111425.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Slash - Oh Well feat. Chris Stapleton (2024) Single [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111429.jpgsave_picture_111429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111429.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Too Close To Touch - For Keeps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111430.jpgsave_picture_111430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111430.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Armin van Buuren - Feel Again, Pt. 2 (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111440.jpgsave_picture_111440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111440.jpg" />
 </div>
 
 

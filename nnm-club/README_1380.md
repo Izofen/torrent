@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36235.jpgsave_picture_36235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36235.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C9E3C14495609DAA6787E0D7D68AA23FDDB7FE75
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36236.jpgsave_picture_36236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36236.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Polyverse Music - Filterverse 1.0.1 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36237.jpgsave_picture_36237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36237.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:05411A23738A60D4D670F251936B68233398D803
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36238.jpgsave_picture_36238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36238.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Top Romantic Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36239.jpgsave_picture_36239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36239.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D1AE4A03CF7944723F01AAC03566BC38A09B7390
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36240.jpgsave_picture_36240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36240.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:955D46A079564ABBF423BF234091740DF9BE1F6A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36241.jpgsave_picture_36241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36241.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2B5B182E7AF0F26B07324E6337819920CD71D836
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36242.jpgsave_picture_36242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36242.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:2CB5F85C1BD3E4B632F610EA1689CB006B7010F1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36243.jpgsave_picture_36243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36243.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Free Hex Editor Neo 7.50.02.8795 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36244.jpgsave_picture_36244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36244.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:3BE8DA296E2E34BB784523BDBFCBB2BCBEBE8CA3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36245.jpgsave_picture_36245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36245.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Linkin Park - A Thousand Suns (2010) Brazil, 9362496333, AA0021000 Pressing, Pro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36246.jpgsave_picture_36246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36246.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:13C6992C9742A80C28A51D447055317458C542C2
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36247.jpgsave_picture_36247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36247.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:A3B5B23D5D7DF3CB01B5E9FA2928A0847220CB63
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36248.jpgsave_picture_36248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36248.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Thompson Twins - Into the Gap (1984) Deluxe Edition, Remaster, 2024, BMG [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36249.jpgsave_picture_36249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36249.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Overloud - Gem ECHOSON 1.0.8 STANDALONE, VST, VST 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36250.jpgsave_picture_36250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36250.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:23D1CCC4FCC9418489AF9BA7513B7647AB46E44A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36251.jpgsave_picture_36251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36251.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:63EE7AE73433569CADA97FC92A737DCA7F7204D8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36252.jpgsave_picture_36252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36252.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Linkin Park - Hybrid Theory (20th Anniversary Edition) (2000) 2020, Brazil, 0093
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36253.jpgsave_picture_36253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36253.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Mourning of the Heretic - To the Shadows Betrothed (2024) [FLAC|Lossless|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36254.jpgsave_picture_36254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36254.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:A674999B8AFE6C0CE713762A74C451462B882BD5
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36255.jpgsave_picture_36255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36255.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Linkin Park - Hybrid Theory (Special Edition) (2000) China, JCD-4598, 2002, 2xCD
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36256.jpgsave_picture_36256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36256.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6DF0A63DACCBAD0AD7B8998971C07B9F8B47BE9D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36257.jpgsave_picture_36257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36257.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) E.U., PRO17226, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36258.jpgsave_picture_36258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36258.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Electric Youth - Innerworld (2014) 10th Anniversary Edition, 2024, Electric Yout
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36259.jpgsave_picture_36259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36259.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:4484ECA5375C603EAA5745B14CCF158ABC575CEE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36260.jpgsave_picture_36260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36260.jpg" />
 </div>
 
 

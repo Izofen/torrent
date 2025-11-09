@@ -6,7 +6,7 @@ The KMPlayer 3.0.0.1440 (LAV) [Multi/Rus] [сборка 7sh3 от 28.03.12] + Po
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85185.jpgsave_picture_85185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85185.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85187.jpgsave_picture_85187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85187.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A99E7981DED0D700F9F09ED63BCF28E5DF345DC9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85188.jpgsave_picture_85188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85188.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Vietcong / Вьетконг [Ru/En] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85191.jpgsave_picture_85191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85191.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Black Widow Boot by Core-2 v.27.3.12 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85193.jpgsave_picture_85193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85193.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ The Incredibles: Rise of the Underminer / Суперсемейка. Подзем
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85194.jpgsave_picture_85194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85194.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ WPI DVD By StartSoft v 6.4.12 [Английский плюс Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85195.jpgsave_picture_85195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85195.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ WPI DVD By StartSoft v 6.4.12 [Английский плюс Русский]
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85196.jpgsave_picture_85196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85196.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Zолушка (2012) DVD5
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85197.jpgsave_picture_85197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85197.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Photodex ProShow Producer 5.0.3222 [Rus] Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85199.jpgsave_picture_85199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85199.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ ProShow Producer 5 - является крупным релизом именит
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85200.jpgsave_picture_85200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85200.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ProShow Producer 5 - является крупным релизом именит
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85203.jpgsave_picture_85203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85203.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ World War Zero (Iron Storm) / Коммандос: В тылу враг [Ru/En] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85204.jpgsave_picture_85204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85204.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Rayman Origins [Multi10\+] (RePack/1.0.32504) 2012 | z10yded
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85205.jpgsave_picture_85205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85205.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Another / Иная [2012, TV, 12 из 12 серий] HDTV 720p raw + rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85206.jpgsave_picture_85206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85206.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Another / Иная [2012, TV, 12 из 12 серий] HDTV 720p raw + rus
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85208.jpgsave_picture_85208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85208.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Tребования: Nokia x6 RM-559   Скриншоты:(   Читать да�
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85211.jpgsave_picture_85211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85211.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Tребования: Nokia x6 RM-559   Скриншоты:(   Читать да�
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85213.jpgsave_picture_85213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85213.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:58D98305DFDBF3402588D7C3793DA58707208D40
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85215.jpgsave_picture_85215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85215.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ubuntu Skin Pack 9.0 for Windows 7 (x86/x64) [Русский]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85216.jpgsave_picture_85216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85216.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Ubuntu Skin Pack способен быстро и без участия поль
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85217.jpgsave_picture_85217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85217.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Tropico 4: Modern Times [En] (L) 2012 l RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85218.jpgsave_picture_85218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85218.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85219.jpgsave_picture_85219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85219.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85220.jpgsave_picture_85220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85220.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:849C8228F96C73E7BEFFA776B9DDFAD85588A461
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85222.jpgsave_picture_85222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85222.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:8E31BB01A5AFE8B56B89F7403719937CFE0C3938
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85226.jpgsave_picture_85226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85226.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129330.jpgsave_picture_129330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129330.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129331.jpgsave_picture_129331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129331.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129333.jpgsave_picture_129333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129333.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Дискотека: Весенний отрыв №100 (2012) [MP3|256 кб
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129334.jpgsave_picture_129334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129334.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Te
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129335.jpgsave_picture_129335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129335.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Te
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129341.jpgsave_picture_129341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129341.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Biosphere - Shortwave Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Te
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129342.jpgsave_picture_129342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129342.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Clive Barker's Undying (2001) [En] (1.1hf) License GOG
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129343.jpgsave_picture_129343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129343.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ FamilyGo v4.2.2 [Ru/Multi]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129345.jpgsave_picture_129345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129345.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ FamilyGo — это GPS локатор, который позволит найт
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129347.jpgsave_picture_129347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129347.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ FamilyGo — это GPS локатор, который позволит найт
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129349.jpgsave_picture_129349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129349.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ FamilyGo — это GPS локатор, который позволит найт
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129350.jpgsave_picture_129350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129350.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ FamilyGo — это GPS локатор, который позволит найт
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129351.jpgsave_picture_129351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129351.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.7.6) Repack Other s
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129352.jpgsave_picture_129352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129352.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129353.jpgsave_picture_129353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129353.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129354.jpgsave_picture_129354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129354.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129356.jpgsave_picture_129356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129356.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129357.jpgsave_picture_129357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129357.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129358.jpgsave_picture_129358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129358.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129359.jpgsave_picture_129359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129359.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129360.jpgsave_picture_129360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129360.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129362.jpgsave_picture_129362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129362.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129364.jpgsave_picture_129364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129364.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129365.jpgsave_picture_129365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129365.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129366.jpgsave_picture_129366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129366.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Painscreek Killings - место действия, придуманный г
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129368.jpgsave_picture_129368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129368.jpg" />
 </div>
 
 

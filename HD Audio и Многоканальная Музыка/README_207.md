@@ -6,7 +6,7 @@ Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpgsave_picture_203562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpgsave_picture_203599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Mus
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203631.jpgsave_picture_203631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203631.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpgsave_picture_203748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpgsave_picture_203795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Vanessa-Mae - The Violin Player (1995) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SA
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204069.jpgsave_picture_204069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204069.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:B917221CB8D3F53DB9C9F702F9CC7F39289A37D5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204160.jpgsave_picture_204160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204160.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpgsave_picture_204266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ The Cars - The Cars (1978) Remastered, 2015, Mobile Fidelity Sound Lab  [DSD64 2
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204287.jpgsave_picture_204287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204287.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204295.jpgsave_picture_204295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204295.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Felix Jaehn - Happy Rave (2023) [FLAC|24/44.1|tracks|WEB-DL] <Electronic, Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204452.jpgsave_picture_204452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204452.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:18ECAA31302DF0803FC9012257FD1F4A7AF7E578
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpgsave_picture_204462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpgsave_picture_204616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204616.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Kreator - Violent Revolution (2001) Nuclear Blast, Reissue 2022 [FLAC 24/192|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpgsave_picture_205122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205122.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpgsave_picture_205144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205196.jpgsave_picture_205196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205196.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpgsave_picture_205374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205374.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205759.jpgsave_picture_205759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205759.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205984.jpgsave_picture_205984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205984.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206046.jpgsave_picture_206046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206046.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206467.jpgsave_picture_206467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206467.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpgsave_picture_207678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207751.jpgsave_picture_207751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207751.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpgsave_picture_209153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209223.jpgsave_picture_209223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209223.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ BluScenes: Gallery Musee (2012) [DTS-ES 6.1 CD-DA|24/44.1|image+.cue|BD-Video] <
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209478.jpgsave_picture_209478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209478.jpg" />
 </div>
 
 

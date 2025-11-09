@@ -6,7 +6,7 @@ iZotope - Nectar 3 Plus 3.8.0 VST, VST3, RTAS, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192241.jpgsave_picture_192241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192241.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ iZotope - Relay 1.3.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192344.jpgsave_picture_192344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192344.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Credland Audio - StereoSavage 2.0.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192358.jpgsave_picture_192358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192358.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ W.A. Production CHORDS Pro + Notes 1.0.0 VSTi, VSTi3, AAX RePack by TeamCubeadoo
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192601.jpgsave_picture_192601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192601.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Unfiltered Audio - Instant Delay 1.3.0 VST, VST3, AAX RePack by TeamCubeadooby [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192670.jpgsave_picture_192670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192670.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ AliveColors 10.0.4853 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193384.jpgsave_picture_193384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193384.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ GOM Player Plus 2.3.90.5360 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193824.jpgsave_picture_193824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193824.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ SoftOrbits Sketch Drawer Pro 10.01 (акция Comss) [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193943.jpgsave_picture_193943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193943.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Adobe Substance 3D Designer 13.0.2 build 6942 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194184.jpgsave_picture_194184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194184.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Blackmagic Design Fusion Studio 18.5.1 Build 4 (x64) RePack by AlekseyPopovv [Mu
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194316.jpgsave_picture_194316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194316.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Green Screen Wizard Professional 12.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194334.jpgsave_picture_194334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194334.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ MediaHuman Audio Converter 2.2.1 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194388.jpgsave_picture_194388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194388.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PhotoInstrument 7.7 Build 1052 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194596.jpgsave_picture_194596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194596.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Reallusion Cartoon Animator 5.01.1121.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195464.jpgsave_picture_195464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195464.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ MAGIX Sound Forge Pro Suite 17.0.2 Build 109 RePack by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195524.jpgsave_picture_195524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195524.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Reallusion iClone 8.3.1815.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195886.jpgsave_picture_195886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195886.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PhotoDiva Pro 5.0 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196459.jpgsave_picture_196459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196459.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Aiseesoft Video Enhancer 9.2.56 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196570.jpgsave_picture_196570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196570.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ PhotoDiva Pro 5.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196584.jpgsave_picture_196584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196584.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ PT Portrait 6.0.1 (x64) Studio Edition RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196803.jpgsave_picture_196803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196803.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3608FA0CC70088BBC61AD19B7CCFBDA54976B7F8
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196842.jpgsave_picture_196842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196842.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ LibFredo6 13.9a for Sketchup 2017-2023 Win (x64) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197078.jpgsave_picture_197078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197078.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ PhotoDiva Pro 5.0 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197126.jpgsave_picture_197126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197126.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Tipard Video Converter Ultimate 10.3.30 RePack (& Portable) by TryRooM [Multi/Ru
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197659.jpgsave_picture_197659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197659.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:85F6126F78340A0F907909ED19D0E2A33B45C2C0
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197975.jpgsave_picture_197975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197975.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ BluffTitler Ultimate 16.3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198382.jpgsave_picture_198382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198382.jpg" />
 </div>
 
 

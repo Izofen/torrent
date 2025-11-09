@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86292.jpgsave_picture_86292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86292.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F5818E22A6D490F9C87D29CFC3B8C5DE8AA50BEF
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86293.jpgsave_picture_86293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86293.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D4A21BCD7F77A838B32E3E8AF3D690AD7EFC35FE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86294.jpgsave_picture_86294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86294.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:3F80D906272C68D1B0B3B1B4AADAC981038D3A82
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86295.jpgsave_picture_86295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86295.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Halloween - Terrortory (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86296.jpgsave_picture_86296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86296.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Party Planner (P) [En] 2009
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86298.jpgsave_picture_86298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86298.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Powerwolf - Alive In The Night (Live) (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86299.jpgsave_picture_86299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86299.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:88B65D915D8BD9B5C7AEE6D8B58F7E799C345E82
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86301.jpgsave_picture_86301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86301.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:2F923B758676706E687433F5C233CBE15EBB9945
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86303.jpgsave_picture_86303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86303.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:E3C26283F37B5C4E6150FC8488EFEDF07B53B0E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86304.jpgsave_picture_86304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86304.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:618D96A02795156020733AB49165A5AC9E9DD232
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86305.jpgsave_picture_86305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86305.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Brandt Brauer Frick Ensemble - Mr. Machine (2011) [MP3|~245 кб/с (V0)]<Ex
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86306.jpgsave_picture_86306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86306.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:AB104999D53EA20EA3EA5E81B504911EE4DB6558
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86308.jpgsave_picture_86308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86308.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B940FADB4EED26867DD89A498288EFC0F0651C50
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86309.jpgsave_picture_86309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86309.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:6FE854BA0550CA36F9F1C23630A1D68DCBE7F0DC
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86310.jpgsave_picture_86310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86310.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:6997B0DA0241F37F8451E1E0DE60A1A756315D15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86311.jpgsave_picture_86311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86311.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ C-Bo - Cali Connection (2012) [MP3|320 кб/с]<Rap / Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86312.jpgsave_picture_86312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86312.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ BitTorrent 7.6.1 Build 26993 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86314.jpgsave_picture_86314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86314.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ BitTorrent 7.6.1 Build 26993 + Portable [Multi(Rus)]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86315.jpgsave_picture_86315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86315.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:B53CDFCE038993576A5A9B1C65FB35BBF9C43D84
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86316.jpgsave_picture_86316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86316.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:42E23CD624503FC16057D51FA8858130FC6B3525
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86320.jpgsave_picture_86320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86320.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:BF154F82EB2D1C822D2B59168F471243ED530CAE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86322.jpgsave_picture_86322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86322.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:B1D85EDF089B6E41644ADB75A4272D2CE9E52C9D
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86323.jpgsave_picture_86323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86323.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:B1D85EDF089B6E41644ADB75A4272D2CE9E52C9D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86324.jpgsave_picture_86324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86324.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:9C5B295B5E9182154AFD0B20093E1D2D6824012A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86325.jpgsave_picture_86325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86325.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86326.jpgsave_picture_86326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86326.jpg" />
 </div>
 
 

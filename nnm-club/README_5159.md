@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160875.jpgsave_picture_160875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160875.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.22631.2428], Version 23H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160876.jpgsave_picture_160876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160876.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E01EF89745B0CA759F682BC26B969A93485E7746
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160877.jpgsave_picture_160877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160877.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FDF7AA77F4FA797B8612F9A1177EF7BFA1594057
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160878.jpgsave_picture_160878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160878.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:381153A29BB8F31E3F7893C50A10B355A6815500
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160879.jpgsave_picture_160879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160879.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:04909187D8725EF6C88FE90EA99DC352832BBCA8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160880.jpgsave_picture_160880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160880.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Сделано в С.С.С.Р. 10xCD (2007-2010) [FLAC|Lossless] <Retro, Po
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160881.jpgsave_picture_160881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160881.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (673723) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160882.jpgsave_picture_160882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160882.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:14F0D648136B823BAE23535CB3EAA8CB4631F008
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160883.jpgsave_picture_160883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160883.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:C18C9F69A9A88FC375338706DC40F0B969C0ACBB
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160884.jpgsave_picture_160884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160884.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:F6E766F58AED1545165AA7F55C64BB1A75FE24EC
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160885.jpgsave_picture_160885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160885.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:F7053E6F9E6DDEA915181746AF8A873026B1F2C9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160886.jpgsave_picture_160886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160886.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:48DBB47A5A577640A9F0F6493288D43B802A3076
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160887.jpgsave_picture_160887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160887.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Microsoft Office 2021 for Mac LTSC v.16.78.3 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160888.jpgsave_picture_160888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160888.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:C66800B5153FC34B8268B32C6D8F5704E431ADC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160889.jpgsave_picture_160889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160889.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:8D339778F3D07C144AC918BB13BAC834645D375A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160890.jpgsave_picture_160890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160890.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ V. A. - Russian Collection (Лучшие Песни 1969-89) Vol. 3-6 (1995-1997
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160891.jpgsave_picture_160891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160891.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:66E78C2D4DC0567FF96F8FEE2B13C947E26F0E62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160892.jpgsave_picture_160892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160892.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:74A9B2ED754FABFFC8749FC44B25071C32865B3B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160893.jpgsave_picture_160893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160893.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Self-Learning, Виталий Трунин | Курс по SQL для начин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160894.jpgsave_picture_160894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160894.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:D44729687F68B8C8CC6BFF49DC17B09572B868C3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160896.jpgsave_picture_160896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160896.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:234848E30CCDAF5A46D4BBDE85E64570487D64F2
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160897.jpgsave_picture_160897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160897.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:7F2659816BF54741847E2E22FEB4C1443DAD42A3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160899.jpgsave_picture_160899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160899.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - 130 Original Hits - 70's (2009) 6CD[FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160900.jpgsave_picture_160900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160900.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:DA8C03C82A08A3FF73A3F308E8F5ACA986E2594A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160901.jpgsave_picture_160901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160901.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ V.A. - Комсомольская Юность Моя (2008) [FLAC|Lossless]<Pop
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160902.jpgsave_picture_160902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160902.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150402.jpgsave_picture_150402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150402.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tim Karr - Rubbin' Me The Right Way (1989) [APE|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150403.jpgsave_picture_150403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150403.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Bat! Professional Edition 7.1.6.0 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150406.jpgsave_picture_150406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150406.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Pascal's Wager v0.2.1 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150407.jpgsave_picture_150407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150407.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5046D816EEC65B3452452A79020077207D173029
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150409.jpgsave_picture_150409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150409.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Eiji Kadota - The Flow (2014) Innsbruck Records [FLAC|Lossless|WEB-DL|tracks] <F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150410.jpgsave_picture_150410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150410.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9112EC82B02274FED7C598EEA97CD0C9CA65BDCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150411.jpgsave_picture_150411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150411.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:10233F83D03AA13CEACD48F57F29E844A9AF98DC
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150413.jpgsave_picture_150413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150413.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:A23FCE8A54A53633EE86655945DB7F24383E6C70
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150414.jpgsave_picture_150414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150414.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:32022FEACAD63A55CA82C2735D55C4833AF34E7C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150415.jpgsave_picture_150415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150415.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:14D567B37C900F230D8271FBB6A9B918FECE2BAE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150416.jpgsave_picture_150416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150416.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Deep Six (1986) Reissue, 1994, A&M Records [FLAC|Lossless|tracks + .cue] <G
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150417.jpgsave_picture_150417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150417.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:8666098841A2112953C15E6A298D7DF69946CB19
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150418.jpgsave_picture_150418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150418.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Rainbow - Ансамбль Rainbow (1990) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Ha
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150420.jpgsave_picture_150420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150420.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:B57E62E143104D815BA4E1B9BF2D8A78D044FB05
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150421.jpgsave_picture_150421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150421.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:1B67D7A8E3323AC1A737EC7809AD3C30C96B4261
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150423.jpgsave_picture_150423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150423.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:26C9E4BE2508C84CADC8258717B5D7B5FE7BA444
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150424.jpgsave_picture_150424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150424.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:706F682B5BF7FDF9394642FD8E994558EA3446DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150425.jpgsave_picture_150425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150425.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:0A067730CC9A385BD29E3722062F441D8BC17A78
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150426.jpgsave_picture_150426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150426.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Wondershare PDFelement 10.1.7.2541 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150427.jpgsave_picture_150427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150427.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Billy Harper Quintet - Live On Tour In The Far East, Vol. 1 (1992) SteepleChase 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150430.jpgsave_picture_150430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150430.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150433.jpgsave_picture_150433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150433.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Billy Harper Quintet - Live on Tour in the Far East Vol. 3 (1995) SteepleChase [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150434.jpgsave_picture_150434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150434.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ The Bat! Professional Edition 7.1.6.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150435.jpgsave_picture_150435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150435.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Short Menu 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150436.jpgsave_picture_150436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150436.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Icecream PDF Editor Pro 3.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150437.jpgsave_picture_150437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150437.jpg" />
 </div>
 
 

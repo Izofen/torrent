@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175725.jpgsave_picture_175725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175725.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:04F0850628057651A363960B5621566E28BAAA50
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175726.jpgsave_picture_175726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175726.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Auslogics File Recovery 10.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175727.jpgsave_picture_175727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175727.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Disturbed - The Sickness (2000) Remastered, 2010, Reprise Records [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175729.jpgsave_picture_175729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175729.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:4C9FE15E7B0B7A36EDD71FDD54A177A714666039
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175730.jpgsave_picture_175730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175730.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175732.jpgsave_picture_175732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175732.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:C1A3A4940F916DC4E504751543DD3C9F00030CFF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175733.jpgsave_picture_175733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175733.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:90FBC6CF07AC22282E29EF687BCD33F8E2772DAA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175735.jpgsave_picture_175735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175735.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:7F1A21097F87371B2A40679869B81AA5251DBED8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175736.jpgsave_picture_175736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175736.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Oriental Deep 4 (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175738.jpgsave_picture_175738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175738.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ BELOFF 2022.12 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175739.jpgsave_picture_175739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175739.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.10 Stable RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175741.jpgsave_picture_175741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175741.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Base One (2021) [Ru/Multi] (1.4.0.8_e41965c41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175744.jpgsave_picture_175744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175744.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:5515C948BD6EF2B5625B56AB99CA0E96E977A22F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175745.jpgsave_picture_175745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175745.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (1.1.15.5/dlc) License FLT [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175747.jpgsave_picture_175747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175747.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ TechSmith Snagit 2023.2.1 build 33145 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175748.jpgsave_picture_175748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175748.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Auslogics BoostSpeed 13.0.0.5 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175750.jpgsave_picture_175750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175750.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:DD67933DFBC2BC1E577083632CEE06FF32AF9361
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175751.jpgsave_picture_175751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175751.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:5D452ED9053118BCB3A60FBFBFD5D62F4A476B8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175752.jpgsave_picture_175752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175752.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - не Громкие новинки недели 90 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175754.jpgsave_picture_175754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175754.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Dr.Web CureIt! (07.12.2020) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175755.jpgsave_picture_175755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175755.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:FF3F1B8DE63F7AF5CD70341F1849EFBD1FB3C1CF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175756.jpgsave_picture_175756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175756.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:3E7916724B8D0C1A046F5B577096FC6AD795BF57
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175757.jpgsave_picture_175757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175757.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ KMSAuto++ Portable 1.7.7.1 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175758.jpgsave_picture_175758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175758.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ FBackup 8.9.352 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175759.jpgsave_picture_175759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175759.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:21705B469D7C86986E7C3BA10888A23501F747DA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175760.jpgsave_picture_175760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175760.jpg" />
 </div>
 
 

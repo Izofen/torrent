@@ -6,7 +6,7 @@ Don Burrows & The Mell-O-Tones - Non-Stop Flight: Great Music of the Swing Era (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84063.jpgsave_picture_84063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84063.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ NG: Кладбище воинов. Ожившие самураи / Warrior Grave
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84066.jpgsave_picture_84066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84066.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:44532A986DFF3D1C6C9E12469C97BD7D32C4732C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84073.jpgsave_picture_84073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84073.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:BA00C7770D3423FE2AB266F1C4014C3CEAB69F62
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84077.jpgsave_picture_84077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84077.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:208D240B7E36E1ABA7EC706D2658881D0ECC5B94
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84078.jpgsave_picture_84078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84078.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:FEAEE1813C4550DB300093FBE180F52581610A28
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84080.jpgsave_picture_84080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84080.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:D18CBCA6D02286AB15DA4C77402A51DD8CEEE570
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84081.jpgsave_picture_84081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84081.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:D9218126CFCC681DEAAC16512E779BFB44DDA86B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84083.jpgsave_picture_84083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84083.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:0F7623CD826AC69AA9ECC5B16934EB01FF5E8491
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84084.jpgsave_picture_84084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84084.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:24D9915770410DD700950771317E88BFF81795D4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84085.jpgsave_picture_84085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84085.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Easter Eggztravaganza  / Пасха "eggztravaganza". Поиск яиц (P) [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84086.jpgsave_picture_84086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84086.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:060D5943625D23AF2F4F738ED649D19DEBB22EED
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84087.jpgsave_picture_84087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84087.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:E627B636B950E8A0497976FD87CEDF49EA1B4B13
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84089.jpgsave_picture_84089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84089.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:3DE32CC7F9A7938CB6AE1169015ABF0D84FD20D1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84090.jpgsave_picture_84090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84090.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Andrea Bocelli - Concerto One Night in Central Park (2011) [FLAC|Lossless]<Class
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84092.jpgsave_picture_84092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84092.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84093.jpgsave_picture_84093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84093.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Rollins' Choice: Selections From Blue Note (2CD) (2010) [FLAC|Lossless]<Jaz
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84101.jpgsave_picture_84101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84101.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:6E2B74197834A3E07448A500854EAB13422AB956
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84102.jpgsave_picture_84102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84102.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B481258BBAC4F8239BD4B9026C9189539D0A8636
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84108.jpgsave_picture_84108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84108.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:011BFC12EC9C6F16A426FF2737A56374326E1F5E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84109.jpgsave_picture_84109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84109.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:011BFC12EC9C6F16A426FF2737A56374326E1F5E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84114.jpgsave_picture_84114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84114.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:914D9CCF482508AED714E0B85A5364B527D6EF2B
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84115.jpgsave_picture_84115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84115.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:B337A12905BFCDFC0ECBC33B19F4B583EF5F499A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84117.jpgsave_picture_84117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84117.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:B177753956B946F793DA6FE4DBAF6451268B0A7D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84118.jpgsave_picture_84118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84118.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Madonna - MDNA (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84120.jpgsave_picture_84120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84120.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:EC5D2E3D371C2E3B5D644B5DDEE49CEB235A4307
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84124.jpgsave_picture_84124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84124.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155933.jpgsave_picture_155933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155933.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155935.jpgsave_picture_155935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155935.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:19BC1D7055350D0D7E8AA57B7C23D7BC89ABF7FD
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155937.jpgsave_picture_155937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155937.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Master of Typing - Мастер Печати на Китайском  3.2.2 [Mul
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155938.jpgsave_picture_155938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155938.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:DC6C4EDCEB7FB56152A41798D00509D562C88A7C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155939.jpgsave_picture_155939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155939.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ AVS Video Software 12.9.6.25 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155940.jpgsave_picture_155940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155940.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Fission 2.8.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155941.jpgsave_picture_155941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155941.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3CEE6D456A8A42FD3A4B63EAC6543CD9AD2BCADC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155942.jpgsave_picture_155942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155942.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:39F776DBE454A018AAAB1EFE8A493EB54AF148E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155943.jpgsave_picture_155943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155943.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ GraphicConverter 11 v11.1.2 (build 4216) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155944.jpgsave_picture_155944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155944.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpgsave_picture_155945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Titiyo - Hidden (2008) [MP3|320 Kbps] <Pop, Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155946.jpgsave_picture_155946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155946.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:904B48E854C8E90664CAA76986AECFC4FCA21AB4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155949.jpgsave_picture_155949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155949.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:7D4A9FCA51B169634CBB0E2275201FB7283B4C1D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155950.jpgsave_picture_155950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155950.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:2191FC671D4DBF914F5AEF280A78D1FF197DFD8E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155951.jpgsave_picture_155951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155951.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:F694881F1F87EFA4DB515141F24E226E6F5B07C9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155953.jpgsave_picture_155953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155953.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Hellgate London (2007) [Ru] [macOS WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155954.jpgsave_picture_155954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155954.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Deflection 5.15.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155955.jpgsave_picture_155955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155955.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Stell Recordings: Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House,H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155956.jpgsave_picture_155956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155956.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:8824C6B7661F2155B9DC97F8AB3FF3C2AE6778DD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155957.jpgsave_picture_155957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155957.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:3FC487EBEE7CD3ADEA2C6446476EB734D1323E1B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155959.jpgsave_picture_155959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155959.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ EtreCheck Pro 6.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155960.jpgsave_picture_155960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155960.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:08E24ECE94972738C0C019AEACAD6623C65795CB
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155961.jpgsave_picture_155961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155961.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Infrasonic: The Best Of 2018 (Mixed by Solis & Sean Truby) (2018) [MP3|320 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155962.jpgsave_picture_155962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155962.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:0C342660FAA38224835D5C19D83D7D8C2CF577E5
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155964.jpgsave_picture_155964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155964.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:10258E87F407242A638CFDB6DB8576EDB89DEBCD
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155965.jpgsave_picture_155965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155965.jpg" />
 </div>
 
 

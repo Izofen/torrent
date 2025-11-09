@@ -6,7 +6,7 @@ Koan - Argonautica (2012) [MP3|320 кб/с]<Ambient, Downtempo, Ethnic Lounge>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151553.jpgsave_picture_151553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151553.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ VA - Space Cafe, Vol. I (Finest Chillout & Lounge Tracks) (2016) [AAC|~307 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151554.jpgsave_picture_151554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151554.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:C03A6C920F16811356FEC6399B826D4FF628489E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151556.jpgsave_picture_151556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151556.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:FBDB7EA75DDF1F32EE7324E653D24944291FFE27
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151557.jpgsave_picture_151557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151557.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:122195EE844A7C4561B455CFB18E63CD97A83558
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151558.jpgsave_picture_151558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151558.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:228C8F36E9207B40539B0419E9887E80F36DCEA9
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151559.jpgsave_picture_151559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151559.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:931321449C9B79E320E1E4617E45AB3BF4BD3218
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151560.jpgsave_picture_151560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151560.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:2BBC889ADAD7AA87018BCEB836E6AF7160F3C7F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151562.jpgsave_picture_151562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151562.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:DC4775800611096D18D5F50FD3F09BCC7836D076
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151563.jpgsave_picture_151563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151563.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:CD292D6C64C59DF5C71DB97AB78F4993E9CC725D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151564.jpgsave_picture_151564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151564.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:7F175C7FBA60C248CB7B70FB0AA3CE50C1B5943C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151565.jpgsave_picture_151565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151565.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151566.jpgsave_picture_151566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151566.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:F1758A42BFF845B69E0FF64E440D4DC5CE1E7EA8
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151567.jpgsave_picture_151567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151567.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Suzi Quatro - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151568.jpgsave_picture_151568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151568.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:5F7FDC893B5C1C0AA318572E9A51CC711E43953C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151569.jpgsave_picture_151569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151569.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:BC73C5D40BB0408D6FD5F82DD2D96218D0F0F57F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151570.jpgsave_picture_151570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151570.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Note Studio 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151571.jpgsave_picture_151571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151571.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ NNM-Club Sound Cleaners - Cleared Music & Audio Tracks (No Watermark) - Vol.02 [
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151572.jpgsave_picture_151572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151572.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:AD13D9A88431D2713E5197282AC044C46F560210
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151574.jpgsave_picture_151574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151574.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:B78AF9232C2DF0C1DE670B441A23E6BBF57BCFCD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151575.jpgsave_picture_151575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151575.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:966834F00585F93A19F1B60A405188BD8A0DEBFC
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151577.jpgsave_picture_151577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151577.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Coolmuster GIF Animator 2.0.30 RePack by вовава [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151578.jpgsave_picture_151578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151578.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Calibre 5.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151579.jpgsave_picture_151579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151579.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Bourbon Street Players - A Jazzy Christmas in New Orleans (1993) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151580.jpgsave_picture_151580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151580.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:EF2D72146472C717C4BE2C434F6DC7FB1728E108
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151581.jpgsave_picture_151581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151581.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:399479C43B2F1B83AB03CAC17563F64D13EADAD0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151583.jpgsave_picture_151583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151583.jpg" />
 </div>
 
 

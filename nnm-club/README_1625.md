@@ -6,7 +6,7 @@ VA - Chillhop Essentials Fall (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42607.jpgsave_picture_42607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42607.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:75981BA15BEFD238B2F8E630A763942D4D3ACBDD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42608.jpgsave_picture_42608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42608.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A8D8DB496C5FACE74C9BAA72B247D68638FDA964
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42609.jpgsave_picture_42609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42609.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Black Bay - Black Bay (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42610.jpgsave_picture_42610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42610.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B59B7BF96954BD3B0FC4389CC5015EB941478673
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42611.jpgsave_picture_42611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42611.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:55C48959FB5CE36D1B74F2BD94DB6773D3087B2B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42612.jpgsave_picture_42612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42612.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Jamie xx - In Waves (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42613.jpgsave_picture_42613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42613.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:C5D40AE7C524C4B787A196245B00C82AAC400D62
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42614.jpgsave_picture_42614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42614.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Frank Sinatra - On The Air! - Love Me Or Leave Me (1997) QED Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42615.jpgsave_picture_42615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42615.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Linda Jo Rizzo - Best Of Linda Jo Rizzo (1999) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42616.jpgsave_picture_42616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42616.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Babbba - Hypnotic Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Swing, Smo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42617.jpgsave_picture_42617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42617.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Frank Sinatra - Night And Day (1996) Golden Stars [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42618.jpgsave_picture_42618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42618.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hurricanes - Back to the Basement (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42619.jpgsave_picture_42619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42619.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Calliope Calliopeia Band - Long Distance You and Me (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42620.jpgsave_picture_42620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42620.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:E361F7A59A736C91D037E6AB3903BB4A985875A7
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42621.jpgsave_picture_42621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42621.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:0D9A9D555D660B898F1CA54DCFBE866411CA5232
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42622.jpgsave_picture_42622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42622.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:0C17244623D0E488A3702B07E02E03C5F8B28DFE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42623.jpgsave_picture_42623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42623.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Different Image Project - Embers of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42624.jpgsave_picture_42624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42624.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PDF24 Creator 11.20.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42625.jpgsave_picture_42625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42625.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:69CF62A4F122151DE7C7DCB2522797716A87ECED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42626.jpgsave_picture_42626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42626.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:BB8A187942A49466E788D14DF3979FAFA0C462BA
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42627.jpgsave_picture_42627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42627.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ RedNotebook 2.35.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42628.jpgsave_picture_42628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42628.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:60450D39B2C743F872BB6F9B975C14F59B16EDC6
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42629.jpgsave_picture_42629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42629.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ LANDR - LANDR Guitar 1.1.5 VSTi 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42630.jpgsave_picture_42630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42630.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.22714s/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42631.jpgsave_picture_42631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42631.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:9B5CC48BF80E0101468DB64C823797268871D2C6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42632.jpgsave_picture_42632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42632.jpg" />
 </div>
 
 

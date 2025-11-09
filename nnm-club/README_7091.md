@@ -6,7 +6,7 @@ Deflection 5.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243252.jpgsave_picture_243252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243252.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:CA7C06286B95D22CD2E347461F89940D542CAD29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243253.jpgsave_picture_243253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243253.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:67301F01345748D6C62A28F521474FB2771DDCFF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243254.jpgsave_picture_243254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243254.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5BE1F1EC8C0B0B24137A510DE5A1E9908640E60F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243255.jpgsave_picture_243255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243255.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:9C94BE5D55857EDC8C729A32482053A124DE8FD6
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243256.jpgsave_picture_243256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243256.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:1A6AE95936A08EA917D6672A98BD6BDAE28A7AF2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243257.jpgsave_picture_243257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243257.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Windows 11 PC Health Check 3.5.220404001-s2 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243258.jpgsave_picture_243258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243258.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:3BFC3EBDAB018F8056B9B4841250A8C859830877
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243259.jpgsave_picture_243259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243259.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ DB-Text 1.10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243260.jpgsave_picture_243260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243260.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Eminem - Curtain Call 2 (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243261.jpgsave_picture_243261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243261.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ KeyFlow Pro 1.7.1 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243262.jpgsave_picture_243262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243262.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Joan Jett & The Blackhearts - Changeup (Acoustic) (2022) [FLAC 2.0|96/24|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243263.jpgsave_picture_243263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243263.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Abanamat - Abanamat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243264.jpgsave_picture_243264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243264.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:A99D0477CD37652793253764A7D9C9439F4BC474
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243265.jpgsave_picture_243265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243265.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:3F8697764D51BE813A09F776A870BCFF3224C7EC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243266.jpgsave_picture_243266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243266.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:E2043C36A69D97D312F0A77F94AC319ADFEDD8C1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243267.jpgsave_picture_243267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243267.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:33220638B3C72EB232F63DC77F211FA270DAF293
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243268.jpgsave_picture_243268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243268.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:456D9D73C1A229C4C6633206C75026AFA9997E77
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243269.jpgsave_picture_243269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243269.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Uartsy, Ben Tristem, Sam Patuzzi | Unreal Multiplayer Mastery Online Game Develo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243270.jpgsave_picture_243270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243270.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Odal - Geistes Unruh (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243271.jpgsave_picture_243271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243271.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:95A15512F764459E33D96558CEB56556B9F34DF8
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243272.jpgsave_picture_243272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243272.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Eta Lux - High and Low (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243273.jpgsave_picture_243273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243273.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:2C6E9F48DA2EC789D58BC44F78F9FA89426806FF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243274.jpgsave_picture_243274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243274.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ File Cabinet Pro 7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243275.jpgsave_picture_243275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243275.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ RS Explorer / RS Проводник 1.8.9.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243276.jpgsave_picture_243276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243276.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Звездная вечеринка. Зарядись хитами. Час�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243277.jpgsave_picture_243277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243277.jpg" />
 </div>
 
 

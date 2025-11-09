@@ -6,7 +6,7 @@ South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157808.jpgsave_picture_157808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157808.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bethzaida - A Prelude to Nine Worlds (1997) EP [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157809.jpgsave_picture_157809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157809.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:92C693885BBE4004E821750F8FABEE987AF4ECFD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157810.jpgsave_picture_157810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157810.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:46F69EE9F669D15C1A8A7F95D0A7FFFECB6AF653
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157813.jpgsave_picture_157813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157813.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [F
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157814.jpgsave_picture_157814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157814.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157816.jpgsave_picture_157816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157816.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ System Monitor 2.7 (build 191216) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157819.jpgsave_picture_157819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157819.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:06B1C21EB444FA141FC5EBDCBD1439EF9022B7FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157820.jpgsave_picture_157820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157820.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:91BC086DCAA2C64E8011446A32E468B7602EF27E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157821.jpgsave_picture_157821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157821.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:77B60E83E033882858C1F87F55933B27A1671689
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157822.jpgsave_picture_157822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157822.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:ECE7B762AB6B711200C34F19A70660E562368550
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157823.jpgsave_picture_157823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157823.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:82E217D38C693E79773913DA91C5F70E695C66B5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157827.jpgsave_picture_157827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157827.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Bon Jovi - Slippery When Wet (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Sof
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157828.jpgsave_picture_157828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157828.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:5D45C935BA8182AE3B36093DB53F54A77359DEB7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157829.jpgsave_picture_157829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157829.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:A4B72F6CA3B08DE996F6EC83D534485F90A829F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157832.jpgsave_picture_157832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157832.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ ZveroБой (Зверобой) - Чистое небо (2014) ЕР [MP3|320 Kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157834.jpgsave_picture_157834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157834.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:10D9F8CC60827D5F440A2A80EF089A4770E3D27E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157835.jpgsave_picture_157835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157835.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ uDock 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157836.jpgsave_picture_157836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157836.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:1ECDF4D3B69462661DC968F8C5C90EA37A7AF359
 >>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157837.jpgsave_picture_157837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157837.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Separation Studio 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157838.jpgsave_picture_157838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157838.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Platinum Overdose - Murder In High Heels (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157840.jpgsave_picture_157840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157840.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Just Cause 3 (2015) WEBRip [H.264/1080p-LQ]
 >>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157841.jpgsave_picture_157841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157841.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:13DA4525D5EFC9210A19CA13F123A7D1D68E3CA5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157842.jpgsave_picture_157842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157842.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:705C659C4789CFFFC07018D9AE2DA13E3119337A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157843.jpgsave_picture_157843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157843.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:ADA1E6020CC97B7542DCBC74F8F2E612B4AD53DE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157844.jpgsave_picture_157844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157844.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ ZveroБой (Зверобой) - Жив (2008) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157846.jpgsave_picture_157846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157846.jpg" />
 </div>
 
 

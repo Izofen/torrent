@@ -6,7 +6,7 @@ Opera Crypto Browser 101.0.4843.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207482.jpgsave_picture_207482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207482.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Icecream Video Converter Pro 1.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207483.jpgsave_picture_207483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207483.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:96A8637607D505BA0616E2D93E66B886C022942D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207486.jpgsave_picture_207486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207486.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CA7F958D528BAB4405FBB1050E6479BDD104FCAB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207488.jpgsave_picture_207488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207488.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:02889ECA2A994FA02851E2E51539E75757E94844
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207492.jpgsave_picture_207492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207492.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ IObit Uninstaller Pro 13.0.0.13 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207493.jpgsave_picture_207493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207493.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:8CA8F4CA809A0C71335C31209C6C2EB152D7CE49
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207495.jpgsave_picture_207495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207495.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Icecream Video Editor Pro 3.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207497.jpgsave_picture_207497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207497.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ SeaMonkey 2.53.17 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207499.jpgsave_picture_207499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207499.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ AudFree Spotify Music Converter for Mac 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207500.jpgsave_picture_207500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207500.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Beheat Gorum de Mentheurd - The Voyage Of Life (2016) [FLAC|Lossless|image + .cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207503.jpgsave_picture_207503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207503.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:B867270BA0D2F84327EBBD69BF2B4F0DAB93BFC3
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207507.jpgsave_picture_207507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207507.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:C381838C8C88D089E4A1B165A2B85008DC19007D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207509.jpgsave_picture_207509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207509.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7EF425AB2C207FCD85A51D70FE25855FAF40D011
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207511.jpgsave_picture_207511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207511.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:BEDA3D486204D3280D080DB345F7733C45DF1749
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207512.jpgsave_picture_207512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207512.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Rush - Pinkpop (live) (1979) Reissue, 2023, Cult Legends [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207514.jpgsave_picture_207514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207514.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Omni Recover 3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207516.jpgsave_picture_207516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207516.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Diana - Die Einzige (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207519.jpgsave_picture_207519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207519.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:8D37685AB92E2E67DC1617F913E2AE2EEE6D2A7A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207521.jpgsave_picture_207521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207521.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ IObit Driver Booster Pro 10.6.0.141 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207525.jpgsave_picture_207525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207525.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:64A45E73BD82DB033DC8E69CCA05314C2FF18DC6
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207527.jpgsave_picture_207527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207527.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ AIMP 5.11 Build 2434 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207528.jpgsave_picture_207528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207528.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:FE66AAA2C3E70A3AAB02AD399572F1C4309496F2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207531.jpgsave_picture_207531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207531.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VueScan Pro 9.8.13 (31.07.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207533.jpgsave_picture_207533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207533.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:155BEE41A44C5261B61147CC9928FFCA6A80A42F
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207536.jpgsave_picture_207536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207536.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ WinTools.net Premium 23.8.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207537.jpgsave_picture_207537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207537.jpg" />
 </div>
 
 

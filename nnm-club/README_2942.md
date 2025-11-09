@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87050.jpgsave_picture_87050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87050.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:1CD98DDE1BE2DC9D668FA84401D41F42BF0519AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87051.jpgsave_picture_87051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87051.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:1CD98DDE1BE2DC9D668FA84401D41F42BF0519AE
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87053.jpgsave_picture_87053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87053.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87054.jpgsave_picture_87054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87054.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87055.jpgsave_picture_87055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87055.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87056.jpgsave_picture_87056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87056.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87057.jpgsave_picture_87057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87057.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87058.jpgsave_picture_87058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87058.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87059.jpgsave_picture_87059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87059.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87060.jpgsave_picture_87060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87060.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Keyhunter WPI - Бесплатные программы 20120407 (x86/x64/ML/RUS
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87061.jpgsave_picture_87061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87061.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:7A5C9A77C5EC754D3838DF869EDB03DDBDB9FB53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87062.jpgsave_picture_87062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87062.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:5395C4F3457C24CBEA3BF479F6737317EF600A82
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87063.jpgsave_picture_87063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87063.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Steinberg - Virtual Bassist Repack by AIR [VSTi][ISO][английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87065.jpgsave_picture_87065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87065.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Steinberg Virtual Bassist - улучшенная, переработанная, 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87066.jpgsave_picture_87066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87066.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Steinberg Virtual Bassist - улучшенная, переработанная, 
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87068.jpgsave_picture_87068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87068.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Steinberg Virtual Bassist - улучшенная, переработанная, 
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87069.jpgsave_picture_87069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87069.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Carbon Boot by Core-2 v.7.4.12 [Русский и английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87072.jpgsave_picture_87072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87072.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Carbon Boot by Core-2 v.7.4.12 - Модифицированный загрузч
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87074.jpgsave_picture_87074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87074.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Autodesk AutoCAD 2013 (x86, x64) (Русский)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87075.jpgsave_picture_87075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87075.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AutoCAD наиболее распространенная программа д�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87076.jpgsave_picture_87076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87076.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:3CF831554D95E4794ED22DD8CFEF0C459519F9B5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87077.jpgsave_picture_87077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87077.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:3CF831554D95E4794ED22DD8CFEF0C459519F9B5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87078.jpgsave_picture_87078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87078.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Call of Duty: Modern Warfare 2 + All DLC + AlterIWnet [Ru] (RePack) 2009 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87079.jpgsave_picture_87079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87079.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Tropico 4: Modern Times [Ru/1.5] (Р) 2012
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87080.jpgsave_picture_87080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87080.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:4BBF1D723B1AD15C3A69CFD0A08EE7A150D77F81
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87082.jpgsave_picture_87082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87082.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202402.jpgsave_picture_202402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202402.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:57994CEC58D0B0A4711630934D5FB55B6FA9E15E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202403.jpgsave_picture_202403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202403.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TutorPlace, Татьяна Кузнецова | Графология (2025) WEB-
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202404.jpgsave_picture_202404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202404.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lectera, Lectera | Аналитическое мышление (2025) WEB-DL [RU
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202405.jpgsave_picture_202405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202405.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:7F87280DA550491CACD3C91ADF7965D7A377A520
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202406.jpgsave_picture_202406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202406.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D521532B7DAA292C68310BC95ADF3792BAC8B870
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202407.jpgsave_picture_202407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202407.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B83EC63553956E1EA266E19328E6D0C4C5C74BE5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202408.jpgsave_picture_202408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202408.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:DDC6C64AE70280295C301A3071F30A97ECEE3404
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202409.jpgsave_picture_202409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202409.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Floorp Browser 12.3.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202410.jpgsave_picture_202410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202410.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Music News For Forum vol.142 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202411.jpgsave_picture_202411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202411.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:C6C7339835D90D4A3723A8878C02A47B31116003
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202412.jpgsave_picture_202412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202412.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:F69A8CC27EBF07C7D2392634130309D2BFE1813C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202413.jpgsave_picture_202413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202413.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Ui Kits - UI8 - Convert [PDF]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202414.jpgsave_picture_202414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202414.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CB9E4771677D216550491946FAFE182CB4CD734A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202415.jpgsave_picture_202415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202415.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E08C12BD6AA927062B0461206C5CBB2EBCABBD0F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202416.jpgsave_picture_202416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202416.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:5C0CD7CCDC3F00E7515A3CBE03EC7C6D0BF0BC1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202417.jpgsave_picture_202417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202417.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F1F0465DA4F48D4E337D4421C5256A6FE4385FCB
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202418.jpgsave_picture_202418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202418.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Wallpapers - BING Wallpapers (November 2021 - October 2024) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202419.jpgsave_picture_202419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202419.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:63F7BC312981D5674FC5B3F1AFA06654C69CC5DB
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202420.jpgsave_picture_202420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202420.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:F6A689D8B248799CBB04FB40E4663B64329F416F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202421.jpgsave_picture_202421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202421.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Modartt - Pianoteq 8.4.3 Pro STANDALONE, VSTi, VSTi 3, AAX RePack (& Portable) b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202422.jpgsave_picture_202422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202422.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ AIR Music Technology - Hybrid 3.2.0 STANDALONE, VSTi, VSTi 3 (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202423.jpgsave_picture_202423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202423.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ BABY Audio - Smooth Operator Pro 1.2 VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202424.jpgsave_picture_202424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202424.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ U-he - Uhbik 2.0.0 VST 3, CLAP, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202425.jpgsave_picture_202425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202425.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Synapse Audio - DUNE 3 3.6.5 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202426.jpgsave_picture_202426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202426.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:2CDFAFE8E2F56D2EE7763807139A753D38721DA5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202427.jpgsave_picture_202427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202427.jpg" />
 </div>
 
 

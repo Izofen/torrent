@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184785.jpgsave_picture_184785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184785.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B0D5C6DD1D1E73373B65BDD4F98BC880D4422517
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184788.jpgsave_picture_184788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184788.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Maya - Kiss of Fire (2006) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184789.jpgsave_picture_184789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184789.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Udemy, Lucy Iterman | Postman по полочкам + практика (2022) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184790.jpgsave_picture_184790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184790.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:503496AF7B01FDA978197EADB8C3EBFD309F45AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184793.jpgsave_picture_184793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184793.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Firefox Browser ESR 115.3.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184794.jpgsave_picture_184794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184794.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184797.jpgsave_picture_184797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184797.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184798.jpgsave_picture_184798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184798.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Udemy, Никита Сергеев | Power Point: от новичка до ув�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184801.jpgsave_picture_184801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184801.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Firefox Browser 118.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184802.jpgsave_picture_184802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184802.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Soen - Memorial (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184805.jpgsave_picture_184805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184805.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:FB92F9AEFC20FAF4110D9187B4D70FE0B0602795
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184806.jpgsave_picture_184806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184806.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ GeoGebra 6.0.803.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184809.jpgsave_picture_184809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184809.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:CB39867843DED982B1E7474D3C8A57B3E664C8CE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184810.jpgsave_picture_184810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184810.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:FD356E6C946C8C04AE241551DFBE784A3DE2A702
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184812.jpgsave_picture_184812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184812.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Kryder Presents Metaverse Volume 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184814.jpgsave_picture_184814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184814.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:35D3A9AE5A59A838D7EE0D09793B1A8E1FFEFEEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184815.jpgsave_picture_184815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184815.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Geekbrains, Александр Гаврилов и др. | Digital-страте�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184817.jpgsave_picture_184817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184817.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:276B4BCE0899058887FB81DB15003C7455083519
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184818.jpgsave_picture_184818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184818.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:C1156DE91BF03360A74F43AF06519611ED12B888
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184820.jpgsave_picture_184820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184820.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Wingfox, David Zavala | Female Bust Course in Marmoset Toolbag (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184821.jpgsave_picture_184821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184821.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:3031F5C99BE2F76324CD95CB04311DE63CC262CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184822.jpgsave_picture_184822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184822.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:1E3124D5323E9098746573893BEC924DA7568FCF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184824.jpgsave_picture_184824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184824.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184825.jpgsave_picture_184825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184825.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:777188B597B7DFE8451BDFAEAA523BE93685D2B1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184826.jpgsave_picture_184826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184826.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:C1006A134C3BBED0A19E9D97725E538E5B5DA17D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184828.jpgsave_picture_184828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184828.jpg" />
 </div>
 
 

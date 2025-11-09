@@ -6,7 +6,7 @@ AIDA64 Extreme Edition 6.92.6610 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178743.jpgsave_picture_178743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178743.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D75EF6258E80948ED62B7735E74FC3282A2C88D2
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178746.jpgsave_picture_178746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178746.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:2DE5EBAF8E6D89AD243173B139DD7C6A92C56D53
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178747.jpgsave_picture_178747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178747.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Porcupine Tree - Closure / Continuation (2022) [FLAC|Lossless|image + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178748.jpgsave_picture_178748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178748.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1463EFADC94703D21A6608A777615F7ECAF22CC4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178751.jpgsave_picture_178751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178751.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:153EF4844FAADEB76091BC63EA492D449859D223
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178753.jpgsave_picture_178753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178753.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Total Commander 11.02 RC1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178754.jpgsave_picture_178754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178754.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:C57675D29D9627D8C3312EDD54A5B12BD3A078AB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178757.jpgsave_picture_178757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178757.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Krita 5.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178759.jpgsave_picture_178759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178759.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Autograph - Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178760.jpgsave_picture_178760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178760.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VueScan Pro 9.8.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178763.jpgsave_picture_178763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178763.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:82B0F9C365CE45DA1B8DB137DC397D2446ABA67D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178765.jpgsave_picture_178765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178765.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:226AB56536280DB7C0AC97A15E199C4DECC4F775
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178767.jpgsave_picture_178767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178767.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Bandicam 7.0.0.2117 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178769.jpgsave_picture_178769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178769.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Music News vol.303 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178771.jpgsave_picture_178771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178771.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Endless Tapes - Third Reel (2022) EP [FLAC 2.0|48/24|tracks|WEB-DL] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178773.jpgsave_picture_178773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178773.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Elisa C. Martin - Nothing Without Pain (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178774.jpgsave_picture_178774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178774.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:74CC3CFA5D4B67AE1CFD8A006612008D863EF6D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178777.jpgsave_picture_178777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178777.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Induction - Induction (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178778.jpgsave_picture_178778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178778.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:0B967B6C6C9757D6AC9D5C2A78D8A1BAA3120DDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178781.jpgsave_picture_178781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178781.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Wireshark 4.0.10 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178782.jpgsave_picture_178782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178782.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:DA6AAD7B064783C52C28203EFE4748C5E8C594E1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178785.jpgsave_picture_178785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178785.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:898D4EC6ECA1E6259F932E02E75C4F35F74FAE9B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178786.jpgsave_picture_178786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178786.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Sex Music 2023 [MP3|320 Kbps] <Pop, RnB, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178790.jpgsave_picture_178790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178790.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Rob Rock - Rage Of Creation (2000) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178791.jpgsave_picture_178791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178791.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Adventus - Saudade (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178793.jpgsave_picture_178793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178793.jpg" />
 </div>
 
 

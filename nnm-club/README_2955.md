@@ -6,7 +6,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87648.jpgsave_picture_87648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87648.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:30EDFDC86D94B5D67D1685C8A272CBA15FC79CB0
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87649.jpgsave_picture_87649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87649.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 7 Ultimate AUZsoft Metallic x64 v.12.12 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87653.jpgsave_picture_87653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87653.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ uTorrentPortable 1.8.2 (build 14458) [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87654.jpgsave_picture_87654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87654.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adobe Acrobat X Professional 10.1.3 Final [Мульти, есть русский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87655.jpgsave_picture_87655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87655.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Adobe Acrobat X Professional - создание профессиональных
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87656.jpgsave_picture_87656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87656.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:8B4430CA60217B411590A7D27DC580C90DE8E02F
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87661.jpgsave_picture_87661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87661.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:8B4430CA60217B411590A7D27DC580C90DE8E02F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87662.jpgsave_picture_87662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87662.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Windows 7 Ultimate SP1 x64 VolgaSoft Longhorn v2.1[Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87663.jpgsave_picture_87663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87663.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Adobe | Adobe Illustrator CS5. Официальный учебный курс [2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87665.jpgsave_picture_87665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87665.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87666.jpgsave_picture_87666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87666.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87668.jpgsave_picture_87668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87668.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87669.jpgsave_picture_87669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87669.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87671.jpgsave_picture_87671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87671.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87672.jpgsave_picture_87672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87672.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87673.jpgsave_picture_87673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87673.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:2587057017BD8996DFD44E956D66E0908657484C
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87675.jpgsave_picture_87675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87675.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Age of Empires Online (L) [En] 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87676.jpgsave_picture_87676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87676.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Age of Empires Online (L) [En] 2011
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87677.jpgsave_picture_87677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87677.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:B3F11FB5035FAD3E9898215D3B7B0BF7079A6EB5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87678.jpgsave_picture_87678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87678.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:B3F11FB5035FAD3E9898215D3B7B0BF7079A6EB5
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87679.jpgsave_picture_87679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87679.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:B3F11FB5035FAD3E9898215D3B7B0BF7079A6EB5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87681.jpgsave_picture_87681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87681.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:B3F11FB5035FAD3E9898215D3B7B0BF7079A6EB5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87682.jpgsave_picture_87682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87682.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:B3F11FB5035FAD3E9898215D3B7B0BF7079A6EB5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87686.jpgsave_picture_87686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87686.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:5C68F073DCF2FB92DD311B10CE79C2A7052D7695
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87687.jpgsave_picture_87687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87687.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Kerio Control 7.3.0 Patch 2 build 3861 [Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87690.jpgsave_picture_87690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87690.jpg" />
 </div>
 
 

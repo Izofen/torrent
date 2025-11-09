@@ -6,7 +6,7 @@ Gunslinger - Amped Up (2025) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5808.jpgsave_picture_5808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5808.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Indie Rock Bangers (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5981.jpgsave_picture_5981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5981.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Divorced Dad Rock Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5987.jpgsave_picture_5987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5987.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Rock Just Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5999.jpgsave_picture_5999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5999.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Magic - Soft Rock Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6000.jpgsave_picture_6000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6000.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ dArtagnan - Herzblut (2024) 2 x CD, Deluxe Edition [APE|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6087.jpgsave_picture_6087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6087.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Tómarúm - Ash In Realms Of Stone Icons (2022) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6242.jpgsave_picture_6242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6242.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Burning Witches - Inquisition (2025) [FLAC|Lossless|WEB-DL|tracks] <HeavyMetal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6255.jpgsave_picture_6255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6255.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6256.jpgsave_picture_6256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6256.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Myrath - Reflections: Best Of (2025) [MP3|320 Kbps] <Oriental Progressive Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6267.jpgsave_picture_6267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6267.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Three Days Grace - Alienation (2025) [MP3|320 Kbps] <Alternative Rock, Post-Grun
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6277.jpgsave_picture_6277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6277.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Meshuggah - Immutable (2022) Reissue, Remastered, 2024, Reigning Phoenix Music [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6392.jpgsave_picture_6392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6392.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Patristic - Catechesis (2025) [FLAC|Lossless|image + .cue] <Black Metal, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6394.jpgsave_picture_6394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6394.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Vindicator - Whispers Of Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6397.jpgsave_picture_6397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6397.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Benefactor Decease - Abnormal Attachments (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6399.jpgsave_picture_6399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6399.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6404.jpgsave_picture_6404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6404.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ GAEREA - Coma (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6409.jpgsave_picture_6409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6409.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Mob Rules - Rise Of The Ruler (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6435.jpgsave_picture_6435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6435.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Strangers - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6439.jpgsave_picture_6439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6439.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Michael Schenker's Temple Of Rock - Spirit On A Mission (2015) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6456.jpgsave_picture_6456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6456.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Queen - Acoustic (2025) Remastered, 2011, UME - Global Clearing House [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6471.jpgsave_picture_6471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6471.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Ted Nugent - 35 Albums (1967 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6542.jpgsave_picture_6542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6542.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Viral - The Merchant (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6605.jpgsave_picture_6605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6605.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Deftones - Private Music (2025) [MP3|320 Kbps] <Nu-Metal, Shoegaze, Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6778.jpgsave_picture_6778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6778.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Duran Duran - Greatest (2025) Compilation, Reissue [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6808.jpgsave_picture_6808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6808.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Black Knight - The Tower (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6890.jpgsave_picture_6890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6890.jpg" />
 </div>
 
 

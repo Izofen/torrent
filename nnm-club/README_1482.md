@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38887.jpgsave_picture_38887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38887.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3991F31E6ECB13FBDD6EC80E14177F4897132D90
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38888.jpgsave_picture_38888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38888.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ QOwnNotes 24.10.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38889.jpgsave_picture_38889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38889.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E70A8A3C73868C7D16C803055D2182174A94C114
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38890.jpgsave_picture_38890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38890.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Rock Blues Mania (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38891.jpgsave_picture_38891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38891.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Top 10 Outstanding Rock Songs, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38892.jpgsave_picture_38892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38892.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F9AB4D1021FF6D87C30652F01401C996A8BBFB50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38893.jpgsave_picture_38893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38893.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Rock Hits - As Melhores de 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38894.jpgsave_picture_38894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38894.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:B1931E3DCB66247CDB1FC50CA93DDD7AEC7F3BA4
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38895.jpgsave_picture_38895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38895.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Rock Motivation (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38896.jpgsave_picture_38896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38896.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:226C7C494995C5701D2F33C19FFE48C106BDEAF6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38897.jpgsave_picture_38897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38897.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ VA - Rock songs para mawala ang sama ng loob (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38898.jpgsave_picture_38898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38898.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Rhythm & Blues in the Moonlight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38899.jpgsave_picture_38899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38899.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Too Cool to Handle_ Rock, Blues, & Country Edition (Vol. 2) (2024) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38900.jpgsave_picture_38900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38900.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Too Cool to Handle: Rock, Blues, & Country Edition (Vol. 1) (2024) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38901.jpgsave_picture_38901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38901.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Get Jazzy on Me: Jazz Dance Party, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38902.jpgsave_picture_38902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38902.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Only Grooves In The Bulding (Chillout Jazz & Soul Vibes) (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38903.jpgsave_picture_38903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38903.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Vola - Friend Of A Phantom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38904.jpgsave_picture_38904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38904.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Redux Selection Vol. 11 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38905.jpgsave_picture_38905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38905.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Unlucky for Some (13 Songs for Halloween, Volume 1) (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38906.jpgsave_picture_38906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38906.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Europica - Part One (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Folk Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38907.jpgsave_picture_38907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38907.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Not Spooky Jazz (Enchanting Music for a Cozy Halloween Dinner) (2024) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38908.jpgsave_picture_38908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38908.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ TechSmith Camtasia 24.1.2 Build 4607 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38909.jpgsave_picture_38909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38909.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:623A79E76C1790E4ACABD7E8DC4FF8DD7B3ED9BE
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38910.jpgsave_picture_38910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38910.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:F0DED577D75B38B7F64177120020E27DF9995EFE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38911.jpgsave_picture_38911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38911.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:65558D9574646C17BB80BE56E5E5AD78F14B6628
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38912.jpgsave_picture_38912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38912.jpg" />
 </div>
 
 

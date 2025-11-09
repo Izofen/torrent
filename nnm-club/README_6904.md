@@ -6,7 +6,7 @@ The Dirty Seeds - Beware The Beast Man (2023) [MP3|320 Kbps] <Heavy Rock, Stoner
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237209.jpgsave_picture_237209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237209.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Iron Savior - The Landing (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237210.jpgsave_picture_237210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237210.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Principle 6.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237213.jpgsave_picture_237213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237213.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Scar Symmetry - The Singularity (Phase II - Xenotaph) (2023) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237214.jpgsave_picture_237214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237214.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237215.jpgsave_picture_237215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237215.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237217.jpgsave_picture_237217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237217.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:BEFC67CCCF7C75F1B5A01C490F271DA670C98B30
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237218.jpgsave_picture_237218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237218.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:1C1A64DC5129F504A9FDCFD7469A137563445FFA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237219.jpgsave_picture_237219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237219.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ QOwnNotes 23.6.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237221.jpgsave_picture_237221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237221.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:1A7E60F5AC333B10F62CC7D3DB3472948364B918
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237224.jpgsave_picture_237224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237224.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:D0EBBF91D0DC15B9AD3EF16C8E6A5E790278ECFF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237225.jpgsave_picture_237225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237225.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:DF44BB33EAB994AF31B762445E164E4967360C56
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237226.jpgsave_picture_237226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237226.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237227.jpgsave_picture_237227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237227.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Process Lasso Pro 12.3.0.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237230.jpgsave_picture_237230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237230.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Lunar Shadow - Wish to Leave (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237231.jpgsave_picture_237231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237231.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237232.jpgsave_picture_237232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237232.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:39E96CF7E65A9A83F9D9FBEF31262F64DAFBBC8B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237233.jpgsave_picture_237233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237233.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:E9ED46F946357979B5914CDE1775D20A6E4D7F78
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237234.jpgsave_picture_237234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237234.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:7DDCEC600D7B94BE289450D1B6D4FABC40EDE62B
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237235.jpgsave_picture_237235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237235.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Deep House Summer Paradise Pt. 1 (2023) [MP3|320 Kbps] <Deep House, Deep Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237236.jpgsave_picture_237236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237236.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:92C7E26522D1B9399A44A4C9BD68944309212786
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237237.jpgsave_picture_237237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237237.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D35552B011D9C28C2F61212527E343216C108C13
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237239.jpgsave_picture_237239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237239.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7A60DFD8FD1DF69C93D9422EC6FA3C2091A4F963
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237240.jpgsave_picture_237240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237240.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карр
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237241.jpgsave_picture_237241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237241.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Permute 3 v3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237243.jpgsave_picture_237243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237243.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Script Debugger 8 v8.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237245.jpgsave_picture_237245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237245.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162636.jpgsave_picture_162636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162636.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nevercenter CameraBag Photo 2023.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162637.jpgsave_picture_162637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162637.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3282CBC39B3BAEE06F09DC2F9BDD4CE2739E81BA
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162638.jpgsave_picture_162638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162638.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:48FCA5C95542C1B14ED368A3A46D41E4A30A6466
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162639.jpgsave_picture_162639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162639.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Cirkus Prutz - Blues Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162640.jpgsave_picture_162640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162640.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Microsoft .NET 6.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162641.jpgsave_picture_162641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162641.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:02CAFB83EC93338908F19F5A91BFD1D62C272A9A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162642.jpgsave_picture_162642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162642.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ SuperDuper! 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162643.jpgsave_picture_162643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162643.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162644.jpgsave_picture_162644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162644.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:B986F9F1A8C6E7D939376CAE5823541CD3AB3AFF
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162645.jpgsave_picture_162645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162645.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Awaken 6.4.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162646.jpgsave_picture_162646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162646.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Ion Fury (2018) [En] (3.0.0.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162647.jpgsave_picture_162647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162647.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Balls Gone Wild - Stay Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162648.jpgsave_picture_162648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162648.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:7B63ABCD78AFCB717BF28BC51D068E63FB67A4FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162649.jpgsave_picture_162649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162649.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:119D27D8405F04D0775CF6428E4B66A03293A027
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162650.jpgsave_picture_162650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162650.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ EaseUS Data Recovery Wizard Technician 17.0.0.0 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162651.jpgsave_picture_162651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162651.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AC527717692F1F37E1230F970155B8A82EB728E8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162652.jpgsave_picture_162652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162652.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:F3F717B8A94D05E2CE07030FBBDC908B42861006
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162653.jpgsave_picture_162653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162653.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162654.jpgsave_picture_162654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162654.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162655.jpgsave_picture_162655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162655.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Elle King - Love Stuff + The Elle King EP (2016)  [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162656.jpgsave_picture_162656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162656.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:EBBCF6AB0E646C032BABEF2BA27EB351433E837F
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162657.jpgsave_picture_162657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162657.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:0AB89097AF164A25F8EB84E44CC95E2D82F68E4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162659.jpgsave_picture_162659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162659.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F9E9B86BDC0BF56B38E30960FBA6A951F2023231
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162660.jpgsave_picture_162660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162660.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:184E94899F6295BCEE1E7A158AF9891C77C7A57D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162661.jpgsave_picture_162661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162661.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:C1886191397B000D26493C3D85F5752C7A22FA2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162662.jpgsave_picture_162662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162662.jpg" />
 </div>
 
 

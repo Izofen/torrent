@@ -6,7 +6,7 @@ Deep Forest - Live Machine (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71262.jpgsave_picture_71262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71262.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F76B445665D20B05CA61BE122EE076A6CED3C1B5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71263.jpgsave_picture_71263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71263.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5F57ABFF5F505F79B5EA76A9356B4253BA54BF82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71264.jpgsave_picture_71264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71264.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5F57ABFF5F505F79B5EA76A9356B4253BA54BF82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71265.jpgsave_picture_71265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71265.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5F57ABFF5F505F79B5EA76A9356B4253BA54BF82
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71266.jpgsave_picture_71266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71266.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:EBB1ECCD7BAB224E887DA5D29DF9C1FD17839326
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71267.jpgsave_picture_71267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71267.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EBB1ECCD7BAB224E887DA5D29DF9C1FD17839326
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71268.jpgsave_picture_71268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71268.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EBB1ECCD7BAB224E887DA5D29DF9C1FD17839326
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71269.jpgsave_picture_71269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71269.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EBB1ECCD7BAB224E887DA5D29DF9C1FD17839326
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71270.jpgsave_picture_71270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71270.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ AVS Image Converter 7.0.1.172 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71271.jpgsave_picture_71271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71271.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Kim Wilde - Closer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71272.jpgsave_picture_71272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71272.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Compilation part 141 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71273.jpgsave_picture_71273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71273.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Musical kaleidoscope part 24 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71274.jpgsave_picture_71274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71274.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:72A1B47452153254DEF329B43896C86E40FAB367
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71275.jpgsave_picture_71275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71275.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:3D3774F7CFA7E24977FB7E7EA5643DC8A56F5E65
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71276.jpgsave_picture_71276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71276.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ CoolUtils Total Movie Converter 4.1.0.59 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71277.jpgsave_picture_71277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71277.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Labyrinth (Italy) - Studio Albums (11 releases) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71278.jpgsave_picture_71278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71278.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:DF68A638D73F5023D6CC459171A9D336B5A762CF
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71279.jpgsave_picture_71279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71279.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:7C7FE35D4B65E1F9615094EF895BA978A7BFB027
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71280.jpgsave_picture_71280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71280.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Living Legends 12: Frozen Destiny (2025) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71281.jpgsave_picture_71281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71281.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:65F2DA2BB925F56DFD19DFFF43AF1F6890249F5F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71282.jpgsave_picture_71282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71282.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:DB15CF2E2DC2401539A322BC2C8EFECAF9A142F8
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71283.jpgsave_picture_71283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71283.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sigil 2.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71284.jpgsave_picture_71284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71284.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ CoolUtils Total Image Converter 8.2.0.275 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71285.jpgsave_picture_71285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71285.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Giorgio Moroder - Club Remixes Selection, Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71286.jpgsave_picture_71286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71286.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Saleblazers (2023) [Ru/Multi] (0.14.9.3) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71287.jpgsave_picture_71287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71287.jpg" />
 </div>
 
 

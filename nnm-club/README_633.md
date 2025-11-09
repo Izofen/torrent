@@ -6,7 +6,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16773.jpgsave_picture_16773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16773.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.11a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16774.jpgsave_picture_16774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16774.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:08923B57E9E4337E79325C630228C9139DC7FF0D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16775.jpgsave_picture_16775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16775.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:957AE1888A855641CEB64505AE6207E20331E4F8
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16776.jpgsave_picture_16776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16776.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1668860BD0B050710F6B6EA0A2CC9140443E73AA
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16777.jpgsave_picture_16777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16777.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Graebert ARES Mechanical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16778.jpgsave_picture_16778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16778.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Shelly Manne & His Men - Swinging Sounds, Vol.4 (1956) 1996, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16779.jpgsave_picture_16779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16779.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:9E3C9E72D83CE79673270F3FE9546A5FC6668ED6
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16780.jpgsave_picture_16780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16780.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9C71E04B4B2A6C27DE92B863A49F89BC7B83F19D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16781.jpgsave_picture_16781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16781.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Red Vinter - Lumbering Menace (2025) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16782.jpgsave_picture_16782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16782.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Primalfrost - Path of Resilience (2025) [MP3|320 Kbps] <Melodic Death, Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16783.jpgsave_picture_16783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16783.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:F4942E76471A86E7D3ABDABDC8C21EDBFDFC02E1
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16784.jpgsave_picture_16784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16784.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:46FA183D454108E137566862C53882A1461A3882
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16785.jpgsave_picture_16785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16785.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Age of Darkness: Final Stand (2025) [Ru/Multi] (1.0.2.4) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16786.jpgsave_picture_16786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16786.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:561219C0C371FBBF5902B71BD063FF6C6492E477
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16787.jpgsave_picture_16787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16787.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:F93FA9E37E58E576F42C75BCCC7EA17C625F6C82
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16788.jpgsave_picture_16788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16788.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.2.12721522) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16789.jpgsave_picture_16789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16789.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16790.jpgsave_picture_16790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16790.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0C) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16791.jpgsave_picture_16791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16791.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:B97BC737E17F2ADAE44BA121014AACA844414253
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16792.jpgsave_picture_16792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16792.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:F8BFBCB876407248DAE49B687FBD1771E22DAD94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16793.jpgsave_picture_16793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16793.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:E5FCB202D91754FA94AE121ABE6698159F633FEE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16794.jpgsave_picture_16794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16794.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16795.jpgsave_picture_16795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16795.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:BB78C7AE876325664A7F4F0FD3474B3DE50EE493
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16796.jpgsave_picture_16796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16796.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:11458E5CB5A4E4DBCEAF7393E7AB74799E88E15F
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16797.jpgsave_picture_16797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16797.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:678DD8F0629F2854C08FB66CF538E2AEE27FE24E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16798.jpgsave_picture_16798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16798.jpg" />
 </div>
 
 

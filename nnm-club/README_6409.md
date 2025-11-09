@@ -6,7 +6,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203305.jpgsave_picture_203305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203305.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fix My iPhone 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203306.jpgsave_picture_203306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203306.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1CD59459E09C9FDA991DD8B463F14E731BA18BA2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203307.jpgsave_picture_203307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203307.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:47CBBC8B79D1A03BDE253365E772EFC5F827BD53
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203308.jpgsave_picture_203308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203308.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B2BEB1578CAFE1A0128502D84DC117A08455BDE4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203309.jpgsave_picture_203309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203309.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Solar Tide - A Small Piece Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203310.jpgsave_picture_203310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203310.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Jeff Michaels - Gritty Music Revisited (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203311.jpgsave_picture_203311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203311.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:E88FEEA0317148727412B2CD62AA9E76BF80DF21
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203312.jpgsave_picture_203312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203312.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:F9836B4E273540F5FB15C89500A524D7D304C3F0
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203313.jpgsave_picture_203313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203313.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Jeff Washington - Sweet Mama (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203314.jpgsave_picture_203314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203314.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:9EAD90F54FA2AAC381BA276F8A503D10A80B013E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203315.jpgsave_picture_203315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203315.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:D4F863B3C875EEB1AFDE36C2B91762794EBE2A1E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203316.jpgsave_picture_203316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203316.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ G and The Doctor - Dat Nola Trip (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Fo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203317.jpgsave_picture_203317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203317.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Tarchon Fist - The Flame Still Burns (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203319.jpgsave_picture_203319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203319.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:5E7F37657B2AC52CA5F9316F955AEEA199BF1828
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203320.jpgsave_picture_203320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203320.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Willie J. Campbell - Be Cool (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203321.jpgsave_picture_203321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203321.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:2DB0741D5F364FAADF7887EE59BB6FDECCBA6726
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203322.jpgsave_picture_203322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203322.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Sandy Carroll - Love On It (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203323.jpgsave_picture_203323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203323.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:54C90215E5117239DFB94B8943CF937E9F882BB5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203324.jpgsave_picture_203324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203324.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Gurf Morlix - I Challenge the Beast (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203325.jpgsave_picture_203325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203325.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:B75F9B694A77B86F36172747CAFD20362298A153
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203326.jpgsave_picture_203326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203326.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Perseide - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203327.jpgsave_picture_203327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203327.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Adguard 7.12.0 (7.12.4170.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203328.jpgsave_picture_203328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203328.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:4F831507D2F63D2249F109C9E4DF218F3CEA02EB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203329.jpgsave_picture_203329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203329.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ AirMail Pro 5 v.5.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203330.jpgsave_picture_203330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203330.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:3B9190C5013F988E1947FFA45EDDB7AFA6A3CB9C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203331.jpgsave_picture_203331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203331.jpg" />
 </div>
 
 

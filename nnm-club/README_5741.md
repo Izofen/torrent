@@ -6,7 +6,7 @@ Advent Horizon - A Cell To Call Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177532.jpgsave_picture_177532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177532.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:51A67B85CA59947D40D24D82A4F998AB710C7EC4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177535.jpgsave_picture_177535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177535.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:352EAB74153EF87177674F6939846B68682F525C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177537.jpgsave_picture_177537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177537.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:F0307A8DE7AC25753581F619A51125A46472BD3B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177540.jpgsave_picture_177540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177540.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru] (1.2.12) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177541.jpgsave_picture_177541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177541.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ HWiNFO 7.63 Build 5230 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177544.jpgsave_picture_177544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177544.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D69E6E56DF5CC94F9D5A5217114E81F9AA3B5FBE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177545.jpgsave_picture_177545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177545.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E73CF2D5E7A51F195C1D6160E7116C599682B90F
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177548.jpgsave_picture_177548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177548.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:46A92379B8857A342A132601021BDEDDA58CF6B7
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177555.jpgsave_picture_177555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177555.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E10751C29EBD798BBCBE33BB01DCD98EBF8AC4AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177559.jpgsave_picture_177559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177559.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Skeleton Crew (2022) [En] (1.1.3) License FLT
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177561.jpgsave_picture_177561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177561.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:4517E65980779B542C8807B9BDDB2E490941F10E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177563.jpgsave_picture_177563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177563.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:25D3FD1ECEA661E41F5CC534154CF48D33E5182D
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177565.jpgsave_picture_177565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177565.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Ufo - Hot N’ Ready In Texas Live 1979 (2011) Remaster, 2023, Cleopatra Records
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177566.jpgsave_picture_177566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177566.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7ECE768AAE1D2B3CC5C353500C5E2C0994BC98AC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177568.jpgsave_picture_177568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177568.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:0AC163B22CA40534F9E5F01F082C09B0E4650529
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177569.jpgsave_picture_177569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177569.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:021C958608CB83FB65DB8E71CEDE58D9645AFBA5
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177571.jpgsave_picture_177571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177571.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:CF760B2354BDB053353B7D74D7B9AB0508F5AD73
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177572.jpgsave_picture_177572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177572.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Jon Anderson - Independent Stateside (1982) BROADCAST, 2023, Wickerman [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177574.jpgsave_picture_177574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177574.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Levitated Trance: Autumn (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177576.jpgsave_picture_177576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177576.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Eleventyseven - Gloom & Bloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177578.jpgsave_picture_177578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177578.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:E6E0D7612CE94EA77BC3EF876E641203B9F93F0E
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177582.jpgsave_picture_177582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177582.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:4F7D743B60F4987E38BDA51639E405B9F3B4784B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177585.jpgsave_picture_177585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177585.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:A7D7637DACD7F2700427622B316F098BEE76E2CB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177587.jpgsave_picture_177587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177587.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:A84D550BCF203D382A4F77EC9F008774B164EB74
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177589.jpgsave_picture_177589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177589.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:0025E069FC88EEF11A00C322277328A52FBC7A0E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177591.jpgsave_picture_177591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177591.jpg" />
 </div>
 
 

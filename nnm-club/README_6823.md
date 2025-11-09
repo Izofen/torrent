@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234565.jpgsave_picture_234565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234565.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rhinoceros 7 v.7.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234566.jpgsave_picture_234566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234566.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:E3FFD6D8474D4D3D92AC9C356A663E227685C41E
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234567.jpgsave_picture_234567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234567.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ ExactScan Pro / Enterprise 23.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234568.jpgsave_picture_234568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234568.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:12714148D9FAAED3A46B414149DC13A73F11D7F4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234569.jpgsave_picture_234569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234569.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A4129D4E05CA4890848D464902AC53A3FC116FFF
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234570.jpgsave_picture_234570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234570.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ GIF Maker - GIF Editor 1.8.4 Mod by Balatan, Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234571.jpgsave_picture_234571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234571.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Downie 4.6.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234572.jpgsave_picture_234572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234572.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Armin van Buuren - A State Of Trance 1120 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234573.jpgsave_picture_234573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234573.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:36772CC3C62836E89A96ABC7C53AE3AE60360F95
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234574.jpgsave_picture_234574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234574.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ The Gravel Project - Many Miles Ahead (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234575.jpgsave_picture_234575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234575.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:9D144D8DD1ECCA5F00B210D7B0E37988E4F71458
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234576.jpgsave_picture_234576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234576.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234577.jpgsave_picture_234577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234577.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234578.jpgsave_picture_234578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234578.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ MotoGP. Этап 05. Гран-при Франции. Гонка (14.05.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234579.jpgsave_picture_234579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234579.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Wizdoom - Trolldoom (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234580.jpgsave_picture_234580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234580.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F9327C0EF470B52C9106D54883ACC998D5EB2118
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234581.jpgsave_picture_234581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234581.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:A22A67E76A50FC119E3F6DDF4B899F12C7E09CA0
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234582.jpgsave_picture_234582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234582.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:712063EE6B8D19010D134D3424E6B2CE9E06BB2D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234583.jpgsave_picture_234583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234583.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ RTG. Экстремальный водный туризм на Северном 
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234584.jpgsave_picture_234584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234584.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:8F750D6773591D0AAA10938A377E5F5554ADFD3C
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234585.jpgsave_picture_234585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234585.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:1E8EC4303E4C7524248F9F2F5CBFDBD73FA3F58C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234586.jpgsave_picture_234586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234586.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ten - Something Wicked This Way Comes (2023) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234587.jpgsave_picture_234587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234587.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Alfred PowerPack 5.1.2 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234588.jpgsave_picture_234588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234588.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:8F58595D1F8A1DA62C5E85FE346F5658024F624E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234589.jpgsave_picture_234589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234589.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ My Favourite Nemesis - Eidolon (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234590.jpgsave_picture_234590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234590.jpg" />
 </div>
 
 

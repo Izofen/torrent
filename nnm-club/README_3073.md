@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98084.jpgsave_picture_98084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98084.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:111E4ADE6A8F5F7E9BC06545EBCFCC878BA495E0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98086.jpgsave_picture_98086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98086.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CDF7474E9C8AED98B104DCFB5CCC413FCC4D2490
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98089.jpgsave_picture_98089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98089.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1E004321E79775A9BD3B0771F91743CD54B30CE4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98090.jpgsave_picture_98090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98090.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Duffy - Endlessly (2010) [MP3|320 кб/с]<Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98091.jpgsave_picture_98091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98091.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:355DEB371587CDA94FAC730D75A745FD67D1C692
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98092.jpgsave_picture_98092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98092.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F7412B2E1A249C126790F61556B5DDEB742F4EEB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98095.jpgsave_picture_98095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98095.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2955C3698631C65901AC107BF95CF33894AD2CA9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98096.jpgsave_picture_98096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98096.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:567537CA7DBB1737E3D8F4E209127E5A52492CAF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98099.jpgsave_picture_98099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98099.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:77DA20C9A95070718A4F8FE654707A6C916C7515
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98100.jpgsave_picture_98100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98100.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:1E90B20E1745B830ED482240E7A7EB3D05D4743C
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98104.jpgsave_picture_98104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98104.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:BB3C957DFB2F623BB71B12CCC086843470D2890A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98106.jpgsave_picture_98106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98106.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:ECBA7A578406F095640F1F05C76B3569D19C493B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98109.jpgsave_picture_98109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98109.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:2767CA68D385C4D44EBD61646EBA2B77FFC19692
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98110.jpgsave_picture_98110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98110.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:517A276376F170621A7DC265D2FDA3C46A4EC107
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98111.jpgsave_picture_98111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98111.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:3D724308DB949674C9A4879570E9A8DFA1F46E8A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98112.jpgsave_picture_98112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98112.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:932C344E1CF7201CB9F06DEDC95CF30D97DBCF4B
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98113.jpgsave_picture_98113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98113.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:EDCFD76BB20BBCA6735850FEC05C03293F02DD04
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98115.jpgsave_picture_98115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98115.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:B206E7AC953552A8A66E289EB99C38D309F89DA7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98117.jpgsave_picture_98117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98117.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:FA6C3D2015FCE6414254B200136BC5799B3B5240
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98120.jpgsave_picture_98120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98120.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:E23690A864177A978B36EEE4D92FBFF55C6CCC23
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98121.jpgsave_picture_98121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98121.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Клубные Новинки Vol.56 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98126.jpgsave_picture_98126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98126.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Территория Звезд (2012) [MP3|256 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98129.jpgsave_picture_98129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98129.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Spectro Senses - Power Core (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98130.jpgsave_picture_98130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98130.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VNP - Trance Traveling 24 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98131.jpgsave_picture_98131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98131.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Firebrand Super Rock - Firebrand Super Rock (2012) [MP3|320 кб/с]<Heavy Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98133.jpgsave_picture_98133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98133.jpg" />
 </div>
 
 

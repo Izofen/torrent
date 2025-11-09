@@ -6,7 +6,7 @@ Horimiya | Хоримия [2021, TV, 13 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115639.jpgsave_picture_115639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115639.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D7DB178814B7EA41100FD974A89C81ED3D4D1DF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115640.jpgsave_picture_115640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115640.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7364DE47961F14D6668760BECC159D94862A754D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115641.jpgsave_picture_115641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115641.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:557257C6C6A1FE52C30E7BD498C475AC74188371
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115642.jpgsave_picture_115642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115642.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 02.2024 by OVGorskiy 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115643.jpgsave_picture_115643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115643.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F1254EECA48DE0D9C0F6928E061E2A5292C642AF
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115644.jpgsave_picture_115644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115644.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:5EBDD3D6E2AEA40FFB305131D95D7BF6CEE8ACED
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115645.jpgsave_picture_115645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115645.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:1D609EDD0278BA3673E4ECA863197D34BCD1413A
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115646.jpgsave_picture_115646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115646.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115647.jpgsave_picture_115647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115647.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:16C3040127B49992C769924F51ED55F8225B34AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115648.jpgsave_picture_115648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115648.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E30DB285107D1AC5115DC14DC364687B104AC41B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115649.jpgsave_picture_115649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115649.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Adobe Acrobat Pro 2023.008.20555 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115650.jpgsave_picture_115650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115650.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:54EF8B91A1EB1CCE7CE610244073976F6D6E6F29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115651.jpgsave_picture_115651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115651.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:04CFD16E0936FF6D650C9E087B06A95986900D3E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115652.jpgsave_picture_115652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115652.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:0348988B3CC550D72005CE762A69CE060E1C386C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115653.jpgsave_picture_115653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115653.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AI War 2 v.5.586 (2019) [En] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115654.jpgsave_picture_115654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115654.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D928C7EE0523020AC81AE593344CBF0BA149CFF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115655.jpgsave_picture_115655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115655.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:30516F3DBBDBB3CD0F11C5BA0DDB723FF0940E3F
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115656.jpgsave_picture_115656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115656.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115657.jpgsave_picture_115657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115657.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Понемногу отовсюду by Yuridar #C (1958-2021) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115658.jpgsave_picture_115658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115658.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Neverwinter Nights: Enhanced Edition v.88.8193.36.11 (2018) [Multi] [macOS Nativ
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115659.jpgsave_picture_115659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115659.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:ECF5762D88567243D2CDD9E5A5381432DCD5F244
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115660.jpgsave_picture_115660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115660.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:C2DA6A562FA64013B0DDECE1F7B379770C39E210
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115661.jpgsave_picture_115661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115661.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:C2DA6A562FA64013B0DDECE1F7B379770C39E210
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115662.jpgsave_picture_115662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115662.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Kjell Karlsen Big Band - Edvard Grieg In Jazz Mood (2008) Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115663.jpgsave_picture_115663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115663.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Gen and the Degenerates - Anti-Fun Propaganda (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115664.jpgsave_picture_115664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115664.jpg" />
 </div>
 
 

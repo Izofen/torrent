@@ -6,7 +6,7 @@ OF3D Academy, Ander Alencar | Masterviz (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181084.jpgsave_picture_181084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181084.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Chromium 107.0.5304.122 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181085.jpgsave_picture_181085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181085.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9D9086B006C769C019B149A144E3DC7F7B995097
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181088.jpgsave_picture_181088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181088.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FBE96F3F296BA185CC7BA1AF9757A8C9ACBE5AB7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181089.jpgsave_picture_181089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181089.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:E6B6BD7CBF042110672B92CDC2AD317ED60EA96A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181091.jpgsave_picture_181091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181091.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:622C12FCD415886CF7DA7813D62161CF2FA77A40
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181093.jpgsave_picture_181093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181093.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:A0F3BB8CFD2D43DB27E4F665531351C0EA88F845
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181095.jpgsave_picture_181095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181095.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Asia - Astra (1985) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181096.jpgsave_picture_181096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181096.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:A6E57948471C8E271F18EAFBCAD9C2A62AD1083F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181100.jpgsave_picture_181100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181100.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:22342BCF8D3DACB333B2A68D48A77CE027471EBF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181102.jpgsave_picture_181102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181102.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:98C92BBA6C29322DB058AC3A790B1BB2A45F2643
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181104.jpgsave_picture_181104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181104.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Pharaoh - Philarmonia (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181106.jpgsave_picture_181106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181106.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181108.jpgsave_picture_181108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181108.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:BEEB79CDCA5E27129F8574EC441A477D509F09D0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181112.jpgsave_picture_181112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181112.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Tails Noir (2021) [Ru/Multi] (11857296/dlc) Scene Tenoke [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181113.jpgsave_picture_181113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181113.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Udemy, VFX 3D Pro | PolyModeling in Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181115.jpgsave_picture_181115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181115.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:B28DD983B99E932282A3B799532BFCA99157EEB0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181116.jpgsave_picture_181116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181116.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Englishonok | Английская школа от клуба Инглишоно
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181120.jpgsave_picture_181120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181120.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Michael Bublé - Michael Bublé's Cozy Christmas (2022) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181121.jpgsave_picture_181121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181121.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:1649BFBCB6FF3DD0D14891397980A0FD98FE2163
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181122.jpgsave_picture_181122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181122.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Stepik, Askarov Workshop | Рисунок карандашом - построе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181125.jpgsave_picture_181125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181125.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Asia - Then & Now (1990) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181126.jpgsave_picture_181126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181126.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:07932A6B86D10C9483E828C3856BCB7A74DCB453
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181128.jpgsave_picture_181128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181128.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:61460BDC30615FF3571DA2F15325DC2FD9CE8202
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181132.jpgsave_picture_181132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181132.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:95703983635A552575B719D81734A3C1FFFED615
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181133.jpgsave_picture_181133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181133.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ ES File Explorer File Manager v4.4.1.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181135.jpgsave_picture_181135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181135.jpg" />
 </div>
 
 

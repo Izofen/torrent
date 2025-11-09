@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98269.jpgsave_picture_98269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Open Xange 2012.04 RC1 [x86_64] (1xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98271.jpgsave_picture_98271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98271.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Дискотека "Наступает Ночь" (2012) [MP3|256 kbps]<Disc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98273.jpgsave_picture_98273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98273.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4E8F4C040F44335750B17AC439282E9AA9D111B0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98275.jpgsave_picture_98275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98275.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Ladyhawke - Anxiety (2012) [MP3|320 кб/с]<Indie Rock, New Wave, Electronic, S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98276.jpgsave_picture_98276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98276.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Erik Jackson - Rainy Days (2012) [MP3|320 кб/с]<Acid Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98278.jpgsave_picture_98278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98278.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:584D8959A4CC21EEED9E429E1CE95246A3138CFB
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98279.jpgsave_picture_98279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98279.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98280.jpgsave_picture_98280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98280.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98285.jpgsave_picture_98285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98285.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World J
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98288.jpgsave_picture_98288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98288.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98289.jpgsave_picture_98289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98289.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98292.jpgsave_picture_98292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98292.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98294.jpgsave_picture_98294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98294.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98295.jpgsave_picture_98295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98295.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012) [MP3|320 кб/с]<Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98296.jpgsave_picture_98296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98296.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98297.jpgsave_picture_98297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98297.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98300.jpgsave_picture_98300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98300.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cause For Effect - Progressive And Minimalist Recording (2010) [MP3|320 кб/с]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98302.jpgsave_picture_98302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98302.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Avto Club April (2012) [MP3|320 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98308.jpgsave_picture_98308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98308.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Continuo Renacer - The Great Escape (2011) [MP3|320 кб/с]<Progressive Technic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98310.jpgsave_picture_98310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98310.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:70D5E572B2F7330351BF705B9FD6EC3BB51DB4FC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98312.jpgsave_picture_98312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98312.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Destruction - Best Of (1992) [MP3|320 кб/с]<Thrash Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98313.jpgsave_picture_98313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98313.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Burzum - Umskiptar (2012) [MP3|192 кб/с]<Black Metal, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98314.jpgsave_picture_98314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98314.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ VA - Klubnye novinki Vol.58 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98317.jpgsave_picture_98317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98317.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ VA - Head Over Dancing (27.03.2012) [MP3|~200-320 кб/с]<Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98321.jpgsave_picture_98321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98321.jpg" />
 </div>
 
 
@@ -776,7 +776,7 @@ magnet:?xt=urn:btih:3878ED0CF877911E9E251B176EC2E43FB0C81170
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98322.jpgsave_picture_98322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98322.jpg" />
 </div>
 
 

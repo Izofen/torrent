@@ -6,7 +6,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v18 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54629.jpgsave_picture_54629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54629.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F80DE832F02DBD8C2F0547299BCA52AD6BB2BEA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54630.jpgsave_picture_54630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54630.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ KeePass Password Safe 2.57 + Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54631.jpgsave_picture_54631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54631.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Scene Rune [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54632.jpgsave_picture_54632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54632.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9D0C460B45D1F36DCB4B9BA3EEC9AA2827903EE7
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54633.jpgsave_picture_54633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54633.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:27C836F8A86515E993A99F1773AF51ABCFC0CD3A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54634.jpgsave_picture_54634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54634.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C3761072C8C480300D166485FC328B6183545424
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54635.jpgsave_picture_54635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54635.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:CEDA082C2BE6187249076746F3136C589638837A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54636.jpgsave_picture_54636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54636.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D2B2C9C45C8D1214C962A746F4AFEAB53DC0A363
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54637.jpgsave_picture_54637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54637.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:A70C4C0EA45047E5322FC54769E3F8A87D770A6F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54638.jpgsave_picture_54638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54638.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:246AFE64D444E5521EB85F3E0E177C81F551ECCE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54639.jpgsave_picture_54639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54639.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.3.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54640.jpgsave_picture_54640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54640.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:4D11C8456E042AE78FCDC1D71B885CC18038CE56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54641.jpgsave_picture_54641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54641.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:219B5AB817A8B67EADCE61BC547BE2D826E502DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54642.jpgsave_picture_54642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54642.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MInstAll v.31.05.2024 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54643.jpgsave_picture_54643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54643.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:F23E55A422890837500034A32D0E720A55FAD702
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54644.jpgsave_picture_54644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54644.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:CE3E9FD20FB431AAF0213983A5C732E895A47345
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54645.jpgsave_picture_54645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54645.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/En] (1.9.461/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54646.jpgsave_picture_54646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54646.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru/En] (1.2.208) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54647.jpgsave_picture_54647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54647.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:C4B2161C4A59EFD340209D562E299FD40CE9D1E3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54648.jpgsave_picture_54648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54648.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C4B2161C4A59EFD340209D562E299FD40CE9D1E3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54649.jpgsave_picture_54649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54649.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54650.jpgsave_picture_54650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54650.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:79F64FD1D5FD91A86845B265626290FB67D58943
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54651.jpgsave_picture_54651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54651.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ iTop VPN 5.5.0.5240 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54652.jpgsave_picture_54652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54652.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ MInstAll v.31.05.2024 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54653.jpgsave_picture_54653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54653.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Google Chrome 125.0.6422.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54654.jpgsave_picture_54654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54654.jpg" />
 </div>
 
 

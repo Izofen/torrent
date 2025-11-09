@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61077.jpgsave_picture_61077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61077.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:99EEA1AB27521E1F6E461FC4D2CBC7DD0CCB83CA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61078.jpgsave_picture_61078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61078.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Aiseesoft Video Converter Ultimate 10.8.28 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61079.jpgsave_picture_61079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61079.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:51776AECBB2C6A5BDDB4F60B04237E4B9E7720AD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61080.jpgsave_picture_61080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61080.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4F8E0AB8CA5B8C8E9E2B456D8B31D4B59EC300B7
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61081.jpgsave_picture_61081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61081.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F51B09C6541208CDDB50B9CD833AE2D17B3DC16E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61082.jpgsave_picture_61082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61082.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Balabolka 2.15.0.867 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61083.jpgsave_picture_61083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61083.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:9D4664B734C28E5209C6F66FAB3500377BE10394
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61084.jpgsave_picture_61084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61084.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Office Tool Plus 10.10.3.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61085.jpgsave_picture_61085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61085.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:85A1D0EADFFA7C556D114974592BF19A802F8677
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61086.jpgsave_picture_61086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61086.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Зарубежная Дискотека ХХ Века - 78 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61087.jpgsave_picture_61087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61087.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.40.33721.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61088.jpgsave_picture_61088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61088.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:911A38A1ADDF187E91161A9584D7C0BE779F4F76
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61089.jpgsave_picture_61089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61089.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:05316083ECA7BC6006FDF6CAA287D4CCC3849024
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61090.jpgsave_picture_61090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61090.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ OmniPlayer Pro - Media Player 2.1.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61091.jpgsave_picture_61091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61091.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:94D4B08F7CF91BB77ED116729A1CB27F517ED0D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61092.jpgsave_picture_61092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61092.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61093.jpgsave_picture_61093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61093.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VideoProc Converter AI 6.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61094.jpgsave_picture_61094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61094.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ StartAllBack 3.7.8 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61095.jpgsave_picture_61095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61095.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:3B68DA0E1410F76C4BC4EA49F2773907ED08D9C2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61096.jpgsave_picture_61096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61096.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:D77BFBCA64FA764FF60B661B4C6702FCE808D5D2
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61097.jpgsave_picture_61097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61097.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:E5C8BB012155A3C90DB2EAC8A0950805B2D4C50D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61098.jpgsave_picture_61098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61098.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Russian Indie II (2024) [MP3|320 Kbps] <Rock, Alternative Rock, Indie Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61099.jpgsave_picture_61099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61099.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:EA7541C9393E0C078E807D22DB1B1BF8CB46D1A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61100.jpgsave_picture_61100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61100.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61101.jpgsave_picture_61101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61101.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VideoProc Converter AI 6.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61102.jpgsave_picture_61102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61102.jpg" />
 </div>
 
 

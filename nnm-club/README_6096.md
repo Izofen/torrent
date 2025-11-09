@@ -6,7 +6,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191854.jpgsave_picture_191854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191854.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ NIUBI Partition Editor 9.7.7 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191855.jpgsave_picture_191855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191855.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Jack Teagarden - The Complete Capitol Fifties Jack Teagarden Sessions (1955 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191856.jpgsave_picture_191856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191856.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:736722FA05A334AB32E657440EB526382257874B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191857.jpgsave_picture_191857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191857.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:DC04350C3A0128CAD5B6D3D2B37939A8F011FB49
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191858.jpgsave_picture_191858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191858.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:46BD0E3B086B5F4845B4822CA660F73066F72BB1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191859.jpgsave_picture_191859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191859.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:61DC2F0AA1EECC2E7B3A46346CBF86D554543688
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191860.jpgsave_picture_191860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191860.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:BFA01766F8E35C48A2E65046D7EA483B4BD72381
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191861.jpgsave_picture_191861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191861.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ MassTube Plus 17.0.0.502 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191862.jpgsave_picture_191862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191862.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7C20B60F97D80D6F8BBD3AA7D2C799B04B704559
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191863.jpgsave_picture_191863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191863.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Process Lasso Pro 12.3.2.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191864.jpgsave_picture_191864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191864.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ High-Logic MainType Pro 12.0.0.1293 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191865.jpgsave_picture_191865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191865.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:BC0D81269DC38EA69A26402F8059829240E1D15A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191866.jpgsave_picture_191866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191866.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:CA55CA8BAC7B5C0284EF61F9710EF31180FCF128
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191867.jpgsave_picture_191867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191867.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.3.3188 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191868.jpgsave_picture_191868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191868.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Google Chrome 116.0.5845.180 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191869.jpgsave_picture_191869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191869.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:4ABB52919CA4740ABC8C3FD9C7AD423B751E12DC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191870.jpgsave_picture_191870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191870.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:D0101FEDC4DF00FAC3A6ED617B658559DEEEA5C8
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191871.jpgsave_picture_191871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191871.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:2ADB6575BEAE74E2FC2153C4C8E82A1AB314ADE0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191872.jpgsave_picture_191872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191872.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Pale Moon 32.4.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191873.jpgsave_picture_191873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191873.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Remoteness (2022) [Ru/Multi] (1.80) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191874.jpgsave_picture_191874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191874.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8EC7B37155FD6C7280671033E2CF7110725A80FA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191875.jpgsave_picture_191875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191875.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:FB3DC5883D1247778DD3D1D0D2448FB3C1FCE8D0
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191876.jpgsave_picture_191876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191876.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:8C134DF72DE3BAF806A076E7567B4D4EA2815289
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191877.jpgsave_picture_191877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191877.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:74594AD50A9FFD2A0CA235E4B7218DAB9EF12859
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191878.jpgsave_picture_191878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191878.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Exploring Trance (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progress
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191879.jpgsave_picture_191879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191879.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Sirup Amsterdam 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128968.jpgsave_picture_128968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128968.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Magic Deep-House, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128969.jpgsave_picture_128969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128969.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128982.jpgsave_picture_128982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128982.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129186.jpgsave_picture_129186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129186.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Ambiental Journey: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129522.jpgsave_picture_129522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129522.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Meteora - Gradients (2015) [FLAC|Lossless|WEB-DL|tracks] <Traditional Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129541.jpgsave_picture_129541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129541.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Meteora - Gradients II Westerlies (2016) [FLAC|Lossless|WEB-DL|tracks] <Traditio
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129543.jpgsave_picture_129543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129543.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Meteora - The Northern Path (2017) [FLAC|Lossless|WEB-DL|tracks] <Traditional El
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129558.jpgsave_picture_129558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129558.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Meteora - Gradients III Lights In The Sky (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129618.jpgsave_picture_129618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129618.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Oliver Koletzki - 7 альбомов (2007 - 2023) [FLAC|Lossless]<Tech House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129667.jpgsave_picture_129667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129667.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Talla 2XLC - All The Dreams I Share (The Vocal Album) (2023) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129804.jpgsave_picture_129804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129804.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Cybotron - Enter (1983) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129810.jpgsave_picture_129810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129810.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - The Best Of Suanda True 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129829.jpgsave_picture_129829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129829.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Armin van Buuren - A State Of Trance 1150 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129833.jpgsave_picture_129833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129833.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - 50 DJ Tracks 2024 Vol. 1 (2023) [MP3|320 Kbps] <House, Dance, Club, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129872.jpgsave_picture_129872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129872.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Dance The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129899.jpgsave_picture_129899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129899.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Showtek - 360 Yellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle, Hard Tranc
 >>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129966.jpgsave_picture_129966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129966.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - A State of Trance Year Mix 2023 - Mixed by Armin van Buuren (2023) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131008.jpgsave_picture_131008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131008.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Dance With the Dead - Out of Body (2013) Remastered Edition, 2023 [FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131111.jpgsave_picture_131111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131111.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - The Best Of Suanda Voice 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131147.jpgsave_picture_131147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131147.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - The Best Of Suanda Base 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131159.jpgsave_picture_131159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131159.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Jean Michel Jarre - Oxygene (1976) [FLAC|Lossless]<Electro, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131346.jpgsave_picture_131346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131346.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Armada Music - Trance Legacy II (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131430.jpgsave_picture_131430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131430.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Winter Chillout Lounge 2023 - Smooth Lounge Sounds for the Cold Season [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131452.jpgsave_picture_131452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131452.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Dance With The Dead - Driven to Madness (2022) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132061.jpgsave_picture_132061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132061.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ VA - Hypnotised  A Journey Through British Trance Music 1993-2002 (2023) [FLAC|L
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132071.jpgsave_picture_132071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132071.jpg" />
 </div>
 
 

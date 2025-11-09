@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156871.jpgsave_picture_156871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156871.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chris Norman - Full Circle (1999) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156872.jpgsave_picture_156872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156872.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:657E1553D035D5B8898328C6D836F39227364D5D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156873.jpgsave_picture_156873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156873.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ StartAllBack 3.2.1 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156876.jpgsave_picture_156876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156876.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8E4C775ED7E115AFB2A87DB37EB7616A0546BD35
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156877.jpgsave_picture_156877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156877.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E0A102AD4439643771EEFB57D48D5900FEB5644E
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156878.jpgsave_picture_156878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156878.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A99CA57CDC4B8A6C6E6544F479CF0CD968BA257E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156879.jpgsave_picture_156879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156879.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:05FFE37F8EE8637F10EE864218034E46710AE799
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156880.jpgsave_picture_156880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156880.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C3D8B9D033C074BD707C7862991C33B4D71D159B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156881.jpgsave_picture_156881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156881.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ The Living End - Modern Artillery (2003) [FLAC|Lossless|image + .cue] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156882.jpgsave_picture_156882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156882.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:DDD726D4D31E59ABD68DDF1E5BEF054FA30053D7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156883.jpgsave_picture_156883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156883.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:5E992FCBA72002B9764E5ABDC6D657596D3CDBF1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156885.jpgsave_picture_156885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156885.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:AA01E141023A901D3584BC38225A4A636E069B39
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156886.jpgsave_picture_156886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156886.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless| image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156887.jpgsave_picture_156887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156887.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Mother Turtle - II (2016) [FLAC|Lossless|tracks] <Eclectic Prog>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156890.jpgsave_picture_156890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156890.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:3F8AF33A9E67FB3150C18519A13BB6AB6FF5566D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156891.jpgsave_picture_156891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156891.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ IceCream Ebook Reader Pro 6.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156892.jpgsave_picture_156892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156892.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:B4FF2390C03484173ABC35DF2C2EC8D67D6102AB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156894.jpgsave_picture_156894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156894.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:9406183BAAC5E20C2F9D69FA70775ABE6F6A6E6A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156895.jpgsave_picture_156895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156895.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:D3BD718F538613607151F37411259315BAE8617B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156896.jpgsave_picture_156896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156896.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:F34D479C31B61038CA050E868992E39666178210
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156898.jpgsave_picture_156898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156898.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Max Freegrant - The Yearbook (2016) [MP3|320 Kbps] <Trance, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156900.jpgsave_picture_156900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156900.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ iMazing 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156902.jpgsave_picture_156902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156902.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:212B73FB724FF7A1001D57F84C8167C4973A46E0
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156903.jpgsave_picture_156903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156903.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Music News vol.57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156904.jpgsave_picture_156904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156904.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:E8950D014F95A5736C478C940FDE5501C955BB32
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156905.jpgsave_picture_156905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156905.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ NVIDIA обвинили в краже секретных данных на со�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143165.jpgsave_picture_143165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143165.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dean Davis | UnixCBT Sol11x Edition (2015) WEB-DL [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143166.jpgsave_picture_143166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143166.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fell Seal: Arbiter's Mark v.1.0.2 (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143167.jpgsave_picture_143167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143167.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C02D5C7FC578E44DA3833007EE841067608C1CA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143168.jpgsave_picture_143168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143168.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143169.jpgsave_picture_143169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143169.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Best HD Wallpapers Pack (16.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143170.jpgsave_picture_143170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143170.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Top 40 New Year Chillout Gift (2016) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143172.jpgsave_picture_143172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143172.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:20BEFEF08FD7856D6DD9FBFD4D7701CF1BBEC4F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143173.jpgsave_picture_143173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143173.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Santa 3D Live Wallpaper 1.4.1 Premium [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143174.jpgsave_picture_143174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143174.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F018F9B638E3ED73BE6062D79A6E85670354229F
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143175.jpgsave_picture_143175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143175.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ MInstAll v.25.12.2020 By Andreyonohov & Leha342 (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143176.jpgsave_picture_143176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143176.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:6CE289C4C302160959CFCD6FEF28A59A95B21503
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143177.jpgsave_picture_143177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143177.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:53CEE14AC3636173F0FDFAB2F62102857EFCEEDB
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143179.jpgsave_picture_143179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143179.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:82A855C2634CD83EFFB1B8938E5F4E82248F2E34
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143180.jpgsave_picture_143180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143180.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:AB36DEB35EA6154537569BAADDE9E13816E528D2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143181.jpgsave_picture_143181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143181.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:27186DB25B6EA9C2364F3EE55CE608C160FABDD9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143182.jpgsave_picture_143182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143182.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:6F71138DE69BC6AFA704F04E8913EBD77F15155F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143184.jpgsave_picture_143184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143184.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:96C231BA18EFDC57E41B752B3F5A1014491D5FC3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143185.jpgsave_picture_143185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143185.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Planetary Dustoff v.1.0.2 (2019) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143186.jpgsave_picture_143186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143186.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:A2B2D170B8AC4D927E3A34073B0A83CA324743B3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143189.jpgsave_picture_143189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143189.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:694E15E23412FE5CCEA8B5123463D64B683D5A1D
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143190.jpgsave_picture_143190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143190.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ K-Lite Codec Pack 13.7.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143191.jpgsave_picture_143191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143191.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:90E060996C4572B6695388594338985FDD227EBD
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143192.jpgsave_picture_143192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143192.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E60E48EFB2CAB31546169484DF3166E1C1CA88C6
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143193.jpgsave_picture_143193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143193.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Jaye Jayle - No Trail and Other Unholy Paths (2018) [FLAC|Lossless|tracks + .cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143195.jpgsave_picture_143195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143195.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:CA043A25C6C5121A496CA131C7713E5480014F0C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143196.jpgsave_picture_143196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143196.jpg" />
 </div>
 
 

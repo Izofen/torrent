@@ -6,7 +6,7 @@ Adobe Acrobat Pro 2025.001.20672 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4471.jpgsave_picture_4471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4471.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:142469D1738F124CB4DABC95F49A62DC8F65DC8A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4472.jpgsave_picture_4472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4472.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6385551575FE5A865E8E130DDF92C5981D60063A
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4473.jpgsave_picture_4473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4473.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:587790FA5048770EC1AC030779324CCE61F2D9D5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4474.jpgsave_picture_4474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4474.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:090752A85B739B75E8B2537F42675CD8306ED93E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4475.jpgsave_picture_4475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4475.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8605A991C92142CD1CD78E724698F6056A6AD284
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4476.jpgsave_picture_4476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4476.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:7CF84C0E08A9D222DFD3ABE21E3FE21370BEB6D0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4477.jpgsave_picture_4477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4477.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Hardwell - Euphoria 001 - 008 (2025) [MP3|320 Kbps] <Techno, Big Room>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4478.jpgsave_picture_4478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4478.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Ui Kits - UI8 - UI KIT | AI Art Generator App - bento & glassmorphism style [FIG
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4479.jpgsave_picture_4479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4479.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4480.jpgsave_picture_4480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4480.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ MIUI-ify v1.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4481.jpgsave_picture_4481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4481.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:734D17D2060D545F411D284CD8D4693DE84A8BF3
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4482.jpgsave_picture_4482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4482.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:DE87A4D55BA851106400EC890F448E9C341D393D
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4483.jpgsave_picture_4483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4483.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:B4F1E15FFFB20D57E4D4FE3EA0E01E2EFB9874D1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4485.jpgsave_picture_4485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4485.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:31A41A8ACCC745DAC01A873082FAFEBAD4B93E6B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4486.jpgsave_picture_4486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4486.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Neyyah (2025) [Ru/Multi] (Build 19847679) Repack Let'sРlay [Soundtrack Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4487.jpgsave_picture_4487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4487.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Metal Eden (2025) [Ru/Multi] (Build 19732042) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4488.jpgsave_picture_4488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4488.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:62370F4104700A197D4F8FF7481EB31F44743933
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4489.jpgsave_picture_4489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4489.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:A1BE640FAFB42152E006E6A3361A983438B1B447
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4490.jpgsave_picture_4490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4490.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:0861F756007E40269CB7A9E322720FA9BEEFA962
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4491.jpgsave_picture_4491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4491.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0861F756007E40269CB7A9E322720FA9BEEFA962
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4492.jpgsave_picture_4492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4492.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ IObit Driver Booster Pro 12.6.0.620 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4494.jpgsave_picture_4494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4494.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4495.jpgsave_picture_4495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4495.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:562DF374F5A94912DFCE76E2D9370B9B6EC01456
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4496.jpgsave_picture_4496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4496.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Vault of the Void (2022) [Ru/Multi] (2.6.55.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4497.jpgsave_picture_4497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4497.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:BDFDAA689C8AA776E70A77DE6161FE36AB75EFB8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4499.jpgsave_picture_4499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4499.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105017.jpgsave_picture_105017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105017.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DC3EB8D8A7499B6719F1D88558B0AF5DE696F6D5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105018.jpgsave_picture_105018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105018.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sonic Hustle - Out Of The Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105019.jpgsave_picture_105019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105019.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:02ADAE12A63FF0D76575CA3BCE4749CFABA61422
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105020.jpgsave_picture_105020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105020.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Then Jerico - 4 Albums: Before The Future: 1984-1989 (2024) [MP3|320 Kbps] <New 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105021.jpgsave_picture_105021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105021.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:B10819375F353DD393E84B9C1D511B581736356D
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105022.jpgsave_picture_105022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105022.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:BD993C6E3634F6D28F07D67262514DA980F86C41
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105023.jpgsave_picture_105023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105023.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:675B3455068F835419820DC20F2DCDDE3BBA1573
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105024.jpgsave_picture_105024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105024.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Nino Helfrich - Shadow Empress (2024) [MP3|320 Kbps] <Prog Metal, Vocals Instrum
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105025.jpgsave_picture_105025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105025.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:27F8242BF65653D27A59DF2B5AB23E544461E7B6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105026.jpgsave_picture_105026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105026.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (0803) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105027.jpgsave_picture_105027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105027.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:5F285CD9DBFDC64634B443F6662F800195C3C4C3
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105028.jpgsave_picture_105028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105028.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Piper and The Hard Times - Revelation (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105029.jpgsave_picture_105029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105029.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Chet Baker - Chet's Choice (1985) Criss Cross [APE|Lossless|image + .cue] <Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105030.jpgsave_picture_105030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105030.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105031.jpgsave_picture_105031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105031.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Moonshine Jasmine - Grateful (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105032.jpgsave_picture_105032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105032.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Emily Wurramara - NARA (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie-Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105033.jpgsave_picture_105033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105033.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Loss - Human Factor (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105034.jpgsave_picture_105034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105034.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Johnny Ray Jones - Mystic Chiefs (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105035.jpgsave_picture_105035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105035.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Memphis Royal Brothers - Memphis Royal Brothers (2024) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105036.jpgsave_picture_105036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105036.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Ruthie Foster - Mileage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105037.jpgsave_picture_105037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105037.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ This Ending - Crowned In Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105038.jpgsave_picture_105038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105038.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Thom Rotella - Side Hustle (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Beb
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105039.jpgsave_picture_105039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105039.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Diane Durrett - Sweet Georgia Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105040.jpgsave_picture_105040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105040.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Anciients - In The Absence Of Wisdom (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105041.jpgsave_picture_105041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105041.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Carly Harvey - Kamama (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105042.jpgsave_picture_105042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105042.jpg" />
 </div>
 
 

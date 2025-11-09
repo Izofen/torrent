@@ -6,7 +6,7 @@ VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136243.jpgsave_picture_136243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136243.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:63AEBAADD5A67CC0B88D24B655FAFA26857A5F79
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136244.jpgsave_picture_136244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136244.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Fiction - Lifescapes: Guitar For Stress Relief (2011) [MP3|320 кб/с]<Instrume
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136251.jpgsave_picture_136251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136251.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:34ECFE9A262A1359157F970DEE25C6B8B9CE0D86
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136252.jpgsave_picture_136252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136252.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ magnet:?xt=urn:btih:C4772EC62B62B9112A78A22879CF301BCC6A6BA5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136254.jpgsave_picture_136254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136254.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:52F48E320099A63A0DB908BDAEA832C5B3AF43AE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136258.jpgsave_picture_136258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136258.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:0DB79CE3519A05DC26E8381C9FA0DF16A857E61E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136259.jpgsave_picture_136259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136259.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Albedo 067 - Al & Bi (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136261.jpgsave_picture_136261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136261.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:81F21EC704C83AC85F097890FA9BA1480B76CEF9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136263.jpgsave_picture_136263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136263.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Exotic Wafture 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136264.jpgsave_picture_136264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136264.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:7D4BC6E7C5F1CB3050E1CA76901112294431E4DF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136266.jpgsave_picture_136266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136266.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:2E41059FBD71CAE1A9FA6428ACB2806C31B973B2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136268.jpgsave_picture_136268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136268.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - The Best Of Chillout Mode (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136270.jpgsave_picture_136270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136270.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:B43A9656E5154440B42E62F5DCA597132D4DA208
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136273.jpgsave_picture_136273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136273.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Marck Schwarze Trane & Stiv Hey - Squermus (11.12.2012) [MP3|320 кб/с]<Techno
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136278.jpgsave_picture_136278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136278.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:C7E0E6E99908F4A3059CC9D795A599CEEA0B075F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136279.jpgsave_picture_136279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136279.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - The Club music (2012) [MP3|256 кб/с]<Сlub>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136281.jpgsave_picture_136281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136281.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:5B77952F92BB9ABB9AC3C20031C058AD3C889464
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136282.jpgsave_picture_136282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136282.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Cavalier's Club Volume One (2012) [MP3|320 кб/с]<Chillout, House, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136287.jpgsave_picture_136287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136287.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:3E2B86C640EEA91F250BAACFD54689CC22E42D98
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136305.jpgsave_picture_136305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136305.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Mega Man Powered Up [PSP] [ENG] (2006)
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136311.jpgsave_picture_136311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136311.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0B883D333CFB18CE915E2BFB3CE61D37C13E9753
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136312.jpgsave_picture_136312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136312.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:E0D9932140F49EC4CAE463DA5AD71DBD60C7F119
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136315.jpgsave_picture_136315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136315.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:A18E077EC132AFCC970A39E047877D0E83D7E24F
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136318.jpgsave_picture_136318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136318.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Nisekoi / False Love / Притворная любовь [Манга][главы
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136324.jpgsave_picture_136324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136324.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ magnet:?xt=urn:btih:EAC8880C536A3D085A0E07211E313A7BA2E94153
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136329.jpgsave_picture_136329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136329.jpg" />
 </div>
 
 

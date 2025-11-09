@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247277.jpgsave_picture_247277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247277.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:92100FF333F516A371CC7CE58BFB6B3EDE73EE09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247278.jpgsave_picture_247278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247278.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1896FA4E29B3E8F1332B674A28FCD6DB33390513
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247279.jpgsave_picture_247279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247279.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9C4FB51FC2BEA7BD5868C0BED1C7F015CF659046
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247280.jpgsave_picture_247280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247280.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) HDRip [H.264] [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247281.jpgsave_picture_247281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247281.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:97CD4FF25E24AC649A967273F54A53429E8DD8BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247282.jpgsave_picture_247282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247282.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Adobe Photoshop 2023 24.6.0.573 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247283.jpgsave_picture_247283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247283.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:C8F474AA2F9A0446AC9AC80B32AE48CFEAAE01DF
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247284.jpgsave_picture_247284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247284.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6F935A07E276E795ABEF9D29BCCBF5C32A49EEAB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247285.jpgsave_picture_247285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247285.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Resident Evil Code: Veronica X HD (2011) [Xbox360] [Region Free] Freeboot [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247286.jpgsave_picture_247286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247286.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2E3628A126DE40E802E6099F1EE073E32152B3E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247287.jpgsave_picture_247287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247287.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dave the Diver (2023) [Multi] (u1.0.0.933) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247288.jpgsave_picture_247288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247288.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ SuperАлиби 2 / Alibi.com 2 (2023) WEB-DL [H.264/1080p] [MVO]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247289.jpgsave_picture_247289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247289.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:49EF97D419B482A10A7A41DA4FD155F5AE5EB9F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247290.jpgsave_picture_247290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247290.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:98D6985E683F2BEC999812FD917B24700CEF321B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247291.jpgsave_picture_247291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247291.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:DFCB2A1C237634B944371D5E7A4C2CB1307C7DEA
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247292.jpgsave_picture_247292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247292.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:07D64F5EB2EE0DA5C16F8FBF816F56A01ED4BD63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247293.jpgsave_picture_247293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247293.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:AD9BB472998FB1BB5503A7E7CC89A57E4FCB22E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247294.jpgsave_picture_247294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247294.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Extreme - 10 Albums, 8 EP & Singles (1989 - 2023) (27 CD)[FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247295.jpgsave_picture_247295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247295.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ AnyDesk 7.1.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247296.jpgsave_picture_247296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247296.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:728860716489978562A6C4AB79565608A089590B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247297.jpgsave_picture_247297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247297.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:0490CA95FEF276868E7C553ED8304CA057FBE2FF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247298.jpgsave_picture_247298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247298.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:76177342F4184FF47713B2FBEBDFD737B66622CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247299.jpgsave_picture_247299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247299.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:988C104204C375BC249B5753442137AFE3D32C1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247300.jpgsave_picture_247300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247300.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru / Я 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247301.jpgsave_picture_247301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247301.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:27E36DF77C267B1229C327D07F653952CEFDB1D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247302.jpgsave_picture_247302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247302.jpg" />
 </div>
 
 

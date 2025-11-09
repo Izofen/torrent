@@ -6,7 +6,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.6899 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136948.jpgsave_picture_136948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136948.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MetaCreations (Corel) Painter 6 6.1.0 build 69 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136949.jpgsave_picture_136949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136949.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MetaCreations (Corel) Painter 5.5 5.5.0.12 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136950.jpgsave_picture_136950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136950.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136951.jpgsave_picture_136951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136951.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ imyPass Windows Password Reset Standart / Platinum / Ultimate 1.0.16 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136952.jpgsave_picture_136952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136952.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Auslogics Duplicate File Finder 11.1.0.0 RePack (& Portable) by elchupacabra [Mu
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136953.jpgsave_picture_136953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136953.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Swiss & Die Andern - 9 Albums (2024) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136954.jpgsave_picture_136954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136954.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Universal Maps Downloader 10.228 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136955.jpgsave_picture_136955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136955.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ CoolUtils Total Image Converter 8.2.0.283 RePack (& Portable) by elchupacabra [M
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136956.jpgsave_picture_136956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136956.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ SIW 2025 Technician 15.9.1009 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136957.jpgsave_picture_136957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136957.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Photo Supreme 2025.3.3.8115 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136958.jpgsave_picture_136958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136958.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D00B02CF7C25CA87567145DE582E7C08166F266B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136959.jpgsave_picture_136959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136959.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 09.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136960.jpgsave_picture_136960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136960.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:B5E7492FA799DBEC3E06879C241D553F8D0264F8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136961.jpgsave_picture_136961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136961.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ RapidRAW 1.4.2 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136962.jpgsave_picture_136962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136962.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:808B3FB3C6C11A66B256B86F011FE61CFCF14CA6
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136963.jpgsave_picture_136963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136963.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ reaConverter Pro 8.0.145 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136964.jpgsave_picture_136964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136964.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:2F60486FA8BDF2F350D2A9F32DBA3269DF44AFE0
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136965.jpgsave_picture_136965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136965.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:A9DD14EA096044FEF5BFD712401468DD55386ECC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136966.jpgsave_picture_136966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136966.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136967.jpgsave_picture_136967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136967.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Smart AudioBook Player Pro v11.5.5 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136968.jpgsave_picture_136968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136968.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.2 Build 10 RePack by KpoJIuK [Mult
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136969.jpgsave_picture_136969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136969.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ FaraoN - 20 Hits Dance Music Collection (2025) [MP3|320 Kbps] <House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136970.jpgsave_picture_136970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136970.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Gym Hits 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136971.jpgsave_picture_136971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136971.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:9CE76408B6B2A5FF26E28956923FB264BB2AFB77
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136972.jpgsave_picture_136972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136972.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:3207B7FA4F995ABDBC8F161BFEF618867D7229EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136973.jpgsave_picture_136973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136973.jpg" />
 </div>
 
 

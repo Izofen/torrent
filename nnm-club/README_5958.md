@@ -6,7 +6,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187580.jpgsave_picture_187580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187580.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4950CAB7417A82F518929CA9C34E3BDF0F32EA9D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187582.jpgsave_picture_187582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187582.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Frances Tease - Paradise Lost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187583.jpgsave_picture_187583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187583.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Kamel Toast - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187584.jpgsave_picture_187584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187584.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Mattias Malm - Electric Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187585.jpgsave_picture_187585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187585.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Wingfox, Milad Kambari | Hard Surface Modeling Foundation Tutorial (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187586.jpgsave_picture_187586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187586.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Killing Spree - Choose and Decide (2004) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187587.jpgsave_picture_187587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187587.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ MOL (MØL) - Diorama (2021-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Post-Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187589.jpgsave_picture_187589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187589.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Tyburn Tree - The Site (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187590.jpgsave_picture_187590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187590.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187591.jpgsave_picture_187591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187591.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Mononogatari (2023) | Malevolent Spirits (2023) | Истории нечисти 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187592.jpgsave_picture_187592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187592.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ King Stench - Visions of Death (2009) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187593.jpgsave_picture_187593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187593.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Korrosive - Kaustic Hordes (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187594.jpgsave_picture_187594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187594.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ AOMEI Partition Assistant Technician Edition 10.2.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187596.jpgsave_picture_187596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187596.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:CB610D288BE5C25CA44DFC8540A9872421A2C30A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187597.jpgsave_picture_187597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187597.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.3650 (Updated November 2022) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187601.jpgsave_picture_187601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187601.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ CCleaner 6.16.10662 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187602.jpgsave_picture_187602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187602.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Microsoft Windows 11 [10.0.22621.819], Version 22H2 (Updated November 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187604.jpgsave_picture_187604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187604.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ IObit Smart Defrag Pro 9.1.0.319 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187605.jpgsave_picture_187605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187605.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187606.jpgsave_picture_187606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187606.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Windows 8.1 6.3 (Build 9600.20666) (28in2) x86/x64 by Sergei Strelec [Ru]
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187607.jpgsave_picture_187607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187607.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:6D338D018EA14CB476F96C7217C6F15B09B57692
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187609.jpgsave_picture_187609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187609.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:3219AB9345C5B4F44679B78A75B2E04EA0046890
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187610.jpgsave_picture_187610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187610.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Skillbox, Роберт Кубус | 3D-моделирование в ZBrush с �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187611.jpgsave_picture_187611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187611.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:65C6598B25E6A395EECA8C508BB2220E7A34736B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187612.jpgsave_picture_187612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187612.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ESET NOD32 Internet Security 16.0.24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187615.jpgsave_picture_187615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187615.jpg" />
 </div>
 
 

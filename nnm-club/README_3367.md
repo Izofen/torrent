@@ -6,7 +6,7 @@ Ben Sidran - Rainmaker (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107903.jpgsave_picture_107903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107903.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Isobel Campbell - Bow to Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107904.jpgsave_picture_107904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107904.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fu Manchu - The Return of Tomorrowpic (2024) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107905.jpgsave_picture_107905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107905.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Equal Spirits - Wise and Waiting (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107906.jpgsave_picture_107906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107906.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:804EA5859531B18CA65A8F21E2D8F3561F2B521D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107907.jpgsave_picture_107907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107907.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107908.jpgsave_picture_107908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107908.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Strange Fruit - Once So High (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107909.jpgsave_picture_107909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107909.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:500A9A252FEC1C07BE57A5D2FAFBF68098CC403F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107910.jpgsave_picture_107910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107910.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Golgotha - Spreading The Wings Of Hope (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107911.jpgsave_picture_107911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107911.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dendera - Mask Of Lies (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107912.jpgsave_picture_107912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107912.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ In Vain - Currents (2018) Limited Edition, Indie Recordings [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107913.jpgsave_picture_107913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107913.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Zsela - Big For You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107914.jpgsave_picture_107914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107914.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mariah Carey - Rainbow (1999) 25th Anniversary Expanded Edition, 2024, Columbia 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107915.jpgsave_picture_107915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107915.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:C7F4F1348C9B37289C51DCF02CDD488F41992B2E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107916.jpgsave_picture_107916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107916.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:99464430167130B425A4AEF205DB16FFDCC3EE32
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107917.jpgsave_picture_107917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107917.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Eduardo Cardinho - Not far from paradise (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107918.jpgsave_picture_107918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107918.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:F49DF0E7C27057E18B29D1D1D22A194C54AAFF5D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107919.jpgsave_picture_107919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107919.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Little Feat - Feats Don't Fail Me Now (1974) Deluxe Edition, 2024, Warner Record
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107920.jpgsave_picture_107920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107920.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:1FF0A850EF68E8472CA0AEA318505D0DFE20D4E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107921.jpgsave_picture_107921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107921.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:CDEC0670A173659EFB5C7078E137BF89613AF969
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107922.jpgsave_picture_107922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107922.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:4AEAB438C73DA504261CCEC284424396A4C389EC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107923.jpgsave_picture_107923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107923.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:6F0ADC541D5B88442BCEFB75AD631C20EB9509F0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107924.jpgsave_picture_107924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107924.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Bob Recchione - Waited Too Long To Start (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107925.jpgsave_picture_107925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107925.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:66516C663183AE6AF250E43AE2DB075F2D3E0C00
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107926.jpgsave_picture_107926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107926.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:E26F6DEDBF9983B5A175B520DD633B7CCFAACC01
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107927.jpgsave_picture_107927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107927.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Marius Acke, Rubba J, Enice Mokamba - Deepwater Sessions No. 3 (2010) Remastered
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107928.jpgsave_picture_107928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107928.jpg" />
 </div>
 
 

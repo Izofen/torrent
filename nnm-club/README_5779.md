@@ -6,7 +6,7 @@ Acid Magus - Wyrd Syster (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179708.jpgsave_picture_179708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179708.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ DiskDigger Pro 1.0-pro-2022-09-30 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179709.jpgsave_picture_179709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179709.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Icecream Screen Recorder PRO 7.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179713.jpgsave_picture_179713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179713.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ George Freeman - Rebellion (1995) Southport Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179714.jpgsave_picture_179714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179714.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:35257C29FB3CADAC6379A4C520A281DC9E973DF8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179715.jpgsave_picture_179715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179715.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Sol Negate - On The Verge of Dreaming Again (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179718.jpgsave_picture_179718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179718.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:21A0D7FBEAAEF20CFA964DB2246705D75E0526C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179719.jpgsave_picture_179719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179719.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ ZW3D 2023X [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179722.jpgsave_picture_179722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179722.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:0143D8A1BC71193BD94394D31D8E822EE7205E11
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179724.jpgsave_picture_179724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179724.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:EC4649D10CBB3E0DA1390C3401CADFE16F8A602B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179727.jpgsave_picture_179727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179727.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Office 2013-2021 C2R Install 7.4.9 b01 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179731.jpgsave_picture_179731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179731.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Office 2013-2021 C2R Install 7.4.9 b02 ++ x64 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179735.jpgsave_picture_179735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179735.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:8CF503C82266899D603F4E61945B8D113D384371
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179739.jpgsave_picture_179739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179739.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Microsoft Activation Scripts (MAS) 2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179742.jpgsave_picture_179742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179742.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ FBackup 9.8.699 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179744.jpgsave_picture_179744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179744.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ PowerISO 8.3 (DC 25.11.2022) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179745.jpgsave_picture_179745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179745.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Bigasoft Audio Converter 5.6.4.8366 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179751.jpgsave_picture_179751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179751.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:13B587CA24C68B738012F240D0341775FFA8F044
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179754.jpgsave_picture_179754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179754.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:7B8B0F41B1F80489D5A948802DB8A3A8F8FF93CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179755.jpgsave_picture_179755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179755.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Рок зима (Russian Rock Legends) (2019) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179758.jpgsave_picture_179758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179758.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ W10 Digital Activation v1.4.8 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179760.jpgsave_picture_179760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179760.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:C3CEE02BA888168A3A2C068DFEABF15AA35321CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179763.jpgsave_picture_179763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179763.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:53AF120E9CB32F07FB49ECA1E2B3A4647B0570F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179764.jpgsave_picture_179764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179764.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Linux Mint 21.2 Victoria (Cinnamon Edition, Cinnamon (Edge) Edition, MATE Editio
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179767.jpgsave_picture_179767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179767.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Auslogics File Recovery 11.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179768.jpgsave_picture_179768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179768.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sandboxie plus 1.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179769.jpgsave_picture_179769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179769.jpg" />
 </div>
 
 

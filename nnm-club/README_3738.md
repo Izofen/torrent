@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117565.jpgsave_picture_117565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117565.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Barry Harris Trio - Chasin' The Bird (1962) 1996, Original Jazz Classics [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117566.jpgsave_picture_117566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117566.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MyLanViewer 6.6.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117567.jpgsave_picture_117567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117567.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:90A9B6B9A28DD7ECCE06514CFB73159E01DAAA2A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117568.jpgsave_picture_117568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117568.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Vanessa Mai - Traumfabrik (2025) [FLAC|Lossless|WEB-DL|tracks] <Schlager, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117569.jpgsave_picture_117569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117569.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9B91ADB2F5BDDE880FF0D0822C20C0D6F830711D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117570.jpgsave_picture_117570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117570.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:147732CB9856A3D4D01F6FCCD459268932EF690E
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117571.jpgsave_picture_117571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117571.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:86D712B272C7C9907D837CD43F663CC4CA588C58
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117572.jpgsave_picture_117572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117572.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Swinsian 3.0 Preview 13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117573.jpgsave_picture_117573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117573.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Alf Kjellman - Feather, But No Wings (1999) 2008, Reflect [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117574.jpgsave_picture_117574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117574.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Mean Mistreater - Razor Wire (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117575.jpgsave_picture_117575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117575.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:1627F261DA18BE45325E7A95E95CD021E769B9F5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117576.jpgsave_picture_117576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117576.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:47F1096C6AA470C9A5F0B218A40A5937B943061F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117577.jpgsave_picture_117577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117577.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Witherfall - What Have You Done? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117578.jpgsave_picture_117578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117578.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:C89D009536D0F7028E0EA1520AC757E7D8C559C4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117579.jpgsave_picture_117579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117579.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:52B1CB25B8F568EC818919C273A38FDAAB884056
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117580.jpgsave_picture_117580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117580.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Nikos Chatzitsakos - Tiny Big Band 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117581.jpgsave_picture_117581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117581.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:4E3DC63EA320FF7149F0BFA221945A6DD594ABB6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117582.jpgsave_picture_117582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117582.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:8BF62546C58BEB530CFC1B0E36C52347E1F1104A
 >>IDM
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117583.jpgsave_picture_117583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117583.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:49F9ECB46E9A081E9A6AE69DAE683E4ABD8544D7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117584.jpgsave_picture_117584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117584.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Witherfall - What Have You Done? (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117585.jpgsave_picture_117585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117585.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Honeyblood - Serpentine Patterns (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117586.jpgsave_picture_117586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117586.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7D31BFEB6F9AD1F776E0D94B90FC88E964F2F795
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117587.jpgsave_picture_117587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117587.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:99F62E2B735F6448E6C54EA906AE75A222E699EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117588.jpgsave_picture_117588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117588.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117589.jpgsave_picture_117589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117589.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:F1A56923C7EC4DF7BA716A261B68C47EB1275392
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117590.jpgsave_picture_117590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117590.jpg" />
 </div>
 
 

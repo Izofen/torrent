@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153339.jpgsave_picture_153339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153339.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NoteBurner iTunes DRM Audio Converter 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153340.jpgsave_picture_153340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153340.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2436EEC03833423A60EDD8225503F2C290AD58D9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153342.jpgsave_picture_153342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153342.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прослав�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153344.jpgsave_picture_153344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153344.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:CF87185E2382DDE533C285ABB97A316AADE34500
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153345.jpgsave_picture_153345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153345.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D38F8E5A64A4A05D83C62CF23BEFFD8A93A8ED8C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153346.jpgsave_picture_153346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153346.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:875960FCFBA6D7932BF015800280F08B8E8D24E4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153347.jpgsave_picture_153347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153347.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2A31DCF978E7E7FD0ECF1BC17441A9031B616012
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153348.jpgsave_picture_153348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153348.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:10B88FE8C4F0F807B5CBD4B60054E728EE85313D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153350.jpgsave_picture_153350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153350.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Просла
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153351.jpgsave_picture_153351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153351.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:67CFE6E6313024C07364C08517EF346C22035576
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153352.jpgsave_picture_153352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153352.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:5864705E42C43427A1D3C2F66ED229ED733EF643
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153354.jpgsave_picture_153354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153354.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:AF954D7FE2DE01F7DDCC27D8082BB46C7B429EB8
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153355.jpgsave_picture_153355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153355.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Только хиты тебе в уши (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153356.jpgsave_picture_153356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153356.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Chung Kan | Quick UV Mapping For Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153357.jpgsave_picture_153357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153357.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ KMS Tools Portable by Ratiborus 14.12.2021 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153358.jpgsave_picture_153358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153358.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153359.jpgsave_picture_153359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153359.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:42CBEF722B966FB86EDD8764BA3E04922802AD39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153360.jpgsave_picture_153360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153360.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153361.jpgsave_picture_153361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153361.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - DJ Andrey Balkonsky - The Power (2006) [MP3|320 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153363.jpgsave_picture_153363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153363.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wise Registry Cleaner 9.01.578 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153364.jpgsave_picture_153364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153364.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ WinTools.net Premium 18.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153365.jpgsave_picture_153365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153365.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:393C513E0B17D19DE6B6F25F18391D38D53AF973
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153367.jpgsave_picture_153367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153367.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Signum Regis - Undivided (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153368.jpgsave_picture_153368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153368.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:219303EED145CD12D0E0C96352535C08848658DA
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153369.jpgsave_picture_153369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153369.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:D2763C54DA30EB8E7A6D78DB7F3994D29C16E947
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153370.jpgsave_picture_153370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153370.jpg" />
 </div>
 
 

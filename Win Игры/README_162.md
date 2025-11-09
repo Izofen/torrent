@@ -6,7 +6,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47783.jpgsave_picture_47783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47783.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mecha Knights: Nightmare (2021) [En] (1.620/dlc) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47786.jpgsave_picture_47786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47786.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47788.jpgsave_picture_47788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47788.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ UBOAT (2019) [Ru/Multi] (2024.1) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47794.jpgsave_picture_47794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47794.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47796.jpgsave_picture_47796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47796.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5CC614ED9AF99F67B57410087F344EEFE4EC0175
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47806.jpgsave_picture_47806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47806.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47808.jpgsave_picture_47808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47808.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47823.jpgsave_picture_47823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47823.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47826.jpgsave_picture_47826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47826.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47833.jpgsave_picture_47833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47833.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47837.jpgsave_picture_47837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47837.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Super Life (RPG) (2019) [En] (2.2) Scene TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47853.jpgsave_picture_47853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47853.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Rising Star 2 (2020) [Multi] (1.0) Scene TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47857.jpgsave_picture_47857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47857.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ms. Holmes 6: Letter M / Мисс Холмс 6: Буква М (2024) [Ru] (1.0) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47867.jpgsave_picture_47867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47867.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47879.jpgsave_picture_47879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47879.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47884.jpgsave_picture_47884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47884.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Mortuary Assistant (2022) [Multi] (3.0.0) Repack Other s [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47890.jpgsave_picture_47890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47890.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Chicken Game (2024) [Multi] (1.0.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47891.jpgsave_picture_47891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47891.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DAISY THE SWIMMER (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47909.jpgsave_picture_47909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47909.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.999/dlc) Repack Decepticon [Premium E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47940.jpgsave_picture_47940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47940.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Into The Flames (2023) [Ru/Multi] (2020/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47969.jpgsave_picture_47969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47969.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Scene SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47970.jpgsave_picture_47970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47970.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ First Cut: Samurai Duel (2024) [En] (1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47974.jpgsave_picture_47974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47974.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tomba! (2024) [Multi] (1.0) Scene TiNYiSO [Special Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47982.jpgsave_picture_47982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47982.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47984.jpgsave_picture_47984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47984.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Mini Airways (2024) [Ru/Multi] (0.8.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47987.jpgsave_picture_47987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47987.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108969.jpgsave_picture_108969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108969.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ n7player Music Player 3.2.10-3002010 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108970.jpgsave_picture_108970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108970.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4BC7994BD63507517E4450DD4425A3D9B249F887
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108971.jpgsave_picture_108971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108971.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Радио новинки 2024, Часть 4 (2024) [FLAC|Lossless|WEB-DL|t
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108972.jpgsave_picture_108972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108972.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AB24E964C01709E25369D6CBA08BD329A9D097D5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108973.jpgsave_picture_108973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108973.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B139D527F9D553777275D94D2FE95630343A2E49
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108974.jpgsave_picture_108974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108974.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ O&O Defrag Professional 28.1 Build 10015 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108975.jpgsave_picture_108975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108975.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Evildead - Toxic Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108976.jpgsave_picture_108976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108976.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Knights Of The Realm - Darker Than Leather (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108977.jpgsave_picture_108977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108977.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:62A61960F3B35805F7AE8F12ADD1E9E9BBE3C640
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108978.jpgsave_picture_108978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108978.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Skeletal Throne - Barbaric Torment (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108979.jpgsave_picture_108979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108979.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ PhotoRoom 4.9.7 (b1411) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108980.jpgsave_picture_108980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108980.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Kenny Burrell - When Lights Are Low (1978) 1997, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108981.jpgsave_picture_108981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108981.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Kenny Burrell & The Jazz Heritage All-Stars - Live At The Blue Note (1996) Conco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108982.jpgsave_picture_108982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108982.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Howard Alden, Frank Vignola, Jimmy Bruno - Concord Jazz Guitar Collective (1995)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108983.jpgsave_picture_108983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108983.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cypecore - Innocent (2008) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108984.jpgsave_picture_108984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108984.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:68142C362FDDF4746530D48520C2336D602139F6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108985.jpgsave_picture_108985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108985.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Lucky Patcher 11.3.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108986.jpgsave_picture_108986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108986.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Battle Symphony - The Empire Of God (2024) [MP3|~245 Kbps (V0)] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108987.jpgsave_picture_108987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108987.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Night Laser - Call Me What You Want (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108988.jpgsave_picture_108988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108988.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:7F5145CB40C61BC0333AC644947BBB7BD374470E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108989.jpgsave_picture_108989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108989.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Hit Hits - 12 Top Hits Superbly Recorded. Anonymous cover versions of current hi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108990.jpgsave_picture_108990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108990.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ FolderSizes 9.6.484 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108991.jpgsave_picture_108991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108991.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Arrows - First Hit (1976) Reissue CD, 2000, Repertoire Records [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108992.jpgsave_picture_108992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108992.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:E056576D320A97AE7AF6AD3C39416628DD3AD061
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108993.jpgsave_picture_108993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108993.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:1D3D20B3B2BAE12DBEEECD8B2EDA208C26EC2CDB
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108994.jpgsave_picture_108994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108994.jpg" />
 </div>
 
 

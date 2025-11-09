@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187035.jpgsave_picture_187035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187035.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VirtualBox 7.0.4 Build 154605 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187036.jpgsave_picture_187036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187036.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Suicide Guy: Sleepin' Deeply (2018) [Ru/Multi] (1.30) Scene HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187037.jpgsave_picture_187037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187037.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Paul Mauriat - World Love Sounds (1998) Box Set: 5 CD [OGG Vorbis|480 Kbps] <Fun
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187039.jpgsave_picture_187039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187039.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E482D1C3B5469696A561EF0ADDCB9E019F26BBA2
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187040.jpgsave_picture_187040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187040.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Gumroad, Florian Bard | Houdini All combined Lightning Setups (2023) WEB-DL [AD]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187042.jpgsave_picture_187042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187042.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:391C2CD83313BCCF334BFAF459F0FD94B1F7DB7D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187043.jpgsave_picture_187043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187043.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DF2CF637248FAB70F7259E8C467BE763812F1534
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187044.jpgsave_picture_187044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187044.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:ED131E1ECFEEAA71C4F050AE8A55C5707457927A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187045.jpgsave_picture_187045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187045.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:98C39D63BD6D64BA2CF250F43C7B5E8782CC6A5B
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187046.jpgsave_picture_187046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187046.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Suicide Guy (2021) [Ru/Multi] (1.0) Scene Plaza [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187047.jpgsave_picture_187047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187047.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6BD859C67D5A42A75E01284833E3E348083CEBD1
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187048.jpgsave_picture_187048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187048.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8B92811CE62A08CDDD8BD34F6882F5D57F82471F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187049.jpgsave_picture_187049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187049.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:D13F587B6F523FE5FE114DFEC2AF78572A953F8B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187050.jpgsave_picture_187050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187050.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Suicide Guy (2017) [Ru/Multi] (1.70) Scene Plaza
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187051.jpgsave_picture_187051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187051.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:DE3931654EC40755E713E4735A985BA3E0B8E66A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187052.jpgsave_picture_187052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187052.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:D6ECE06649EF47321F28911E484CA338876CB6E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187053.jpgsave_picture_187053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187053.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ VMware Workstation Player 17.0.0 Build 20800274 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187054.jpgsave_picture_187054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187054.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8D22D7995A8376A3C75295EB359FB7C20737F91A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187055.jpgsave_picture_187055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187055.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Discovery: Ниндзя. Демоны ночи / Unsolved History. Ninjas (2004)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187056.jpgsave_picture_187056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187056.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ IsMyHdOK 3.93 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187057.jpgsave_picture_187057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187057.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:6AED5758E451AB685428DA712B0AED8A22D3B962
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187058.jpgsave_picture_187058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187058.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:4820CBABFAA7C75D3EA8D66E6C93CCAA9548AD24
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187059.jpgsave_picture_187059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187059.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ XY VPN - Security Proxy VPN 4.7.199 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187060.jpgsave_picture_187060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187060.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Deemo Movie: Sakura no Oto - Anata no Kanadeta Oto ga, Ima mo Hibiku | Димо 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187061.jpgsave_picture_187061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187061.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:F1B19B3CD282AFA75BC927FA7A81963FB1DC6042
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187062.jpgsave_picture_187062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187062.jpg" />
 </div>
 
 

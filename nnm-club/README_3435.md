@@ -6,7 +6,7 @@ Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109671.jpgsave_picture_109671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109671.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kenny Barron - Things Unseen (1995) 1997, Gitanes [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109672.jpgsave_picture_109672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109672.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Southwicked - Death's Crown (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109673.jpgsave_picture_109673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109673.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Chris Smither - All About the Bones (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109674.jpgsave_picture_109674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109674.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:6D7420D2BFF6C1AD3FBA615A269032FF88ACE3C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109675.jpgsave_picture_109675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109675.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sinner - Studio Albums (12 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109676.jpgsave_picture_109676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109676.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:E242B7904CABA9742E337938A69F64E56EDE9626
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109677.jpgsave_picture_109677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109677.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:C995B0B5DD304925261073532A14B9912B19A406
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109678.jpgsave_picture_109678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109678.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:2FEE3ECAE9147FA6B5D99452816EBB9687A0A7FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109679.jpgsave_picture_109679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109679.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:E4744F49761D5B03E8B54A950FFAF13BAE356740
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109680.jpgsave_picture_109680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109680.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Seventh Sunset - Hard Rock Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109681.jpgsave_picture_109681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109681.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Metal Massacre (1982) Reissue, 1984, Metal Blade Records [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109682.jpgsave_picture_109682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109682.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:03F06BC36E1AA4F30250E1BC51530B826585CFD1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109683.jpgsave_picture_109683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109683.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:5BE449FFA5AE15FEC05148D3ABEDBA5DBB8301EE
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109684.jpgsave_picture_109684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109684.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Real Blue - Silly slush swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109685.jpgsave_picture_109685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109685.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:3100F7067E7C2761542624DD9B2F1915B53B2263
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109686.jpgsave_picture_109686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109686.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Juicy M - Live @ LOA, Luxembourg (2024-05-03) [MP3|320 Kbps] <Tech House, Techno
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109687.jpgsave_picture_109687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109687.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ The Sweet Peach Band - A Conversation With (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109688.jpgsave_picture_109688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109688.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109689.jpgsave_picture_109689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109689.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109690.jpgsave_picture_109690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109690.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:2599CFC4F1D0AC5313E4DE9C7A241A7C515BC914
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109691.jpgsave_picture_109691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109691.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:F396E3A68E33D59FD87F763B73F22982CA1F3480
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109692.jpgsave_picture_109692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109692.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:52E9AC608F90450B79978F00388350FE1D635C59
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109693.jpgsave_picture_109693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109693.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Jackie McLean - Rhythm Of The Earth (1992) Antilles [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109694.jpgsave_picture_109694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109694.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:1A2D04BE310E577EC7B85397AC7EECCC05F6BDF8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109695.jpgsave_picture_109695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109695.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Villagers - That Golden Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109696.jpgsave_picture_109696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109696.jpg" />
 </div>
 
 

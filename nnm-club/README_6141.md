@@ -6,7 +6,7 @@ A.L. Weber / T. Rice - Jesus Christ Superstar. Различные вариант
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193046.jpgsave_picture_193046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193046.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7DAB85569B0F2CD56F3A71D155A51765D4D0EF7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193047.jpgsave_picture_193047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193047.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A0564437FDB2115440A468AA112C1E7AA488B2B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193048.jpgsave_picture_193048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193048.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3015088A540D69D23E13ECE081F18AB6920A6D48
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193049.jpgsave_picture_193049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193049.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Resident Evil Village (2021) [PS4] [USA] 5.05 [HEN] [License / 1.11 / DLC] [Ru/M
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193050.jpgsave_picture_193050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193050.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.109 Mod by Alex.Strannik [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193051.jpgsave_picture_193051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193051.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:3750D9023D97F9356C5B1B2542FD74DA13240A18
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193052.jpgsave_picture_193052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193052.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:944A0A01C716AF9D4F4D75695E3AF0E085133CFE
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193053.jpgsave_picture_193053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193053.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:5D4CF64A13DF0A08C313EF5258E76F3A7685D354
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193054.jpgsave_picture_193054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193054.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:9819B916ECD5D0BB5010A48A02EAB68A5799D348
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193055.jpgsave_picture_193055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193055.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:71D6E84BC4DFD604AFD2F1B31743B053F3959D3E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193056.jpgsave_picture_193056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193056.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Pinakin Ashok Chaubal | Mastering MEAN Stack (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193057.jpgsave_picture_193057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193057.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:1FEE12FCD1B524EF5042BB0C38C6004A9AF792B5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193058.jpgsave_picture_193058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193058.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:FF0A4F8E266111EEDE62350D41C4E2656DE3333C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193059.jpgsave_picture_193059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193059.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:77337FD6327468E458614383E6CDA6246C0B3097
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193060.jpgsave_picture_193060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193060.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:631A22CC615F1AF7F294509CD3F98585231A19D8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193061.jpgsave_picture_193061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193061.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:E8E2362F2D5D07FD3E4FD8B97F7DF48F11DC740C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193062.jpgsave_picture_193062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193062.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Paper Cut Mansion (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193063.jpgsave_picture_193063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193063.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Adrian Cantrill | AWS Certified SysOps Administrator - Associate [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193064.jpgsave_picture_193064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193064.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ ActionDirector - Видеоредактор v7.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193065.jpgsave_picture_193065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193065.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:4A108B0D99CCBF2A6ACCC1091E6EDAD08143F90A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193066.jpgsave_picture_193066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193066.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:EF974A4DDE028EA52CCBF62105FC5A5B634052BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193067.jpgsave_picture_193067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193067.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0B652B7EEA5E09DA44EE9FB5DF98EDEDCEEFA29D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193068.jpgsave_picture_193068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193068.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193069.jpgsave_picture_193069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193069.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Chad Rupp and the Sugar Roots - Devil Won't Get You (2023) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193070.jpgsave_picture_193070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193070.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:3836A23EFFFCCB5D38F36397E1E759CE35B22058
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193071.jpgsave_picture_193071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193071.jpg" />
 </div>
 
 

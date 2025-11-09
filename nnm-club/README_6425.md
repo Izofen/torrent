@@ -6,7 +6,7 @@ Walrus - Black Cat (2023) EP [FLAC|24/48|tracks|WEB-DL] <Stoner Doom Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203733.jpgsave_picture_203733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203733.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:0302607713325C7B0B422C505D2A00298F91DB4A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203734.jpgsave_picture_203734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203734.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:911139C9DBA6B53B79AC0D4CC2617251800B605A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203735.jpgsave_picture_203735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203735.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:6A2BFBE5610AC8D9AF9A500F9DEC6A6F2BE7F7A8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203736.jpgsave_picture_203736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203736.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:18D6AD86637DA32781A57391109D7C4BBF1F420F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203737.jpgsave_picture_203737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203737.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:272AE9C9B4A7B540385E6CA3F7B6DB5C505800A6
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203738.jpgsave_picture_203738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203738.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:7E3439168106D861BEE0E9BF303482CE1F493FD6
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203739.jpgsave_picture_203739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203739.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Magnavolt - Stellar Gun (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwa
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203740.jpgsave_picture_203740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203740.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:EB3C7E17FF98738F80DAC5956C3FD844A3A4648D
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203741.jpgsave_picture_203741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203741.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Text Editor Pro 27.5.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203742.jpgsave_picture_203742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203742.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E0893A87545BD44AA9CBC47C032EB4FCA410D699
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203743.jpgsave_picture_203743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203743.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:4E913BFC9BA6E35A996608F95D21CD361D48BB02
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203744.jpgsave_picture_203744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203744.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:71F1A8AF11B9DEDC9AB85663BF13846258287D1A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203745.jpgsave_picture_203745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203745.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:1498BF0207C236AE8A6B917B4DBB842A4274E503
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203746.jpgsave_picture_203746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203746.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:A452C716F3B41107CAD89BF802C334E93A517052
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203747.jpgsave_picture_203747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203747.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpgsave_picture_203748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203749.jpgsave_picture_203749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203749.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:E56C91440FCB58203FD37A2CAFF663DF048FE756
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203750.jpgsave_picture_203750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203750.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:72A13F646FCC5E23D3378CC5A915B28386961B18
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203751.jpgsave_picture_203751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203751.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:8F7C2C0FC99EE43701A504DEA5960EDC0F075714
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203752.jpgsave_picture_203752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203752.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:13F039C2A531A7705DC83FDDAEA9B61ACE33A67E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203753.jpgsave_picture_203753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203753.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Topaz Photo AI 1.1.8 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203754.jpgsave_picture_203754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203754.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:9332C694904CD4CDE1BD01ED468AB67F9664F88C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203755.jpgsave_picture_203755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203755.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:6DFF1E2A4D5433FD2209676CF48EB05E098E51B7
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203756.jpgsave_picture_203756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203756.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Waves Complete V14 2023.01.17 VST, VST3, AAX, STANDALONE (x64) RePack by R2R [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203757.jpgsave_picture_203757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203757.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A623B0E77BD084D528E503D5D1C770ECDED6D108
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203758.jpgsave_picture_203758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203758.jpg" />
 </div>
 
 

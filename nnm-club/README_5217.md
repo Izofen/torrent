@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162397.jpgsave_picture_162397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162397.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8A383661D0ABF71FC7E76A0E467D18A6D21CB4F1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162398.jpgsave_picture_162398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162398.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Flyingbee PDF to PowerPoint 5.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162399.jpgsave_picture_162399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162399.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - IGNESCENT Drum & Bass Annual 2022 (2021) [AAC|~340 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162400.jpgsave_picture_162400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162400.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ PatterNodes 2 v2.4.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162401.jpgsave_picture_162401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162401.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Whitney Houston - I Wanna Dance With Somebody (2022) [FLAC 2.0|44/24|tracks|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162402.jpgsave_picture_162402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162402.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:E98FDFBEC3ECE1CC76DC2C0B8738AF03B6765F73
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162403.jpgsave_picture_162403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162403.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Scroll 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162404.jpgsave_picture_162404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162404.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:0366D07DC34F62CE5352E0F8D49363FFCD6D229C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162405.jpgsave_picture_162405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162405.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ O&O DiskImage Professional 18.5 Build 341 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162406.jpgsave_picture_162406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162406.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Rusty Rabbit (2025) [Ru/Multi] (Build 18177047) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162407.jpgsave_picture_162407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162407.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ PhotosBlender 2.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162408.jpgsave_picture_162408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162408.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ High-Logic FontCreator Professional 15.0.0.2949 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162409.jpgsave_picture_162409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162409.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:31383BCB92D405EB57079A51A8F98BA96615FC78
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162410.jpgsave_picture_162410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162410.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Unyielder (2025) [Multi] (1.0.1) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162411.jpgsave_picture_162411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162411.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:6C0B4B30D01067DE03CDB842607F1B605F19AFF5
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162412.jpgsave_picture_162412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162412.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Caato Time Tracker Pro 1.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162413.jpgsave_picture_162413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162413.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:9B37273D2B2E9AE5CF029C8D4BF93699B457860E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162414.jpgsave_picture_162414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162414.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Best of Elevate Records 2021 (2021) [AAC|~333 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162415.jpgsave_picture_162415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162415.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:1097F0F5E145B5DA8F6C7D574791119E90C406F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162416.jpgsave_picture_162416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162416.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Easy App Locker for Mac 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162417.jpgsave_picture_162417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162417.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kombinat 100 - Wege Ubers Land (2023) (Remastered 2007)[FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162418.jpgsave_picture_162418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162418.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:60994AA41891AE36D1396EA49164FE81B84EA632
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162419.jpgsave_picture_162419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162419.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MarkupTable 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162420.jpgsave_picture_162420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162420.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:406FB16AC67AA34FE13DF3B5E61BD5D169A62502
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162421.jpgsave_picture_162421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162421.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:5FEAE668D4A85BBF6E3847CD5BA76DA85945AC0A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162422.jpgsave_picture_162422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162422.jpg" />
 </div>
 
 

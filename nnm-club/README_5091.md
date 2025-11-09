@@ -6,7 +6,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v.4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159075.jpgsave_picture_159075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159075.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ OTUS, Владимир Кунаев | DevOps 1С. Автоматизация п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159076.jpgsave_picture_159076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159076.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Arctic Winter - CCCXXXIII (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159077.jpgsave_picture_159077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159077.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:9CF066C277DCD992FD51FB16C39CC09F83E5A503
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159078.jpgsave_picture_159078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159078.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159079.jpgsave_picture_159079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159079.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:EFAD0D3EB910ADC605B4A2D52130242C8DEAA845
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159080.jpgsave_picture_159080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159080.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Thammuz - Sons of the Occult (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159081.jpgsave_picture_159081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159081.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:DE4BF8A20D3DAFF078B5952EF417270879F8819A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159082.jpgsave_picture_159082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159082.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Ice Chemicals - Alchemy (2022) [MP3|320 Kbps] <Progressive Metal, Death Metal, M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159083.jpgsave_picture_159083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159083.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:A61A273D3287EC2FC4202E15CF073ECA7E09A043
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159084.jpgsave_picture_159084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159084.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:58992C1D656D04C7B40499DBDB3597BE8FD59E51
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159085.jpgsave_picture_159085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159085.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Aerial - Semangat Serigala (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159086.jpgsave_picture_159086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159086.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:A68C750C4E98DD469AD646D76E6F64ABFFC73A81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159087.jpgsave_picture_159087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159087.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:E8931157686423C24C3DA1F61ECBCC940D2EFE9A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159088.jpgsave_picture_159088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159088.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:366D1B369B8D0FEDF36DDC6478B459202CF6F28D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159089.jpgsave_picture_159089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159089.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:6300F58EFB643E2B54E7CB5E04D846EA2BD75FEE
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159090.jpgsave_picture_159090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159090.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Filmix v2.1.3 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159092.jpgsave_picture_159092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159092.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:8E999CC48284951171199F115F7CB7262820AF3A
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159093.jpgsave_picture_159093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159093.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:D566EA7F510934BC202976E4BEBC0A5131CCE931
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159094.jpgsave_picture_159094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159094.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:B244F709CBD695D44ADD4118ADC43096C46A6B98
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159095.jpgsave_picture_159095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159095.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Skillshare, Paulo Dichone | Unlock AI: Master Prompt Engineering with ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159096.jpgsave_picture_159096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159096.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:19476825EE4DBEA51E0533FD63DB9D2D0897E424
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159097.jpgsave_picture_159097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159097.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:6F2EF4240F2715D1CE13660AB2D7A3D1AF5F58D7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159098.jpgsave_picture_159098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159098.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:C6BE77DE9D7040F9846CBC64821B2AEFF74B7B11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159099.jpgsave_picture_159099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159099.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159100.jpgsave_picture_159100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159100.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ CleanMyMac X 4.12.3 U2B [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159101.jpgsave_picture_159101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159101.jpg" />
 </div>
 
 

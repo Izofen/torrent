@@ -6,7 +6,7 @@ Bent Muffbanger - Kush (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244031.jpgsave_picture_244031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244031.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ New Horizon - Gate of the Gods (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Power Me
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244032.jpgsave_picture_244032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244032.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:F7FC14964A9D17D5A7217F329AA42A4B96A70759
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244033.jpgsave_picture_244033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Robbie Williams - The Heavy Entertainment Show 2LPs (2016)  [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244034.jpgsave_picture_244034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244034.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NIUBI Partition Editor 9.4.2 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244035.jpgsave_picture_244035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244035.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:09346B6C4B0EA8046A7D5BE9312031762D8FC739
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244036.jpgsave_picture_244036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244036.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Cosmos - 4 Albums (1994 - 2012) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244037.jpgsave_picture_244037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244037.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Bella Wolf - Bella Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244038.jpgsave_picture_244038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244038.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244039.jpgsave_picture_244039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244039.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Rust n' Rage - One For The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244040.jpgsave_picture_244040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244040.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ URL Extractor 4 v 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244041.jpgsave_picture_244041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244041.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Lords Of Dust - Kickin Dust Up (2023) EP [MP3|320 Kbps] <Heavy Rock, Stoner, 70'
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244042.jpgsave_picture_244042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244042.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:799DD4D5FC906BEE45E488E57C9E36CF08029BF1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244043.jpgsave_picture_244043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244043.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - New Sounds of Brazil (2023) [MP3|320 Kbps] <Pop, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244044.jpgsave_picture_244044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244044.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Trance The Annual 2017 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244045.jpgsave_picture_244045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244045.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ L.A. Guns - Black Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244046.jpgsave_picture_244046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244046.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Right Stripped - Daylight Into Darkness (2021) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244047.jpgsave_picture_244047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244047.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:9720A4E86113B6A6B85F9D0B8F8C1D2A5866C6C1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244048.jpgsave_picture_244048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244048.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:829AD3BCDDCA5529FED905E75E5AF7E100D028AC
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244049.jpgsave_picture_244049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244049.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ AMP Font Viewer 3.86 + Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244050.jpgsave_picture_244050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244050.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Rust N' Rage - One for the Road (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244051.jpgsave_picture_244051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244051.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:F821CA671A382DBBAE2CF474C0B796FF8333B78A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244052.jpgsave_picture_244052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244052.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Take Your Time (Chill Vibe) (2016) [MP3|320 Kbps] <Chillout, Lounge, Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244053.jpgsave_picture_244053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244053.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ John Coltrane with Mal Waldron - The Dealers: The Complete Sessions (1957) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244054.jpgsave_picture_244054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244054.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:CF61CB43EEECDE6EFEEBC92ECAD905686F4760E5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244055.jpgsave_picture_244055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244055.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Rock Hymnen (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244056.jpgsave_picture_244056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244056.jpg" />
 </div>
 
 

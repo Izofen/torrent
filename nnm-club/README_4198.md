@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130025.jpgsave_picture_130025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130025.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Raising Jake Studios - Cans 2 Cones 4.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130026.jpgsave_picture_130026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130026.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:372ECDF1302B15433C65A31D4D06EE7369A75625
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130027.jpgsave_picture_130027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130027.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Arch/Matheos - Sympathetic Resonance (2011) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130028.jpgsave_picture_130028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130028.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Клубные Новинки Vol.68 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130029.jpgsave_picture_130029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130029.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:6FF6F849A580AF10F5C8AECC9472412B350EAF3C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130030.jpgsave_picture_130030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130030.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:45920611A118D79AD336D6BA9D39CC4EB00524BA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130031.jpgsave_picture_130031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130031.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:31B617608B8784C0E498D94859C9DC8073A95AE0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130032.jpgsave_picture_130032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130032.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:B74124AA57D15EDAFFBB9836FAC0F2DE05DF1A40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130033.jpgsave_picture_130033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130033.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:6D8FD2221C423AE21773B434FF1D7BCEA5210F35
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130034.jpgsave_picture_130034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130034.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D476448B4D6CBFB6BD1507F907BC0DF59A238521
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130035.jpgsave_picture_130035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130035.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Drea
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130036.jpgsave_picture_130036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130036.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130037.jpgsave_picture_130037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130037.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Nova 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130038.jpgsave_picture_130038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130038.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Зарубежные Новинки Vol.45 from AGR (2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130039.jpgsave_picture_130039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130039.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Cenotaph - Epic Rites (9 Epic Tales & Death Rites) (1996) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130040.jpgsave_picture_130040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130040.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:171081526FF3C6C144B6C407679540E013DD595E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130041.jpgsave_picture_130041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130041.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ DoYourData Start Menu Pro 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130042.jpgsave_picture_130042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130042.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Sandboxie 5.55.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130043.jpgsave_picture_130043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130043.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Windows® XP SP3 XTreme™ WinStyle Water 15.04.2012 + DriverPacks (SATA/RAID) [
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130044.jpgsave_picture_130044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130044.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Windows® XP SP3 XTreme™ WinStyle Water 15.04.2012 + DriverPacks (SATA/RAID) [
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130045.jpgsave_picture_130045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130045.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:C92402AF96A9F8169CB27D828C07EE4D29928705
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130047.jpgsave_picture_130047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130047.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Adobe Photoshop CS6 13.0 RePack by MarioLast (32-bit) [Русский, Укра�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130048.jpgsave_picture_130048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130048.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Adobe Photoshop — программа для обработки растров�
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130049.jpgsave_picture_130049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130049.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:71871673742E62B56FDD7265D61FBC5310CCDE51
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130051.jpgsave_picture_130051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130051.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:15DA81F314A4885A6198F153A8D81F75FB79420E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130052.jpgsave_picture_130052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130052.jpg" />
 </div>
 
 

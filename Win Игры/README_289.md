@@ -6,7 +6,7 @@ Phantom Squad (2025) [Ru/Multi] (1.0.0.fb6954) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250502.jpgsave_picture_250502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250502.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250504.jpgsave_picture_250504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.1.1) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250517.jpgsave_picture_250517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250517.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Escape Simulator 2 (2025) [Ru/Multi] (16494r) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250565.jpgsave_picture_250565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250565.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250575.jpgsave_picture_250575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250575.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Nine Sols (2024) [Ru/Multi] (202511032357.953572b8.0) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250586.jpgsave_picture_250586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250586.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250597.jpgsave_picture_250597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250597.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Alien Shooter 2 - The Legend (2020) [Ru/En] (1.3.2) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250600.jpgsave_picture_250600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250600.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Realms of Madness (2025) [En] (1.0.1) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250635.jpgsave_picture_250635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250635.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ THW-Simulator 2012 [Ger] (L) 2012 | ALiAS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250670.jpgsave_picture_250670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250670.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:DC1FE5728164CAA0560D5CDB4B0ADC675DA76F26
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250678.jpgsave_picture_250678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250678.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:A162F77C2116F20B03C071DD3792CA245712FD65
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250750.jpgsave_picture_250750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250750.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Legendary Tales 4: Map of Hope / Легендарные предания 4: Ка
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250839.jpgsave_picture_250839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250839.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Citadel Arcanes (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250865.jpgsave_picture_250865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250865.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250873.jpgsave_picture_250873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250873.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250875.jpgsave_picture_250875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250875.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250877.jpgsave_picture_250877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250877.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Need for Speed: Heat (2019) [Ru/En] (1.0.60.7040/dlc) Repack Decepticon [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250879.jpgsave_picture_250879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250879.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Trailmakers (2019) [Ru/Multi] (213.503.082.0/dlc) Repack Necros [Ultimate Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250881.jpgsave_picture_250881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250881.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ KIBORG (2025) [Ru/Multi] (2025.11.05:1:83) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250887.jpgsave_picture_250887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250887.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250889.jpgsave_picture_250889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250889.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Syberia - Remastered (2025) [Ru/Multi] (32111015) Scene FairLight
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250913.jpgsave_picture_250913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250913.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Stormworks: Build and Rescue (2020) [Ru/En] (1.15.5/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250921.jpgsave_picture_250921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250921.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ The Falconeer Revolution Remaster (2025) [Ru/Multi] (32096228) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250923.jpgsave_picture_250923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250923.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Metal Garden (2025) [Multi] (2.4.0) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250930.jpgsave_picture_250930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250930.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Cats & Cups (2025) [Ru/Multi] (1.0.5) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250931.jpgsave_picture_250931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250931.jpg" />
 </div>
 
 

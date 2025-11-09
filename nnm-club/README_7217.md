@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246882.jpgsave_picture_246882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246882.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.90.6500 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246883.jpgsave_picture_246883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246883.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 10.0.19045.3208, Version 22H2 (Updated July 2023) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246884.jpgsave_picture_246884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246884.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C965924222FB176733B4BD98B186CFE284AEB408
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246885.jpgsave_picture_246885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246885.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:85096BE62E86174FB2AB4956A72EF716FDD27163
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246886.jpgsave_picture_246886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246886.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9C4D1450DC6F019DFCE75E81B9FF77DD19637E14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246887.jpgsave_picture_246887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246887.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Kaspersky Free 21.14.5.462 Repack by LcHNextGen (19.07.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246888.jpgsave_picture_246888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246888.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ TOAnimate, Brian Kouhi, Simona Baranovicova, Vladimir Mokhov | Blender Animation
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246889.jpgsave_picture_246889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246889.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:3C634618B19E8A50268CB757B5040FD9113AF660
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246890.jpgsave_picture_246890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246890.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:C5EF22B489F539B429A74E782F4CDFD30C14E12E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246891.jpgsave_picture_246891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246891.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Proglib.Academy, Евгений Тюменцев | Архитектура и ш�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246892.jpgsave_picture_246892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246892.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:D17AF5849294B6165627D09774692039F89EAEBD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246893.jpgsave_picture_246893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246893.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:DEF0580C1C857BC6B5CF2651CF14CE486730E844
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246894.jpgsave_picture_246894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246894.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F2E96BA946F3F7A367D32E9060393FB0E87D125C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246895.jpgsave_picture_246895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246895.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MAGIX Vegas Pro 20.0 Build 411 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246896.jpgsave_picture_246896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246896.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:6E9AFDAB0CD4D4B13D4F3DC0EAD2D37DB0E6439C
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246897.jpgsave_picture_246897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246897.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:947877FDA83DAAC4725F3B9AD280FE4953E9645B
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246898.jpgsave_picture_246898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246898.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:FDD3858A4256FAB7E91511279418CDC348A802E4
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246899.jpgsave_picture_246899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246899.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:7115E3DE7196310F1505097BB9117C230990FB9C
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246900.jpgsave_picture_246900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246900.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:60EE74DBFC8A00C3BF29D82D2A7E33982E8D76F1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246901.jpgsave_picture_246901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246901.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:40EDF9CE10A841F0DD4180B5048B12021E76F2EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246902.jpgsave_picture_246902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246902.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:8FEAC9A47FEB6228B34D07FAD455B94651059890
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246903.jpgsave_picture_246903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246903.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:752930C6FBAA3558AC5FF17BCF36DDF80C7148B5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246904.jpgsave_picture_246904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246904.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:94E16D6FDB2615B917DC31F4F50232E1789C92B8
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246905.jpgsave_picture_246905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246905.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Scene EMPRESS [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246906.jpgsave_picture_246906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246906.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:A0743892FA44470F7BBF713488E2AFBCD5FDDE00
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246907.jpgsave_picture_246907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246907.jpg" />
 </div>
 
 

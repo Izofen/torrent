@@ -6,7 +6,7 @@ Ignition - Vengeance (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188588.jpgsave_picture_188588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188588.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jag Panzer - Casting the Stones (2004) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188592.jpgsave_picture_188592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188592.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mortician - Chainsaw Dismemberment (1999) [FLAC|Lossless|WEB-DL|tracks] <Brutal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188595.jpgsave_picture_188595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188595.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ White Dragon Project - The Story Of Gaia (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188605.jpgsave_picture_188605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188605.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Adiant - Killing Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188609.jpgsave_picture_188609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188609.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Acroma - Burning Creation (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188611.jpgsave_picture_188611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188611.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Adaimon - World of Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188612.jpgsave_picture_188612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188612.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nixil - All Knots Untied (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188615.jpgsave_picture_188615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188615.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Advent of Fire - Verikaste (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188616.jpgsave_picture_188616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188616.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0CC6766D55F854F79DC2051E3E9526E9319ADFD0
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188780.jpgsave_picture_188780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188780.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dead Titan - Risen (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188785.jpgsave_picture_188785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188785.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dred Buffalo - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Bl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188830.jpgsave_picture_188830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188830.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ AlkaБэнд - 7 Albums (2019-2022) [MP3|320 Kbps] <Punk Rock, Sky Runk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188831.jpgsave_picture_188831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188831.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tigersclaw - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188834.jpgsave_picture_188834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188834.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Raven Said - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Occult Wave, Go
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188856.jpgsave_picture_188856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188856.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Medina Azahara - La Capsula del Tiempo (2022) Compilation [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188866.jpgsave_picture_188866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188866.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hostile Breed - 4 Albums (2001-2016) [MP3|320 Kbps] <Metalcore, Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188871.jpgsave_picture_188871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188871.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dirt Forge - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doomy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188875.jpgsave_picture_188875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188875.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Theicon - Beyond The Universe - Act 1-2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188876.jpgsave_picture_188876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188876.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Steve Hackett - Foxtrot at Fifty + Hackett Highlights: Live in Brighton 2022 (20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188883.jpgsave_picture_188883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188883.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Deseret - Woodlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Sl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188884.jpgsave_picture_188884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188884.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Holy Dragon - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188885.jpgsave_picture_188885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188885.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Snowborn - Pipe of the Peace (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188890.jpgsave_picture_188890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188890.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188899.jpgsave_picture_188899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188899.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lucky Love - TENDRESSE (2023) [FLAC 24/44.1/48|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188908.jpgsave_picture_188908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188908.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Electric Boys - Grand Explosivos (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188943.jpgsave_picture_188943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188943.jpg" />
 </div>
 
 

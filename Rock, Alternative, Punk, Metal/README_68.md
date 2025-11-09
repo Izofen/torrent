@@ -6,7 +6,7 @@ New Model Army - Live at SO36 16.07.2022 (2025) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68536.jpgsave_picture_68536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68536.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Santana - Sentient (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68590.jpgsave_picture_68590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68590.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Black Eyed Sons - Cowboys In Pinstriped Suits (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68628.jpgsave_picture_68628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68628.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Frozen Crown - War Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68630.jpgsave_picture_68630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68630.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68631.jpgsave_picture_68631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68631.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68636.jpgsave_picture_68636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68636.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hermano - When The Moon Was High (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68641.jpgsave_picture_68641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68641.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Night Legion - Fight Or Fall (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68693.jpgsave_picture_68693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68693.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Savage Grace - Sign Of The Cross (2023) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68694.jpgsave_picture_68694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68694.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chivo - Ouroboros (2022) [FLAC|Lossless|image + .cue] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68696.jpgsave_picture_68696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68696.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Helloween - Helloween (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68712.jpgsave_picture_68712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68712.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ophthalamia - A Journey In Darkness (1994) Remastered, 2023, Peaceville [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68721.jpgsave_picture_68721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68721.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bodyfarm - Ultimate Abomination (2023) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68722.jpgsave_picture_68722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68722.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Traveler - Echoes of Tomorrow (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68738.jpgsave_picture_68738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68738.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Vhäldemar - Sanctuary Of Death (2024) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68740.jpgsave_picture_68740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68740.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ UFO - Seven Deadly (2012) Deluxe edition, Reissue, 2024, Cleopatra Records [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68756.jpgsave_picture_68756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68756.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sundenrausch - Original Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68762.jpgsave_picture_68762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68762.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Riot V - Armor Of Light (2018) 2xCD, Japanese Edition, Limited Edition [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68789.jpgsave_picture_68789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68789.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ ARK - ARK (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Prog Rock, Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68802.jpgsave_picture_68802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68802.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mechina - Bellum Interruptum (2025) [MP3|320 Kbps] <Symphonic Metal, Modern Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68806.jpgsave_picture_68806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68806.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Sodom - Tapping The Vein (1992) 3 x CD, Reissue, Remastered, Noise Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68821.jpgsave_picture_68821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68821.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Kruger - Aes Triplex (2023) 3xCD, Compilation, Deluxe Edition, Limited Edition [
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68848.jpgsave_picture_68848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68848.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Balance - 2 Albums (1981, 1982) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68851.jpgsave_picture_68851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68851.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Shok Paris - Steel And Starlight (1987) Reissue, Remastered, 2022, Bad Reputatio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68854.jpgsave_picture_68854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68854.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68861.jpgsave_picture_68861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68861.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Gotthard - Stereo Crush (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68863.jpgsave_picture_68863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68863.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Induction - Induction (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178778.jpgsave_picture_178778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178778.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rob Rock - Rage Of Creation (2000) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178791.jpgsave_picture_178791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178791.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adventus - Saudade (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178793.jpgsave_picture_178793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178793.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Maunra - Monarch (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Post-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178803.jpgsave_picture_178803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178803.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rob Rock - Garden Of Chaos (2007) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178806.jpgsave_picture_178806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178806.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rob Rock - Eyes Of Eternity (2003) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178814.jpgsave_picture_178814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178814.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mag - Mag II - Pod Krwawym Księżycem (2022) [FLAC 2.0|48/24|tracks] <Doom meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178819.jpgsave_picture_178819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178819.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ In Vinum - Vinum Et Occultismum (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178823.jpgsave_picture_178823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178823.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Behind Our Reflections - Infinity (2022) [FLAC|Lossless|WEB-DL|tracks] <MetalCor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178826.jpgsave_picture_178826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178826.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Rob Rock - Holy Hell (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178829.jpgsave_picture_178829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178829.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Mag - Mag (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Sludge, Stoner>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178835.jpgsave_picture_178835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178835.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mag - Mag II - Pod Krwawym Księżycem (2022) [FLAC|Lossless|WEB-DL|tracks] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178841.jpgsave_picture_178841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178841.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Yes - Yessingles (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178881.jpgsave_picture_178881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178881.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:5F3B6D454A91441F11B190376732353DABB9C751
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178912.jpgsave_picture_178912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178912.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Another Day Dawns - Finding Peace Through All The Noise (2023) [MP3|320 Kbps] <A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178923.jpgsave_picture_178923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178923.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hanged Ghost - Cold Grave Sensation (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178973.jpgsave_picture_178973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178973.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mob Rules - Temple Of Two Suns (2000) [FLAC|Lossless|image + .cue] <Melodic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179007.jpgsave_picture_179007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179007.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hanged Ghost - The Attraction of Oblivion (2013) [FLAC|Lossless|image + .cue] <F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179024.jpgsave_picture_179024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179024.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mob Rules - Cannibal Nation (2012) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179039.jpgsave_picture_179039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179039.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ L' impero delle ombre - I compagni di Baal (2011) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179044.jpgsave_picture_179044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179044.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mob Rules - Savage Land (1999) [FLAC|Lossless|image + .cue] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179049.jpgsave_picture_179049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179049.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Iron Savior - Firestar (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal / Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179051.jpgsave_picture_179051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179051.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Restless Spirit - Afterimage (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179057.jpgsave_picture_179057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179057.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Hanged Ghost - Knowledge of the Occult (2011) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179073.jpgsave_picture_179073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179073.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Prong - State Of Emergency (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179075.jpgsave_picture_179075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179075.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Mob Rules - Among The Gods (2004) [FLAC|Lossless|image + .cue] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179080.jpgsave_picture_179080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179080.jpg" />
 </div>
 
 

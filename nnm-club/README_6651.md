@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223999.jpgsave_picture_223999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_223999.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ABDFAFEA06C2C1631D9E41A228B5C83E725A27BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224009.jpgsave_picture_224009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224009.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ K-Lite Codec Pack Update 17.7.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224039.jpgsave_picture_224039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224039.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F233DFC984C1B5893766CED09835CD6D9C36BA45
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224050.jpgsave_picture_224050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224050.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7E5A6163C57DDB686E024B158853482ADA08F9A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224062.jpgsave_picture_224062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224062.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SiteSucker Pro 5.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224067.jpgsave_picture_224067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224067.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Mellow Moments: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224077.jpgsave_picture_224077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224077.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Rick Springfield - Automatic (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224087.jpgsave_picture_224087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224087.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ RightFont 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224096.jpgsave_picture_224096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224096.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ V.A. - Chill Out IBIZA 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224104.jpgsave_picture_224104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224104.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ MacCleanse 12 v.12.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224115.jpgsave_picture_224115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224115.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ MWeb Pro 4.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224122.jpgsave_picture_224122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224122.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ StopTheMadness 40.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224129.jpgsave_picture_224129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224129.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - The Complete Felsted Mainstream Collection (1958, 1959) 5CD, 2011, Solar Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224140.jpgsave_picture_224140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224140.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Trance 4 Friends - Best Of 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224146.jpgsave_picture_224146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224146.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Infrasonic Summer Selection (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224155.jpgsave_picture_224155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224155.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Al
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224161.jpgsave_picture_224161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224161.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Iron Bees - Хулиганы (2023) [MP3|320 Kbps] <Ska, Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224169.jpgsave_picture_224169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224169.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224177.jpgsave_picture_224177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224177.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ APE - Human Greed (1992) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224182.jpgsave_picture_224182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224182.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ High On Fire - The Art of Self Defense (2000) Reissue, 2023, MNRK Music [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224193.jpgsave_picture_224193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224193.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lyle Workman - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224202.jpgsave_picture_224202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224202.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Shredderz - The Shredderz (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224242.jpgsave_picture_224242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224242.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Icon Of Sin - Legends (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224247.jpgsave_picture_224247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224247.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ BBCC - Michael (2023) [FLAC|Lossless|WEB-DL|tracks] <Art-Punk, Experimental Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224254.jpgsave_picture_224254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224254.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:012F54F51158B764B95202C66E5EA02EB984BC91
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224266.jpgsave_picture_224266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_224266.jpg" />
 </div>
 
 

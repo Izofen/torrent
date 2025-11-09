@@ -6,7 +6,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132543.jpgsave_picture_132543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132543.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Paint.NET 5.0.12 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132544.jpgsave_picture_132544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132544.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ OBDeleven VAG car diagnostics v0.76 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132545.jpgsave_picture_132545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132545.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Three Tenors - The Three Tenors Christmas ( L Album di Natale ) (2000) [FLAC
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132546.jpgsave_picture_132546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132546.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Maxthon Browser 7.1.7.8000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132547.jpgsave_picture_132547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132547.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Romantic Relaxing and Nostalgic Blues Music (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132549.jpgsave_picture_132549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132549.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:69457AB884B635D2D67E3E30F2523535EC4D0F64
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132550.jpgsave_picture_132550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132550.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Nights Into Dreams [PS3] [USA] CFW 4.84 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132551.jpgsave_picture_132551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132551.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:86A86BC64BB9A839ADCE51354225BD8BAA8B86DE
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132552.jpgsave_picture_132552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132552.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:5ADDBF84CE10984A13C1733D3B943DBE28BA9F8D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132554.jpgsave_picture_132554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132554.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:6D390CB11284C3AAFC2AF5328DBC7C93280FA21A
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132555.jpgsave_picture_132555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132555.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:C1D6EEDABE1C19EF82ED0D9A644337BE996501F2
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132556.jpgsave_picture_132556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132556.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:37DF80170C133A4A0B9FA1C0AE9E3D01D8964F94
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132557.jpgsave_picture_132557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132557.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:F9B9EA3A15BE8EDEE3FF3C6B396C71978A8EC184
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132559.jpgsave_picture_132559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132559.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ TeleInet 1.51 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132560.jpgsave_picture_132560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132560.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ TeleInet - программа для просмотра телевизионны
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132561.jpgsave_picture_132561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132561.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:498740DC9BCCCB3B4051C985A741A9C0F8BB0855
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132563.jpgsave_picture_132563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132563.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:E914CD743151A87162E0FEDB4D3740D314292DCE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132565.jpgsave_picture_132565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132565.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:BA41FBE2912D3E6878AE4BE1C278D577AF8A885F
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132567.jpgsave_picture_132567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132567.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132568.jpgsave_picture_132568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132568.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132569.jpgsave_picture_132569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132569.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:E52C68DF2F3517318C0ECD735F6798D647327303
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132571.jpgsave_picture_132571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132571.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:794E3C219F4826DA79606B1A6C7A107DEDAB5E87
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132573.jpgsave_picture_132573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132573.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:1AEB40734174E63625C7464258A1ADBB9A6533FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132578.jpgsave_picture_132578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132578.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ IncrediMail 2 Plus 6.39 Build 5245 Final RePack by uk10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132579.jpgsave_picture_132579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132579.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ IncrediMail — оригинальная почтовая программа, п
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132580.jpgsave_picture_132580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132580.jpg" />
 </div>
 
 

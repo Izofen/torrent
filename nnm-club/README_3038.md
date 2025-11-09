@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95854.jpgsave_picture_95854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95854.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Sense Of Trance #24 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95869.jpgsave_picture_95869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95869.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:99A0ABFDBBF62956C2495C6FB40D8381FB33EAF4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95885.jpgsave_picture_95885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95885.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:45EDCDF4544375C95FCE617C5E2D23A4D3DB5271
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95892.jpgsave_picture_95892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95892.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:5140BC6A725331E7FAC2AC876269688A7C3A7388
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95894.jpgsave_picture_95894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95894.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:F6C1FFFC360B01E5D39E221A9D7368A53E99B026
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95896.jpgsave_picture_95896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95896.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:DF4EAA6A8E6A0CD3D28A108C83C585E5A119C310
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95897.jpgsave_picture_95897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95897.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:14968058AAD45960B14C0A9BDA40A3BC56A30D1E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95898.jpgsave_picture_95898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95898.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:54DC5AE6D336A4857AA841808EA8FB436EAD4CB2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95900.jpgsave_picture_95900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95900.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:D539C74D1E8B4CBA3DA1E4BF52F85BB0B668425A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95902.jpgsave_picture_95902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95902.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ DJ Kocmoc - Electro Sensation vol.21 (7.03.2012) [MP3|320 кб/с]<Electro House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95903.jpgsave_picture_95903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95903.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:E76FBF982E49DE75F3B6E4D82B9B6B0FAF8FA1CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95908.jpgsave_picture_95908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95908.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:4A4746BBE22A32A0CB4D7440EF0E2722198B15D9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95909.jpgsave_picture_95909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95909.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:3C2BBAD5649234C5008A12C33041E54365469869
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95910.jpgsave_picture_95910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95910.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:4B49DBB5AFE3DB9A93EE7F2F10988ACD61F9403A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95913.jpgsave_picture_95913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95913.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:CBB2E0EFAE5C24483DB952049CF6295CCE495C1B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95915.jpgsave_picture_95915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95915.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FBF01CF92CD44837ACC6C282189AD6E688CD1513
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95922.jpgsave_picture_95922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95922.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:CB7FA8FD74A42DEB994631B876FD0B5B76BEE5A1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95925.jpgsave_picture_95925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95925.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:99135FF33626C75F339E5A7147960FA0B5B9E1F4
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95926.jpgsave_picture_95926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95926.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:6E8BAAEA12C20E66C6F5C340DF84A4D538673F4D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95929.jpgsave_picture_95929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95929.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:11E56A93776B579411C2FA71E72C8CAEF036E256
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95931.jpgsave_picture_95931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95931.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:19EB4DDE9449400479ED527ECF94E4FCE818BB58
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95933.jpgsave_picture_95933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95933.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:08F6C5AF7123544B584E9B139B783090E24F8FA6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95940.jpgsave_picture_95940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95940.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Best of Gothic v.2 (2010) [MP3|192-320 кб/с]<Gothic Metal>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95942.jpgsave_picture_95942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95942.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #76 (08/03/2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95944.jpgsave_picture_95944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95944.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ magnet:?xt=urn:btih:3CA7A5266967CED03ED80DE36FA422DCEC4FD735
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95954.jpgsave_picture_95954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95954.jpg" />
 </div>
 
 

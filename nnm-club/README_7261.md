@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248302.jpgsave_picture_248302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248302.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Extreme Assault [Ru] (RePack) 1997 | Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248303.jpgsave_picture_248303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248303.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Extreme Assault [Ru] (RePack) 1997 | Pilotus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248304.jpgsave_picture_248304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248304.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:823B15D1AF9069AC0C068DCCEEFBC9BFAC812B57
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248305.jpgsave_picture_248305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248305.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248306.jpgsave_picture_248306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248306.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ GIMP - средство для работы с изображениями. Пр�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248307.jpgsave_picture_248307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248307.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ GIMP - средство для работы с изображениями. Пр�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248308.jpgsave_picture_248308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248308.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:228D7EFC86CD4CA3CBFEBACD58F13874AC125E47
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248312.jpgsave_picture_248312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248312.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:7EB6421F6B86FDDEAFCDB4CBDA72C07DF2509FAA
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248314.jpgsave_picture_248314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248314.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:7EB6421F6B86FDDEAFCDB4CBDA72C07DF2509FAA
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248315.jpgsave_picture_248315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248315.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:60DA2A4E0258D4B70D089D4B701EA5A3B790F15C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248316.jpgsave_picture_248316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248316.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:2F4449DE9DCC9D3527A84949C8E2DE4EBF72C8C5
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248321.jpgsave_picture_248321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248321.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:3ADEA91F19283282BB4E0E468DE5559AEC439F25
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248323.jpgsave_picture_248323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248323.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Movienizer 5.2.281 Multi+Rus/Bel/Ukr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248324.jpgsave_picture_248324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248324.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Movienizer легко найдёт и сохранит информацию о �
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248328.jpgsave_picture_248328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248328.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Movienizer легко найдёт и сохранит информацию о �
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248329.jpgsave_picture_248329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248329.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ FXpansion - BFD Eco v.1.0.1.27+(BFD Eco Data v 1.1.5) by ASSIGN[BIN|ISO][анг�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248330.jpgsave_picture_248330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248330.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BFD Eco - изящный, функциональный и доступный п�
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248332.jpgsave_picture_248332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248332.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:DED64B976B7DF161A944F8D285EB45FB20A93B98
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248333.jpgsave_picture_248333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248333.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:481F584CB1A69F847995F521A2940BB7C6224F35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248334.jpgsave_picture_248334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248334.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:4D477F65BEA0C85FF441DC6E419DCFF37A93B137
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248335.jpgsave_picture_248335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248335.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:4D477F65BEA0C85FF441DC6E419DCFF37A93B137
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248336.jpgsave_picture_248336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248336.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:4D477F65BEA0C85FF441DC6E419DCFF37A93B137
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248337.jpgsave_picture_248337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248337.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:8CD35B964945FFCC057C33CD79BC1F9708BDFEA7
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248340.jpgsave_picture_248340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248340.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:200AF7875D924050D9DB5DFAF10823E0F15AF4A5
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248341.jpgsave_picture_248341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248341.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:2DD525E94BC6269F682F5973EF468341C4FCE1BA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248344.jpgsave_picture_248344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248344.jpg" />
 </div>
 
 

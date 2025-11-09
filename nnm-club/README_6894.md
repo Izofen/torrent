@@ -6,7 +6,7 @@ myTracks 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236769.jpgsave_picture_236769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236769.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4F5A563DFCD7799B9CE921E3DE7678D28891DCB1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236771.jpgsave_picture_236771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236771.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2BDC97F26678085EB754BD13221A1754BB88BCD6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236772.jpgsave_picture_236772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236772.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ The Dutch Jazz Orchestra - Portrait of a Silk Thread: Newly Discovered Works of 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236776.jpgsave_picture_236776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236776.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:F89B0AF0D27286CB1815AEA8A1248CA41FFA04C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236777.jpgsave_picture_236777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236777.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:C70C2C5DAA0F2252CD8470FB732A65ED9B0C735A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236779.jpgsave_picture_236779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236779.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:6BF9AC7C708FA2F5AA130DAE276F7A9A59DE2CF5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236783.jpgsave_picture_236783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236783.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ SRWare Iron 113.0.5750.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236785.jpgsave_picture_236785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236785.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:A831401057A7777F53520A1A5C417C0FC87D14B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236788.jpgsave_picture_236788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236788.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:2A1C0DAEE5FDD92E5B93EAE174A65D3DD44B0B09
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236790.jpgsave_picture_236790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236790.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:8DF69E88FFFDB60CA1671F6863078D3C9B1EC188
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236792.jpgsave_picture_236792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236792.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Microsoft .NET 6.0.18 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236794.jpgsave_picture_236794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236794.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:CE38ACBC4C04A0F4D475DDEA4D025AFCB90CAB66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236795.jpgsave_picture_236795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236795.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Buster No - Buster No (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236799.jpgsave_picture_236799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236799.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ AnyMP4 iPhone Unlocker 1.0.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236800.jpgsave_picture_236800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236800.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:767BF4BF9FE360CA34AC52756495D5FE4921D613
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236801.jpgsave_picture_236801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236801.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Udemy, Logus Online | Master English grammar| Grammar rules, practice, tests (20
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236803.jpgsave_picture_236803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236803.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The Replacements - Sorry Ma, Forgot To Take Out The Trash (1981) Deluxe Edition,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236804.jpgsave_picture_236804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236804.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Tempomate 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236806.jpgsave_picture_236806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236806.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:52A789D926A924979DBD48E27734B275F0781D7E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236807.jpgsave_picture_236807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236807.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:3BCBDF53F843A3B2A15E599BD4FFCD314B224EA5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236808.jpgsave_picture_236808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236808.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ OneCommander Pro 3.46.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236809.jpgsave_picture_236809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236809.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Madrugada - 8 Albums (1999 - 2022) [FLAC|Lossless|tracks+.cue]<Indie, Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236811.jpgsave_picture_236811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236811.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:6B29FA9335CF8E3918884D48F7E6690AE69F723B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236814.jpgsave_picture_236814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236814.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Gartraada - A Night Of Winter Solstice (2013) [FLAC|Lossless|image + .cue] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236815.jpgsave_picture_236815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236815.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Rainbows Are Free - Heavy Petal Music (2008) Restore, 2023, Ripple Music [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236816.jpgsave_picture_236816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236816.jpg" />
 </div>
 
 

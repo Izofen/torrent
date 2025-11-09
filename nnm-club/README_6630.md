@@ -6,7 +6,7 @@ VA - Summer Vibes 2023: Best of Deep Tropical House (2023) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216773.jpgsave_picture_216773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216773.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Opera GX 101.0.4843.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216784.jpgsave_picture_216784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216784.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Mojito Lounge Beats 2023: Best of Tropical & Deep House (2023) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216787.jpgsave_picture_216787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216787.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Естрадна Палитра/Variety Palette (1973) [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216793.jpgsave_picture_216793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216793.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ AndroVid Pro Video Editor v6.4.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216797.jpgsave_picture_216797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216797.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ FiNCH - Rummelbums (2022) [FLAC|24/44.1|tracks|WEB-DL] <Hip-Hop, Eurodance, Pop 
 >>Eurodance, Disco (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216805.jpgsave_picture_216805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216805.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BackupLoupe for Mac 3.9 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216812.jpgsave_picture_216812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216812.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Summer Rock - The Greatest Hits for Your Festival Adventures (2023) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216818.jpgsave_picture_216818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216818.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:48AE7BED027D512BBF114593FBDA2988C732E610
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216829.jpgsave_picture_216829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216829.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Megaherz - In Teufels Namen (2023) [FLAC|24/44.1|tracks|WEB-DL] <Neue Deutsche H
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216830.jpgsave_picture_216830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216830.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:3DC34C6E567C6C684D154B1D98DC7F6A46188F1D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216845.jpgsave_picture_216845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216845.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:C57CBF25B62EB5626B5813DD2B7BD3098272B2E6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216892.jpgsave_picture_216892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216892.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Matt Arthur - Then & Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216903.jpgsave_picture_216903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216903.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Rock House - Rockin' With Rock House (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216910.jpgsave_picture_216910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216910.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Proxyman for Mac 4.9.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216918.jpgsave_picture_216918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216918.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:41AA3E73C16FEF9A0C12476B108A23CDF4185667
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216926.jpgsave_picture_216926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216926.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:AF6E627C6AF86BF2ED733BD0E954A5BF51914880
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216933.jpgsave_picture_216933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216933.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:35FD9037B40B5E80328C148A290D6C9774A61A2B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216943.jpgsave_picture_216943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216943.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Ekseption - Ekseption (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216953.jpgsave_picture_216953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216953.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:0258EC668B23F8379C86918EA36DA7DDB1998E62
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216966.jpgsave_picture_216966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216966.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ King Kobra - We Are Warriors (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216982.jpgsave_picture_216982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216982.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:13F166452CC6F1454E40F82A91164901FC6E3342
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216990.jpgsave_picture_216990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216990.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Blindstone - Scars To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217001.jpgsave_picture_217001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217001.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:C53158CEE3FFD21BB85D81D2AC55536562D5B05E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217017.jpgsave_picture_217017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217017.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:86BF24B81552718270F1922BA2A0606FD5C70668
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217024.jpgsave_picture_217024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217024.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Image2icon - Make your icon‪s‬ 2.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217043.jpgsave_picture_217043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217043.jpg" />
 </div>
 
 

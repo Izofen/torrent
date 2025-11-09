@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139737.jpgsave_picture_139737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139737.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DFC672E8E41E16B9AF63B1076233E88D60D72999
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139739.jpgsave_picture_139739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139739.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ David Newman - Newmanism (1974) Remaster, 2015, Warner[FLAC|tracks+.cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139740.jpgsave_picture_139740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139740.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Moment - Every Day Counts! 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139741.jpgsave_picture_139741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139741.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A432227B3BD986CF05902D5DC30386166523D415
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139744.jpgsave_picture_139744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139744.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ ScrollNavigator 5.13.3 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139745.jpgsave_picture_139745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139745.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Crucial Fix - Crucial Fix (2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139746.jpgsave_picture_139746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139746.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8C875FA498042AB2938CB0165741C12CF6962872
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139747.jpgsave_picture_139747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139747.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Stardust - Music Sounds Better With You (1998) Maxi-Single [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139749.jpgsave_picture_139749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139749.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:1B8D489AE0995BE7BBA7809D7CD6053A42C70787
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139751.jpgsave_picture_139751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139751.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139752.jpgsave_picture_139752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139752.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - The Official UK Top 40 Singles Chart (29-12-2013) [MP3|MP3|320 кб/с]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139753.jpgsave_picture_139753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139753.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:99B52319EEC8151F05C11D238656A5262CEDB4B1
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139754.jpgsave_picture_139754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139754.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Ouie First X (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139755.jpgsave_picture_139755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139755.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:5D6AE3465068D874CCEC03E9EBB6DFDD9E2358D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139756.jpgsave_picture_139756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139756.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:E07F1615BC2528D9ED99868EF4D7F4A72F6EB6B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139757.jpgsave_picture_139757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139757.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Elvin Jones - Poly-Currents (1969) Remaster, 2014, Universal[FLAC|tracks+.cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139759.jpgsave_picture_139759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139759.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:2FCF6B76E41F6F6776B6231FE815AFD35F2B2DA0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139760.jpgsave_picture_139760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139760.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Burnt Alive in Odessa (2021) WEBRip [H.264/1080p]
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139762.jpgsave_picture_139762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139762.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Air of Hiroshima - Желчь (2020) [MP3|320 Kbps] <Post Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139765.jpgsave_picture_139765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139765.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Snoweffect - Rustic Physiocrat (2005) Ryoondo-Tea [FLAC|Lossless|tracks+.cue] <A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139766.jpgsave_picture_139766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139766.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:5FA6B75AE861E1C14D2D95F8F6B3E9DD122900AF
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139767.jpgsave_picture_139767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139767.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:4E99FB474583CACD773D0C48EF2658BCE9922A83
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139769.jpgsave_picture_139769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139769.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Sir Roland Hanna Plays The Music Of Alec Wilder (1998) Gitanes Jazz Productions 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139770.jpgsave_picture_139770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139770.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:7C354FE80167859D35C8E682D0D3FFEB97DAD48A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139771.jpgsave_picture_139771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139771.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:A61B0C125AC222F0CDD22F3634B114C6E0D64758
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139774.jpgsave_picture_139774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139774.jpg" />
 </div>
 
 

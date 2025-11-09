@@ -6,7 +6,7 @@ Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98534.jpgsave_picture_98534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98534.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ ChipaChip - Постоянство (2012) [MP3|320 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98537.jpgsave_picture_98537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98537.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:AA592F2771A11B2AF1B082ADC0D7C954E58DCDCE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98538.jpgsave_picture_98538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98538.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:3DECC99E074758277BEF3E5EFC8318C5BAE9CC7A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98539.jpgsave_picture_98539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98539.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ VA - Танцевальный клубный поп хит vol.4 (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98542.jpgsave_picture_98542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98542.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:BC710A27C492C98385F7ECCA02D3B79034476180
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98543.jpgsave_picture_98543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98543.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Nothing But... Trancetopia, Vol. 30 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98545.jpgsave_picture_98545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98545.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - XXXL зарубежный (2012) [MP3|192-256 кб/с]<Pop ,Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98546.jpgsave_picture_98546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98546.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Lane 8 - Fall 2025 Mixtape (2025-09-24) [MP3|320 Kbps] <Progressive House, Melod
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98547.jpgsave_picture_98547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98547.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Ankhagram - Where Are You Now (2010) [MP3|320 кб/с]<Dark Funeral Doom / Death
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98548.jpgsave_picture_98548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98548.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Markus Schulz - Global DJ Broadcast World Tour: In Search Of Sunrise, Eden Ibiza
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98549.jpgsave_picture_98549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98549.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:2E3E262FF8E66E4C0E9044555CC4B51BB8192FCF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98551.jpgsave_picture_98551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98551.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Off Said (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98552.jpgsave_picture_98552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98552.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | Konosuba: God's Blessin
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98553.jpgsave_picture_98553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98553.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ War Master - Pyramid Of The Necropolis (2011) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98554.jpgsave_picture_98554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98554.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:5D4B6CC517C9B0E4504E8769609F1148F4830FFE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98555.jpgsave_picture_98555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98555.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:356A581A4385E951A28922E87D8871AF87B8AFF6
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98557.jpgsave_picture_98557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98557.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Various Artists - Tranceffect 16 (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98558.jpgsave_picture_98558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98558.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:D0FD76DB0DE8EDAC9A63AD71B383062BA25C0C1C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98559.jpgsave_picture_98559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98559.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - 538 Hitzone 58 2CD (2011) [MP3|320 кб/с]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98560.jpgsave_picture_98560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98560.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98561.jpgsave_picture_98561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98561.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:55A299F4F78D4CF0094F4A67797022DA7FA078E1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98562.jpgsave_picture_98562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98562.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Warhorse - Live At Woods (2025) 2xCD, Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98563.jpgsave_picture_98563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98563.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:19A2DE95ACBA1B0E44141EAE983C95A1AA84C969
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98564.jpgsave_picture_98564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98564.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:EEFA4CB0E9CE0AC1D3C1C296689AB0DB5249575A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98565.jpgsave_picture_98565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98565.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ magnet:?xt=urn:btih:75B591DD308FF10D6D6A536178DB86ACFDC26932
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98566.jpgsave_picture_98566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98566.jpg" />
 </div>
 
 

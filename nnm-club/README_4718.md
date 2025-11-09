@@ -6,7 +6,7 @@ FlippedNormals, Tim Bergholz | SWORD Tutorial – COMPLETE EDITION (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147659.jpgsave_picture_147659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147659.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - German Top 50 Party Schlager Charts 24.12.2018 (2018) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147660.jpgsave_picture_147660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147660.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ UltraEdit 20.00.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147662.jpgsave_picture_147662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147662.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147663.jpgsave_picture_147663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147663.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Paint.NET 4.0.13 Final + Plugins Portable by Punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147664.jpgsave_picture_147664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147664.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Permute 3 v.3.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147665.jpgsave_picture_147665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147665.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:EA3D666CF3817FFBE2AC448472BA42E201572699
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147666.jpgsave_picture_147666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147666.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:56D470B9F42DD6C76A806CD5827937F3AD0900CB
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147667.jpgsave_picture_147667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147667.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:69C12A9CDB2CC69533C86A25D258CA6993E721FC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147668.jpgsave_picture_147668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147668.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:060AD318CA66E85A73FBF92F459BA95529892A84
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147669.jpgsave_picture_147669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147669.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:D9F731513EC1FA700BA68D9A70622227E1FCF3F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147670.jpgsave_picture_147670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147670.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:F5E99DC938F109A69BC685598D670848AAA09BC9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147671.jpgsave_picture_147671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147671.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:928632BA71E26939B6C6A98DA203153AF70A1CAF
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147672.jpgsave_picture_147672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147672.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - By the Sea Lounge Relaxing Luxury Elegance Instrumentals (2023) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147674.jpgsave_picture_147674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147674.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:716BF24C05906EFA4AE71A25EC8451C584EB1B6B
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147675.jpgsave_picture_147675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147675.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Club d'Elf - So Below (2018) Face Pelt Records [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147676.jpgsave_picture_147676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147676.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:BD51106AADC78DC9217EF6A18F1BCE4A1E59B11C
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147677.jpgsave_picture_147677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147677.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Mac DVDRipper Pro 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147678.jpgsave_picture_147678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147678.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:25B5863456A8C607ED660CD6D6BB4EBD1BCABFB4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147679.jpgsave_picture_147679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147679.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Absolutely - Cerebrum (2023) Explicit Content [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147681.jpgsave_picture_147681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147681.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:3BD999F3F514EACEF71B0E6B1940F9DC7B305268
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147682.jpgsave_picture_147682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147682.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:894D68D10BCE8A948076C067FA155972A5AF96F6
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147684.jpgsave_picture_147684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147684.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ JR Writer - Writer's Block 5 (2007) Mixtape [FLAC|Lossless|tracks + .cue] <Hip-H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147685.jpgsave_picture_147685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147685.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Champions of Anteria (2016) [En/Ita] (1.7.499537.X) License CPY
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147686.jpgsave_picture_147686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147686.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:631D03DD4DB7E3CEA46C243170D303EA7BA79F15
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147687.jpgsave_picture_147687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147687.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:C423BF47D7C7281E05FF77BD5BF01A626ACB18E7
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147689.jpgsave_picture_147689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147689.jpg" />
 </div>
 
 

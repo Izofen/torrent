@@ -6,7 +6,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53764.jpgsave_picture_53764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53764.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.526/dlc) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53773.jpgsave_picture_53773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53773.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Left 4 Dead 2 (2009) [Ru/Multi] (2.2.3.0/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53780.jpgsave_picture_53780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53780.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack Wagner [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53783.jpgsave_picture_53783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53783.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Builders of Greece (2024) [Ru/Multi] (14640143) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53790.jpgsave_picture_53790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53790.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Coromon (2022) [Ru/Multi] (1.3.0/dlc) Scene Tenoke [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53793.jpgsave_picture_53793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53793.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mafia (2020) [Ru/Multi] (1.0.3/dlc) Repack dixen18 [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53797.jpgsave_picture_53797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53797.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mafia II (2) (2020) [Ru/En] (1.0u1/dlc) Repack dixen18 [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53798.jpgsave_picture_53798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53798.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ MY DESTINY GIRLS (2024) [Multi] (20240417) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53799.jpgsave_picture_53799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53799.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53800.jpgsave_picture_53800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53800.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mafia III (3) (2020) [Ru/Multi] (1.0.1/dlc) Repack dixen18 [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53802.jpgsave_picture_53802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53802.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53804.jpgsave_picture_53804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53804.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Highrise City (2022) [Multi] (20240603/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53813.jpgsave_picture_53813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53813.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Airhead (2024) [Ru/Multi] (13431795) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53818.jpgsave_picture_53818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53818.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53821.jpgsave_picture_53821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53821.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53843.jpgsave_picture_53843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53843.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lumnis (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53849.jpgsave_picture_53849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53849.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53859.jpgsave_picture_53859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53859.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53863.jpgsave_picture_53863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53863.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ I Don't Fall (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53866.jpgsave_picture_53866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53866.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53870.jpgsave_picture_53870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53870.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Watch Dogs (2014) [Ru/En] (1.06.329/dlc) Repack dixen18 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53882.jpgsave_picture_53882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53882.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53887.jpgsave_picture_53887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53887.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack dixe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53895.jpgsave_picture_53895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53895.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53898.jpgsave_picture_53898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53898.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53918.jpgsave_picture_53918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53918.jpg" />
 </div>
 
 

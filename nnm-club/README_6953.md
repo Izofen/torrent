@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238704.jpgsave_picture_238704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238704.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Preludium Fury - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238705.jpgsave_picture_238705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238705.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:683D7B477F271914B6799A9E1492A8753776D57B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238706.jpgsave_picture_238706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238706.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A39A6E897E2454E059AEC2395E3C033E55E0721E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238707.jpgsave_picture_238707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238707.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2DCD50216CA6935434023EE182A7976CF2C69670
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238708.jpgsave_picture_238708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238708.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:0C01C27BC6E16BDDCA76125B4A48CB0AAD204925
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238709.jpgsave_picture_238709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238709.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:2CE252A9B5328DD06764480182FF6BC3D682B2DA
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238711.jpgsave_picture_238711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238711.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Abscess - Horrorhammer (2007) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238712.jpgsave_picture_238712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238712.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Brave Browser 1.52.117 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238714.jpgsave_picture_238714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238714.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Perfect Storm - No Air (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238715.jpgsave_picture_238715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238715.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:FBF78AA555C628D1B3FB77BD71DA1A79B4CCE4BA
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238717.jpgsave_picture_238717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238717.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Pertness - Frozen Time (2012) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238718.jpgsave_picture_238718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238718.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Wailin Storms - The Silver Snake Unfolds (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238720.jpgsave_picture_238720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238720.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ V.A. - Relaxing Soothing Melodic Tunes for Body, Mind and Soul (2023) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238721.jpgsave_picture_238721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238721.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Pertness - Metamorphosis (2018) [FLAC|Lossless|image + .cue] <Melodic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238722.jpgsave_picture_238722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238722.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Bandicam 5.4.3.1923 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238723.jpgsave_picture_238723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238723.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:DEBF66BDB5B64D46662FEC325DE48C577CB00DFE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238724.jpgsave_picture_238724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238724.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238726.jpgsave_picture_238726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238726.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Morgarten - Cry Of The Lost (2021) [FLAC|Lossless|image + .cue] <Folk Metal, Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238727.jpgsave_picture_238727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238727.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ PDF-XChange Editor Plus 9.3.361.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238728.jpgsave_picture_238728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238728.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:0D338BEF1C0C8A3D7E99EA1690703C4565B4837B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238729.jpgsave_picture_238729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238729.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Fireforce - Rage of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238730.jpgsave_picture_238730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238730.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Pertness - From The Beginning To The End (2010) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238731.jpgsave_picture_238731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238731.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ AmanVPN 2.1.8.0428 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238733.jpgsave_picture_238733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238733.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:FADDCE78E50E80928EF50134C0A6F36B4DE2A499
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238734.jpgsave_picture_238734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238734.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:2B817E2AB2BB86F410478CBD663B2270ED5CAA96
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238735.jpgsave_picture_238735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238735.jpg" />
 </div>
 
 

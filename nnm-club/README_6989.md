@@ -6,7 +6,7 @@ MotoGP. Этап 01. Гран-при Португалии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239873.jpgsave_picture_239873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239873.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sound Grinder 4.1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239874.jpgsave_picture_239874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239874.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ GeoGebra 6.0.779.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239875.jpgsave_picture_239875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239875.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ann-Margret - Born To Be Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Fe
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239876.jpgsave_picture_239876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239876.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Days Of Wine - Days Of Wine (2022) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239877.jpgsave_picture_239877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239877.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Ultra Adware Killer 10.6.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239878.jpgsave_picture_239878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239878.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Hotwire - The Story So Far 1993-2023 (2023) Compilation [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239879.jpgsave_picture_239879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239879.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Miss Mellow - Miss Mellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychy, Funky, K
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239880.jpgsave_picture_239880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239880.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:D1007FF5BB310A00298D5D7D5700F39CB479E7F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239881.jpgsave_picture_239881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239881.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Blush Response - Neuroscape (2023) [MP3|320 Kbps] <Industrial, Techno>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239882.jpgsave_picture_239882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239882.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:C595BC6DDD19F25A9D09C1EB517881022747D724
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239883.jpgsave_picture_239883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239883.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ World Divided - All The Angels Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239884.jpgsave_picture_239884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239884.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:DD5CACE883FC236DDB965C92D6137E9F0D8258C4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239885.jpgsave_picture_239885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239885.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:610FBC069C8E5171A2917C34BC2F134B6039429D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239886.jpgsave_picture_239886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239886.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:A2F3A1ED740A266745E9319A4B45FA971C77F21F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239887.jpgsave_picture_239887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239887.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Gary Moore - Rockin’ Every Night: Live in Japan (1983) Reissue, 2023, Universa
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239888.jpgsave_picture_239888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239888.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Stormburst - III (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239889.jpgsave_picture_239889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239889.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ WebScraper 4.15.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239890.jpgsave_picture_239890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239890.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:26E27E87A2D271BFA49746DC6684812A7CAB2AC9
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239891.jpgsave_picture_239891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239891.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:5882D3989D92C09C8965DC9A34EEC6A1F152A903
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239892.jpgsave_picture_239892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239892.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:8C13B9B08220D12C4F7FD8222CC426E8B949AC00
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239893.jpgsave_picture_239893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239893.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Artstudio Pro 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239894.jpgsave_picture_239894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239894.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v6 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239895.jpgsave_picture_239895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239895.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:E61756A2505A548499CC60863A38D36FD4D20D48
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239896.jpgsave_picture_239896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239896.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - TOP Non-Stop 2010-2019 - Progressive House (2022) [MP3|192-320 Kbps] <Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239897.jpgsave_picture_239897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239897.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Retro Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239898.jpgsave_picture_239898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239898.jpg" />
 </div>
 
 

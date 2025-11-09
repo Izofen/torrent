@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190985.jpgsave_picture_190985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190985.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3603B0CD6799C394ACCFE49253995A56F56813A2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191000.jpgsave_picture_191000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191000.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:97ABE268D0D4D2B24410BB769C80A4821D809D7A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191004.jpgsave_picture_191004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191004.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Stilgar - Живым Или Мёртвым (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191008.jpgsave_picture_191008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191008.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ploho - When the Soul Sleeps (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191111.jpgsave_picture_191111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191111.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191117.jpgsave_picture_191117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191117.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:906DED12E4610340461F1E18CA1D4622C5DF366A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191136.jpgsave_picture_191136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191136.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:059C7EADA356B5027DF58D1E4373594F8E069A39
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191396.jpgsave_picture_191396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191396.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:975BEAF77188AB1FA34D3D048D0EAE1D590F7BE5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191495.jpgsave_picture_191495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191495.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bosphorus Night - New Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191620.jpgsave_picture_191620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191620.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ashes and Bereavement - Before the Eternal Birth (2023) [FLAC|Lossless|WEB-DL|tr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191627.jpgsave_picture_191627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191627.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E849FF3F06D68F82BF245212B9F51C8BBF1BB78B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191631.jpgsave_picture_191631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191631.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:43B56572F4EDB55C59DF40F4A5797F12696C0CED
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191633.jpgsave_picture_191633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191633.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:0BB96847735B69F2B927F67F9D627E4C833DBA00
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192015.jpgsave_picture_192015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192015.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Scream in Darkness - Судный день (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192134.jpgsave_picture_192134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192134.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:46B0F422AFAF31E35D71B9A31BD1E4D6DA522E44
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192371.jpgsave_picture_192371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192371.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Dark voice of Angelique - Adult Content (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192396.jpgsave_picture_192396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192396.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:3DCD0EE4424E41006B3E239BDF39D2A9BF3C346D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192695.jpgsave_picture_192695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192695.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:C33754520C6091A16CCE1C022013820F8799CD6C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192740.jpgsave_picture_192740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192740.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:2D49C3D45AB829D8289C5A59F738190457496C18
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192963.jpgsave_picture_192963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192963.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:774A70C5127D97EC13BD22035BC9A38C916159C8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192986.jpgsave_picture_192986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192986.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:BDB3B9348C094DFC649B4392E065DDC6E4AB07EE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193232.jpgsave_picture_193232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193232.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Tequilajazzz - Лучшее (2CD) (2010) [FLAC|Lossless|image + .cue]<Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpgsave_picture_193234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193234.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:545D60A774506357E3308557CD6DCD8183F90B50
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193308.jpgsave_picture_193308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193308.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:F82115D42595C09D75A79B540040EC8B9D42CC70
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194331.jpgsave_picture_194331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194331.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Radio Tapok - Эпоха Империй (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194960.jpgsave_picture_194960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194960.jpg" />
 </div>
 
 

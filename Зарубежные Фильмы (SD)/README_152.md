@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252021.jpgsave_picture_252021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252021.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B920608EFDA7EE32F1E39CDA8BD88ED83201DF9B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252037.jpgsave_picture_252037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252037.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A861E371A6121F95BADBACF57493144CEF5B8186
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252056.jpgsave_picture_252056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252056.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:753A76D9DB9CC22263E7CEB1B67F5E180B3D6D35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252058.jpgsave_picture_252058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252058.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DBDD8451B263F842A98D1BD3F56E68DB1B52F273
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252060.jpgsave_picture_252060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252060.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1E7D496B5EADC2349CD95D7A5D781A37B9F25AF9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252087.jpgsave_picture_252087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252087.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:F054326048704DC1E6A0E19727CC702E0323BEAB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252089.jpgsave_picture_252089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252089.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:8E8A880D1ECEE712406E23AD57E6A080FCB650FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252153.jpgsave_picture_252153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252153.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:0686617E528193132BA6A0E0F584CD4A6BAF53C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252169.jpgsave_picture_252169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252169.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A2A5FB27054EFD573CFD2080E7A8DA36A34F84C0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252175.jpgsave_picture_252175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252175.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:F4FFCB301BC0DAB184A4086BB2B63F68DED970E9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252180.jpgsave_picture_252180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252180.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Air: Большой прыжок / Air (2023) WEB-DLRip [H.264] [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252216.jpgsave_picture_252216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252216.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:12F002721B4137DA88D0D2EB46F57DF6D8C984C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252236.jpgsave_picture_252236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252236.jpg" />
 </div>
 
 

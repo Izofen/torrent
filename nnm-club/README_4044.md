@@ -6,7 +6,7 @@ Felo Sepulveda - Long Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125712.jpgsave_picture_125712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125712.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mick Clarke - Gnarly (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125713.jpgsave_picture_125713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125713.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mitch Malloy - Making Noise (2017) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125714.jpgsave_picture_125714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125714.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:18CFAB2281698A540E1939117C287990C5A23F9F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125715.jpgsave_picture_125715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125715.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Keith Scott Blues - One Nation Under the Blues (2023) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125716.jpgsave_picture_125716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125716.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:32DCBD29ECF6B50BB99CE19ABC4C67FF02A26958
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125717.jpgsave_picture_125717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125717.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:E032757A94FDB31F408DC7A3F60A92B3FD8862B1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125718.jpgsave_picture_125718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125718.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:B1042DEE84FBB62CD10DD9A5CD45B7F54D91A682
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125719.jpgsave_picture_125719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125719.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Payson Lyon - Long Day's Journey into Light (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125720.jpgsave_picture_125720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125720.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:27EBB8FB3A242BB19C68D3D4D7FBB4829EA5832C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125721.jpgsave_picture_125721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125721.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:2500B582C519B10E404DB69D71766E27DA2B39CD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125722.jpgsave_picture_125722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125722.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:88A76181C9DDD8C480D792008C5F33B520DDD6FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125723.jpgsave_picture_125723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125723.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:8546003C93D80AFE9FF26F85DA8B7B7DE5912337
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125724.jpgsave_picture_125724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125724.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:EC4141D5E99DFAE8CE550B69165C5B7F135712DB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125725.jpgsave_picture_125725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125725.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:7079ACF011EDD6AD74A5FBD98C0515FD16E73D8A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125726.jpgsave_picture_125726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125726.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125727.jpgsave_picture_125727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125727.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Lurrie Bell - Collection, 10 Albums (1989 - 2018) (1989 - 2018) [FLAC|Lossless|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125728.jpgsave_picture_125728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125728.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:ACE7DD0A5843CD3FFA22E0740DA3AD518E10BCD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125729.jpgsave_picture_125729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125729.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Ramsey Lewis - Ramsey Lewis And His Gentle-Men of Jazz (1957, 1958) 2008, Fresh 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125730.jpgsave_picture_125730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125730.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:371A1500B197C74795E3A21DE18DEF2616B70F49
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125731.jpgsave_picture_125731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125731.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Forest Retreat: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125732.jpgsave_picture_125732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125732.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:EB05C869F5934314A90B0899566DC7D7A093A892
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125733.jpgsave_picture_125733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125733.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:35F93F64C1D0C4090587950714DE708DA8E14D1C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125734.jpgsave_picture_125734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125734.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F279730CC91905DA79397969BD0C9DC51613F593
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125735.jpgsave_picture_125735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125735.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:ADBBA5D712F2A46368DC45DE6ECD6F8F867988EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125736.jpgsave_picture_125736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125736.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125737.jpgsave_picture_125737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125737.jpg" />
 </div>
 
 

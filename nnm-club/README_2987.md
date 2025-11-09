@@ -6,7 +6,7 @@ VA - Сборник медленных хитов Vol.5 (2012) [MP3|320 kbps]<Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89408.jpgsave_picture_89408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89408.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:4A401CB2A2F2DEF48803A0B909BD94C469231164
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89409.jpgsave_picture_89409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89409.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Scorpions - Humanity - Hour I (Limited Edition) (2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89410.jpgsave_picture_89410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89410.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Scorpions - Humanity - Hour I (Limited Edition) (2007) DVD5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89413.jpgsave_picture_89413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89413.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:F6D2EF75C34D061E6A92080D00B06BA585DFE5BD
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89414.jpgsave_picture_89414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89414.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Johann Sebastian Bach – Weihnachtsoratorium Christmas Oratorio: VA (1734) 2CD,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89415.jpgsave_picture_89415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89415.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:3C5F3A9AC00282EE23770CA17CA355D7F5E3BE5C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89417.jpgsave_picture_89417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89417.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:14F6EB05C841E911523EDE6A6B38894A5D7F50A0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89429.jpgsave_picture_89429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89429.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Spreu & Weizen - 4 albums (2009-2011) [FLAC|Lossless] <Martial Industrial, Neocl
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89431.jpgsave_picture_89431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89431.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Cases of Stolen Beauty / Дело об украденной красоте (P) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89432.jpgsave_picture_89432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89432.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89433.jpgsave_picture_89433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89433.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89437.jpgsave_picture_89437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89437.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89441.jpgsave_picture_89441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89441.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89444.jpgsave_picture_89444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89444.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89447.jpgsave_picture_89447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89447.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89448.jpgsave_picture_89448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89448.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:E5894FFB01797F1153446542BF48BA43B0A7DF23
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89458.jpgsave_picture_89458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89458.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:75F2DFE4AC5702F7A26CB0AF5B2EEC07F517AAD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89466.jpgsave_picture_89466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89466.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:75F2DFE4AC5702F7A26CB0AF5B2EEC07F517AAD9
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89468.jpgsave_picture_89468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89468.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Hidden Expedition: Titanic / Секретная экспедиция: Титан
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89471.jpgsave_picture_89471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89471.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Victorian Mysteries 2: The Yellow Room / Викторианские тайны. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89473.jpgsave_picture_89473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89473.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:6170290230D3B515B8F5B8D28EE2B357EF5C8EBC
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89475.jpgsave_picture_89475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89475.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89478.jpgsave_picture_89478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89478.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89479.jpgsave_picture_89479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89479.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:AE4F2C2B46EFBE5D6DC30CDEE84095D00C7B2EEB
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89480.jpgsave_picture_89480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89480.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:B185017734DF7EE9738E61B17A282AC742A001E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89481.jpgsave_picture_89481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89481.jpg" />
 </div>
 
 

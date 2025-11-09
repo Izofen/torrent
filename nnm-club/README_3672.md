@@ -6,7 +6,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115847.jpgsave_picture_115847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115847.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Soft Jazz Mood, Erotica - Intimate Nights: Erotic Valentine’s Day, Jazz Love S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115848.jpgsave_picture_115848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115848.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mick Mars - The Other Side Of Mars (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115849.jpgsave_picture_115849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115849.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C7525976EAD231AFFAA48E6559F707F1ABDC37B9
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115850.jpgsave_picture_115850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115850.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DB170B8A2931E4D0C7CE6EC983DEEF4D4D86CD30
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115851.jpgsave_picture_115851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115851.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:59B106D8C0355AFFFC964BCEDBD13DD85FFD3FFB
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115852.jpgsave_picture_115852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115852.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Emurasoft EmEditor Professional 23.1.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115853.jpgsave_picture_115853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115853.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:BC9C404CC19AE7D7F95CD677E18B568E38064500
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115854.jpgsave_picture_115854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115854.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:9236E91E8BD4412D9251A19CDC0FCCF5CCD717D3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115855.jpgsave_picture_115855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115855.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115856.jpgsave_picture_115856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115856.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Rob Tognoni - 17 Albums (1995 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115857.jpgsave_picture_115857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115857.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115858.jpgsave_picture_115858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115858.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115859.jpgsave_picture_115859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115859.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Kim Wilde - Love Blonde: The RAK Years (2024) 2020 Remastered, 4CD + Digital Boo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115860.jpgsave_picture_115860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115860.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:E9AF5EF5A7B5662E229693ED2A3831366576DF81
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115861.jpgsave_picture_115861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115861.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Tarja Turunen - Dark Star (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115862.jpgsave_picture_115862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115862.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Wondershare PDFelement Pro OCR 10.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115863.jpgsave_picture_115863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115863.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ FireAlpaca 2.11.17 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115864.jpgsave_picture_115864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115864.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Super Sound v2.7.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115865.jpgsave_picture_115865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115865.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Sexual Music Collection - Sex for an Aperitif: Erotic Jazz Background Music (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115866.jpgsave_picture_115866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115866.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:D91AB7A2115BD4F38F8B6A72B212EDA0278DF42E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115867.jpgsave_picture_115867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115867.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:0D37A53CC6B8BCE5C4A6DBCBDD44F85BD55801FF
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115868.jpgsave_picture_115868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115868.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:EB927B103FC81D3FF16AB5E8F02D599F98537BE8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115869.jpgsave_picture_115869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115869.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Allie X - 2 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Canadian
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115870.jpgsave_picture_115870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115870.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Nutronic - Futures / Futures (Instrumentals) (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115871.jpgsave_picture_115871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115871.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:D2E74623E5743E3D2D30BA689ACFBAD571DFEF39
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115872.jpgsave_picture_115872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115872.jpg" />
 </div>
 
 

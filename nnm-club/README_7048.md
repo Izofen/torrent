@@ -6,7 +6,7 @@ VA - There Is Nothing Like A Power Woman (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241466.jpgsave_picture_241466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241466.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B6E8300EAE8046F3B3E2323A91D6354430943DB8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241467.jpgsave_picture_241467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241467.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:354B85AB0790DA0042124AE63C102E42DFFE4123
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241468.jpgsave_picture_241468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241468.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Screegle - Clean Screen Sharing 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241469.jpgsave_picture_241469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241469.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:613C0DEE498C599C1F660541CCC59E9999D5AFC9
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241470.jpgsave_picture_241470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241470.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Creye - III Weightless (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241471.jpgsave_picture_241471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241471.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ ChipaChip & Sam Wick - I'm Sorry (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241472.jpgsave_picture_241472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241472.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Nicholas Payton - Dear Louis (2001) Verve Music Group [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241474.jpgsave_picture_241474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241474.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:1400507DFC3CCAFC44BE8E0FBF13C9D2CDC592E8
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241475.jpgsave_picture_241475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241475.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:6207518C8751C27113C9542DA7D3D4B30DAD3179
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241476.jpgsave_picture_241476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241476.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Adobe After Effects 2022 22.3.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241477.jpgsave_picture_241477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241477.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:6244B460986A5DFF6CC755BCB98AF9F221FCDDD4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241478.jpgsave_picture_241478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241478.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ WPS Office (Kingsoft Office) v17.5.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241479.jpgsave_picture_241479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241479.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:A555971548437ACAD8ADBF816F8D5ACB6978DB50
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241480.jpgsave_picture_241480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241480.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Omni Toolbox 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241481.jpgsave_picture_241481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241481.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:BC02C4465A4141925DDFD6D185C60996FEDDFDC6
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241482.jpgsave_picture_241482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241482.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ QR Factory 2.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241483.jpgsave_picture_241483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241483.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Text Analyzer Pro 7.3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241484.jpgsave_picture_241484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241484.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:89581DD948BC629103E59C1D3AA03C899202122F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241485.jpgsave_picture_241485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241485.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:42C3EC1157649A0A62343822DFAA35A79537FECA
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241486.jpgsave_picture_241486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241486.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - Miami Downtempo Hits 2023 [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241487.jpgsave_picture_241487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241487.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:341B4A61ACA8D58F601C0EA84B2C4343FABBE1AD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241488.jpgsave_picture_241488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241488.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Nevercenter CameraBag Photo 2022.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241489.jpgsave_picture_241489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241489.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Black Hole House Music 03-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241490.jpgsave_picture_241490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241490.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:1471790A7E0F7BC757F311B258AEC7A5F9ED351C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241491.jpgsave_picture_241491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241491.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Paloma Faith ‎ - Do You Want the Truth or Something Beautiful? (2009) [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241492.jpgsave_picture_241492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241492.jpg" />
 </div>
 
 

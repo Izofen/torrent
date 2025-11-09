@@ -6,7 +6,7 @@ Whispers / Шепот (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80746.jpgsave_picture_80746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80746.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Badfinger - No Dice (1970) [FLAC|Lossless]<Rock, pop, power pop, pop rock, hard 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80747.jpgsave_picture_80747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80747.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Badfinger - No Dice (1970) [FLAC|Lossless]<Rock, pop, power pop, pop rock, hard 
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80748.jpgsave_picture_80748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80748.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Last Remnant Original Soundtrack (2008) [MP3|~245 kbps]<GameSoundtrack>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80751.jpgsave_picture_80751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80751.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Various Artists - Twisted Metal (2012) [MP3|192 кб/с]<Soundtrack>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80756.jpgsave_picture_80756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80756.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:D0C8FC5B1C696EDFA59C3292F653E01232F55B3C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80757.jpgsave_picture_80757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80757.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ magnet:?xt=urn:btih:4764F6590F2E4964CC9070415BB01FDEEF82884C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80758.jpgsave_picture_80758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80758.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ magnet:?xt=urn:btih:20DD456B94B405BF7A159926320356DB761CFBB3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80763.jpgsave_picture_80763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80763.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:A4BB5DE216C216FC2797156632D47CCB30787479
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80764.jpgsave_picture_80764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80764.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:83C0B85259BD0F0E4719382311E8BEA24EEB1B15
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80769.jpgsave_picture_80769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80769.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:741728C33AE39C2177FFAB3B12613987FF78A2A2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80774.jpgsave_picture_80774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80774.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:474177289C6B8AE8A7EB7FA319872AE5F05FA5C3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80777.jpgsave_picture_80777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80777.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:1A8C0D32122064E0C43F4F7618B4D58807CABF5C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80779.jpgsave_picture_80779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80779.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Музыка и ритмы народов мира - Пакистан и А
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80784.jpgsave_picture_80784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80784.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows 7 Codec Pack 4.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80785.jpgsave_picture_80785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80785.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 7 Codec Pack - мощный набор кодеков, который с
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80787.jpgsave_picture_80787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80787.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Cliff Lin - This Is War (2012) [MP3|192 кб/с]<Alternative rock/Industrial Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80794.jpgsave_picture_80794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80794.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:A31017EB44417F159C67C0B744C738E76CA0C7DC
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80795.jpgsave_picture_80795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80795.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:10A083E7697B488A1F9DAD6A80ED3B2CB9A89973
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80800.jpgsave_picture_80800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80800.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:CB477AD4E089A52A4B801D45E0198AEA70BBAD0D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80801.jpgsave_picture_80801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80801.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:233F5E65F481A2F6D2C0D425AFD74EA37CA22C3D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80803.jpgsave_picture_80803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80803.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:F8D0A78DF7795B2343F5472BF08F2E7A7B108925
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80804.jpgsave_picture_80804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80804.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Fort Royal - 4 Альбома (2000-2010) [MP3|128-320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80805.jpgsave_picture_80805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80805.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:D195E59A7E35BBE45B6923E8F25B1143200ED923
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80807.jpgsave_picture_80807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80807.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:646FFB16D56F8D749E66C73E4F0A495AEAFDA833
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80808.jpgsave_picture_80808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80808.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ magnet:?xt=urn:btih:AABA8EDF16604B8DD2305A38D1E4B3902B6FF328
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80809.jpgsave_picture_80809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80809.jpg" />
 </div>
 
 

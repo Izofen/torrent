@@ -6,7 +6,7 @@ Woong San - Once I Loved (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68480.jpgsave_picture_68480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MotoGP. Этап 03 из 22. Гран-при США. Гонка (30.03.2025) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68481.jpgsave_picture_68481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68481.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Humpe Humpe - Humpe Humpe (1985) 40th Anniversary Edition, Remaster, 2025, Warne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68482.jpgsave_picture_68482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68482.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6312D5BA35FBFE0A40C6CF0A3ECCEA53A38BE599
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68483.jpgsave_picture_68483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68483.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Killers - Killing Games (2001) [FLAC|Lossless|image + .cue] <Speed Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68484.jpgsave_picture_68484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68484.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:179EDD0363C8CE79EFA0B089F2E893B525E62AAB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68485.jpgsave_picture_68485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68485.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Nightwish - End Of An Era (2006) Live, Reissue, 2018, Nuclear Blast [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68486.jpgsave_picture_68486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68486.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:08F8B6743C6C11C390A0036D9A4B4E5AA77B6414
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68487.jpgsave_picture_68487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68487.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ The Too Bad Jims - Over the Hill (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68488.jpgsave_picture_68488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68488.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Todd Shuffler - Stoned and Lonesome (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68489.jpgsave_picture_68489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68489.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:8DE58355613BE765ECD378A2BF2B45DB2973711E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68490.jpgsave_picture_68490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68490.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:D7F513DD7B1B21B471CDA9729DF5FCE997C3A35C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68491.jpgsave_picture_68491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68491.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:88A17599721A2C0991D00F3BBD175B38AD1D8B3E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68492.jpgsave_picture_68492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68492.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ HiPER Calc Pro v11.1.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68493.jpgsave_picture_68493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68493.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:A829A66496DB0ACFDA65B468B4FBF3B654B6A995
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68494.jpgsave_picture_68494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68494.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ File & Image Uploader 8.5.1 Portable + Skins [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68495.jpgsave_picture_68495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68495.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:90A198DD53F9D72F71C91CE2279A3B93C21C3739
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68496.jpgsave_picture_68496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68496.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:938ED68616098E1868CEDC45E674919A1D3B2EA7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68497.jpgsave_picture_68497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68497.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2F3DEC2749EB197F59658BF183160D1C3634A991
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68498.jpgsave_picture_68498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68498.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:2081AB4F05E750F4884E3B4FD715DF58C7FB8926
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68499.jpgsave_picture_68499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68499.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:FC6C2DD3EDC1311797195C5C780833039CD94791
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68500.jpgsave_picture_68500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68500.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:8CE7613E2EE654629BF658D74D4E2FDE2B0EAD99
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68501.jpgsave_picture_68501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68501.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ QOwnNotes 25.3.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68502.jpgsave_picture_68502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68502.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:2D4EA1A4A22EE4A94A373300AA1BDF990E70313B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68503.jpgsave_picture_68503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68503.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Flashback Anthology Vol. 3 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68504.jpgsave_picture_68504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68504.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:C59274E77667F0FAE30F5E7491FCEBC8466C1AB6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68505.jpgsave_picture_68505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68505.jpg" />
 </div>
 
 

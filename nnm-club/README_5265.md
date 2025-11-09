@@ -6,7 +6,7 @@ Comodo Dragon 79.0.3945.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163682.jpgsave_picture_163682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163682.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5F8507CD0067DE5CF94758BB67C2E0C49187FCF0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163683.jpgsave_picture_163683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163683.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1DFD7DC1D29EE07AF92EF09CFDC68D0488EAC284
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163684.jpgsave_picture_163684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163684.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FCC3D1D07A417AD675E448CD4387C3C08F8D2E17
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163685.jpgsave_picture_163685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163685.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C23C0F56D7872BA5B86FE1A2CE932ABFB74DF076
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163686.jpgsave_picture_163686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163686.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:12B7B297F74E6886E9BDB1DF08FE2393527BCA40
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163688.jpgsave_picture_163688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163688.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Adobe After Effects 2024 v.24.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163689.jpgsave_picture_163689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163689.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A6CA71DC59921B0443AAE6CE3D22082A94763420
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163690.jpgsave_picture_163690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163690.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:821009A1636A14BFACCFCB01C6DAC9E9B5F2FB07
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163691.jpgsave_picture_163691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163691.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Wise Program Uninstaller 2.3.9.143 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163692.jpgsave_picture_163692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163692.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163693.jpgsave_picture_163693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163693.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Steganos VPN Online Shield 2.0.11 Revision 13075 (Акция COMSS от 2022.12.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163694.jpgsave_picture_163694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163694.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:2FA60D163B9043FCE4E681617AB5767A6D04A8C6
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163695.jpgsave_picture_163695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163695.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DoYourData Start Menu Pro 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163696.jpgsave_picture_163696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163696.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AMD Radeon Software Adrenalin 2020 Edition 20.12.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163697.jpgsave_picture_163697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163697.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:11AF730418E76453704841E4206146849F0784C6
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163699.jpgsave_picture_163699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163699.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:583F03448A241D65CF5F334E2FA5713E11DED7B1
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163700.jpgsave_picture_163700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163700.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Typinator 8 v.8.11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163701.jpgsave_picture_163701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163701.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:6D624F0DAD05624302474E9C3CA44DE1BC07C275
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163702.jpgsave_picture_163702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163702.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:DE8FE95149524BD488A2D35F128AD06C5D6BC838
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163703.jpgsave_picture_163703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163703.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:0309604AD334B6C72EB9F7B913C5A45761AD7BE1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163704.jpgsave_picture_163704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163704.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163705.jpgsave_picture_163705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163705.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Cockos - REAPER 6.02 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163706.jpgsave_picture_163706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163706.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Colours of Lounge, Vol. 1 (2021) [AAC|~327 Kbps] <Chill Out, Lounge, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163707.jpgsave_picture_163707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163707.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:635C513F541EE01C4D945392B1A17874E1234731
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163708.jpgsave_picture_163708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163708.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:3C6543C9F234C59001AA98CFDB9F035C72E07F20
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163709.jpgsave_picture_163709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163709.jpg" />
 </div>
 
 

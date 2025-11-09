@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196612.jpgsave_picture_196612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196612.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F50ED5B9CD7B964EF3B2375FF753013681E71086
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196613.jpgsave_picture_196613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196613.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Yakuza Kiwami (2019) [Multi] (1.011a) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196614.jpgsave_picture_196614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196614.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Neon Chrome (2016) [Ru/Multi] (1.1.12/dlc) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196615.jpgsave_picture_196615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196615.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:70FDDCB592A2BC7B2CAB27FCB7A9405B101E6255
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196616.jpgsave_picture_196616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196616.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:18E899A1A10B62D63650928A61D6B491152152BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196617.jpgsave_picture_196617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196617.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:791B648C0AA48CEC616844DC1291E3A10DDA51C8
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196618.jpgsave_picture_196618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196618.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Megacubo 17.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196619.jpgsave_picture_196619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196619.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ BitTorrent 7.11.0 Build 46801 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196620.jpgsave_picture_196620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196620.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Tonikaku Kawaii 2 / Tonikawa: Over the Moon for You 2 / Красавица: Ун
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196622.jpgsave_picture_196622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196622.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Filmic Pro 7.2 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196623.jpgsave_picture_196623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196623.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Tor Browser Bundle 12.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196624.jpgsave_picture_196624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196624.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Discovery. Канализационные водолазы / Sewer Divers / (202
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196625.jpgsave_picture_196625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196625.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:BEBD8AA8F3E78703A44D5D7CE41C65E2D97E41A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196626.jpgsave_picture_196626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196626.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:49562441D034896708D7204B134516F78A619E07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196627.jpgsave_picture_196627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196627.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:EE23150F0928A7D93A532AB2C05687F932DEA32D
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196628.jpgsave_picture_196628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196628.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:0863387335B976DF59F336516D4296C15A711C0A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196629.jpgsave_picture_196629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196629.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:D0E79F6C0209E38EB583E16636940850274D54AB
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196630.jpgsave_picture_196630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196630.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Tablacus Explorer 23.6.25 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196631.jpgsave_picture_196631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196631.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:C5B1E5D25D9F631C5DEFEFE5EFC1AC373F48FEAD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196632.jpgsave_picture_196632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196632.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196633.jpgsave_picture_196633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196633.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:C88295A086D94E99268C17A05580B81983827370
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196634.jpgsave_picture_196634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196634.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:2608D3E45309608CBA7DC097B8F3E1E23AD3040C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196635.jpgsave_picture_196635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196635.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:31D134345C7B392390B3EF828183CB1FF1974F08
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196636.jpgsave_picture_196636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196636.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:1C7F659F7A3FD86AA2DB24261ACBD8173CCADEA3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196638.jpgsave_picture_196638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196638.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ WhatsApp (outdated) 2.2326.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196639.jpgsave_picture_196639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196639.jpg" />
 </div>
 
 

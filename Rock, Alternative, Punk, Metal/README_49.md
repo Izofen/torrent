@@ -6,7 +6,7 @@ No Remorse No Retreat - To Glory We Ride (2008) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61963.jpgsave_picture_61963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61963.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - 10's Rock Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62224.jpgsave_picture_62224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62224.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:EDCEBF925DFFF4EBCD7758A6482ACDE805EE5C6C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62231.jpgsave_picture_62231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62231.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A84DDB3C636375C39C9CAAEF4AC5BFA2233A77BF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62544.jpgsave_picture_62544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62544.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Corey Taylor - Hearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock, Alter
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62545.jpgsave_picture_62545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62545.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Phish - The Spectrum '97 (2024) 6 x CD [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62552.jpgsave_picture_62552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62552.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Enders - Shelter (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62553.jpgsave_picture_62553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62553.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:B65D6CC371946F6C75837619A5471CAB30267D7D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62569.jpgsave_picture_62569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62569.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:A1A5EA3E8694061BB82D1A2B38C2EBE9F9CC71D4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62573.jpgsave_picture_62573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62573.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Hardkiss - 5 Albums + 21 Singles (2014-2024) [FLAC|Lossless|tracks] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62613.jpgsave_picture_62613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62613.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:FA1A17412C118FB62004C655D035F3732696D0EB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62657.jpgsave_picture_62657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62657.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Sepultura - Discography(1986-2009)[APE,FLAC|Lossless] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62729.jpgsave_picture_62729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62729.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Procol Harum - 12 Studio Albums, 1 Live, 17 Compilation (1967 - 2019) 97 CD [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62736.jpgsave_picture_62736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62736.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Gorky Park - Stare (1996) Reissue, 2023,  Moroz Records [FLAC|Lossless|image + .
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62763.jpgsave_picture_62763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62763.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:64F49E2FC2923BC50B77457FDAD50E808BE7081C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62879.jpgsave_picture_62879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62879.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:02B47EEB150F8B29FBB7A4C13A2C99C551D18708
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62882.jpgsave_picture_62882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62882.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Linkin Park - Lost Demos (2023) [MP3|320 Kbps] <Alternative Rock, Rap Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62949.jpgsave_picture_62949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62949.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Amaranthe - 20 Releases (2011-2024) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63082.jpgsave_picture_63082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63082.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Thunder - Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63285.jpgsave_picture_63285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63285.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:F8BAF2F48C64CF2B3AF5F596614B1E13179079D6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63289.jpgsave_picture_63289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63289.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Amaranthe - The Catalyst (2024) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63383.jpgsave_picture_63383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63383.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:1BD79352B61CC9DCE2E4E3B74B391390E1AFE5A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63634.jpgsave_picture_63634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63634.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Nirvana - In Utero (2023) 5 x CD, 30th Anniversary Super Deluxe Edition [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63697.jpgsave_picture_63697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63697.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Alice Cooper - Billion Dollar Babies (50th Anniversary Deluxe Edition) (1973) Re
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63699.jpgsave_picture_63699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63699.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:CED6100A0731A02FEAB39C85708507D3AF56858C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63702.jpgsave_picture_63702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63702.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Rainbow - Down To Earth (1979) Reissue, 2011, 2CD Japan Deluxe Edition, SHM-CD
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63707.jpgsave_picture_63707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63707.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ SAMURAI WARRIORS 4 DX (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54283.jpgsave_picture_54283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54283.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54286.jpgsave_picture_54286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54286.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.0.1/dlc) Repack FitGirl [Ultimate Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54295.jpgsave_picture_54295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54295.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54300.jpgsave_picture_54300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54300.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D3990DE01AFC8560EE7D67C84D5572939B68B5BE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54312.jpgsave_picture_54312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54312.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Tribe Must Survive (2024) [Multi] (1.0.16) Repack FitGirl [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54314.jpgsave_picture_54314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54314.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54315.jpgsave_picture_54315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54315.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mercenary Battle Company: The Reapers (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54316.jpgsave_picture_54316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54316.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Medieval Kingdom Wars (2018) [Ru/Multi] (1.20) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54322.jpgsave_picture_54322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54322.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Call of Duty: Black Ops (2010) [Ru/En] (0.305-05.125430.1/dlc) Repack FitGirl [C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54325.jpgsave_picture_54325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54325.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Comp
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54328.jpgsave_picture_54328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54328.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54329.jpgsave_picture_54329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54329.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0u9/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54332.jpgsave_picture_54332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54332.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Succubus (2021) [Ru/Multi] (14521061/dlc) Repack FitGirl [Ultimate Edition] [18+
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54337.jpgsave_picture_54337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54337.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54366.jpgsave_picture_54366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54366.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Rainbow Cotton (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54375.jpgsave_picture_54375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54375.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ INDUSTRIA (2021) [Ru/Multi] (1.3.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54385.jpgsave_picture_54385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54385.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54408.jpgsave_picture_54408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54408.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Die by the Blade (2024) [Multi] (1.0.2) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54409.jpgsave_picture_54409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54409.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54412.jpgsave_picture_54412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54412.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54416.jpgsave_picture_54416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54416.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Vendir: Plague of Lies (2024) [Ru/Multi] (1.2.101) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54418.jpgsave_picture_54418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54418.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.0.1) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54423.jpgsave_picture_54423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54423.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Crysis: Remastered (2020) [Ru/En] (1.2.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54437.jpgsave_picture_54437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54437.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Titanfall 2 (2016) [Ru/En] (2.0.11.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54438.jpgsave_picture_54438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54438.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0.0.15/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54441.jpgsave_picture_54441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54441.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kanojo mo Kanojo (2023) | Girlfriend, Girlfriend (2023) | Мои девушки 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126135.jpgsave_picture_126135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Сто девуш
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126136.jpgsave_picture_126136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126136.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy, Brad Traversy | PHP From Scratch 2024 | Beginner To Advanced (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126137.jpgsave_picture_126137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126137.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C3082DE51E015D5878D8817D68F2A3C746990B9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126138.jpgsave_picture_126138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126138.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Shadowverse Flame: Seven Shadows Hen | Поэзия теней [ТВ-3] [2023, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126139.jpgsave_picture_126139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126139.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A6B481F0674BA27456354D472E786A4F7BC4707C
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126140.jpgsave_picture_126140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126140.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PIONER будет распространяться по модели Buy-to-play
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126141.jpgsave_picture_126141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126141.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:AABB0DE2E3AAB58856010448D040058FE094AADD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126142.jpgsave_picture_126142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126142.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9755464FBC9A8A05075E425A12E3DFCB5216F552
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126143.jpgsave_picture_126143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126143.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Kamonohashi Ron no Kindan Suiri | Безумные расследования Р
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126144.jpgsave_picture_126144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126144.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Advanced Niagara (2023) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126145.jpgsave_picture_126145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126145.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:5152D8F4338971BACC002694F49D774A665E767B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126146.jpgsave_picture_126146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126146.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:D568E0387320ECC67D3089BBF40E4ECB308609FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126147.jpgsave_picture_126147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126147.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126148.jpgsave_picture_126148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126148.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Podlodka Crew| Python Crew #2. Python для энтепрайза (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126149.jpgsave_picture_126149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126149.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Udemy, Uzochukwu Eddie Odozi | Microservices with NodeJS, React, Typescript and 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126150.jpgsave_picture_126150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126150.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:E3BE6971CCBA465BF1FF4C2120B67CCCCFB0B891
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126151.jpgsave_picture_126151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126151.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Hoshikuzu Telepath / Stardust Telepath / Телепат звёздной пыл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126152.jpgsave_picture_126152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126152.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:CBBB54A30D5798559E49666EB80FFE3DDAEC4CD0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126153.jpgsave_picture_126153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126153.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Alan Wake 2 (2023) [Ru/En] (1.0.14/dlc) Repack Other s [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126154.jpgsave_picture_126154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126154.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:A9F8E65E06E476DB63EB00237DBDC44C026BE594
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126155.jpgsave_picture_126155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126155.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:995305B9BDBDDF37A710C59DFFC8FDA7542257D4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126156.jpgsave_picture_126156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126156.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BA3A6DB85FE0889C4B85125075E85BF223252C0B
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126157.jpgsave_picture_126157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126157.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy 12.2023 1DVD
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126158.jpgsave_picture_126158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126158.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ten Years After - 12 Studio, 5 Live Albums, 10 Compilation, 3 Box Set (1967 - 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126159.jpgsave_picture_126159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126159.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:001A50D993A4C5BCD2B2AB241D3D97F89EECCDE7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126160.jpgsave_picture_126160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126160.jpg" />
 </div>
 
 

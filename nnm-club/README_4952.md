@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154780.jpgsave_picture_154780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154780.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:198BD1DDB10507FDBF89A13E755DD3BE70182CB0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154781.jpgsave_picture_154781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154781.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Learn Squared, Philipp Kruse | Character Illustration (2020) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154782.jpgsave_picture_154782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154782.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sword of the Stars: The Pit (2013) [En] (1.6.2/dlc) License GOG [Osmium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154783.jpgsave_picture_154783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154783.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:85929EEEF2F3CB7B10F7776B9EA06B3F3E1E0FD6
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154784.jpgsave_picture_154784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154784.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:16C7F994A89ADD41260C1EDCFB3F6B13FE2008C4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154785.jpgsave_picture_154785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154785.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Headspace: Руководство по медитации / Headspace Guide to M
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154786.jpgsave_picture_154786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154786.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ CHIP | DVD приложение к журналу CHIP №1 (Январь 2018) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154788.jpgsave_picture_154788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154788.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:DC6C6D51523DB3633A08BEA25949CB5389F863A6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154789.jpgsave_picture_154789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154789.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C0E521ECC914FEDAA39DAE46368932D4B3CE6E83
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154790.jpgsave_picture_154790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154790.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:183FC0B1A323EC61DA2B271B59B72AEA77A3D142
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154791.jpgsave_picture_154791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154791.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:89A77F1B42AAC7451078A2F7EE9F5F97492BB93F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154793.jpgsave_picture_154793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154793.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Markus Schulz - Global DJ Broadcast - World Tour - Best of (2016) [MP3|320 Kbps]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154794.jpgsave_picture_154794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154794.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:DC9CDFA7090DB41C2BDB7BBD9037CCA8781EF9F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154795.jpgsave_picture_154795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154795.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.3) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154796.jpgsave_picture_154796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154796.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:3F09E9089DD3EDC40F4AE0A7424537689574512A
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154797.jpgsave_picture_154797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154797.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ American English Pronunciation Chart | Программа для овладен�
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154798.jpgsave_picture_154798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154798.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:3BC1BC139B69A70C86F86F1021B57C8D7AC5E31C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154799.jpgsave_picture_154799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154799.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:8AD956AB4B85119711E56CC21656A4CC141DE4D0
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154800.jpgsave_picture_154800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154800.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:D473B36BAD40F45348E15DFDC9CCA721B2ECCB9B
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154801.jpgsave_picture_154801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154801.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:9E309ED6C9CAF4290903AD9899D872491B61A070
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154802.jpgsave_picture_154802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154802.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:5115F8616F46C9EA48A10A70945F4DABA96EBB99
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154803.jpgsave_picture_154803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154803.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:5D7FB66037A9B92D23ED19A78E549DB8B6B31895
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154804.jpgsave_picture_154804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154804.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Udemy, Roman Dushkin | Блокчейн и атаки на него (2022) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154805.jpgsave_picture_154805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154805.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Lyn 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154806.jpgsave_picture_154806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154806.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Disco House 2k17 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154807.jpgsave_picture_154807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154807.jpg" />
 </div>
 
 

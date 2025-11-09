@@ -6,7 +6,7 @@ Tesseract - War of Being (2023) [FLAC|Lossless|tracks + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187515.jpgsave_picture_187515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187515.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kill City Kills - Escape Into The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187517.jpgsave_picture_187517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187517.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stygian Fair - Aradia (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187526.jpgsave_picture_187526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187526.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Taine - Chaos and Contemplation (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187532.jpgsave_picture_187532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187532.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sick - Cannibalistic Torment (2012) EP [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187533.jpgsave_picture_187533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187533.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mantric Momentum - Trial by Fire (2022) [Mp3|320 kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187549.jpgsave_picture_187549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187549.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:85409411E3B16059B8269673A6A0F383D0FAB834
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187558.jpgsave_picture_187558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187558.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Shamanic Ritual - 4 Albums (2019-2022) [MP3|320 Kbps] <Doom, Stoner, Sludge Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187570.jpgsave_picture_187570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187570.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Karthago - A Rock Tribute to Mate Peter (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187575.jpgsave_picture_187575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187575.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kamel Toast - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187584.jpgsave_picture_187584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187584.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Killing Spree - Choose and Decide (2004) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187587.jpgsave_picture_187587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187587.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ MOL (MØL) - Diorama (2021-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Post-Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187589.jpgsave_picture_187589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187589.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tyburn Tree - The Site (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187590.jpgsave_picture_187590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187590.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ King Stench - Visions of Death (2009) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187593.jpgsave_picture_187593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187593.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Korrosive - Kaustic Hordes (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187594.jpgsave_picture_187594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187594.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:58A82423EE96298D4F6B2AE899F508D5A37F1422
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187737.jpgsave_picture_187737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187737.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Thirty Seconds to Mars - It’s The End Of The World But It’s A Beautiful Day 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187770.jpgsave_picture_187770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187770.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:947806AA6E910216ABC4468956557D65A2222C62
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187789.jpgsave_picture_187789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187789.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - КОСМОС, Vol. 2 (2022) [MP3|320 Kbps] <Rock, Indie Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187793.jpgsave_picture_187793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187793.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sirenia - 1977 (2023) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187805.jpgsave_picture_187805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187805.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ ShadowStrike - Traveler's Tales (2023) [FLAC|Lossless|WEB-DL|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187806.jpgsave_picture_187806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187806.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Somewhere In Nowhere - Rise of the Lost Souls (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187808.jpgsave_picture_187808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187808.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ M-19 - Sic Semper Tyrannis (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187815.jpgsave_picture_187815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187815.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Witchcraft - V (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Gothic Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187818.jpgsave_picture_187818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187818.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Shedfromthebody - 3 Albums (2020-2022) [MP3|320 Kbps] <Doomgaze, Alternative Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187819.jpgsave_picture_187819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187819.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Joey Grimaldi - Harmonic Distortion (2022) [FLAC|Lossless|WEB-DL|tracks] <Instru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187821.jpgsave_picture_187821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187821.jpg" />
 </div>
 
 

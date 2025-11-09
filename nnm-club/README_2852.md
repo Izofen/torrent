@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83099.jpgsave_picture_83099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83099.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:99CE1644AAB0DED44D416A0E5BACC4670C6B0A4D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83100.jpgsave_picture_83100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83100.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:99CE1644AAB0DED44D416A0E5BACC4670C6B0A4D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83102.jpgsave_picture_83102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83102.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:DEB3E010F61987C6AAD10BA189B63CF62F4008BC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83106.jpgsave_picture_83106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83106.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:0F12E9396C4FD1AF5B383878E0FABC06FF0641EE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83107.jpgsave_picture_83107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83107.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:E984BEB65666B92F1AB673EEABB973F43E8933F2
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83108.jpgsave_picture_83108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83108.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:A8A53E5168A8FCDAAAAE005ED00B12EE827F9DC7
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83109.jpgsave_picture_83109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83109.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:05232813218F0A5FCC2E12D6744482BF9B0CE8D3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83110.jpgsave_picture_83110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83110.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:40292268754A9CB9B0B8ECFB8D2AAE7636F0A701
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83111.jpgsave_picture_83111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83111.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:75F0817BEC5A1AF47A44426494AE510B1FE6993A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83113.jpgsave_picture_83113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83113.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ And Then There Were None / И не осталось никого... (L) [Ru/En] 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83114.jpgsave_picture_83114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83114.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:7C9C0CE83B39D6CE0C683A213FDC9C303767422A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83115.jpgsave_picture_83115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83115.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ RideBack | Райдбэк [2009, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83117.jpgsave_picture_83117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83117.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ WinMate 0.9.15 [Английский, Русский, Шведский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83118.jpgsave_picture_83118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83118.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ WinMate 0.9.15 [Английский, Русский, Шведский]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83123.jpgsave_picture_83123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83123.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:04E60AEA5DDD227674AF02B2F608B0DB03BDBF99
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83127.jpgsave_picture_83127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83127.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83128.jpgsave_picture_83128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83128.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:C3C5992F749E7EC195DB2A206F4B22A1D4CC7328
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83129.jpgsave_picture_83129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83129.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:DFDE722D99003F7F1400CEAADE640A96BE1847EF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83130.jpgsave_picture_83130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83130.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:DFDE722D99003F7F1400CEAADE640A96BE1847EF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83131.jpgsave_picture_83131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83131.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:9FD8D9CACC441BAD29B8F10EC8435115DD57D05D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83132.jpgsave_picture_83132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83132.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Windows 7x86 Ultimate UralSOFT v.3.5.12 (2012) (Rus)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83133.jpgsave_picture_83133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83133.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Windows 7x86 Ultimate UralSOFT v.3.5.12 (2012) (Rus)
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83134.jpgsave_picture_83134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83134.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:0D0DA48BE86E50771B552CB1983B82B2103F04A0
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83137.jpgsave_picture_83137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83137.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:B093BF689433304D3AA3A43A27119E1D6C6EF001
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83139.jpgsave_picture_83139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83139.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Artaliance | Кайдзен. Управление производством. У
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83140.jpgsave_picture_83140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83140.jpg" />
 </div>
 
 

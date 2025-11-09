@@ -6,7 +6,7 @@ Download Master 6.19.4.1649 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144544.jpgsave_picture_144544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144544.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Bass Killer 16 (2018) [MP3|320 Kbps] <Dubstep, Trap, Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144546.jpgsave_picture_144546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144546.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:47443621386C696E3D8C27172C9F113DE94D0D2D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144547.jpgsave_picture_144547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144547.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144548.jpgsave_picture_144548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144548.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144549.jpgsave_picture_144549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144549.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B0C95DEDE0A88953F0419295561860A9908DF6FD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144551.jpgsave_picture_144551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144551.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ John Roush - The Cry of the City (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144552.jpgsave_picture_144552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144552.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:DC41E8D251B5D93A99D6005AE03975920CCAD084
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144553.jpgsave_picture_144553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144553.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:11531FE4AAB97E4947C39E7600EC2BE421EA6BC8
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144554.jpgsave_picture_144554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144554.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mozilla Thunderbird 60.4.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144555.jpgsave_picture_144555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144555.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:26BEE27574C0B5FE11F88B0F8C21803397573BCE
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144556.jpgsave_picture_144556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144556.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:739DB69E850C56ECFB746CD39F79FC05F5FFC248
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144557.jpgsave_picture_144557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144557.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:96C76F7172B90EE9102A4A6F1035D5CFAF6EE225
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144558.jpgsave_picture_144558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144558.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:73FEF7D5FEDE4CD9D367EA60C565D0D5079D8E78
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144559.jpgsave_picture_144559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144559.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Stardown - 3 Альбома + 2 Компиляции (2007-2019) [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144561.jpgsave_picture_144561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144561.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:F4C910DD1F5E913844AB2EDC2C5C51C4C1EB02C2
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144562.jpgsave_picture_144562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144562.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:BAA1028789DD4354F977094D03E0631010747FED
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144563.jpgsave_picture_144563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144563.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:4F774F2A84412FA8B68D530B557AAA6825654BC3
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144566.jpgsave_picture_144566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144566.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Christmas Spirit 3: Grimm Tales / Дух Рождества 3: Сказки 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144567.jpgsave_picture_144567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144567.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ iHeartRadio 1.0.7 (2016031401) [MAS] [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144568.jpgsave_picture_144568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144568.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:425A16E13ED7BB3723F528A451413908813EF089
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144569.jpgsave_picture_144569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144569.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:22F42956374116AC04BDBEB093F8FD8DB94350C4
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144570.jpgsave_picture_144570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144570.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:93DCE25C56A8C9AE79C3512507851EF246F2616C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144571.jpgsave_picture_144571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144571.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ C.C. Catch - MusicBox (2003) [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144573.jpgsave_picture_144573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144573.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:C0140FB06BFF9F606AF6261F077306EC3FEE7470
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144574.jpgsave_picture_144574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144574.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Andy Lindquist - Heartbreak Inc (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144575.jpgsave_picture_144575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144575.jpg" />
 </div>
 
 

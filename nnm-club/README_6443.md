@@ -6,7 +6,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 18.12.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204210.jpgsave_picture_204210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204210.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:07ACE54C096774B4D6ED9A48B4F4EA305B9885F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204211.jpgsave_picture_204211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204211.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Noveria - The Gates Of The Underworld (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204213.jpgsave_picture_204213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204213.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BFB2F55BE7A5493B5CB2213AC35A84583A814BA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204214.jpgsave_picture_204214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204214.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Batch Photo Resizer 3.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204215.jpgsave_picture_204215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204215.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ MAGIX Vegas Pro 20.0 Build 214 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204216.jpgsave_picture_204216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204216.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ a Giant Dog - Bite (2023) [FLAC|Lossless|WEB-DL|tracks] <glam-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204217.jpgsave_picture_204217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204217.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:28E590AF829D6CBCBA698349EB0D022AF4E5FE71
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204218.jpgsave_picture_204218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204218.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Veritas - Silent Script (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204219.jpgsave_picture_204219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204219.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:017C5D103D6216CAF47654CAEC525B45E5878F45
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204220.jpgsave_picture_204220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204220.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Il Bacio della Medusa - Imilla (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204221.jpgsave_picture_204221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204221.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Serpent Bite - Army of Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204222.jpgsave_picture_204222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204222.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Reg Organizer 9.10 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204223.jpgsave_picture_204223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204223.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Dash 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204225.jpgsave_picture_204225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204225.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Audio Editor - Merge Split And Edit 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204226.jpgsave_picture_204226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204226.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:C33E8B89AEF3EB4DAA13FF1226C901E80556E0C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204227.jpgsave_picture_204227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204227.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:CF57C64DB3870E3CF8E5BA3BBF67BC4AE6CFFC2B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204228.jpgsave_picture_204228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204228.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Default Folder X 6.0 b3 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204229.jpgsave_picture_204229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204229.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Kaspersky Tweak Assistant 23.1.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204230.jpgsave_picture_204230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204230.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Scent of Death - Into Everlasting Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204231.jpgsave_picture_204231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204231.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:BC4BA20277B0966C6EC5CCE7A017636D7B77F9A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204232.jpgsave_picture_204232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204232.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Serpent Corpse - Blood Sabbath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204233.jpgsave_picture_204233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204233.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:4EBD1565B0C87157B9597DAAEBCD0F67D77A0EDE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204234.jpgsave_picture_204234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204234.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Heirloom - Romanticize (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204235.jpgsave_picture_204235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204235.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Keep It 2.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204236.jpgsave_picture_204236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204236.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ PotPlayer 221215 (1.7.21862) (x64) Stable RePack (& portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204237.jpgsave_picture_204237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204237.jpg" />
 </div>
 
 

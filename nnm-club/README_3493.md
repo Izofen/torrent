@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111179.jpgsave_picture_111179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111179.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B1934722EA483C60B98134DEAEF218D5FA63DB96
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111180.jpgsave_picture_111180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111180.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A1057FC8928DFEB97A25B14564079328676CD192
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111181.jpgsave_picture_111181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111181.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B2103751E12C3C6A33AFE02C405F548551525D84
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111182.jpgsave_picture_111182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111182.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Nocturna - Of Sorcery And Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111183.jpgsave_picture_111183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111183.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:33EF5E809F555D7868349597F9C7481E03ED2535
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111184.jpgsave_picture_111184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111184.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:B97204FAF3CE1D3639B979B0792F75D103E7D56D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111185.jpgsave_picture_111185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111185.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Katarina Pejak - Pearls on a String (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111186.jpgsave_picture_111186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111186.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:6D60BEE5483988D1610DCC457145807942DBFBA5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111187.jpgsave_picture_111187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111187.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:F1143F9F12BAA533D2A5604971DD19A3F8466963
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111188.jpgsave_picture_111188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111188.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:A2EC350506454F1942E921AD90C326294ED72072
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111189.jpgsave_picture_111189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111189.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:498B6C5758BD4D8E671C7DB88EACB3261E4C2F9E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111190.jpgsave_picture_111190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111190.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:AB6B0AAF32E1A3AE43DF3E801568B52A897EC3C5
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111191.jpgsave_picture_111191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111191.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:E0838EF356ED3EA3C04D0FC314673A927A2743B2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111192.jpgsave_picture_111192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111192.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Praying Mantis - Studio Albums (14 releases) (1981-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111193.jpgsave_picture_111193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111193.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Lil' Guardsman (2024) [Multi] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111194.jpgsave_picture_111194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111194.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:ADF5C1ED7BE50081A9B5EA56898A8909A78295C9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111195.jpgsave_picture_111195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111195.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fort Firewall 3.12.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111196.jpgsave_picture_111196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111196.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:3D996C95AD4189FDA11076633762F1DA8FB22B10
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111197.jpgsave_picture_111197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111197.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Audio - Where The Chaos Lies (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111198.jpgsave_picture_111198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111198.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:DB0357EDBAD19B478B85A15B3C812A3760297E4F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111199.jpgsave_picture_111199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111199.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Deviated Instinct - Welcome To The Orgy (2006) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111200.jpgsave_picture_111200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111200.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Phases of the Moon Pro / Фазы Луны v7.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111201.jpgsave_picture_111201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111201.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.5.32 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111202.jpgsave_picture_111202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111202.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:E47344FC4E299B088A55C84E3815716A633F2076
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111203.jpgsave_picture_111203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111203.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Icecream Screen Recorder Pro 7.40 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111204.jpgsave_picture_111204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111204.jpg" />
 </div>
 
 

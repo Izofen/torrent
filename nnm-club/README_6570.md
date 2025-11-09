@@ -6,7 +6,7 @@ Adobe Lightroom - Фоторедактор 8.4.1 Mod by Balatan, Mixroot, frost_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210135.jpgsave_picture_210135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A0BEFC0C67D01A063966FF6FDE3608FE9FD4CC0A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210137.jpgsave_picture_210137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210137.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:29D76CAA1B913C08D18797D9658A572F3B18D2C6
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210143.jpgsave_picture_210143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210143.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Easy Voice Recorder - Pro / Простой диктофон - Про 2.8.5 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210146.jpgsave_picture_210146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210146.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EB5E4E95A341E0246FDBFFFF2FDB97852F2C7B47
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210147.jpgsave_picture_210147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210147.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TreeSize Professional 9.0.1.1830 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210149.jpgsave_picture_210149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210149.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Master PDF Editor 5.9.50 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210152.jpgsave_picture_210152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210152.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ NetLimiter 5.2.8.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210153.jpgsave_picture_210153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210153.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A88342BC608DDB9DCF72EFE521F1D4C9FE109BC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210158.jpgsave_picture_210158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210158.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E773E325CD06AD78F11E1F7F6C40C569E0120DD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210161.jpgsave_picture_210161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210161.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:A967F972ADC924BA08BD35F823E6D8A568A61699
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210164.jpgsave_picture_210164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210164.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:32CF070C0CA46BB2B52DE1DCFE24362891ED5D79
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210165.jpgsave_picture_210165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210165.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:4B6AB9324D9AA35203003A15662126B596F1FCF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210166.jpgsave_picture_210166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210166.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:51FC29CB3C301C3394CC9618691104F4ADD3C308
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210169.jpgsave_picture_210169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210169.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:BC47BBA834029919872963DEC6DD6E6D1F49972B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210172.jpgsave_picture_210172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210172.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Topaz Video AI 3.3.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210173.jpgsave_picture_210173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210173.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F50C1750A3F398030187045E7B31F43E915DFC44
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210176.jpgsave_picture_210176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210176.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ The Hu - Rumble of Thunder (Deluxe) (2023) [FLAC|Lossless|WEB-DL|tracks] <Mongol
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210177.jpgsave_picture_210177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210177.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Uninstall Tool 3.7.2 Build 5703 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210180.jpgsave_picture_210180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210180.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:6DB15A82B26D470020F3CF81D4E9F354D7FC8FB8
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210181.jpgsave_picture_210181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210181.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ iStat Menus 6 v.6.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210184.jpgsave_picture_210184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210184.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:43AF678CE77A3942B45D5A9148F7B135B1F3C8FB
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210187.jpgsave_picture_210187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210187.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ PixeLeap - Улучшение фотографий 1.0.9.3 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210189.jpgsave_picture_210189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210189.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:846C41933981816B1FD802F1407D6D05EFF78C35
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210193.jpgsave_picture_210193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210193.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210195.jpgsave_picture_210195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210195.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:4B90539EEF6F59DBF676D3AE195625141CFF639F
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210196.jpgsave_picture_210196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210196.jpg" />
 </div>
 
 

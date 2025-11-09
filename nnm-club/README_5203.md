@@ -6,7 +6,7 @@ Schoolism, Djamila Knopf | Story-Driven Illustrations (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162030.jpgsave_picture_162030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162030.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EFEE0D121720BCF42633EF73E37B539D66B35552
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162031.jpgsave_picture_162031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162031.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4571DC613C2061B58D483788D1C479E71700F146
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162032.jpgsave_picture_162032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162032.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ PhoneRescue for Android 3.8.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162033.jpgsave_picture_162033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162033.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7C08BE2B2013DB200972BAFE680D02B24406763A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162034.jpgsave_picture_162034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162034.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Magnet 2.13.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162035.jpgsave_picture_162035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162035.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:ADE878D56AA7E719C6682AA01285A6B0430568BA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162036.jpgsave_picture_162036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162036.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Schoolism, Jason Seiler | Realistic Portraits (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162037.jpgsave_picture_162037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162037.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:9EE5ACF39A08C4BC8486DB8986A26AF4DCCAF1EC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162038.jpgsave_picture_162038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162038.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:0533364B25A8607F7B4B7CD1572465043F9883C4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162039.jpgsave_picture_162039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162039.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ TrayStatus Pro 4.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162040.jpgsave_picture_162040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162040.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Black Hammer Voodoo - The Year of the Rat (2021) [MP3|320 Kbps] <Blues Rock, Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162041.jpgsave_picture_162041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162041.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ The Veer Union - Manifestations (2022) Deluxe edition [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162042.jpgsave_picture_162042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162042.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:7460153399C6C2AC3DEF46BAD503C3900497FA57
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162043.jpgsave_picture_162043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162043.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Schoolism, Jonathan Hardesty | Essentials of Realism (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162044.jpgsave_picture_162044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162044.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ryan Neville and The Midnight Blues Band - Fire on the Tracks (2020) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162045.jpgsave_picture_162045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162045.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:F484EB3857226B3BC9191FF014C884BA72AD4880
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162046.jpgsave_picture_162046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162046.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:6F0FF67F8C8DA8B7A241D38DDC57C76C9040C45D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162047.jpgsave_picture_162047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162047.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:47CCD16B877D22738314C3921B76ABC2E1916987
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162048.jpgsave_picture_162048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162048.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ FoneLab Video Converter Ultimate 9.2.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162049.jpgsave_picture_162049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162049.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:9EDC15838DF497AC4145C549E808E59F7668BA9B
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162050.jpgsave_picture_162050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162050.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ AirFoil+Airfoil Satellite 5.11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162051.jpgsave_picture_162051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162051.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:8B58F7DE0124168447BACF0884AAFDD301BD928C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162052.jpgsave_picture_162052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162052.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:EA9F27E7C75F6B59FE34CE86FCA97134010D7B08
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162053.jpgsave_picture_162053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162053.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Новогодняя шансонная-20...06 (2005) [FLAC|Lossless|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162054.jpgsave_picture_162054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162054.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ KkartSchool, Карина Кино | Создание книги (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162055.jpgsave_picture_162055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162055.jpg" />
 </div>
 
 

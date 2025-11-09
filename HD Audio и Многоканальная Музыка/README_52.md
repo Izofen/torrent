@@ -6,7 +6,7 @@ Split Chain - motionblur (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu-Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64998.jpgsave_picture_64998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64998.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Iain Hornal - Return To The Magic Kingdom (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65014.jpgsave_picture_65014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65014.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alex G - Headlights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & In
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65015.jpgsave_picture_65015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65015.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eric Essix - My Heartbeat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65016.jpgsave_picture_65016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65016.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Fred and the Healers - No Escape (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65017.jpgsave_picture_65017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65017.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Evan Arview - Deeper Still (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65021.jpgsave_picture_65021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65021.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Huckleberry - Lets Get Drunk And Huck (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65022.jpgsave_picture_65022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65022.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jawbone - Jawbone II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65023.jpgsave_picture_65023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65023.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Christophe Deschamps, Philippe Almosnino - Go Cats Go Rockabilly (2025) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65028.jpgsave_picture_65028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65028.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65031.jpgsave_picture_65031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65031.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65035.jpgsave_picture_65035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65035.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Harry Newcock - My Unexamined Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65038.jpgsave_picture_65038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65038.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Gazzara - Criminal Sounds (A Musical Journey Into 1960_70s Cop and Spy Movies) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65039.jpgsave_picture_65039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65039.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Harem Scarem - Chasing Euphoria (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65040.jpgsave_picture_65040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65040.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Galactic & Irma Thomas - Audience With the Queen (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65041.jpgsave_picture_65041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65041.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Florian Grey - Beautiful Nightmares (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65042.jpgsave_picture_65042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65042.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dwellers - Corrupt Translation Machine (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65044.jpgsave_picture_65044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65044.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Aswekeepsearching - kyun? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65086.jpgsave_picture_65086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65086.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:9C747FCABAB61F9FBA6D6246DB5D9FD1DE75927B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65088.jpgsave_picture_65088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65088.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Magneton - Jo Fiu Leszek [Magneton 2] (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65089.jpgsave_picture_65089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65089.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65091.jpgsave_picture_65091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65091.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Black Zodiac - The Tyrant (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65095.jpgsave_picture_65095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65095.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:ED0F43CB654428957A531F0B976D1B432A568AEA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65097.jpgsave_picture_65097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65097.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Tomas Jo´ Group - Be A Little Kind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65098.jpgsave_picture_65098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65098.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Sweet Talk - Switch On (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Countr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65102.jpgsave_picture_65102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65102.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Phil Pilorz and Sarah Ayers - Apocalypse Road (2025) [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65103.jpgsave_picture_65103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65103.jpg" />
 </div>
 
 

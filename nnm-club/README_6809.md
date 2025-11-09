@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234201.jpgsave_picture_234201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234201.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Levith - Around the Impulse (2023) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234202.jpgsave_picture_234202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234202.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F1ACE94F5D874D73CA639CF57AA4D47159528EE2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234203.jpgsave_picture_234203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234203.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ A Better Finder Rename 11 v11.47 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234204.jpgsave_picture_234204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234204.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:F3D2CAF25C0AAB8A3D6F7E2F2B9968C9891232F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234205.jpgsave_picture_234205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234205.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:AECEE9DAFB32C616B3E08DFEC48F1A20A7200476
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234206.jpgsave_picture_234206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234206.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Electronic Clouds, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234207.jpgsave_picture_234207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234207.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ File List Export 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234208.jpgsave_picture_234208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234208.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Jag Panzer - The Hallowed (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234209.jpgsave_picture_234209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234209.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ GeoGebra 6.0.778.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234210.jpgsave_picture_234210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234210.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Death - Symbolic (1995) Canadian Edition [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234211.jpgsave_picture_234211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234211.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:5C41A70F956484689EC60D9FF2ED8E822C25D46A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234212.jpgsave_picture_234212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234212.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:58DD5EDA2618A8C1DFB1B7D0C2DCD880D11E0C44
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234213.jpgsave_picture_234213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234213.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:92E1CD6602580B1D4F94676AB0627B8368490A89
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234214.jpgsave_picture_234214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234214.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 1 (2021) [AAC|~332 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234215.jpgsave_picture_234215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234215.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ FinalShot 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234216.jpgsave_picture_234216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234216.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Wynton Marsalis - Uptown Ruler: Soul Gestures in Southern Blue, Vol. 2 (1991) Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234217.jpgsave_picture_234217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234217.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:B64E65042784F8566A89A633B1BF07FCCF0187AC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234218.jpgsave_picture_234218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234218.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Reptilian War Machine - Merciless Addiction (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234219.jpgsave_picture_234219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234219.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ The Lord of the Rings: The Battle for Middle-Earth II (2006) [+1DLC] [Ru] [macOS
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234220.jpgsave_picture_234220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234220.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:53BAA9E1E2A8A5BE6AE5E85AAB77CA086311ADC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234221.jpgsave_picture_234221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234221.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:8BB377F1351A4951A4F13C598314A688D81A312A
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234222.jpgsave_picture_234222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234222.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Integrity Plus 12.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234223.jpgsave_picture_234223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234223.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Johnny Sansone - Into Your Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234224.jpgsave_picture_234224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234224.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D4C51A21E7E4E8367D4D9FC7938FC7ED36FF56B9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234225.jpgsave_picture_234225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234225.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Magic Sort List 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234226.jpgsave_picture_234226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234226.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ UctoX 2 v2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163814.jpgsave_picture_163814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163814.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:F280109487D57591DE4985E1D4F525DC12280AB4
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163815.jpgsave_picture_163815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163815.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DoYourData AppUninser Pro 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163816.jpgsave_picture_163816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163816.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Multi Commander Full Edition 10.2 Build 2745 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163817.jpgsave_picture_163817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163817.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163818.jpgsave_picture_163818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163818.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:6C1A8E13DCB50F884A050C18F2A458B4C9E623C2
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163819.jpgsave_picture_163819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163819.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5F3671EF13F9D4071903DABBBE4BCAD547BF2E20
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163820.jpgsave_picture_163820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163820.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:1E9879FEFEA1E0E45EB617AD9A6DEE119EF6E66D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163821.jpgsave_picture_163821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163821.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Pop Team Epic (2022) | Попсовый эпос [ТВ-2] [2022, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163822.jpgsave_picture_163822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163822.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:14D5B890DAA0710048CFB6B3E782EE69A152528E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163823.jpgsave_picture_163823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163823.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ File List Export 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163824.jpgsave_picture_163824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163824.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Calendar 366 II v2.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163825.jpgsave_picture_163825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163825.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ DoYourData File Eraser Pro 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163826.jpgsave_picture_163826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163826.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C76BE5D5DCF3CD120CD43C181FA48116844A8BA1
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163827.jpgsave_picture_163827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163827.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163828.jpgsave_picture_163828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163828.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163829.jpgsave_picture_163829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163829.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E181B3169EFACFEF8A5F5242C82AB32C4CE41615
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163830.jpgsave_picture_163830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163830.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ DuplicateViewer Pro 3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163831.jpgsave_picture_163831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163831.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:DF720005C11491D1A02C4B1F608037B737DCDE39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163832.jpgsave_picture_163832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163832.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:B7599C3358160588478485E1946920DEFF4CE588
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163833.jpgsave_picture_163833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163833.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:D46307A418063BF7FD6BFFF006AEAB18447D5293
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163834.jpgsave_picture_163834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163834.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:C63D63790456743E684048853DB6712BB88581CE
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163835.jpgsave_picture_163835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163835.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:16058BA5CFE6B61E53F2B69E16E32D72C8AD1173
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163836.jpgsave_picture_163836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163836.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163837.jpgsave_picture_163837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163837.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ MyDraw 5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163838.jpgsave_picture_163838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163838.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Koan - Esbat: Exilio (2019) [MP3|320 Kbps] <Electronic, Downtempo, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163839.jpgsave_picture_163839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163839.jpg" />
 </div>
 
 

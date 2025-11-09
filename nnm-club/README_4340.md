@@ -6,7 +6,7 @@ Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134921.jpgsave_picture_134921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134921.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wallpapers Sexy Girls (23.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134922.jpgsave_picture_134922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134922.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Swish 1.10.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134923.jpgsave_picture_134923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134923.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Computer Desktop Wallpapers Collection (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134924.jpgsave_picture_134924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134924.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134925.jpgsave_picture_134925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134925.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ PhotoRoom 4.7.5 (1174) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134926.jpgsave_picture_134926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134926.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Lyn 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134927.jpgsave_picture_134927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134927.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Keep It Trance Vol. 16 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134928.jpgsave_picture_134928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134928.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ PhotoDirector - Редактор фото 18.7.5 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134929.jpgsave_picture_134929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134929.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Infrasonic: The Best Of 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134930.jpgsave_picture_134930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134930.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:42DC9E556369B319E4A779783DAF4DE37D2CA471
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134931.jpgsave_picture_134931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134931.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Nature Wallpapers (24.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134932.jpgsave_picture_134932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134932.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Keep It Trance Vol. 17 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134933.jpgsave_picture_134933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134933.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:A377E7A03CAC408A232FC70988BCF5B37FA6C515
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134935.jpgsave_picture_134935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134935.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:6340E55D8062A70AD44AA208EDCBD25956BB20CC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134938.jpgsave_picture_134938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134938.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Interior Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134939.jpgsave_picture_134939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134939.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Macro Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134941.jpgsave_picture_134941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134941.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Wallpapers Sexy Girls (22.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134942.jpgsave_picture_134942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134942.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134943.jpgsave_picture_134943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134943.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ PhotoDirector - Редактор фото 18.7.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134945.jpgsave_picture_134945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134945.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:B5FAE0284FB976605195B7D8BB64B25F0A814B5E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134946.jpgsave_picture_134946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134946.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Nature Wallpapers (22.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134948.jpgsave_picture_134948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134948.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Enigmatic Entrance - Becoming Daylight (2021) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134949.jpgsave_picture_134949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134949.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134951.jpgsave_picture_134951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134951.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ MotoGP. Этап 20. Гран-при Валенсии. Гонка (26.11.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134953.jpgsave_picture_134953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134953.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Sexy Girls Wallpapers (24.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134954.jpgsave_picture_134954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134954.jpg" />
 </div>
 
 

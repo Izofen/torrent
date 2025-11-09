@@ -6,7 +6,7 @@ Alix Combelle - The Swinging Mister Alix (2000) [MP3|320 кб/с]<Saxophone Jazz
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99204.jpgsave_picture_99204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99204.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:F1FDE0215A5A16211659AD4D38269E5F64DD24D5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99212.jpgsave_picture_99212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99212.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - 90's PartyMix (2009) [MP3|256 кб/с]<eurodance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99215.jpgsave_picture_99215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99215.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Black Box - Dreamland (1990) [APE|Lossless]<Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99223.jpgsave_picture_99223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99223.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:80CA9BC7EADCD91128BF782FFBB8784ADA26E9A4
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99230.jpgsave_picture_99230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99230.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:A5559EB02784EC440EADED53435DEAA0BAB8BE82
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99233.jpgsave_picture_99233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99233.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:D490F287C7B0B2A40D01B5E18A9557E778B30CAC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99234.jpgsave_picture_99234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99234.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:73EF3F74FC638BA6761C9305FAC4275D5B1F073F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99236.jpgsave_picture_99236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99236.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Marica Hiraga with Manhattan Jazz Quintet - Close to Bacharach (2008) [MP3|320 �
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99242.jpgsave_picture_99242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99242.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:003744F62434AAFE62C9D9ED7DE4A66E38DF620D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99243.jpgsave_picture_99243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99243.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99244.jpgsave_picture_99244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99244.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99254.jpgsave_picture_99254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99254.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Sunny Crimea & Physical Illusion - Soulful Nights LP (2012) [MP3|320 кб/с]<Dr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99255.jpgsave_picture_99255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99255.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99256.jpgsave_picture_99256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99256.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:47B2CA35806D19C41B39E92BB5A4D98A3F2A676C
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99257.jpgsave_picture_99257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99257.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #81 (10.04.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99269.jpgsave_picture_99269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99269.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99270.jpgsave_picture_99270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99270.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Хиты на радио клубнячек и попса vol.3 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99274.jpgsave_picture_99274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99274.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:DE9011DDB762F9325AF8FA35383F3512BF9D70CB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99275.jpgsave_picture_99275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99275.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Хиты на радио клубнячек и попса vol.4 (2012) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99276.jpgsave_picture_99276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99276.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:96FC54D4FA477278E80AF18CD46A69DF3F264271
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99277.jpgsave_picture_99277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99277.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:3F316618C859C78AE6D55E4B5FD2BBC9E35131DC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99278.jpgsave_picture_99278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99278.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:3D468344EAB640FDD4C905B8E3C236F533212055
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99279.jpgsave_picture_99279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99279.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:11529345C6B18FCB6ADDCD00AD3A8678EC355A0B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99280.jpgsave_picture_99280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99280.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Звездный клубный драйв (2012) [MP3|160-256 кб/с]<Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99281.jpgsave_picture_99281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99281.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Various Artists - Tranceffect 9 (2011) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99284.jpgsave_picture_99284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99284.jpg" />
 </div>
 
 

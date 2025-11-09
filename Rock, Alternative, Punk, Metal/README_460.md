@@ -6,7 +6,7 @@ Scorpions - Wind Of Change (The Collection) (2013) [FLAC|Lossless|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242088.jpgsave_picture_242088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242088.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Altar Of I - Human Resources (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242090.jpgsave_picture_242090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242090.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tang - Big Bright Empty Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Doo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242099.jpgsave_picture_242099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242099.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Venom Inc. - There's Only Black (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242101.jpgsave_picture_242101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242101.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Biopsyhoz (Биопсихоз) - Перерождение (2021) [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242107.jpgsave_picture_242107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242107.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ PeroPero - Massive Tales of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Gar
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242110.jpgsave_picture_242110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242110.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Feodoq - Смесь (Live) (2023) [MP3|320 Kbps] <techno-post-punk, jam>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242118.jpgsave_picture_242118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242118.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blak29 - The Waiting (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242126.jpgsave_picture_242126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242126.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mark Baker - The Future Still Ain't What It Used To Be (2019) 2xCD, Reissue, Rem
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242127.jpgsave_picture_242127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242127.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Infinite & Divine - Ascendancy (2023) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242144.jpgsave_picture_242144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242144.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cause N Effect - Validation Through Suffering (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242145.jpgsave_picture_242145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242145.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ August Burns Red - Guardians (2020) [MP3|320 Kbps] <Progressive Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242153.jpgsave_picture_242153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242153.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2B5AD6B35E182595F5EAA1B8A2555C6956FF0937
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242160.jpgsave_picture_242160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242160.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Twilight - Sign of the Times (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242162.jpgsave_picture_242162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242162.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Medevil - Mirror In The Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242166.jpgsave_picture_242166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242166.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:86FA902D2476E409E21ADE8D5A2AB3F4499222B2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242169.jpgsave_picture_242169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242169.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Dust Coda - Mojo Skyline (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242174.jpgsave_picture_242174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242174.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ August Burns Red - Guardians (2020) [FLAC|Lossless|tracks] <Progressive Metalcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242175.jpgsave_picture_242175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242175.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:956B731C5844D797198FB9DECD15F49BD8D3A98B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242183.jpgsave_picture_242183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242183.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Nightrage - Insidious (2011) Japan [FLAC|Lossless|image + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242185.jpgsave_picture_242185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242185.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - The Rock Collection - Rock Dreams (1992) 2CD Compilation [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242187.jpgsave_picture_242187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242187.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Razorbats - Hit Crazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242192.jpgsave_picture_242192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242192.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Palace - Reject the System (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242195.jpgsave_picture_242195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242195.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ocean Of Grief - Pale Existence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242200.jpgsave_picture_242200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242200.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ghostblade - Machine Made God (2023) [FLAC|Lossless|WEB-DL|tracks] <Metallic Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242207.jpgsave_picture_242207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242207.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Van Stephenson - China Girl (1981) Deluxe Edition, 2023, MelodicRock Classics [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242209.jpgsave_picture_242209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242209.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Dymytry - Five Angry Men (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120633.jpgsave_picture_120633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120633.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ China - China (1988) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120635.jpgsave_picture_120635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120635.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120636.jpgsave_picture_120636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120636.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:2195E0732AB918973E431FE9837A29A5808507F3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120666.jpgsave_picture_120666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120666.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Second Shooter - Fury Made Flesh (2024) [MP3|320 Kbps] <Groove Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120670.jpgsave_picture_120670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120670.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:B2BB2055DE03EE4C8121AAAF5CB1098CD65AFD2F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120703.jpgsave_picture_120703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120703.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Any Given Day - Limitless (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120760.jpgsave_picture_120760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120760.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hiraes - Dormant (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120761.jpgsave_picture_120761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120761.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mosh-Pit Justice - Mosh-Pit Justice (2013) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120763.jpgsave_picture_120763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120763.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nubian Rose - Amen (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120765.jpgsave_picture_120765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120765.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Any Given Day - Limitless (2024) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120766.jpgsave_picture_120766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120766.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Robert Hart - Circus Life (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120768.jpgsave_picture_120768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120768.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Rods - Rattle The Cage (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120771.jpgsave_picture_120771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120771.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Faith Circus - Bum In The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120772.jpgsave_picture_120772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120772.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Manticora - Mycelium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120774.jpgsave_picture_120774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120774.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blood Red Throne - Nonagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120777.jpgsave_picture_120777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120777.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sojourner - Premonitions (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120783.jpgsave_picture_120783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120783.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [MP3|320 Kbps] <Nu-Metal, Industr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120785.jpgsave_picture_120785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120785.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Gems (ex-Thundermother) - Phoenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120793.jpgsave_picture_120793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120793.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Byron - Chapter II: The Lotus Covenant (2024) [MP3|320 Kbps] <classic melodic me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120800.jpgsave_picture_120800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120800.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [MP3|320 Kbps] <Mel
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120818.jpgsave_picture_120818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120818.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:4971D1B7082D18BBA821DAA734FDA8CE871A1F99
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120877.jpgsave_picture_120877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120877.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Banev! - Синдром разбитого сердца (2024) [FLAC|Lossless|WE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120924.jpgsave_picture_120924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120924.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Sexual Perverts - 2 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120925.jpgsave_picture_120925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120925.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Morkt Stof - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120931.jpgsave_picture_120931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120931.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Cognizance - Phantazein (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120935.jpgsave_picture_120935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120935.jpg" />
 </div>
 
 

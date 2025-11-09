@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169420.jpgsave_picture_169420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169420.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E7DC05DEB4878E410EF6FC97C53498E79D299CB7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169421.jpgsave_picture_169421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169421.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bazaart: Photo Editor & Graphic Design v2.2.9 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169422.jpgsave_picture_169422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169422.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:43DCA880919A9E806CEF30C929D5B2579CB50BDC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169423.jpgsave_picture_169423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169423.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A7D500A3D1FF9BA141D09EF26AFBA0B119A81A2C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169424.jpgsave_picture_169424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169424.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4E2DAF018DE5E3D187C4967A60F6F6D558E7FF05
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169425.jpgsave_picture_169425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169425.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ WinRAR 5.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169426.jpgsave_picture_169426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169426.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E923AE0B013B9ACD3EF304FF05968D2F395AE7DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169427.jpgsave_picture_169427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169427.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:680082B597B18A46C36358A299A9199CC2418A87
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169428.jpgsave_picture_169428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169428.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rainbow Train - Accompanied By (1978) LP [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169430.jpgsave_picture_169430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169430.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:D7880B704DACF44BA9C52DBCB8D127B7A1E62A97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169431.jpgsave_picture_169431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169431.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:1AC0EEF0D40CEF899C6760C5354556BE941CBE1B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169432.jpgsave_picture_169432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169432.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Dr. J. B. Blues - Multiplicity (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169433.jpgsave_picture_169433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169433.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:EE6CBEB0D62BF4A25A41C5FAA9E74BC2E925EAB4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169434.jpgsave_picture_169434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169434.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Asper X - Для тех, кто молчит (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169435.jpgsave_picture_169435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169435.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MacX DVD Ripper Pro 6.6.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169436.jpgsave_picture_169436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169436.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ IXION (2022) [Ru/Multi] (1.0.0.3) Repack DjDI [Deluxe Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169437.jpgsave_picture_169437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169437.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Psiphon 3 bild 151 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169438.jpgsave_picture_169438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169438.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Togges (2022) [Ru/Multi] (1.03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169439.jpgsave_picture_169439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169439.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:396E6B86924A53DC524B3DCA6E20657752CC9581
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169440.jpgsave_picture_169440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169440.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Air Printer - Printer Server Pro for Mac 5.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169441.jpgsave_picture_169441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169441.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Sagath - Изгой (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169442.jpgsave_picture_169442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169442.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:74A6043F5972E7AF63E226374E1E4CF6EF5CDC3F
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169443.jpgsave_picture_169443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169443.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:4C06075F21A235AD5CB1B792C9BE1D243597CC54
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169444.jpgsave_picture_169444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169444.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:36FC9D8B178115BCBE62B8C7349267AFF52E5ADE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169445.jpgsave_picture_169445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169445.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Groovy Blues & Jazz Mix (Male Singer-Songwriters Vol. 1) (2023) [FLAC|Lossl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169446.jpgsave_picture_169446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169446.jpg" />
 </div>
 
 

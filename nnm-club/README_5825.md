@@ -6,7 +6,7 @@ Process Lasso Pro 12.0.1.6 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182419.jpgsave_picture_182419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182419.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2AEE97BE5EA45796DEDBCF7FBB1B0649B122952C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182421.jpgsave_picture_182421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182421.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Steven Wilson - The Harmony Codex (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182423.jpgsave_picture_182423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182423.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Jelusick - Follow The Blind Man (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182425.jpgsave_picture_182425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182425.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:000FEC67ECCC75B3D7035EAA3EB9A39FF96483E1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182427.jpgsave_picture_182427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182427.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:E7432DB5BB50C305D790C223EFC9711B30B25C3B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182430.jpgsave_picture_182430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182430.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:96AA3F1AE25346F45AEE1475C0913552412A02ED
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182433.jpgsave_picture_182433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182433.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:02F89D4262988899D49B0E3F009833CB3856784F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182435.jpgsave_picture_182435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182435.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Burning Witches - The Dark Tower (2023) [FLAC|Lossless|image + .cue] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182438.jpgsave_picture_182438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182438.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Pixelmator Classic 3.9.11 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182439.jpgsave_picture_182439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182439.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:5D66A935DFE35D5797D4430CBC07B6379AFB8F36
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182442.jpgsave_picture_182442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182442.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:72653C2760A3348EBB2FC3BBB3CB47213C31D3AB
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182443.jpgsave_picture_182443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182443.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:5251DEEE8509FA33D37D4FCBCB12B2F06A49F31B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182447.jpgsave_picture_182447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182447.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:41F0EFC062FA929215F2BEB10DEC58FA071EEAC3
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182448.jpgsave_picture_182448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182448.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Process Lasso Pro 12.0.1.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182451.jpgsave_picture_182451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182451.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ MotoGP. Этап 14. Гран-при Японии. Квалификация (30.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182453.jpgsave_picture_182453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182453.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Telegram Desktop 4.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182456.jpgsave_picture_182456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182456.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Jonne Aaron - Onnen Vuodet (2013) [FLAC|Lossless|image + .cue] <Glam Rock, Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182457.jpgsave_picture_182457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182457.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:5B0B0F4ED4FFA1F11A2CF71556D6046271BDCA7E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182459.jpgsave_picture_182459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182459.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ MotoGP. Этап 14. Гран-при Японии. Спринт (30.09.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182460.jpgsave_picture_182460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182460.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Bad Boys Blue - Heart Beat (1986) Reissue, 2015, Мирумир [OGG Vorbis|600 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182465.jpgsave_picture_182465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182465.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:FCF1910F2892391921E2507956DCEEE2BBFCD4BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182468.jpgsave_picture_182468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182468.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:32420540947D40D71E5624115859F0AA55A198C1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182471.jpgsave_picture_182471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182471.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Carrellee - Scale Of Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182473.jpgsave_picture_182473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182473.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Opera GX 92.0.4561.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182475.jpgsave_picture_182475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182475.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:58F1D7C67D66836774D052771CCD3D221E911BD3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182478.jpgsave_picture_182478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182478.jpg" />
 </div>
 
 

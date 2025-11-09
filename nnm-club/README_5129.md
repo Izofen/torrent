@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160087.jpgsave_picture_160087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160087.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Animate 2024 v.24.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160088.jpgsave_picture_160088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160088.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FEE0BA3B597D02594350C9415BD655CA546E45BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160089.jpgsave_picture_160089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160089.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Soulful Downtempo, Vol. 1 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160090.jpgsave_picture_160090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160090.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Media Encoder for Mac 2024 v.24.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160091.jpgsave_picture_160091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160091.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Soulful Downtempo  Vol. 2 (Organic Chill Vibes) (2022) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160092.jpgsave_picture_160092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160092.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Sandboxie 5.61.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160093.jpgsave_picture_160093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160093.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8700177FF40BB2059D31F37176EAD066A3974469
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160094.jpgsave_picture_160094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160094.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Adobe Photoshop Lightroom 9.0.1 (arm64) / 8.2.3 (arm7) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160095.jpgsave_picture_160095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160095.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:4B02CFF5D6C56E5F92FE48CD710473280DED851B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160096.jpgsave_picture_160096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160096.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ HWiNFO 7.35 Build 4940 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160097.jpgsave_picture_160097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160097.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Midnight Eye Gokuu | Goku: Midnight Eye | Гоку: Полуночный гла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160098.jpgsave_picture_160098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160098.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:0D5617169C3ACC5C613E53FDA891108C311953D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160099.jpgsave_picture_160099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160099.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:2B8DE1B39563D23FC7F35146D19EA5390DB1225D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160100.jpgsave_picture_160100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160100.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Macrorit Partition Expert 7.3.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160101.jpgsave_picture_160101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160101.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7E9832DC5EC2621815A1BFD51B957D61C7434C27
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160102.jpgsave_picture_160102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160102.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:0CC43F1360EA6525831548CD7CA117C2FC128294
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160103.jpgsave_picture_160103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160103.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Macrorit Data Wiper 6.7.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160104.jpgsave_picture_160104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160104.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:BB020054090713B9DCF36A55C9469092BF975CE5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160105.jpgsave_picture_160105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160105.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Eon Timer 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160106.jpgsave_picture_160106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160106.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:9FCF4B5507E22CF629BC394B162AF4F2D97D7C41
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160107.jpgsave_picture_160107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160107.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ TunesKit iOS System Recovery for Mac 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160108.jpgsave_picture_160108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160108.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:FC7440C72AF0951B003DC13CA0963E2CDDA77C85
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160109.jpgsave_picture_160109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160109.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Luminar Neo 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160110.jpgsave_picture_160110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160110.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:B95A23AEBB7E1AD8A6F55BA27F948354CE51FED6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160111.jpgsave_picture_160111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160111.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Midnight Eye Gokuu II | Goku II: Midnight Eye | Гоку II: Полуночны�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160112.jpgsave_picture_160112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160112.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67622.jpgsave_picture_67622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67622.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:720DC49E682622FBCAA5288A5AE74CCD5BC6D7A4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67623.jpgsave_picture_67623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67623.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:99C025C8DB746B88721C5CD264829266DC24ADA5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67624.jpgsave_picture_67624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67624.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67625.jpgsave_picture_67625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67625.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:2C6A2FE8D7E39FFAD3B67F397330CDF2A633EEC6
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67626.jpgsave_picture_67626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67626.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Ice on Fire - Nine Shades of Evil (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67627.jpgsave_picture_67627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67627.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:A133A32B21672B2F731D1CCA12728CD74F3F99CE
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67628.jpgsave_picture_67628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67628.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:CAE6B93DCE607669CFACE7D11963766976ABD1BC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67629.jpgsave_picture_67629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67629.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:521E63D5A7F70A6AB16C472EE96FC70945C836B2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67630.jpgsave_picture_67630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67630.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:F468B84B72B8200823498C78E76E8DF87701FCD4
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67631.jpgsave_picture_67631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67631.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:62B601C3CC43808379D0D40C25D7417312576004
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67632.jpgsave_picture_67632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67632.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Italian Restaurant Chill Music Vol. 3 (Beats to relax) (2025) [FLAC 16,24/4
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67633.jpgsave_picture_67633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67633.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Gunslinger Girl | Школа убийц (2002) [15 томов, 100 глав] [М
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67634.jpgsave_picture_67634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67634.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ T. Rex - Bolan B-Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67635.jpgsave_picture_67635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67635.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ TuneIn Radio Pro v38.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67636.jpgsave_picture_67636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67636.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:522F0BB92FA5F98CA3274B1154A5BFB1A597BC10
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67637.jpgsave_picture_67637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67637.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upsca
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67638.jpgsave_picture_67638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67638.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Grew Up in the 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67639.jpgsave_picture_67639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67639.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:7EADEB37074CB2C03E0D07B5C06FB466FD638359
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67640.jpgsave_picture_67640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67640.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:575664595A3D31CD60D9A27227632854341A175A
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67641.jpgsave_picture_67641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67641.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - Chill Out Tempel (Ambient Chill Out Tunes), Vol. 1 (2025) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67642.jpgsave_picture_67642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67642.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Gwihwanja-ui Mabeop-eun Teukbyeol-haeya Hamnida | Магия Вернувшег�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67643.jpgsave_picture_67643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67643.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:FB6A2C81665B6FB6FD8C9D736E9F5FF3C9731137
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67644.jpgsave_picture_67644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67644.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ JoJo no Kimyou na Bouken Part 5: Ougon no Kaze | Невероятные Прик
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67645.jpgsave_picture_67645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67645.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:FAC9890498768800BC4FD31F97244C19B077EA57
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67646.jpgsave_picture_67646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67646.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:C942A06CFD4ACB352E46DFC8DCB246A8262F4817
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67647.jpgsave_picture_67647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67647.jpg" />
 </div>
 
 

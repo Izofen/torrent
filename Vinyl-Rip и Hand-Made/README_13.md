@@ -6,7 +6,7 @@ Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60368.jpgsave_picture_60368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60368.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60749.jpgsave_picture_60749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60749.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61093.jpgsave_picture_61093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61093.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61626.jpgsave_picture_61626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61626.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:A5BF2149C4B1A82CACB8BE44CF7BDC1AF8FF0F34
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61795.jpgsave_picture_61795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61795.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61799.jpgsave_picture_61799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61799.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61806.jpgsave_picture_61806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61806.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Пульс 1 - Музыкальный компьютер. (Серия "Сп
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61817.jpgsave_picture_61817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61817.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5EB504B5680808F2FAAD2A2D0BB3228310996858
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61832.jpgsave_picture_61832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61832.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:8AD2332778A4AB5E8BD3B0F71CBEAD52FA1C7AA9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61904.jpgsave_picture_61904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61904.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Наутилус Помпилиус / Бригада С (1988) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62006.jpgsave_picture_62006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62006.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C62A8EED23D096428E6EE369398C2FCF4B6AE4F7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62012.jpgsave_picture_62012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62012.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62215.jpgsave_picture_62215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62215.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:ED6FE613E3F711AC15D1E03EE2F017462ABF5828
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62226.jpgsave_picture_62226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62226.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:478A9071F84424DE6D33C5EBC3CF97A89F959DDA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62237.jpgsave_picture_62237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62237.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Korn (Jonathan Davis) - Studio Albums (16 releases) (1994-2022) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62268.jpgsave_picture_62268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62268.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:975522801195F2D11115D9F03DE89BC096B0B21D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62339.jpgsave_picture_62339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62339.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Samson - Survivors (1979) Reissue, 1983, Thunderbolt [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62343.jpgsave_picture_62343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62343.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Electric Light Orchestra (ELO) - Time (1981) [FLAC 24/192|Lossless|tracks] <Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62437.jpgsave_picture_62437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62437.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Deep Forest - Studio Albums & Projects (23 releases) (1994-2023) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62557.jpgsave_picture_62557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62557.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62971.jpgsave_picture_62971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62971.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63055.jpgsave_picture_63055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63055.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63159.jpgsave_picture_63159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63159.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таи�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63162.jpgsave_picture_63162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63162.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 24/192|Lossless|tracks] <Classic Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63173.jpgsave_picture_63173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63173.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:67C3F7DE59797203D595855C2402E1F08BB0979A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63180.jpgsave_picture_63180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63180.jpg" />
 </div>
 
 

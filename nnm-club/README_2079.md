@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54421.jpgsave_picture_54421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54421.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ DVDFab UniFab 2.0.2.2 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54422.jpgsave_picture_54422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54422.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.0.1) Repack FitG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54423.jpgsave_picture_54423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54423.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E3C8D55B98E84308CC18320190176811427CF61A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54424.jpgsave_picture_54424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54424.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Product University | Python и ИИ-технологии с нуля за 4 ме
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54425.jpgsave_picture_54425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54425.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Microsoft перекрыла способ простой и легкой уст�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54426.jpgsave_picture_54426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54426.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Maxon Cinema 4D Studio 2024.4.1 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54427.jpgsave_picture_54427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54427.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2E8A80325E62F0D55D16A7C632D51101F2D049AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54428.jpgsave_picture_54428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54428.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:29B794B22139FA0E379AA7979C97474801DBCF89
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54429.jpgsave_picture_54429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54429.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:D9C8EACB1055DF7373C803D6188B24EDABFD0669
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54430.jpgsave_picture_54430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54430.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:775831D9F48348D0153F20083B7A56A50E4E7201
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54431.jpgsave_picture_54431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54431.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9435DC7E672F57C991333602F4752E2D37285E84
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54432.jpgsave_picture_54432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54432.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Lucky Peterson - 29 Albums, 1 Box Set (1984 - 2020) 33 CD [FLAC|Lossless|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54433.jpgsave_picture_54433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54433.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:8F1F2ED772CE4E8F41133DE5CA69504E17FA7432
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54434.jpgsave_picture_54434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54434.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:86988DC506DA62F7F8667EE225C9FCFE019DC04F
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54435.jpgsave_picture_54435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54435.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F444A80949377BEE0CDA383CF75488BE7B9C0567
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54436.jpgsave_picture_54436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54436.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Crysis: Remastered (2020) [Ru/En] (1.2.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54437.jpgsave_picture_54437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54437.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Titanfall 2 (2016) [Ru/En] (2.0.11.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54438.jpgsave_picture_54438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54438.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:821256A5B3CFCBFA92E13BCF25867897F28FA47E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54439.jpgsave_picture_54439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54439.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:2AAF70346BA0C8B4E1F22EC95B5336432FFABB5C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54440.jpgsave_picture_54440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54440.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0.0.15/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54441.jpgsave_picture_54441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54441.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D0C6EA15841931B4F378C29E0988209F7D9495A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54442.jpgsave_picture_54442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54442.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54443.jpgsave_picture_54443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54443.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54444.jpgsave_picture_54444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54444.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:5C86888519A3CB6C3783B3CEC1189053EAE64CDA
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54445.jpgsave_picture_54445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54445.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:22C0D618ABAB0B3EA0FC282FBF93797709B2247D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54446.jpgsave_picture_54446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54446.jpg" />
 </div>
 
 

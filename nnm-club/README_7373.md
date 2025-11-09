@@ -6,7 +6,7 @@
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252189.jpgsave_picture_252189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252189.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Amigoscode, Mama Samba Braima Nelson | PROFESSIONAL Full Stack Developer (2023) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252190.jpgsave_picture_252190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252190.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Microsoft Windows 11 [10.0.22621.1702], Version 22H2 (Updated May 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252191.jpgsave_picture_252191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252191.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Microsoft Windows 10.0.19045.2965, Version 22H2 (Updated May 2023) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252192.jpgsave_picture_252192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252192.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Red Group, htmllessons, Максим Шушвал | Все интенсивы (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252193.jpgsave_picture_252193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252193.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:09CBD0D4D3918510896444AF1C49E4267EB4E51E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252194.jpgsave_picture_252194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252194.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ QA Studio | Ручное тестирование ПО (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252195.jpgsave_picture_252195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252195.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ CrossOver Linux 22.1.1 [x86_x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252196.jpgsave_picture_252196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252196.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:35B3D6A99FE3B65C80973CB1A8A79C6F4E3361EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252197.jpgsave_picture_252197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252197.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ V-Ray 6.00.03 for SketchUp 2019-2023 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252198.jpgsave_picture_252198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252198.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Udemy, Nikolay Naydenov | 3D Character Sculpting in Blender - Viking Edition (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252199.jpgsave_picture_252199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252199.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:C9ECBD5CD01148868C441A786DED4367C23479D4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252200.jpgsave_picture_252200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252200.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252201.jpgsave_picture_252201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252201.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:C2FF589E9D0F31B2924992D8731DF4FFC7A647F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252202.jpgsave_picture_252202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252202.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Timesavervfx, Александр Ежов | Анимация фотографи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252203.jpgsave_picture_252203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252203.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.0/dlc) Repack Decepticon [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252204.jpgsave_picture_252204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252204.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:6C0D26602954F130A48855C02D86042293A4488D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252205.jpgsave_picture_252205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252205.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252206.jpgsave_picture_252206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252206.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252207.jpgsave_picture_252207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252207.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:9DFA851C59BFB0048D2621A7C2248E80CE2182A6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252208.jpgsave_picture_252208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252208.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners Substance Painter Course (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252209.jpgsave_picture_252209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252209.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Nik Collection by DxO 6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252210.jpgsave_picture_252210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252210.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:ED44E3C07601E31432A6849C64BD0E6CEF7CF6B1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252211.jpgsave_picture_252211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252211.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:10368E934B922EC1C5C1871D08B146336B917FBC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252212.jpgsave_picture_252212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252212.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Windows 10 22H2 (Build 19045.2965) (40in2) x86/x64 by Sergei Strelec [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252213.jpgsave_picture_252213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252213.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:F7E9CAA4E56ACDAAC7226D29193F0B8FC711CDFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252214.jpgsave_picture_252214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252214.jpg" />
 </div>
 
 

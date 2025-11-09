@@ -6,7 +6,7 @@ NG. Затерянные города с Альбертом Лином / Lost Ci
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239478.jpgsave_picture_239478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239478.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vellum 3.3.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239479.jpgsave_picture_239479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239479.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ ImageRanger Pro Edition 1.8.2.1754 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239480.jpgsave_picture_239480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239480.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ HitPaw Watermark Remover 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239481.jpgsave_picture_239481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239481.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:EC27DF0BD23DCA5C6454818229C6AE2E96E430BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239482.jpgsave_picture_239482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239482.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9F4733FED4E632719190DF806BC4265FD6A45E9E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239483.jpgsave_picture_239483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239483.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ SwitchGlass 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239484.jpgsave_picture_239484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239484.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:702B72FB72C6A26F36A24DCD76F96295F2F4962E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239486.jpgsave_picture_239486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239486.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ GlanceCal 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239487.jpgsave_picture_239487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239487.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ BarLinks: Menu Bar Bookmarks 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239489.jpgsave_picture_239489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239489.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:1726691B03D0874958551FC3EF3947FA90D96E32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239490.jpgsave_picture_239490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239490.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:9DC942E68C446B54B4820FFD482903AA580BFA70
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239491.jpgsave_picture_239491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239491.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ GSPD - СПОРТ РЕЖИМ: КРАСНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239492.jpgsave_picture_239492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239492.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Magic Sort List 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239494.jpgsave_picture_239494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239494.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:DBD6CB72EE33BF7367FEC231EC71007945128EE8
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239495.jpgsave_picture_239495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239495.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:5913943E7DD08730AA30AAC0404742E46F111FE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239496.jpgsave_picture_239496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239496.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:0B2294B7C7FEA844A79C72C67368D2A0A666B4DD
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239497.jpgsave_picture_239497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239497.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Storyist 4 v4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239498.jpgsave_picture_239498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239498.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Slimjet 39.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239499.jpgsave_picture_239499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239499.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ UFO Princess Valkyrie: Seireisetsu no Hanayome | Валькирия, принц�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239500.jpgsave_picture_239500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239500.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Yngwie Malmsteen - Odyssey (1988) [FLAC|Lossless|image + .cue] <Neoclassical Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239501.jpgsave_picture_239501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239501.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:631B2B2AEE3A30395F13F246949558E94B694683
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239502.jpgsave_picture_239502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239502.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ RAW Power 3.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239503.jpgsave_picture_239503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239503.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:B157E30147BA96335F00DA24F85BD8BAF7EDE7DC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239504.jpgsave_picture_239504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239504.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:F00028A97C86D0B42141BD9644E5D1EDA87C74E2
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239505.jpgsave_picture_239505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239505.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:7C586FAAE5BA54FD5CBFAEFCEBCB74834163F270
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239506.jpgsave_picture_239506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239506.jpg" />
 </div>
 
 

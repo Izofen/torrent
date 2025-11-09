@@ -6,7 +6,7 @@ The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpgsave_picture_157441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jef Bek - Distant Starlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157442.jpgsave_picture_157442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157442.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Glary Utilities Pro 5.199.0.228 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157443.jpgsave_picture_157443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157443.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stellarium 0.17.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157444.jpgsave_picture_157444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157444.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:AF8D5122E959AA15DC48CE0DA3AFD933F88CD87C
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157446.jpgsave_picture_157446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157446.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Project Hospital 1.1.17753 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157447.jpgsave_picture_157447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157447.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:229CA66143D122E4682EEB27A5BAA45D85966D46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157450.jpgsave_picture_157450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157450.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Vivaldi 6.4.3160.42 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157451.jpgsave_picture_157451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157451.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7ABF342C179162C461BC2DA51E30EDE3A6584646
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157452.jpgsave_picture_157452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157452.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Opera 57.0.3098.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157454.jpgsave_picture_157454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157454.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:397BDAAD8158CD2ABA9D294E26EE5B750A170274
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157456.jpgsave_picture_157456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157456.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:91A2470264C1872B8F8B59CA0FD233C52CCBCD83
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157457.jpgsave_picture_157457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157457.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:221306D630A941CD636F851C4ADE9D4BAA2A1A74
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157459.jpgsave_picture_157459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157459.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Athentech Perfectly Clear WorkBench 3.9.0.1710 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157460.jpgsave_picture_157460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157460.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:829FA057B6CD6C9AE18EC9C63D9D9445BB79F351
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157461.jpgsave_picture_157461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157461.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C01D03CBC2C245319528F0CCA01EABAB665E14F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157462.jpgsave_picture_157462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157462.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:301582270F2DDF265730C003019F248562ABF93B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157464.jpgsave_picture_157464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157464.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:44BB95945463432FF8DC227260C3FB58B0F4A77B
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157465.jpgsave_picture_157465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157465.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:6590195E4A62D0F2E752676412FAA565E0DAB168
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157468.jpgsave_picture_157468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157468.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:7693DE6EF3214A3B1E38C6987EF4827B3ECCBB84
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157469.jpgsave_picture_157469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157469.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:4D61E962C811634EDFCD967EFA43FD92B4A42E34
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157470.jpgsave_picture_157470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157470.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.18 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157472.jpgsave_picture_157472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157472.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:7FFD96B7DC9F37BEA1EC5067658B95DD02AD49A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157473.jpgsave_picture_157473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157473.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:2C7F865F45147F1D6C6039CEF0A8D7FBF1CC9888
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157474.jpgsave_picture_157474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157474.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Sumatra PDF 3.2.11731 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157475.jpgsave_picture_157475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157475.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Adobe Dreamweaver CC 2017 17.0.1.9346 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157478.jpgsave_picture_157478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157478.jpg" />
 </div>
 
 

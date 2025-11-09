@@ -6,7 +6,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.65.7400 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21919.jpgsave_picture_21919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21919.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:49FE74CAB4F5824A37AE66541B7A9896768EF2CB
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21920.jpgsave_picture_21920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21920.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F6163B353757B7AE66358A79DAA7618CF76962BA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21921.jpgsave_picture_21921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21921.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) R
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21922.jpgsave_picture_21922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21922.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:148F06EBDC3E6F889D2D74ABBF570FF5989C05E5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21923.jpgsave_picture_21923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21923.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6858DA158B53455ED3D947ED27E0D615A66B5E2C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21924.jpgsave_picture_21924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21924.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Making of Karateka (2023) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21925.jpgsave_picture_21925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21925.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CAC94F200E78E04974FAAFC34E3BEA831CDD3238
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21926.jpgsave_picture_21926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21926.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Windows 7 SP1 7601.27670 x64 3in1 by OneSmiLe [10.04.2025] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21927.jpgsave_picture_21927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21927.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:84516D3AFBB418A49E4F287E50D851206A4EF52A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21928.jpgsave_picture_21928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21928.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:EE8B75B876D2E4943DF97D99B89E65053BAF8A60
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21929.jpgsave_picture_21929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21929.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AOMEI Partition Assistant Technician Edition 10.8.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21930.jpgsave_picture_21930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21930.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:ADA539BDF968463515E054511F8ECFBEF19C2034
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21931.jpgsave_picture_21931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21931.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ TapScanner v3.0.63 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21932.jpgsave_picture_21932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21932.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:7280AB651EE120456D4FBC2CB323299FA0A1C6AD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21933.jpgsave_picture_21933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21933.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ PhotoDirector v20.0.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21934.jpgsave_picture_21934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21934.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:E14631D9ECAE8A4E9CE71B3AD34546FF2B716F55
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21935.jpgsave_picture_21935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21935.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ polnalyubvi - Прощай и люби меня (2025) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21936.jpgsave_picture_21936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21936.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:CC88AF58F8C1979B0DB8C860664B781148555BFF
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21937.jpgsave_picture_21937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21937.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Tablacus Explorer 25.4.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21938.jpgsave_picture_21938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21938.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:3D82F28485CD5467FB0596C58DC80327F9BDFA41
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21939.jpgsave_picture_21939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21939.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:67AE050B908FD025EDB034DD6DF84763EC1037F1
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21940.jpgsave_picture_21940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21940.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:AF66A45A9BB5E4B04BDDCCC2BDA02CDE878A7E98
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21941.jpgsave_picture_21941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21941.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:CE5BF618E4B1C5D2456393620696985EA8C7828F
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21942.jpgsave_picture_21942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21942.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:898ACC5EECD0678DE0E6488B7961C15A0D55B4D5
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21943.jpgsave_picture_21943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21943.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Phantom Alley Swing - Pineapple Parade (2025) [MP3|320 Kbps] <Jazz, Swing>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21944.jpgsave_picture_21944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21944.jpg" />
 </div>
 
 

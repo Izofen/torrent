@@ -6,7 +6,7 @@ Ailuri (2025) [En] (Build 17384128) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27259.jpgsave_picture_27259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27259.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Heroine's Quest: The Herald of Ragnarok (2014) [Ru/Multi] (1.2.9.2/dlc) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27424.jpgsave_picture_27424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27424.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Runa & The Chaikurú Legacy (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27425.jpgsave_picture_27425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27425.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DeathOmen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27445.jpgsave_picture_27445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27445.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Resident Evil 2 (1999) [Multi] (1.0 HotFix 2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27672.jpgsave_picture_27672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27672.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Rake (2015) [En] (5.0.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27742.jpgsave_picture_27742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27742.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Locks (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27743.jpgsave_picture_27743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27743.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Backrooms: Mass Extinction (2022) [En] (1.2.2 Beta) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27757.jpgsave_picture_27757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27757.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27837.jpgsave_picture_27837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27837.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dream Cage (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27870.jpgsave_picture_27870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27870.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27984.jpgsave_picture_27984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27984.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BROK the InvestiGator - Natal Tail, A New Christmas (2024) [Ru/Multi] (1.0.7.1) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27989.jpgsave_picture_27989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27989.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.05b/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28008.jpgsave_picture_28008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28008.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Back Then (2023) [Multi] (3.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28020.jpgsave_picture_28020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28020.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28072.jpgsave_picture_28072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28072.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 8603627/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28073.jpgsave_picture_28073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28073.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Stars In The Trash (2024) [Ru/Multi] (1.04 Build 20250209) Repack Let'sРlay [De
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28089.jpgsave_picture_28089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28089.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17294620) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28134.jpgsave_picture_28134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28134.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Grief like a stray dog / А Горюшко вслед собакою... (2025) [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28143.jpgsave_picture_28143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28143.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ THE MUTE HOUSE (2025) [Multi] (1.0.39) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28161.jpgsave_picture_28161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28161.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28232.jpgsave_picture_28232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28232.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ McPixel 3 (2022) [Ru/Multi] (1.0.38) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28544.jpgsave_picture_28544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28544.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28558.jpgsave_picture_28558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28558.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Snufkin: Melody of Moominvalley (2024) [Ru/Multi] (Build 17112046/dlc) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28594.jpgsave_picture_28594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28594.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5/dlc) Repack Let'sРlay [Digital Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28745.jpgsave_picture_28745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28745.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28820.jpgsave_picture_28820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28820.jpg" />
 </div>
 
 

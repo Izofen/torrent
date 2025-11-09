@@ -6,7 +6,7 @@ Ghost Buster Pro 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169314.jpgsave_picture_169314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169314.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E1F2B76A9171AF7F8E8CDAC46BC4FFF32D44787B
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169315.jpgsave_picture_169315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169315.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A64D8D71FDB74C7309A70257F38BC20C1799CFE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169316.jpgsave_picture_169316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169316.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4A2D9850F5A08E219D29090E90C6ACBC6AE3B1F8
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169317.jpgsave_picture_169317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169317.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E7703097BB073EF038E5AF724005CA501C24041A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169318.jpgsave_picture_169318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169318.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Sutura Apparatus - 2 Albums (2020-2022) [MP3|320 Kbps] <Depressive rock, Doom me
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169319.jpgsave_picture_169319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169319.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DDC4A8A67D9B493C0BC43AC5F332CF7ABAC2238A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169320.jpgsave_picture_169320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169320.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:09E6504DA18741F02A8E74D0C0771BF8DAA7F70D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169321.jpgsave_picture_169321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169321.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Drakmord - Iter (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169322.jpgsave_picture_169322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169322.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:15EFDB6A48E0D7CD074D9D3AC24191B6A413C666
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169323.jpgsave_picture_169323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169323.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Tinderbox 9 v.9.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169324.jpgsave_picture_169324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169324.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Hit News Vol. 4 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169325.jpgsave_picture_169325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169325.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:7F48385D06E3AB26E5532BE6A7A55C1CF57D36DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169326.jpgsave_picture_169326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169326.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:010F960F6730A4BFCFCCD9B1592FA7F08E7B2D16
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169327.jpgsave_picture_169327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169327.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Shaam Larein - Sticka En Kniv I Världen (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169328.jpgsave_picture_169328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169328.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:AC6854A09996E487FEFC17C38E3DDD6E1D621275
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169329.jpgsave_picture_169329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169329.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:2F349C8732673DDCCFBD186DB47BD51B68A9C2EC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169330.jpgsave_picture_169330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169330.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner's Guide, 7th Edition / Mi
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169331.jpgsave_picture_169331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169331.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Stratovarius - A Million Light Years Away (2000) Single [OGG Vorbis|480 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169332.jpgsave_picture_169332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169332.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Void Vator - Stranded (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169333.jpgsave_picture_169333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169333.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:B1AE8D3AFDA7DA1D194D496DC67C1399D0EB99CA
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169334.jpgsave_picture_169334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169334.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:FAAF2E22762BA6424BD3A9A82B41A8E0E0B63DD6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169335.jpgsave_picture_169335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169335.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Sublime Text Dev Build 4123 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169336.jpgsave_picture_169336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169336.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AXMO - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (2023
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169337.jpgsave_picture_169337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169337.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:75B5731917B80D90C71E1D9B314C27EC1B5D633D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169338.jpgsave_picture_169338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169338.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Valentina Studio Pro 12.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169339.jpgsave_picture_169339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169339.jpg" />
 </div>
 
 

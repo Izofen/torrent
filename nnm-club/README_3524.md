@@ -6,7 +6,7 @@ DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111985.jpgsave_picture_111985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111985.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Trix - Index (2004) King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111986.jpgsave_picture_111986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111986.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Italian Best Shorts 4: Истории нашей жизни / Italian Best Short
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111987.jpgsave_picture_111987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111987.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B44E4E6A37FF5C6D4BAB025AF85874077C3477BA
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111988.jpgsave_picture_111988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111988.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Smokie - 8 Albums (1975-1982) Reissue, 2007-2008, 7T's GLAM [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111989.jpgsave_picture_111989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111989.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ SoftPerfect Cache Relocator 1.7 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111990.jpgsave_picture_111990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111990.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows Update Viewer 0.6.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111991.jpgsave_picture_111991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111991.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Lacey Free Music & Video Downloader 2.96 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111992.jpgsave_picture_111992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111992.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Microsoft PowerToys 0.80.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111993.jpgsave_picture_111993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111993.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:86F46F636809F7D869F20357AF09057727A75466
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111994.jpgsave_picture_111994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111994.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:7138DA3A5B071ED6DE89341D8BC00CFF30679EB9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111995.jpgsave_picture_111995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111995.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:A1536020A3B7E7F11724F92A89B40F7433BBFC99
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111996.jpgsave_picture_111996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111996.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:86931D214DEE4F3604062406785CDD7C9A6A4836
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111997.jpgsave_picture_111997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111997.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:B51F7EAE0C8C7413D3941A319A6634F839D5F7CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111998.jpgsave_picture_111998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111998.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:41B0C91E0A4C91F650DCB9F92F2D0D77BE880388
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111999.jpgsave_picture_111999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111999.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:160F3D799063A63C332938025DA596995AF05A27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112000.jpgsave_picture_112000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112000.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Immortal Mantis: Revenge (2024) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112001.jpgsave_picture_112001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112001.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Erra - Cure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112002.jpgsave_picture_112002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112002.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:DFB2003D62EA7C79450AA59AEAC60A7B9699AEDA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112003.jpgsave_picture_112003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112003.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Conjureth - Foul Formations (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112004.jpgsave_picture_112004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112004.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:0A44DF745FF2C277CD54295EF4400B0B619C86D2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112005.jpgsave_picture_112005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112005.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mad Caddies - Arrows Room 117 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ska-Pu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112006.jpgsave_picture_112006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112006.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Bokassa - Live At The BBC (2020) (Live) [FLAC|Lossless|WEB-DL|tracks] <Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112007.jpgsave_picture_112007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112007.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Cryoshock - The Cold New Regime (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112008.jpgsave_picture_112008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112008.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Uaral - Lamentos A Poema Muerto (2007) [FLAC|Lossless|image + .cue] <Doom Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112009.jpgsave_picture_112009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112009.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:07F9E042D289869EC5A3FBFA2E94E92CBE55A98A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112010.jpgsave_picture_112010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112010.jpg" />
 </div>
 
 

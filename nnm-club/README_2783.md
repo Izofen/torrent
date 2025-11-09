@@ -6,7 +6,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78367.jpgsave_picture_78367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78367.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78369.jpgsave_picture_78369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78369.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78370.jpgsave_picture_78370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78370.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:06129432BDD7416EA6562146D5AC808AF7E46F16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78372.jpgsave_picture_78372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78372.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:ECF6E6FB517AF9CA8C44BB317C4C8586987CB1BA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78376.jpgsave_picture_78376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78376.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1CD1FBFE5BC92D003E7BCC58C09D827B0D7B066C
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78382.jpgsave_picture_78382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78382.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:E3B54E6649435814E4CD8F9CDEE097A4DDCD7639
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78383.jpgsave_picture_78383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78383.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:765B847F818603EE4CA92A8F434A98FD4BCD2873
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78384.jpgsave_picture_78384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78384.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:61AC2F6780CDC8A348DAA2208024EA1E1F2D58D5
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78391.jpgsave_picture_78391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78391.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:F6E41B5A517BDAFCDF865A279040D8C08A5B2B32
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78392.jpgsave_picture_78392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78392.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Microsoft Toolkit 2.3 Stable / Eng
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78393.jpgsave_picture_78393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78393.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ NikitA - Машина (2009) HDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78394.jpgsave_picture_78394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78394.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78406.jpgsave_picture_78406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78406.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:CC3DC385E95995D02AE37560ECC1285D23FA6F80
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78409.jpgsave_picture_78409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78409.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:88B8BF90DE46199CC1F1D635B03CCC48F1C11442
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78412.jpgsave_picture_78412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78412.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:88B8BF90DE46199CC1F1D635B03CCC48F1C11442
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78422.jpgsave_picture_78422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78422.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:BE99BAC4F94BF02B1841DE923C33D66F3A9A9405
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78423.jpgsave_picture_78423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78423.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:8BF531FE066090FEDA665012AC6EED16978D7C73
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78426.jpgsave_picture_78426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78426.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:EC3ECD16DDB1C5B4F535C91AFAA28A5129688F57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78430.jpgsave_picture_78430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78430.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:EC3ECD16DDB1C5B4F535C91AFAA28A5129688F57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78439.jpgsave_picture_78439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78439.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Open Server 4.1.2 (Mini+Standart+Full) [Русский, Украинский, Б
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78440.jpgsave_picture_78440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78440.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ WAMP/WNMP — акроним, обозначающий набор (компле�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78441.jpgsave_picture_78441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78441.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Eminem - Black America (2012) [MP3|128~256 кб/с]<Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78444.jpgsave_picture_78444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78444.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:13B8BB50DCCBDE06ABD4E0BBFB0AF25EA6504A29
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78450.jpgsave_picture_78450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78450.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Depth Hunter [Multi5/-] (L) 2011 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78452.jpgsave_picture_78452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78452.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Depth Hunter - симулятор подводной охоты, позволя�
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78453.jpgsave_picture_78453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78453.jpg" />
 </div>
 
 

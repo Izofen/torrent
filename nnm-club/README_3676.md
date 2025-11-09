@@ -6,7 +6,7 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115951.jpgsave_picture_115951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115951.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4364E83102DFA836EC2BDC9603A6612B056C803F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115952.jpgsave_picture_115952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115952.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ZBrush 2024.0.2 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115953.jpgsave_picture_115953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115953.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4DF52940AF6690679C1BDEC7BAD2EB15EFDEF504
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115954.jpgsave_picture_115954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115954.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EB85042797FA310FB825B8146837BE009C479EF9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115955.jpgsave_picture_115955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115955.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A8905B28ECE052C13BF5459666B8E8FF685B3BC6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115956.jpgsave_picture_115956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115956.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115957.jpgsave_picture_115957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115957.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ CrystalDiskMark 8.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115958.jpgsave_picture_115958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115958.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:9F2A99A9B98AE0C42B328B43BAE0F3931B359EBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115959.jpgsave_picture_115959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115959.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Konrad Zolnierek (Zołnierek) - Jazz-Rock Stories (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115960.jpgsave_picture_115960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115960.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Austrian Death Machine - Quad Brutal (2024) [FLAC|Lossless|WEB-DL|tracks] <Moder
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115961.jpgsave_picture_115961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115961.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Rifforia - Axeorcism (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115962.jpgsave_picture_115962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115962.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Headhunter - Studio Albums (4 releases) (1990-2008) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115963.jpgsave_picture_115963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115963.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Donald Byrd & Gigi Gryce - The Complete Jazz Lab Sessions (1955 - 1957) 4CD, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115964.jpgsave_picture_115964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115964.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115965.jpgsave_picture_115965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115965.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:7AC6FE0E00B9C318F61BD2CBD9F5671EC1326867
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115966.jpgsave_picture_115966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115966.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:74C149D244D3D0B0B80F9AB0B327CFA4020692C3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115967.jpgsave_picture_115967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115967.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ The Erickson Syndicate - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115968.jpgsave_picture_115968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115968.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:F8EE9890E19E21BBAA4D5583F71057FC7C34F9A2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115969.jpgsave_picture_115969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115969.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115970.jpgsave_picture_115970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115970.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115971.jpgsave_picture_115971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115971.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ The Marian McPartland Trio - Live At Yoshi's Nitespot (1996) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115972.jpgsave_picture_115972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115972.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Avulsion - Dimensions of Darkness (1997) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115973.jpgsave_picture_115973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115973.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Dick Haymes - You'll Never Know: The Best Of Dick Haymes (1943 - 1950) 1990, MCA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115974.jpgsave_picture_115974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115974.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Avulsion - Indoctrination into the Cult of Death (2002) Reissue, 2003, Deathgasm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115975.jpgsave_picture_115975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115975.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Jesse Davis - Horn Of Passion (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115976.jpgsave_picture_115976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115976.jpg" />
 </div>
 
 

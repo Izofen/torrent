@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36157.jpgsave_picture_36157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36157.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36158.jpgsave_picture_36158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36158.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bug Fables: The Everlasting Sapling (2019) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36159.jpgsave_picture_36159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36159.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Christmas Rock Santa's Secret (2024) [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36160.jpgsave_picture_36160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36160.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7E8050F4280E3F92715F25451043B238FBC43E5D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36161.jpgsave_picture_36161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36161.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Qalculate! 5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36162.jpgsave_picture_36162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36162.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:011A04AB12121B05908F22EECCE617E52A271782
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36163.jpgsave_picture_36163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36163.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ It's Only Money (2023) [En] (1.0.0-9254/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36164.jpgsave_picture_36164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36164.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Wilmot's Warehouse (2019) [En] (1.0) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36165.jpgsave_picture_36165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36165.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:FD4CE7EC35ECC1E18363570FA8087C6D9F6B3D58
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36166.jpgsave_picture_36166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36166.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Process Lasso Pro 15.0.3.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36167.jpgsave_picture_36167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36167.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ FanControl V209 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36168.jpgsave_picture_36168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36168.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Magic Eraser / Магический ластик v2.12.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36169.jpgsave_picture_36169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36169.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ WinSCP 6.3.6 Build 15073  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36170.jpgsave_picture_36170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36170.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:5C9B88256887873FDFD8B01FB83EB8F88DBA3826
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36171.jpgsave_picture_36171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36171.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:A3F5D5A9EE910414A46593D7609E26EE03AC8367
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36172.jpgsave_picture_36172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36172.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:CB093E27A15F95211218D2A810DB91E5F8ABBD33
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36173.jpgsave_picture_36173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36173.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:6F6777BF6CA7F856478E1411574248C2E878B5E4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36174.jpgsave_picture_36174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36174.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:55AEB817A6F99BD31893D3E6318D565D602F5A34
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36175.jpgsave_picture_36175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36175.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:672FE5DCD6BD5FB99C4509E63038FC52E2CA0C74
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36176.jpgsave_picture_36176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36176.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:C0C0C138DABD3E9AD4B0151231E247585A5C8210
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36177.jpgsave_picture_36177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36177.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36178.jpgsave_picture_36178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36178.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Karing 1.0.35.467 + Portable [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36179.jpgsave_picture_36179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36179.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Sam & Max: Beyond Time and Space (2021) [Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36180.jpgsave_picture_36180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36180.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ HWiNFO 8.16 Build 5600 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36181.jpgsave_picture_36181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36181.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:2D2CD1303AA43A90C469D0C96B077F6A5F6B67A3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36182.jpgsave_picture_36182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36182.jpg" />
 </div>
 
 

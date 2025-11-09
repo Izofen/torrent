@@ -6,7 +6,7 @@ Shenmue III Digital Deluxe Edition (2019) [PS4] [USA] 6.0 + Backport [5.05] [Lic
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131680.jpgsave_picture_131680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131680.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:086DD5A4E798562BB592F46D792A7B2408CFB0A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131682.jpgsave_picture_131682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131682.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Eternal Life / Yong Sheng / Youngsheng / Immortality / Вечная жизнь [
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131684.jpgsave_picture_131684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131684.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Infinitas - Journey To Infinity (2012) [MP3|320 кб/с]<Shoegaze Black Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131685.jpgsave_picture_131685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131685.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:0984CF545D9472AD60C32FAC0B85D186B1D0A676
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131686.jpgsave_picture_131686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131686.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:B466112884B64E24B27367B715DB9EB0B4D88533
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131687.jpgsave_picture_131687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131687.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:7FD3F1FE2042940DC7FD2C6C01F2CA065EE39371
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131688.jpgsave_picture_131688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131688.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:B7D296839A1A3366A8F61BC8E787B4CF11B665FA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131689.jpgsave_picture_131689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131689.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:C63598146CA76301431D1E4AC5C4703A6B3ED495
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131690.jpgsave_picture_131690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131690.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:122529FFF7A9F0E6125EDDA52829CE1BA97018A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131692.jpgsave_picture_131692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131692.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:4EFD4D2A7AC5BC185939EB0E49C8D22CF9CE5C12
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131693.jpgsave_picture_131693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131693.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:AE591036A0D988C7F69B238D7BC357D1265F730E
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131694.jpgsave_picture_131694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131694.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:370BC4EEFAF66594426CF91316D85C0C6CFC70D7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131695.jpgsave_picture_131695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131695.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:EC16A2EC1090138C1E8E35889FA3B766F762F28D
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131696.jpgsave_picture_131696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131696.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Psiphon 3 build 180 (05.12.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131698.jpgsave_picture_131698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131698.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:BCAC8DB4B62D0CD0427BB1AC211751C104CB8B5D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131699.jpgsave_picture_131699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131699.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:F9CE3F2866FF97DD88E333670C5D59048E4B0BB3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131700.jpgsave_picture_131700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131700.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ AIMP 5.30 Build 2531 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131702.jpgsave_picture_131702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131702.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131704.jpgsave_picture_131704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131704.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ AMD Radeon Software Adrenalin Edition 23.12.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131706.jpgsave_picture_131706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131706.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Butterfly - Favorite Colors Episode 064: End of Year 2012 (Part. 2-4) (29.12.201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131707.jpgsave_picture_131707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131707.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:0DC1928B833F2A886979CFD498DC1950F07E7223
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131708.jpgsave_picture_131708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131708.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3F58C158E11A3D9150CB562EDB10670DB246AD1C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131709.jpgsave_picture_131709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131709.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:38105FA88526DBE2381CA18A21039A1B3D752A7B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131710.jpgsave_picture_131710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131710.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131711.jpgsave_picture_131711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131711.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:67BD9DAF77858523CDA9093C36BC482BB032178D
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131712.jpgsave_picture_131712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131712.jpg" />
 </div>
 
 

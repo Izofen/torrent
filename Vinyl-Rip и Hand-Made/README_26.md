@@ -6,7 +6,7 @@ Leprous - Studio Albums (10 releases) (2004-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104573.jpgsave_picture_104573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104573.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Earthside - Studio Albums (2 releases) (2015-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104585.jpgsave_picture_104585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104585.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aviations - Studio Albums (4 releases) (2012-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104613.jpgsave_picture_104613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104613.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Negative - Studio Albums (6 releases) (2003-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104647.jpgsave_picture_104647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104647.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ These Are They (Novembers Doom members) - Studio Albums (3 releases) (2009-2014)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104698.jpgsave_picture_104698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104698.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Enslaved - Studio Albums (19 releases) (1993-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104834.jpgsave_picture_104834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104834.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:61AB8827AA09E7DC99F5D02F2F6CB35B16FDAA83
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104868.jpgsave_picture_104868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104868.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Dust Bolt - Studio Albums (6 releases) (2010-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104902.jpgsave_picture_104902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104902.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Lazarus A.D. - Studio Albums (2 releases) (2009-2011) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104922.jpgsave_picture_104922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104922.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Haken - Studio Albums (9 releases) (2008-2023) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104950.jpgsave_picture_104950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104950.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Andre Matos (& Virgo (Matos-Paeth)) - Studio Albums (4 releases) (2001-2012) han
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105013.jpgsave_picture_105013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105013.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Almah - Studio Albums (5 releases) (2006-2016) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105044.jpgsave_picture_105044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105044.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Angra - Studio Albums (11 releases) (1993-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105056.jpgsave_picture_105056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105056.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Shaman (a.k.a. Shaaman) - Studio Albums (5 releases) (2002-2022) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105057.jpgsave_picture_105057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105057.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Engelbert Humperdinck - Live at the London Palladium (2000) Unofficial Release [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105083.jpgsave_picture_105083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105083.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Last Autumn's Dream - Studio Albums (15 releases) (2003-2018) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105093.jpgsave_picture_105093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105093.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:206CD2C7FA19EF1F151EE71AB12A643235820B8F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105110.jpgsave_picture_105110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105110.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Static-X (Wayne Static) - Studio Albums (10 releases) (1999-2024) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105168.jpgsave_picture_105168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105168.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Soen - Studio Albums (7 releases) (2012-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105180.jpgsave_picture_105180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105180.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Burning Point - Studio Albums (8 releases) (2001-2021) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105184.jpgsave_picture_105184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105184.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Caligula's Horse - Studio Albums (6 releases) (2011-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105205.jpgsave_picture_105205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105205.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Baccara - Light My Fire (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105278.jpgsave_picture_105278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105278.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ansambel ''Vitamiin'' - Ансамбль ''Витамин I'' (1983) [FLAC 2.0|4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105384.jpgsave_picture_105384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105384.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Sinergy - Studio Albums (3 releases) (2000-2006) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105550.jpgsave_picture_105550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105550.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Celesty - Studio Albums (4 releases) (2002-2009) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105558.jpgsave_picture_105558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105558.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - The Keepers Of Jericho - A Tribute To Helloween (2000-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105572.jpgsave_picture_105572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105572.jpg" />
 </div>
 
 

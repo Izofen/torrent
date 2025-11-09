@@ -6,7 +6,7 @@ OBS Studio 28.1.1 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192066.jpgsave_picture_192066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192066.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:BFB3401B7442201EF09824038B8921DDB41ACA9A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192067.jpgsave_picture_192067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192067.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:564AA30AACEEE11EAD574E2BD82F955133DB15C5
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192068.jpgsave_picture_192068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192068.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E286C4B87D27F19D8E259FEBFE6D8A419E59E2E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192069.jpgsave_picture_192069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192069.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:9054ECB29A3DCE1C4FFD6D29487C72D6AB604236
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192070.jpgsave_picture_192070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192070.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:9054ECB29A3DCE1C4FFD6D29487C72D6AB604236
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192071.jpgsave_picture_192071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192071.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Skype 8.90.0.405 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192072.jpgsave_picture_192072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192072.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:F5EBADDFEDD76777091D13E6A25A443C82A76D2F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192073.jpgsave_picture_192073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192073.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:BAA85006A6B67B07C7C2E32B9837C0E39888BCE0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192074.jpgsave_picture_192074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192074.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:B8030E76F4B2E93DA8F4442B6915B85EF5C4E59E
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192075.jpgsave_picture_192075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192075.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:EA6FBEA0A15804863E3769E7BE1085DDB7C2E573
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192076.jpgsave_picture_192076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192076.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:C018B79200F9AAB5CA070CF2003B8A472BD2127E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192077.jpgsave_picture_192077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192077.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Arena Renovation (2023) [Ru/Multi] (0.6.153) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192078.jpgsave_picture_192078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192078.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Big B and the Actual Proof - The Noir Album (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192079.jpgsave_picture_192079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192079.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Skype 8.90.0.405 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192080.jpgsave_picture_192080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192080.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ amma'd'amma - rock stars obscured by... (2021) [FLAC|Lossless|tracks + .cue] <Ma
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192081.jpgsave_picture_192081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192081.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Yates McKendree - Buchanan Lane (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192082.jpgsave_picture_192082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192082.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Fear Factory - Recoded (2022) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192083.jpgsave_picture_192083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192083.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:A67F2B9ABB69B8D875B8ED592ED2E63C9F0DB0A9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192084.jpgsave_picture_192084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192084.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192085.jpgsave_picture_192085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192085.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:42144A0AD738CE3267DE8EC4CEC5A345F01DF736
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192086.jpgsave_picture_192086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192086.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:3B626B31FF8D2333CB0DC53EC019195CFFE77805
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192088.jpgsave_picture_192088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192088.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:7277CEC73E961A339406C04D34700AABD0D53D5A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192089.jpgsave_picture_192089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192089.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:1034E81DB93D325B8CA396F359F03EB01B86D8C1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192090.jpgsave_picture_192090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192090.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Pineapple Pictures 0.7.2 Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192091.jpgsave_picture_192091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192091.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:13BDEED347DFF6E86E89566780A93BD1E0D2DE3A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192092.jpgsave_picture_192092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192092.jpg" />
 </div>
 
 

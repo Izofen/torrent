@@ -6,7 +6,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.3 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187383.jpgsave_picture_187383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187383.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AC654653517A594A4810058E27A9F8FFF4CEB14C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187384.jpgsave_picture_187384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187384.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5D5669FB28E9048FA87A41E8BB948A3DC89D5577
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187385.jpgsave_picture_187385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187385.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C6797D7C270B30C137D8234A082DC5839577117E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187386.jpgsave_picture_187386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187386.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Camera ZOOM FX Premium v6.3.8 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187387.jpgsave_picture_187387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187387.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:F1634BFBF980230C0EAEA26225190E1448175415
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187388.jpgsave_picture_187388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187388.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:898801B99C50B2E4DA3ADB12E0E257499869EC90
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187389.jpgsave_picture_187389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187389.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:51B51868DBDCF28C139DF7E894A8A57BB61FF171
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187390.jpgsave_picture_187390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187390.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:741DBC0BB6DFB9743CC365D273AA7B6BE6F8A213
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187391.jpgsave_picture_187391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187391.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Uninstall Tool 3.7.3 Build 5719 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187394.jpgsave_picture_187394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187394.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:29C362213809A70146C759C1BDE631E663B112B0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187395.jpgsave_picture_187395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187395.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:46385DAFCFEFE471D81A5E271FA5ED1D65A72E8A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187396.jpgsave_picture_187396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187396.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Listen Audiobook Player v5.1.1 (957) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187397.jpgsave_picture_187397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187397.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:921A93FA0D517453E2FA4A6F0D8C2D7AE7A7CC82
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187398.jpgsave_picture_187398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187398.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ RogueKiller Anti-Malware 15.12.1.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187399.jpgsave_picture_187399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187399.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:0F537CF382EFF914CF47E95A8AE113B6834C68D9
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187400.jpgsave_picture_187400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187400.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B880ABC92C27260DDF0273B63AD227E9FA0AE43C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187402.jpgsave_picture_187402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187402.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ YT Downloader 9.3.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187403.jpgsave_picture_187403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187403.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:0FDBF1DDF4CBBE9155F8A195E044F4AF88FA7385
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187404.jpgsave_picture_187404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187404.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Linda Jo Rizzo - Passion (The Original Maxi-Singles Collection) (2023) Compilati
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187405.jpgsave_picture_187405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187405.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:A91580579590AD87DA61198E2B54C1029363DC2F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187406.jpgsave_picture_187406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187406.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187407.jpgsave_picture_187407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187407.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:7B212840FB2888810B2453F437C916BBEF1C8F63
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187408.jpgsave_picture_187408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187408.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Nox App Player 7.0.5.0001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187409.jpgsave_picture_187409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187409.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:8D212B82055808DE1E1E4DE1ED811D9BB2043340
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187410.jpgsave_picture_187410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187410.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:153F01AF4F8E30BD09EFEDD6D49DC980CD75803A
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187411.jpgsave_picture_187411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187411.jpg" />
 </div>
 
 

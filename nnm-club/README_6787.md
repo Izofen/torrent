@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233568.jpgsave_picture_233568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233568.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BimmerLink for BMW and MINI 2.29.0-5264 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233569.jpgsave_picture_233569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233569.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2E187693F235D0D852A548639F719936B8468427
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233570.jpgsave_picture_233570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233570.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Duke Robillard and his All-Star Band - Six Strings Of Steel (2023) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233571.jpgsave_picture_233571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233571.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Trickster 3.8.1 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233573.jpgsave_picture_233573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233573.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:ED3E502F33A1B54BB4ABAEA2CA23C94665130F49
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233574.jpgsave_picture_233574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233574.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Optimizer 15.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233575.jpgsave_picture_233575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233575.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Revo Uninstaller Pro 5.1.7 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233576.jpgsave_picture_233576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233576.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Moonshine Mojo - Mojolithic Vibrations (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233577.jpgsave_picture_233577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233577.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Freelance Mastery, Brad Traversy, Kyle Prinsloo | Freelance Mastery For Develope
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233579.jpgsave_picture_233579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233579.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ DMG Canvas 3.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233580.jpgsave_picture_233580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233580.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ BurnAware Professional / Premium 16.8 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233581.jpgsave_picture_233581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233581.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:C48C974E578F90779E777F1781A88BB8DD98EDBD
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233582.jpgsave_picture_233582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233582.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Topaz Photo AI 1.3.5 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233583.jpgsave_picture_233583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233583.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Resource Tuner Business 2.23.0.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233584.jpgsave_picture_233584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233584.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Middle 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233586.jpgsave_picture_233586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233586.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:A42C91346DB97CA5C3CC28FDD031B1930DF4093F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233587.jpgsave_picture_233587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233587.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:658012BB8E1E2EF8117995E743C7EF86F39167D5
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233588.jpgsave_picture_233588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233588.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:5AB119E071A579A98C4670FD33BBC9ED768E91B5
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233589.jpgsave_picture_233589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233589.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:CC49CA2413FC43B4C427B3BF0063F0BE6AE3146B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233591.jpgsave_picture_233591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233591.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:4F323B8AFCF5BAE5C311E03E50D063BFD8888E3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233592.jpgsave_picture_233592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233592.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Timemator 2 v2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233593.jpgsave_picture_233593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233593.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Def Leppard, Royal Philharmonic Orchestra - Drastic Symphonies (2023) [FLAC|96/2
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233594.jpgsave_picture_233594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233594.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:B40B5D399FED2EA60BA301A740870CA61605F108
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233595.jpgsave_picture_233595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233595.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Wondershare PDFelement 9.5.12.2329 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233596.jpgsave_picture_233596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233596.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:9A215C2B4ABF64A1FF3C2CDCD161428FE7A67FC5
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233597.jpgsave_picture_233597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233597.jpg" />
 </div>
 
 

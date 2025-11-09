@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196911.jpgsave_picture_196911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196911.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:95A600C94B471323E175425AA171774B652DADF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196912.jpgsave_picture_196912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196912.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:902A4BC2322D290C3F5FDAD81706539054235A96
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196913.jpgsave_picture_196913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196913.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E0030988AFEF1DC0D6E00D932EBE3629956B1000
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196914.jpgsave_picture_196914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196914.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1F446AE6E9A5385DCEEF2967481F2D69FF5278E6
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196915.jpgsave_picture_196915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196915.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D7F2518286F985CAD827D32D2C8B5DB80BB291E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196916.jpgsave_picture_196916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196916.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196917.jpgsave_picture_196917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196917.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:9CDB317A910781437A20B761AAD00DC1C384DFCF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196918.jpgsave_picture_196918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196918.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:F3FEAFA68A6F60C0C610446BC1464DFFFF496578
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196919.jpgsave_picture_196919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196919.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F17D16D92DF11789BF9DDDAD828FD07B0971C167
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196920.jpgsave_picture_196920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196920.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:7A83BFFC594F57947457657DB61DF8AE7408624D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196921.jpgsave_picture_196921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196921.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:FB6D779ABB2971D75D333FB6391055B0025A15F7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196922.jpgsave_picture_196922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196922.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:933FCFF974672F9FE45FCAAC5BDEA160FD858CEE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196924.jpgsave_picture_196924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196924.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:2C97ED0400B19705CD1CC0285C92BDFC4DF7A388
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196928.jpgsave_picture_196928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196928.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Foxford (Фоксфорд), Алла Васильева | Курс по англ
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196929.jpgsave_picture_196929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196929.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:AF42985F3E41D60C983C3EF01C0B6DFE0CECD481
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196930.jpgsave_picture_196930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196930.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:AD7714567D16F23ED58E0F520A182D497ABA7CA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196931.jpgsave_picture_196931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196931.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:60A3D090F76E136AC7EE5ED8719E0FEE9C5D2640
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196932.jpgsave_picture_196932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196932.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:0F28F52CCC250DDD429B2504361407B9E3DBA02F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196933.jpgsave_picture_196933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196933.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:923EA045132E4C0ECCABA54F7B34D4BE80402FA1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196934.jpgsave_picture_196934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196934.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Mask of the Rose (2023) [En] (1.2.664) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196935.jpgsave_picture_196935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196935.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:59200F4FE0C287E614CC4CA7C56EB61F45D7B4A7
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196936.jpgsave_picture_196936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196936.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:6C8818E2DC1D666BA02B8C195B0F3B91F2731D62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196938.jpgsave_picture_196938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196938.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:7C1ADE2F6001B17561A5C5BCA78D54A96B739458
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196939.jpgsave_picture_196939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196939.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:B4E5BAB6E0FBD6CE27DBAF03DBEBBD721A53A3EF
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196940.jpgsave_picture_196940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196940.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Apeiron, Алексей Арестович | Семинар «Картина м�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196941.jpgsave_picture_196941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196941.jpg" />
 </div>
 
 

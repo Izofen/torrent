@@ -6,7 +6,7 @@ VA - Music News For Forum vol.136 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27.jpgsave_picture_27.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CC4C39BA763AAF9942634D971D5BEAE3BF38DF50
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28.jpgsave_picture_28.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:720B4ADC8C0BC27BD98BBA3FC1D8383721F785C0
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29.jpgsave_picture_29.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C82F199905C6181C8DCF3401766C32244B29E03D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30.jpgsave_picture_30.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ RapidRAW 1.4.1 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31.jpgsave_picture_31.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:508BBD670846086D3ABBC6E8013BEFC236076B69
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32.jpgsave_picture_32.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:8D47701B2324B216B99C7B281627F5A0D7B68A93
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33.jpgsave_picture_33.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:CEB87112644AEC0B7EAB0A39BCBE2B3F62F03CA5
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34.jpgsave_picture_34.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:4ADED03BA73CD1606ED721A8E57B43EE6CFAB30D
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35.jpgsave_picture_35.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Hellcats - Unstoppable (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36.jpgsave_picture_36.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:C2D80AE7952ABA3B770B7DC58BE56D27C8E7EE32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37.jpgsave_picture_37.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:F365136D3FAE52699E577E06924F20EED75FC78F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38.jpgsave_picture_38.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:CFF084F32C09A9295F152CF1BE412B229A3A3A7E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39.jpgsave_picture_39.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:51F024E42306405AA879769DF448EA28F5F72692
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40.jpgsave_picture_40.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:2F879B38B36FC9F8440D0D171B57E00E3010918E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41.jpgsave_picture_41.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D4545D29B9A3B9BA3C5C231BDD5F92139169991B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42.jpgsave_picture_42.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:8A137802C2832E60CD6FF00D9F61721DB18FD55C
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43.jpgsave_picture_43.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:263CB603A1F69984B29B5A6224A72B5F3F40D6BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44.jpgsave_picture_44.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:4644693937C981FBAAFFAE2B4BC44763EF4FA749
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45.jpgsave_picture_45.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:A780A449BB2256E62BD9AEA3E86C16030AFA67C2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46.jpgsave_picture_46.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:777F3458188CA4A44BABF4A242932B44B373C72B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47.jpgsave_picture_47.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:ED309F5BCB9A3AFFAA7C50D0B9D8F3EBF39AF624
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48.jpgsave_picture_48.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:F2460DEB814CF32BF026ADB8AEC23B06E1929975
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49.jpgsave_picture_49.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:440A441E824BD5E0D6D20FCBEE58B1CA3D55C7F7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50.jpgsave_picture_50.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:55DA52C744ADAC2DD76DD5FCCB09D70463E17D2C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51.jpgsave_picture_51.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:342FA3926E6047F3B093F685A63459DE523969A2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52.jpgsave_picture_52.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52.jpg" />
 </div>
 
 

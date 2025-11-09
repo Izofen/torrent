@@ -6,7 +6,7 @@ Nordheim - Lost In The North (2010) [MP3|320 кб/с]<Viking/Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251358.jpgsave_picture_251358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251358.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Daniel Djokic - Like It Like This (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251359.jpgsave_picture_251359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251359.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:0A6981E820B84E1A5C96E75DFB362F013E95AB4F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251361.jpgsave_picture_251361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251361.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0B9398C1B002B0F4297BBB9DB4ACD0C56473F8EB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251364.jpgsave_picture_251364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251364.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:79F752BE770DBC40D89EBD357DC75B71375E0067
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251370.jpgsave_picture_251370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251370.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F892687A64CB3C2BAF0386A6D3041C7324B2BEF8
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251371.jpgsave_picture_251371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251371.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Ne
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251372.jpgsave_picture_251372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251372.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Realms of Chaos [En] (RePack) 1995 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251374.jpgsave_picture_251374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251374.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Realms of Chaos [En] (RePack) 1995 | Pilotus
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251375.jpgsave_picture_251375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251375.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:1F740D812FEB36B1B219D603263E70B73C4DE183
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251377.jpgsave_picture_251377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251377.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:49813C43AF92719F22574095F697EB4C29C581B7
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251381.jpgsave_picture_251381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251381.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - MAXI. Хитовые новинки MTV (2012) [MP3|256-320 кб/с]<Pop,Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251386.jpgsave_picture_251386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251386.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ NKQ-Nigel Kennedy Quintet - The Blue Note Sessions : Live In Paris At The New Mo
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251391.jpgsave_picture_251391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251391.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Planet's Edge: The Point of No Return [En] (RePack) 1991 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251393.jpgsave_picture_251393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251393.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Planet's Edge: The Point of No Return [En] (RePack) 1991 | Pilotus
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251394.jpgsave_picture_251394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251394.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:E6149FFDAD89555637F9D9099B1C31FFDA40BAC0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251400.jpgsave_picture_251400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251400.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ P.H.O.B.O.S. - Atonal Hypermnesia (2012) [MP3|320 кб/с]<Psychedelic Industria
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251401.jpgsave_picture_251401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251401.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:74D75EFC04FFD209EC79678876E219D0AD123A96
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251405.jpgsave_picture_251405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251405.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:B19B9088FC261D04C0FC5FAFEADE896456ED5FF0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251406.jpgsave_picture_251406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251406.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:07EBB359D3EE89B830235DE955AA035FC3C100EC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251407.jpgsave_picture_251407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251407.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:4D5E9FEBEAE7463DC7915A562C05AF5686F034EE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251410.jpgsave_picture_251410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251410.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ iSpy 4.1.6.0 Portable by Noby x32/x64 [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251412.jpgsave_picture_251412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251412.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Blue Notes - The Finest Voices In Jazz (2005) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251413.jpgsave_picture_251413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251413.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Blue Notes - The Finest Voices In Jazz (2005) [FLAC|Lossless]<Jazz>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251414.jpgsave_picture_251414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251414.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:27E3E107667325BDE0BB9469FE53B31824DA5D45
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251415.jpgsave_picture_251415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251415.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ magnet:?xt=urn:btih:C49060DA1743C2FD81169B64F45D28FB6FE5231A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251420.jpgsave_picture_251420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251420.jpg" />
 </div>
 
 

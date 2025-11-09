@@ -6,7 +6,7 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game / Вои
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185699.jpgsave_picture_185699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185699.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D48211A12BA0CA9F01D683A60341B67C39E3FD4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185700.jpgsave_picture_185700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:39D0EDAA77530C22BDD21F2567740A5308BD1538
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185701.jpgsave_picture_185701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185701.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FB92E2C6BCBE222213FD288127241ADE0A32A919
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185703.jpgsave_picture_185703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185703.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Creative Shrimp | 50 адских ошибок в 3D моделировании 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185704.jpgsave_picture_185704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185704.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Matisse & Sadko & Third ≡ Party & DubVision - Tomorrowland Friendship Mix (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185705.jpgsave_picture_185705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185705.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:A528AEF91241311DCC32593C731FF63D50979C8A
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185707.jpgsave_picture_185707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185707.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Udemy, Dharmanandana Reddy Pothula | Advanced Ethical Hacking : Mastery AI & Cha
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185709.jpgsave_picture_185709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185709.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:8CF9C58AD46C15BD000C4424C7523321B90286D6
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185711.jpgsave_picture_185711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185711.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:66121BA976DBCFCE911E5D5A7C99897D62B7CB17
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185712.jpgsave_picture_185712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185712.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:0C6F8909A68C83EE905D7D6D59F8FD31FCAEF89C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185713.jpgsave_picture_185713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185713.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:2702541E8799839277E5E4416E06D436F53BEF9D
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185715.jpgsave_picture_185715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185715.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:62173540173552E70BCBC0A602CDDA1CF3EE36CF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185716.jpgsave_picture_185716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185716.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:652ACCBA31F0B14A38F0C139C183456A2E1E5E63
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185717.jpgsave_picture_185717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185717.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:47785FE97FE40AF2315CAD5DE5609D54FE064EE3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185719.jpgsave_picture_185719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185719.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:D75010C760E4D8C3A233B46C68BBF909C28B082A
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185720.jpgsave_picture_185720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185720.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:E27ECA5CD8C744061D7E406511A26A62B4958163
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185721.jpgsave_picture_185721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185721.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:4EFD5772177E03725FDF8DF86ABECB29A66FF694
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185723.jpgsave_picture_185723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185723.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Core Temp 1.18.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185724.jpgsave_picture_185724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185724.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Gift Cookies, Ирина Мошкина | 3 в 1. Совершенство в к
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185725.jpgsave_picture_185725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185725.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:917F8A4929EE73DDC01117C5FDA8004C2FD98565
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185727.jpgsave_picture_185727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185727.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:2F6BFFA14489B3CE48C213B2645B90437B70D3F2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185728.jpgsave_picture_185728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185728.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:E6E5BDDD26794DF8C377098F3273B318F784F377
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185730.jpgsave_picture_185730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185730.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Sweet Home 3D 7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185732.jpgsave_picture_185732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185732.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:4D288AF07E66843E6818CCD7421F2CF368884471
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185733.jpgsave_picture_185733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185733.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Tycho - Discography 54 Releases (2002-2020) Ghostly International, Ninja Tune [F
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185734.jpgsave_picture_185734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185734.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21772.jpgsave_picture_21772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21772.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.3.1.10846) Repack seleZen [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21778.jpgsave_picture_21778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21778.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21787.jpgsave_picture_21787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21787.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21795.jpgsave_picture_21795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21795.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack FitGirl [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21854.jpgsave_picture_21854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21854.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Cinemaster: Cinema Simulator (2025) [Ru/Multi] (1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21879.jpgsave_picture_21879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21879.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21880.jpgsave_picture_21880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21880.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21883.jpgsave_picture_21883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21883.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack seleZen [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21886.jpgsave_picture_21886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21886.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21892.jpgsave_picture_21892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21892.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21901.jpgsave_picture_21901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21901.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21904.jpgsave_picture_21904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21904.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Scene FAiRLiGHT [Deluxe E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21905.jpgsave_picture_21905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21905.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21906.jpgsave_picture_21906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21906.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) R
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21922.jpgsave_picture_21922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21922.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Making of Karateka (2023) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21925.jpgsave_picture_21925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21925.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Imagine Earth (2021) [Ru/Multi] (1.19/dlc) Repack FitGirl [Green Planet Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21977.jpgsave_picture_21977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21977.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21980.jpgsave_picture_21980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21980.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21986.jpgsave_picture_21986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21986.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Old Market Simulator (2024) [Ru/Multi] (1.5.5) Pepack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21999.jpgsave_picture_21999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21999.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22004.jpgsave_picture_22004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22004.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Eden Crafters (2024) [Ru/Multi] (0.60d) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22009.jpgsave_picture_22009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22009.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Imagine Earth (2021) [Ru/Multi] (1.19.0.6676/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22019.jpgsave_picture_22019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22019.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Factory Outlet Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22041.jpgsave_picture_22041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22041.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ PEPPERED (2025) [Ru/Multi] (Build 18001699) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22063.jpgsave_picture_22063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22063.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22065.jpgsave_picture_22065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22065.jpg" />
 </div>
 
 

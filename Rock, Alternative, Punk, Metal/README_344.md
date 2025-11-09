@@ -6,7 +6,7 @@ White Skull - Metal Never Rusts (2022) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191849.jpgsave_picture_191849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191849.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blodhemn - Mot ein evig ruin (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191853.jpgsave_picture_191853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191853.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Id - Disaster Movie (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191923.jpgsave_picture_191923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191923.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Breeze - A Dream Within A Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191934.jpgsave_picture_191934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191934.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tears to Embers - Masquerade (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191938.jpgsave_picture_191938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191938.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Wytches Moon - 3 Releases (2023) [FLAC|Lossless|WEB-DL|tracks] <Occult Rock, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191939.jpgsave_picture_191939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191939.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hunter - Rebel Angels Rise (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191943.jpgsave_picture_191943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191943.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Heartbound - Pace (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191947.jpgsave_picture_191947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191947.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Little Falls Trophy - Dutch Motel (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191950.jpgsave_picture_191950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191950.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191951.jpgsave_picture_191951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191951.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Course of Fate - Somnium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191952.jpgsave_picture_191952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191952.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bottomless - The Banishing (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191953.jpgsave_picture_191953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191953.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Freddie Mercury - 6 albums, 2 Box-set, 19 CD (1985-2019) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191965.jpgsave_picture_191965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191965.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:68A079F57698E80BFF610E7C7941249E8319DDBF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192015.jpgsave_picture_192015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192015.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Smash Mouth - 6 альбомов + 2 компиляции + 2 сингла (1997
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192019.jpgsave_picture_192019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192019.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ amma'd'amma - rock stars obscured by... (2021) [FLAC|Lossless|tracks + .cue] <Ma
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192081.jpgsave_picture_192081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192081.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Fear Factory - Recoded (2022) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192083.jpgsave_picture_192083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192083.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A67F2B9ABB69B8D875B8ED592ED2E63C9F0DB0A9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192089.jpgsave_picture_192089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192089.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Bad Wolves - Dear Monsters (2022) Deluxe [MP3|320 kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192126.jpgsave_picture_192126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192126.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Scream in Darkness - Судный день (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192134.jpgsave_picture_192134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192134.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Lemuria - Chanson de la Croisade (2010) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192140.jpgsave_picture_192140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192140.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Dead Cross - II (2022) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Crossover, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192146.jpgsave_picture_192146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192146.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Biters - The Future Ain't What It Used To Be (2017) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192148.jpgsave_picture_192148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192148.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Lemuria - Tales, Ale and Fire (2005) [FLAC|Lossless|image + .cue] <Symphonic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192161.jpgsave_picture_192161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192161.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Warsenal - Feast Your Eyes (2019) [FLAC|Lossless|image + .cue] <Speed, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192163.jpgsave_picture_192163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192163.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Mezzrow - Then Came The Killing (1990) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192165.jpgsave_picture_192165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192165.jpg" />
 </div>
 
 

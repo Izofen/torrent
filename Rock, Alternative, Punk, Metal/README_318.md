@@ -6,7 +6,7 @@ Sylvaine - Nova (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Black Meta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184626.jpgsave_picture_184626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184626.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Persuader - Necromancy (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184629.jpgsave_picture_184629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184629.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PALLEA - Парусник Маака (2022) [FLAC|Lossless|WEB-DL|tracks] <Screa
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184635.jpgsave_picture_184635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184635.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kurnalcool - The Final Tazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184641.jpgsave_picture_184641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184641.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Broken Lock - Postmodern Songs (2022) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184648.jpgsave_picture_184648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184648.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Smog - Nuor (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184658.jpgsave_picture_184658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184658.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Kres - 40 nocy grudnia (2016) [FLAC|Lossless|image + .cue] <Atmospheric Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184662.jpgsave_picture_184662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184662.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Within Temptation - Live In Hell (2023) [MP3|320 Kbps] <Symphonic Rock, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184668.jpgsave_picture_184668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184668.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kres - Na krawedziach nocy (2015) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184672.jpgsave_picture_184672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184672.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Charade - Charade I & II (2004) Special Edition, 2CD [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184732.jpgsave_picture_184732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184732.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sabbra Cadabra - Kissmoker (A Stoner Rock Tribute To Kiss) (2023) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184745.jpgsave_picture_184745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184745.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B8D868E4BCB4B0D8683F1B49C71E14C04369F9E2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184753.jpgsave_picture_184753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184753.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Crimson Dawn - It Came From The Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184779.jpgsave_picture_184779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184779.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Soen - Memorial (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184805.jpgsave_picture_184805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184805.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Raspberries - Live 1973-1974 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184838.jpgsave_picture_184838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184838.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Entropia - Eclipses (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184849.jpgsave_picture_184849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184849.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Loonypark - Strange Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184860.jpgsave_picture_184860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184860.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Big Bus Dream - C'mon Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184864.jpgsave_picture_184864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184864.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Grymheart - Hellish Hunt (2023) [MP3|320 Kbps] <Melodic Death, Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184880.jpgsave_picture_184880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184880.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Candleblack - The Passage of Time and Suffering (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184893.jpgsave_picture_184893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184893.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Vibravoid - Edge of tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184898.jpgsave_picture_184898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184898.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Cardinal Point - Man Or Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184906.jpgsave_picture_184906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184906.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Decadence - Book Of The Redeemed (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184932.jpgsave_picture_184932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184932.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Fossilization - Leprous Daylight (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184955.jpgsave_picture_184955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184955.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Damnation's Hammer - Into The Silent Nebula (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184960.jpgsave_picture_184960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184960.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Drakon - П​р​о​б​у​ж​д​е​н​и​е (2022) [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185113.jpgsave_picture_185113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185113.jpg" />
 </div>
 
 

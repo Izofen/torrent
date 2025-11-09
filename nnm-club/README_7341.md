@@ -6,7 +6,7 @@ VA - Зарубежные Новинки Vol.49 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251070.jpgsave_picture_251070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251070.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Zero Point Energy (2012) [MP3|320 кб/с]<Psychedelic / Dark Progressive, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251072.jpgsave_picture_251072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251072.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ magnet:?xt=urn:btih:C2A649A08DA1FC08D9F2A977D8F2480EDCD522EF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251074.jpgsave_picture_251074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251074.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ Banda Black Rio - Super Nova Samba Funk (2011) [FLAC|Lossless]<Latin Jazz, Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251075.jpgsave_picture_251075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251075.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Kiss From A Rose vol.1-2 (2009) [MP3|192 kbps]<Gothic Rock, Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251078.jpgsave_picture_251078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251078.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:B7ABC86C150A2BED40EB3D96566933903207519C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251081.jpgsave_picture_251081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251081.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Massiv Satisfaction (2011) [MP3|320 кб/с]<Euro Dance, Pop Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251084.jpgsave_picture_251084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251084.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - Trance The Ultimate Collection 2012 Vol.2 (2012) [MP3|~253 кб/с (V0)]<Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251088.jpgsave_picture_251088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251088.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Vocal Trance Volume 30 (09.05.2012) [MP3|320 кб/с]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251090.jpgsave_picture_251090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251090.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Download Master 5.12.7 Build 1307 Final + Portable [Ml / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251094.jpgsave_picture_251094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251094.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Download Master - программа для загрузки файлов из �
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251103.jpgsave_picture_251103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251103.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:345EB376E648FCFA4E5232C1DDA326CD6755DCC0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251106.jpgsave_picture_251106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251106.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Karmin - Hello (2012) [MP3|320 кб/с]<Pop-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251110.jpgsave_picture_251110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251110.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:1B160C492DAFB5184E08C292E2779983F6ACDB97
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251113.jpgsave_picture_251113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251113.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:733AF2569C8E246A5C9A0CA6699DBAAE34E66AFF
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251115.jpgsave_picture_251115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251115.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251117.jpgsave_picture_251117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251117.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B331D425AB0B3B98A6F811FA5EADC7CFFA0219BE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251120.jpgsave_picture_251120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251120.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [F
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251122.jpgsave_picture_251122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251122.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Nebelkorona - 3 albums (2006-2010) [FLAC|Lossless] <Neoclassical, Ambient, Neofo
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251123.jpgsave_picture_251123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251123.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Maxthon 3.3.8.1000 + Portable by PortableAppz x32/x64 [Мульти,Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251124.jpgsave_picture_251124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251124.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Maxthon - новая версия браузера. Maxthon обладает м�
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251125.jpgsave_picture_251125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251125.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:A28A27AC6F4CB160CD09383688B39914559F6329
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251126.jpgsave_picture_251126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251126.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251128.jpgsave_picture_251128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251128.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251130.jpgsave_picture_251130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251130.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251131.jpgsave_picture_251131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251131.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ At Vance - Facing Your Enemy (2012) [FLAC|Lossless]<Neoclassical/Power Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251133.jpgsave_picture_251133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251133.jpg" />
 </div>
 
 

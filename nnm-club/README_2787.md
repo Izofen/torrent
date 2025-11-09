@@ -6,7 +6,7 @@ VA - The World's Greatest Ballads (2011) 3CD [FLAC|Lossless]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78750.jpgsave_picture_78750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78750.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - The World's Greatest Ballads (2011) 3CD [FLAC|Lossless]<Pop>
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78753.jpgsave_picture_78753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78753.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:EE819208D0CA27D53939F95EA8DF4D26025E1851
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78757.jpgsave_picture_78757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78757.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Ludwig Van Beethoven - Missa Solemnis (1990) [FLAC|Lossless]<камерная>
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78761.jpgsave_picture_78761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78761.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ magnet:?xt=urn:btih:DE0F2795AB8100CC44245DEA2815A10A0CC9F08A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78765.jpgsave_picture_78765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78765.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Matia Bazar - 2 альбома (2006-2011) [FLAC|Lossless]<Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78778.jpgsave_picture_78778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78778.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Matia Bazar - 2 альбома (2006-2011) [FLAC|Lossless]<Pop>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78782.jpgsave_picture_78782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78782.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:886565DE8F63B5BAB716383E050B0A605A32A3B6
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78784.jpgsave_picture_78784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78784.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:8DCD0736844C14240B342D554FD0680C6ACA306C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78787.jpgsave_picture_78787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78787.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:77AB5193A3A7064924F8B60DB01FA2570CCB5DE3
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78788.jpgsave_picture_78788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78788.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:769BF1DC107990D2B693E708161AA9D701B1C067
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78791.jpgsave_picture_78791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78791.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:941E91610D949F71C7BE1F06B9157B4395A652FC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78793.jpgsave_picture_78793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78793.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:941E91610D949F71C7BE1F06B9157B4395A652FC
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78800.jpgsave_picture_78800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78800.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Plies - On Trial (2012) [MP3|320 кб/с]<Dirty South>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78805.jpgsave_picture_78805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78805.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:7239DFAF409EB4DE4B609939374F0A918AB06658
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78806.jpgsave_picture_78806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78806.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78809.jpgsave_picture_78809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78809.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Золотые хиты ВИА. Песни Вячеслава Добрын�
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78811.jpgsave_picture_78811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78811.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:4AFE0A152DFCD9E261BCE7CB12D2AF47BC3F8247
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78815.jpgsave_picture_78815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78815.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Rockets - 6 Студийных альбомов (1976-1982) /2000-2003, Rockland
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78823.jpgsave_picture_78823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78823.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Playboy: разденьте девушку / Undress a Woman (26.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78824.jpgsave_picture_78824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78824.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Playboy: разденьте девушку / Undress a Woman (26.02.2012) SATRip
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78826.jpgsave_picture_78826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78826.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:1E5254E2342D20A4656498EA8F82B27D3A7BF58A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78828.jpgsave_picture_78828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78828.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:ED0EA7E23B5FD4183D81220B8850865F2776B61B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78835.jpgsave_picture_78835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78835.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Dear Esther [Wineskin] [Rus]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78839.jpgsave_picture_78839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78839.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:DDEA4D61C13FF01B1FF518BAC5C7F4F21A053119
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78842.jpgsave_picture_78842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78842.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:DDEA4D61C13FF01B1FF518BAC5C7F4F21A053119
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78844.jpgsave_picture_78844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78844.jpg" />
 </div>
 
 

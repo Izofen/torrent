@@ -6,7 +6,7 @@ Liveclasses, Павел Лебедев | PowerPoint: быстрый старт (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116939.jpgsave_picture_116939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116939.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:F56A687BF8AA1E0D89D2E7FF2D6406AB63F69195
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116940.jpgsave_picture_116940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116940.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ CCleaner Pro: ПО для очистки 24.03.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116941.jpgsave_picture_116941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116941.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ OpenAI представилa нейронку Sora, способную гене�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116942.jpgsave_picture_116942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116942.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.0.1/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116943.jpgsave_picture_116943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116943.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608/dlc) Repack Other s [Par
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116944.jpgsave_picture_116944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116944.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E89903DA1E34655098F0191C198BB605A58DFD16
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116945.jpgsave_picture_116945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116945.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7A9E3240847FA0D4FAD2418B9400F673D54A2B48
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116946.jpgsave_picture_116946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116946.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:C67F885B99485984C4EA470286CFFAE0132F6C98
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116947.jpgsave_picture_116947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116947.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:C58F1BEFB2D9B187B625A10E4074995DF3F2DC10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116948.jpgsave_picture_116948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116948.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7.2369) Repack Other s [Part 2]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116949.jpgsave_picture_116949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116949.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:B79638AA7534A9986B98AA8E0CF8C2C9EBA8A4B7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116950.jpgsave_picture_116950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116950.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116951.jpgsave_picture_116951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116951.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Scooter - Video collection - Chapter 1 (1994 - 1997) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116952.jpgsave_picture_116952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116952.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:AAC3DAD53AB6E80B4DDE0A1E582009B8C0AE8CFB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116953.jpgsave_picture_116953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116953.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:500A082484917338DE0076C4DE6A59A046F04F55
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116954.jpgsave_picture_116954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116954.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Siberian Village (2024) [Ru/Multi] (0.97) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116955.jpgsave_picture_116955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116955.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:23A5B6EC1995F9AAE6C7877B617467CD6E0D564F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116956.jpgsave_picture_116956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116956.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:A7FD7D92098460A122589E075FE19B996FA6EC6B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116957.jpgsave_picture_116957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116957.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:49A483C2268DBC17EE91BF931C0386CC7BE05373
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116958.jpgsave_picture_116958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116958.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116959.jpgsave_picture_116959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116959.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:5E4BC40E6EC1E65B5EFB93C0A3AC000FF60F3708
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116960.jpgsave_picture_116960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116960.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Various Artists - A Tribute To Smoke On The Water (extended) (2008) [MP3|320 kbp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116961.jpgsave_picture_116961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116961.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Geometry Nodes in Blender 4: Create Comp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116962.jpgsave_picture_116962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116962.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender Material Nodes Master: Create Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116963.jpgsave_picture_116963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116963.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Stepik, Глеб Михайлов | А/Б-тесты с Глебом Михай�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116964.jpgsave_picture_116964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116964.jpg" />
 </div>
 
 

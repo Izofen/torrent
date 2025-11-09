@@ -6,7 +6,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64) Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111699.jpgsave_picture_111699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111699.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Soul Browser 1.4.14 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111700.jpgsave_picture_111700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:82468CA4166FA0579DD8DCDB364B97BEBC528D2C
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111701.jpgsave_picture_111701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111701.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft .NET 7.0.18 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111702.jpgsave_picture_111702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111702.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4EA2A06D17069064252DD2E32E073AF9A328016E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111703.jpgsave_picture_111703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111703.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Microsoft .NET 6.0.29 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111704.jpgsave_picture_111704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111704.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:381C43C7F3260F46E0F3F3943A1321B2C0736F17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111705.jpgsave_picture_111705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111705.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:BB6F4E2D4BD127DA124264B71A8AF0E0982B020A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111706.jpgsave_picture_111706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111706.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ QuickTextPaste 8.79 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111707.jpgsave_picture_111707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111707.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:679C5AF32D519F4891A5D8D249BCBAD169DE41CE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111708.jpgsave_picture_111708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111708.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Viber 22.4.0.3 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111709.jpgsave_picture_111709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111709.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E6DB10C640B441E6773AF8B42EC6295D93C261AC
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111710.jpgsave_picture_111710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111710.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:84FA7C60B0B7FFD1C6E4FD2D96C313A46B355A1B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111711.jpgsave_picture_111711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111711.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Kenya Grace - The After Taste (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111712.jpgsave_picture_111712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111712.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Santana - Santana (1969) [FLAC|Lossless|image + .cue] <Psychedelic Rock, Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111713.jpgsave_picture_111713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111713.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:66C2B7087A9F28F6B8CED20C9E7CFAD582D11C6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111714.jpgsave_picture_111714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111714.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Mahmut Orhan - Pangea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111715.jpgsave_picture_111715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111715.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:427EE668D83D87CA2DF5F1FC96FBA5E24B23E3E4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111716.jpgsave_picture_111716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111716.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ White Dog - Double Dog Dare (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111717.jpgsave_picture_111717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111717.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Five Finger Death Punch - AfterLife (2022) Deluxe, 2024, Better Noise Music [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111718.jpgsave_picture_111718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111718.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Chris Connor - Sings Lullabys of Birdland (1956) 2007, Victor Entertainment [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111719.jpgsave_picture_111719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111719.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Still Corners - Dream Talk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111720.jpgsave_picture_111720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111720.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111721.jpgsave_picture_111721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111721.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Celtian - Secretos de Amor y Muerte (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111722.jpgsave_picture_111722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111722.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Little Albert - The Road Not Taken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111723.jpgsave_picture_111723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111723.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ The Meteors - 40 Days a Rotting (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111724.jpgsave_picture_111724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111724.jpg" />
 </div>
 
 

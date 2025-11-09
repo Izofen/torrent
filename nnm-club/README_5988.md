@@ -6,7 +6,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188463.jpgsave_picture_188463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188463.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:79D1E39314DF4BD91F1A5DC376A176A8BEB7B664
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188464.jpgsave_picture_188464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188464.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8AE319D7FF0E1AB549BF504A09F3A837F7B0C8A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188465.jpgsave_picture_188465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188465.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ PDF-XChange Editor Plus 10.1.0.380 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188466.jpgsave_picture_188466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188466.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D6C125851B280EC706152718263AA22FCA77AEBE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188467.jpgsave_picture_188467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188467.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AIMP 5.10 Build 2414 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188469.jpgsave_picture_188469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188469.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Simon Viklund - Steal From The Rich, Give To Myself (2019) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188470.jpgsave_picture_188470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188470.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ RarmaRadio Pro 2.74.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188471.jpgsave_picture_188471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188471.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Skye Tales (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188472.jpgsave_picture_188472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188472.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Sketch 94.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188473.jpgsave_picture_188473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188473.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ EF Commander 2023.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188474.jpgsave_picture_188474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188474.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Take 6 - Live (2000) Reprise Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188475.jpgsave_picture_188475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188475.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ HP Service Pack for ProLiant Gen 11 2023.04 [En]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188476.jpgsave_picture_188476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188476.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:7410F0A8CE4B206ADF970DC57FDE0C6811E0C55C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188477.jpgsave_picture_188477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188477.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:359B78030354582A0E37D23DC15F82E9D4B2EB32
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188478.jpgsave_picture_188478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188478.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Waterfox Current G5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188479.jpgsave_picture_188479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188479.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:383496E74E21C04B75B0DDCAB9CD46698197DE05
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188480.jpgsave_picture_188480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188480.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:C7986B554F6FD4B2C5499FC525DBE1A6A42AA141
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188481.jpgsave_picture_188481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188481.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ D16 Group - Effects Plugins 11.2022 VST, VST3, AAX (X86/X64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188482.jpgsave_picture_188482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188482.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Icecream Screen Recorder Pro 7.17 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188483.jpgsave_picture_188483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188483.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ LibreWolf 117.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188484.jpgsave_picture_188484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188484.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:B563488250865F660F81A56055E11E8D38DB7105
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188485.jpgsave_picture_188485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188485.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Firefox Browser ESR 102.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188486.jpgsave_picture_188486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188486.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ XY VPN - Security Proxy VPN 4.7.124 Mod by PieMods [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188487.jpgsave_picture_188487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188487.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ FileMenu Tools 8.2.2 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188488.jpgsave_picture_188488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188488.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:693E5E8423738456AB0E9BD19F3D6EC1F9D145F9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188489.jpgsave_picture_188489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188489.jpg" />
 </div>
 
 

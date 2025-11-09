@@ -6,7 +6,7 @@ Beyond Compare Pro 4.4.6.27483 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206012.jpgsave_picture_206012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206012.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ It Happened Here 2: Beacon of Truth / Это случилось здесь 2: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206014.jpgsave_picture_206014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206014.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206016.jpgsave_picture_206016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206016.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.1 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206017.jpgsave_picture_206017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206017.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:36B888F8914C7E1E178846EDAF039F039AE96D18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206020.jpgsave_picture_206020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206020.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ KeePassXC 2.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206021.jpgsave_picture_206021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206021.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ExperienceIndexOK 4.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206022.jpgsave_picture_206022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206022.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Wondershare Filmora for Mac  12.4.2  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206025.jpgsave_picture_206025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206025.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:1A26EC0F9782F46911689A3F896E37159EC7FDC7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206027.jpgsave_picture_206027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206027.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:39AAEEA7075C60383CDBDAA6BC327380804B57A2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206029.jpgsave_picture_206029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206029.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206030.jpgsave_picture_206030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206030.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206033.jpgsave_picture_206033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206033.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Airy 3.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206036.jpgsave_picture_206036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206036.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VA - Б. Рубашкин, И. Ребров•Звезды русской эми
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206037.jpgsave_picture_206037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206037.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:C8E9D8BD1C807040EE97ABE0F780FD93D1CEE85C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206038.jpgsave_picture_206038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206038.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Display Driver Uninstaller 18.0.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206041.jpgsave_picture_206041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206041.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Music News vol.290 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206043.jpgsave_picture_206043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206043.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206046.jpgsave_picture_206046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206046.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Xara Photo & Graphic Designer+ 23.3.0.67471 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206048.jpgsave_picture_206048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206048.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ OfficeSuite Pro + PDF 13.12.48620 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206049.jpgsave_picture_206049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206049.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Firefox Browser 116.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206052.jpgsave_picture_206052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206052.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ DNS Changer 2.1.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206053.jpgsave_picture_206053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206053.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Opera One 101.0.4843.58 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206056.jpgsave_picture_206056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206056.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6E4F8FB02FB440BA552C138A26FDE7E497A574D8
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206057.jpgsave_picture_206057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206057.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Vegas Image 5.0.0 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206058.jpgsave_picture_206058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206058.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ RedNotebook 2.30.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206062.jpgsave_picture_206062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206062.jpg" />
 </div>
 
 

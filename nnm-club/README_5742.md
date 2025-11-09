@@ -6,7 +6,7 @@ Office 2013-2021 C2R Install + Lite 7.4.9.1 b01 ++ Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177593.jpgsave_picture_177593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177593.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CF2E8F99A7DBE1BD1AC4EE2056FF5724FC89DE79
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177595.jpgsave_picture_177595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177595.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Apotheus - Ergo Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177596.jpgsave_picture_177596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177596.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E734FB183857D8F546447B98305A012295E262A5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177600.jpgsave_picture_177600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177600.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:552E035FBBBCAAAF2C9AEDE6947DEE07399B096B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177601.jpgsave_picture_177601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177601.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Stonemiller Inc. - Welcome To The Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177603.jpgsave_picture_177603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177603.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:0A74272D7EDD4E0A2E6189E1BBF45826B2354DB7
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177605.jpgsave_picture_177605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177605.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Marcel Verand - Memorias De Un Despertar - Reclama Tu Libertad (2023) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177607.jpgsave_picture_177607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177607.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:72B163FB42C1F2CBCF6D34FBE6D03A456AE9F661
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177611.jpgsave_picture_177611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177611.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Portal - Ion (2018) [FLAC|24/192|image + .cue|Vinyl-Rip]<Experimental Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177613.jpgsave_picture_177613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177613.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177615.jpgsave_picture_177615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177615.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ AOMEI Partition Assistant Technician Edition 9.13.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177617.jpgsave_picture_177617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177617.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Rave The Reqviem - EX​-​EDEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177619.jpgsave_picture_177619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177619.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:8DF1ABBD87E2ABC341CE1C1ECE2BD25F826E34C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177621.jpgsave_picture_177621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177621.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:3BC20EDB929ADF95017903180AFE8D4683D84B0F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177623.jpgsave_picture_177623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177623.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Jack McDuff - The Concert McDuff (1963 - 1966) 2002, Prestige [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177625.jpgsave_picture_177625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177625.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nauthik - Araganu (2020) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177628.jpgsave_picture_177628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177628.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Windows 11 Manager 1.1.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177629.jpgsave_picture_177629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177629.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:FD45D9BA4CBE4A496C7F12BC155C5AFC6A5C4A76
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177631.jpgsave_picture_177631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177631.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:6701DE35822B7369D998A518A9A678D42885DAA5
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177633.jpgsave_picture_177633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177633.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:02506E15185E7CF5821C1D1D167590D8A16BFF98
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177634.jpgsave_picture_177634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177634.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ StartAllBack 3.5.5 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177639.jpgsave_picture_177639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177639.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:07B18136B3F499D1C9331310851FBCD0DEC38995
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177641.jpgsave_picture_177641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177641.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Luca Brasi - The World Don’t Owe You Anything (2023) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177643.jpgsave_picture_177643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177643.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:C2D2A8500D59874CA1A2E30E81A5F4353CE33000
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177645.jpgsave_picture_177645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177645.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:803413DFB1BDD93A1DA8D8CC8923067E2B962D9F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177646.jpgsave_picture_177646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177646.jpg" />
 </div>
 
 

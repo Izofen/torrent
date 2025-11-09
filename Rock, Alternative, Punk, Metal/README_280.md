@@ -6,7 +6,7 @@ Lionheart - Welcome to the West Coast III (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169958.jpgsave_picture_169958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169958.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Krilloan - Emperor Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169968.jpgsave_picture_169968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169968.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ After Lapse - Face the Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive m
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169975.jpgsave_picture_169975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169975.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Barabbas - La Mort Appelle Tous Les Vivants (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169981.jpgsave_picture_169981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169981.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Brothers Till We Die - Reincarnation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169986.jpgsave_picture_169986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169986.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ All the Fury - Layers (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169990.jpgsave_picture_169990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169990.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eufobia - Insemination (2010) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169995.jpgsave_picture_169995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169995.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Veladelyra - XXI (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169997.jpgsave_picture_169997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169997.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Fuzzy Duck - Fuzzy Duck (1971) Reissue, 1993, Repertoire Records [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170000.jpgsave_picture_170000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170000.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Airstrike - Power in Your Hand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170002.jpgsave_picture_170002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170002.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nirvana - In Utero (1993) 30th Anniversary Super Deluxe, 2023, Geffen [MP3|320 K
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170008.jpgsave_picture_170008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170008.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Deeds of Flesh - Nucleus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Technical-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170011.jpgsave_picture_170011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170011.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ribspreader - The Van Murderers - Part 2 (2018) [APE|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170025.jpgsave_picture_170025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170025.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:495C5E787D735BA87401DADCABAA5F57D0AE1713
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170041.jpgsave_picture_170041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170041.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:D3CE341770797E83F2A6015874C04659E1328858
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170108.jpgsave_picture_170108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170108.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nirvana - In Utero (1993) 2xCD, Remastered, 2023, UMe [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170143.jpgsave_picture_170143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170143.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Red Reign - Don't Look Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170158.jpgsave_picture_170158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170158.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sorcerer - Reign of the Reaper (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170184.jpgsave_picture_170184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170184.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|image + .cue] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170215.jpgsave_picture_170215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170215.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Motley Crue - Shout At The Devil (40th Anniversary) (1983) Remastered, 2023, BMG
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170284.jpgsave_picture_170284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170284.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:D67A9FDA1B8F87F44E1B35719AE1F1DB45794490
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170290.jpgsave_picture_170290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170290.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:8706F9E550161A8E466AE37824AA00D2E3C3C1FA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170292.jpgsave_picture_170292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170292.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:70FEFC48C1DF80255EA6CF7D2813170E6C41814E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170312.jpgsave_picture_170312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170312.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:DB21A8487C0FB7C6D99A5B6306EB96741A3252B5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170335.jpgsave_picture_170335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170335.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ The Pink Fairies - Screwed Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych/Hard/S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170354.jpgsave_picture_170354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170354.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:8ED6CAD19F2E456289148E8E787B0CAC6FCED613
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170369.jpgsave_picture_170369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170369.jpg" />
 </div>
 
 

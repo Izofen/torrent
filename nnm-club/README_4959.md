@@ -6,7 +6,7 @@
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154969.jpgsave_picture_154969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154969.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Saxes, Inc. - Saxes, Inc. (1959) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154971.jpgsave_picture_154971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154971.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:9B1E0F7EDB710276D2A99033996142E8DA99A7F7
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154972.jpgsave_picture_154972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154972.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:887878450D5F7FD330D655942A2E619340F0AB4E
 >>Сатира, Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154973.jpgsave_picture_154973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154973.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:22D27E6374EEDC15D5ADC026C24BE9514209919A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154974.jpgsave_picture_154974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154974.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Audacity 3.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154975.jpgsave_picture_154975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154975.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:DF77E49AE2375955460772FC8C13542B1911EB22
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154977.jpgsave_picture_154977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154977.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:24299F667B581EC973C22FDDF502B1DFAE234625
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154978.jpgsave_picture_154978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154978.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ One Switch 1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154979.jpgsave_picture_154979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154979.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:5EC6D082329E880B28AA97BECCFC39009136E158
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154980.jpgsave_picture_154980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154980.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Mike Nock - Piano Solos (1978) Remaster, 2015, Solid Records[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154982.jpgsave_picture_154982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154982.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:DB66B245D47A0EE6226808D5738E8F9232B6DA47
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154983.jpgsave_picture_154983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154983.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:1CEAF63D0526C7900215227DF6B7EAEC137B3B6B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154984.jpgsave_picture_154984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154984.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D973BF4D8CEDE8948CB8F07A6F37A0BC5EFDD304
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154985.jpgsave_picture_154985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154985.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:869690605128F9EED7A1072536473B7B88F921F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154986.jpgsave_picture_154986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154986.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:6EA759A463DC25064A65F029EF6CD6305662A52A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154987.jpgsave_picture_154987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154987.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ AOMEI Backupper Pro 6.8.0 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154988.jpgsave_picture_154988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154988.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:CD1454DE73FE0ED985CD650A768CC1740219595C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154989.jpgsave_picture_154989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154989.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:E35BAB3D5B15E42E442AB365FD1347A1F024EA9A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154990.jpgsave_picture_154990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154990.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:A6231E49D7DF385D51F3DB3855051404309FCCCE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154991.jpgsave_picture_154991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154991.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:0DCBBED38D29ED972AE01E2EBE5B15BA2CA3A834
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154992.jpgsave_picture_154992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154992.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:AD0673852C4A95B95086A342C4EFE8AEFE62EF33
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154993.jpgsave_picture_154993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154993.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:7EF7F2C3F86EAB8A2EB1DACB81D5FF9883224F75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154994.jpgsave_picture_154994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154994.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Vivaldi 5.0.2497.30 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154995.jpgsave_picture_154995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154995.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Aaron Schembri - City Lights (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154996.jpgsave_picture_154996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154996.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ MenuBar Stats 3 v3.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154997.jpgsave_picture_154997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154997.jpg" />
 </div>
 
 

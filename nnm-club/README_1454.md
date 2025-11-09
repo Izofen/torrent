@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38159.jpgsave_picture_38159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38159.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38160.jpgsave_picture_38160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38160.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Beyond Good & Evil / За гранью добра и зла (2003) [Ru] (1.01) R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38161.jpgsave_picture_38161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38161.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E62AE58FE4EEBDC1ACE0CDDC6AA82B3439AEA287
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38162.jpgsave_picture_38162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38162.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cold War: Hot report / Cold War: Остаться в живых (2005) [Ru/En] (
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38163.jpgsave_picture_38163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38163.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38164.jpgsave_picture_38164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38164.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38165.jpgsave_picture_38165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38165.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9DDEA8D738307E2CB34F81BF1BE6A5CA40E56B92
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38166.jpgsave_picture_38166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38166.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8DF01B48C91CFAD67BE9DF041D613892FBF1D280
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38167.jpgsave_picture_38167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38167.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:34A2CC1BF73D3DA7CA31C10C4B6631F92B129FFC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38168.jpgsave_picture_38168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38168.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:475B2D66F5CC352DDBFB38AE82C0CFA7D29A2C92
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38169.jpgsave_picture_38169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38169.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:475B2D66F5CC352DDBFB38AE82C0CFA7D29A2C92
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38170.jpgsave_picture_38170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38170.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Flashbaggers - Visions of Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38171.jpgsave_picture_38171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38171.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Chris Dover - Last Prairie Dance (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38172.jpgsave_picture_38172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38172.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Electric High - Colorful White Lies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38173.jpgsave_picture_38173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38173.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Lester Young - The Complete Aladdin Recordings (1942 - 1947) 2CD, 1995, Blue Not
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38174.jpgsave_picture_38174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38174.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Billy Jeter - Delta Traces (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38175.jpgsave_picture_38175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38175.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Tribulation - Sub Rosa In AEternum (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38176.jpgsave_picture_38176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38176.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:A8BBC9EE2CC23B46BFABB796E98D34F2FA4941CC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38177.jpgsave_picture_38177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38177.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Chuck Ragan - Love & Lore (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38178.jpgsave_picture_38178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38178.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Light Image Resizer 7.1.0.58[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38179.jpgsave_picture_38179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38179.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:2A09EDFB59684B17EC2F9BDBB163F3C52B69DE18
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38180.jpgsave_picture_38180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38180.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:BE5AB05B805221E70E2DE814E36AA8D4C3E8A23E
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38181.jpgsave_picture_38181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38181.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ RegCool 2.015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38182.jpgsave_picture_38182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38182.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Jeem DJ - Compilation (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38183.jpgsave_picture_38183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38183.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:DBA191388FC85B2828DBB714BF05F6A61A1D1122
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38184.jpgsave_picture_38184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38184.jpg" />
 </div>
 
 

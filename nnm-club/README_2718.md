@@ -6,7 +6,7 @@ VA - Dance Classics Vol. 1 (1998) [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71418.jpgsave_picture_71418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71418.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Dance Classics Vol. 2 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71419.jpgsave_picture_71419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71419.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Dance Classics Vol. 1 (1988) Reissue, 2000, Roadrunner Arcade Music [OGG Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71420.jpgsave_picture_71420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71420.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Fat Mattress - How Can I Live? Complete Recordings (2025) [MP3|320 Kbps] <Psyche
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71421.jpgsave_picture_71421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71421.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Carmen McRae - Sings Love Songs (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71422.jpgsave_picture_71422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71422.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:ADADF70454362B54AEEBED92EE585DBCC6C294F6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71423.jpgsave_picture_71423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71423.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Soelaas - Salvus Ab Inferis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71424.jpgsave_picture_71424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71424.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Keep It Trance Vol. 26 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71425.jpgsave_picture_71425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71425.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - Dance Classics Vol. 4 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71426.jpgsave_picture_71426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71426.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Dance Classics Vol. 3 (1988) Reissue, 2000, Roadrunner Arcade Music [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71427.jpgsave_picture_71427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71427.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Einherjer - Studio Albums (11 releases) (1995-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71428.jpgsave_picture_71428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71428.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:B27A6D0169E0315C86052A29A7BE725007642604
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71429.jpgsave_picture_71429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71429.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Iggy Pop - Live At Montreux Jazz Festival 2023 (2025) [MP3|320 Kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71430.jpgsave_picture_71430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71430.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ GForce - Bass Station 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71431.jpgsave_picture_71431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71431.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:6958A3DB445B6B28FF8966F55EE5F961606F114D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71432.jpgsave_picture_71432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71432.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:D65E5AF117DCF75E4F11F15DFD9ADBF88B2AB4B7
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71433.jpgsave_picture_71433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71433.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Dance Classics Gold 4 (1993) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71434.jpgsave_picture_71434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71434.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:99BC2F7E94B336F898CB408BB71CCADF88F1B27D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71435.jpgsave_picture_71435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71435.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:2BECB283FFB0CA7F1887855464FF318C7A4360D8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71436.jpgsave_picture_71436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71436.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Faith No More - Studio Albums (7 releases) (1985-2015) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71437.jpgsave_picture_71437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71437.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Waldorf - Blofeld 1.1.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71438.jpgsave_picture_71438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71438.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Dance Classics Gold 4 (1993) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71439.jpgsave_picture_71439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71439.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:E849EFEA6976582A6BAD9A9D57B4864847F2D243
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71440.jpgsave_picture_71440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71440.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:FFF2B369BF54DD1E3F4A1E71EE896D7840D5C4CD
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71441.jpgsave_picture_71441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71441.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:5B71461CEF2F9A9E7F96D0A011CA164AAA942B21
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71442.jpgsave_picture_71442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71442.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Joel Corry - Tomorrowland Friendship Mix (2025-01-23) [MP3|320 Kbps] <Tech House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71443.jpgsave_picture_71443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71443.jpg" />
 </div>
 
 

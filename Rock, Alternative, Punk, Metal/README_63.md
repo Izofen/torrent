@@ -6,7 +6,7 @@ Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67046.jpgsave_picture_67046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67046.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67047.jpgsave_picture_67047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67047.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ His Kingdom Suffers - Lord Have Mercy (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67050.jpgsave_picture_67050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67050.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Finch - Galleons Of Passion (1977) Japanese Edition, Reissue, Remastered, 2007, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67062.jpgsave_picture_67062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67062.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bloodtooth - Bloodtooth (2025) [MP3|320 Kbps] <Industrial Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67069.jpgsave_picture_67069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67069.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Tankard - For A Thousand Beers (2022) Box Set, 7xCD, Compilation, Deluxe Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67081.jpgsave_picture_67081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67081.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Francis Rossi - The Way We Were Vol. 1 (2025) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67104.jpgsave_picture_67104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67104.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Fit For A King - Collection (2011-2022) 7CD [FLAC|Lossless|tracks + .cue] <Chris
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67105.jpgsave_picture_67105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67105.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Erroiak - Echoes from the Dark Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67120.jpgsave_picture_67120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67120.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Power Surge - Shadows Warning (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67147.jpgsave_picture_67147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67147.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Mittelalter Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67163.jpgsave_picture_67163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67163.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Acephala - Division By Zero (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67191.jpgsave_picture_67191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67191.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Awaken the Night - Total Kommando (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67192.jpgsave_picture_67192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67192.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ataudes - Tempus Edax Rerum (2025) [FLAC|Lossless|WEB-DL|tracks] <Black, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67193.jpgsave_picture_67193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67193.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Three Dog Night - Joy To The World - Their Greatest Hits (1974) MCA Records -199
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67202.jpgsave_picture_67202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67202.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Cult - Electric Peace (2013) 2xCD, Reissue, Compilation [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67206.jpgsave_picture_67206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67206.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Crematory - Destination (2025) [MP3|320 Kbps] <Industrial Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67220.jpgsave_picture_67220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67220.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67236.jpgsave_picture_67236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67236.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Corrupter - Gloria in Profundis (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67238.jpgsave_picture_67238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67238.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Disfuneral - In Horror, Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67240.jpgsave_picture_67240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67240.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ausweglos - Ausgestoßen (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67241.jpgsave_picture_67241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67241.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Aggravated Assault - The Order of Chaos (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67260.jpgsave_picture_67260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67260.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Aeonyzhar - The Profane Era (2025) [MP3|320 Kbps] <Symphonic Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67282.jpgsave_picture_67282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67282.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ A.R.A.T.A.N - Chants Nerviens (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67283.jpgsave_picture_67283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67283.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67284.jpgsave_picture_67284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67284.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Avenger of Blood - Revenge Is My Name (2025) EP [FLAC|Lossless|WEB-DL|tracks] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67285.jpgsave_picture_67285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67285.jpg" />
 </div>
 
 

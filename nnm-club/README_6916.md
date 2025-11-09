@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237613.jpgsave_picture_237613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237613.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Excalion - Emotions (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237614.jpgsave_picture_237614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237614.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Hula Fulla Dance | Танец хула-хула [2021, Movie] WEBRip 1080p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237615.jpgsave_picture_237615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237615.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - 10 Years Of Suanda Music - Mixed by Michael Milov (2023) [MP3|320 Kbps] <Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237616.jpgsave_picture_237616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237616.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Lions at the Gate (ex. El Nino) - 2 Singles (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237617.jpgsave_picture_237617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237617.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Open Server 5.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237618.jpgsave_picture_237618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237618.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:B084B9C8DC198B752B8B247826144FFE93E92061
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237619.jpgsave_picture_237619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237619.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3B4A31E79B9DE58E0C60F83CC5BB1DD2199C2B75
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237620.jpgsave_picture_237620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237620.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Misty Blues - None More Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues/Funk/So
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237621.jpgsave_picture_237621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237621.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Total Commander 10.51 MAX-Pack 2022.09.01 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237622.jpgsave_picture_237622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237622.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:5E565794D8CFC982172FD0A4CECE160A07DCB2EA
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237623.jpgsave_picture_237623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237623.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:DC7CD489A460E5370ADC0F22D4D36F64297382E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237624.jpgsave_picture_237624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237624.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:20D79DAE135F5BCB3F8B8379AFB7201A919CC07D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237625.jpgsave_picture_237625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237625.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Czakan - Unreal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237626.jpgsave_picture_237626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237626.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Wonders - Beyond The Mirage (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237627.jpgsave_picture_237627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237627.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Brothers of Blues - Old Recordings of Guitar and Harmonica Songs (2023) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237628.jpgsave_picture_237628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237628.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Inner Prospekt - Canvas Two (2021) [MP3|320 Kbps] <Progressive Rock, Crossover P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237629.jpgsave_picture_237629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237629.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:E5924D42D612AA5CB09B037B25FF2C2BA0ED561D
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237630.jpgsave_picture_237630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237630.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Lasso 1.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237631.jpgsave_picture_237631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237631.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237632.jpgsave_picture_237632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237632.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Armin van Buuren - A State Of Trance 1125 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237633.jpgsave_picture_237633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237633.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Overkill - Scorched (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash-metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237634.jpgsave_picture_237634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237634.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:6F7E0716E608B8C852E2207E820FD9878567E3F9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237635.jpgsave_picture_237635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237635.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Z - значит Захария / Z for Zachariah (2015) BDRip [H.264/1080p]
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237636.jpgsave_picture_237636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237636.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:6A91C279F323535B0603179A9CFEB6D7E16359D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237637.jpgsave_picture_237637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237637.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Glover (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237638.jpgsave_picture_237638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237638.jpg" />
 </div>
 
 

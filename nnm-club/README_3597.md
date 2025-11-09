@@ -6,7 +6,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113897.jpgsave_picture_113897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113897.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Для вас, женщины! Деловая женщина (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113898.jpgsave_picture_113898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113898.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Armin van Buuren - A State Of Trance 1163 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113899.jpgsave_picture_113899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113899.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Heretical - Ars Infera: Resvrrectionis Domini Positvm (2001) Remaster, 2024, Car
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113900.jpgsave_picture_113900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113900.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sumatra PDF 3.6.15983 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113901.jpgsave_picture_113901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113901.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:44BE84739EC0EF9159E005B6233A34BD5415188E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113902.jpgsave_picture_113902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113902.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.52 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113903.jpgsave_picture_113903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113903.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:BAB7565F372E7EAE2821E8B30255592BD24F70E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113904.jpgsave_picture_113904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113904.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:2350A0B73E8DFBF1ED109D867E2EC673F6DD6614
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113905.jpgsave_picture_113905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113905.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:8558D8A86C0BAD1089BBB112FB0732E6D4A52386
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113906.jpgsave_picture_113906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113906.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:3AE74A07D4A394B2BE6FA24845AE6BBDBB945AB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113907.jpgsave_picture_113907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113907.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:DE850E866D40CEA79786D5C1FC3314D83C673591
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113908.jpgsave_picture_113908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113908.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:B577C0A2F2FB77122AC2B1BD3093567D05584262
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113909.jpgsave_picture_113909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113909.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.10 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113910.jpgsave_picture_113910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113910.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Alphaxone - Interdimensional (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113911.jpgsave_picture_113911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113911.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Moon+ Reader Pro v9.2 b902001 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113912.jpgsave_picture_113912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113912.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Cover Sanremo 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113913.jpgsave_picture_113913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113913.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Icecream Photo Editor Pro 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113914.jpgsave_picture_113914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113914.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113915.jpgsave_picture_113915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113915.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ USB Device Tree Viewer 4.0.5.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113916.jpgsave_picture_113916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113916.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Icecream Video Editor Pro 3.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113917.jpgsave_picture_113917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113917.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Icecream Screen Recorder PRO 7.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113918.jpgsave_picture_113918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113918.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Icecream Video Converter Pro 1.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113919.jpgsave_picture_113919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113919.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.56 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113920.jpgsave_picture_113920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113920.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:139B5B132C4F580F1C27348FC09E0E4370846186
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113921.jpgsave_picture_113921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113921.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ GIMP 2.10.36-1 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113922.jpgsave_picture_113922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113922.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205669.jpgsave_picture_205669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205669.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:05D228B6832CCFAF89D6329528751F3C7EB9030E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205670.jpgsave_picture_205670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205670.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ IObit Uninstaller Pro 15.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205671.jpgsave_picture_205671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205671.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D2F8B5BCD44E406AC8F033453529E2011E2E6DF7
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205672.jpgsave_picture_205672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205672.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Swanslaughter - Make A Wish (2025) [MP3|320 Kbps] <Hardcore, Metalcore, Deathcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205673.jpgsave_picture_205673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205673.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D3854C0298E0ED20A13AAE508FD0088A91A9757D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205674.jpgsave_picture_205674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205674.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The KMPlayer 4.2.3.25 repack by cuta (build 3) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205675.jpgsave_picture_205675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205675.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6F871FCC3D2E74619BC5F26D311958739C5A624E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205676.jpgsave_picture_205676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205676.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:99889656091EAB3960E1A7C3350D0B9F64400FEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205677.jpgsave_picture_205677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205677.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124627/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205678.jpgsave_picture_205678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205678.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205679.jpgsave_picture_205679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205679.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0/dlc) Scene Tenoke [Premium Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205680.jpgsave_picture_205680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205680.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205681.jpgsave_picture_205681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205681.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F33387F1819AD1A5B3982710C68DF2F8E514B83B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205682.jpgsave_picture_205682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205682.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:FE58B61CAA2C2E685902B0A4D3608BB4F2EC2D08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205683.jpgsave_picture_205683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205683.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:646F48057D4030F891B919AA1ED238DFB5FEBC16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205684.jpgsave_picture_205684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205684.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205685.jpgsave_picture_205685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205685.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:AC34C0422EC3E26EC777D4A9AEC5140E927976EF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205686.jpgsave_picture_205686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205686.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 Portable by conservator [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205687.jpgsave_picture_205687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205687.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ YT Downloader 9.17.15 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205688.jpgsave_picture_205688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205688.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205689.jpgsave_picture_205689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205689.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:9AFA1931930BB7A6DB81CA927BA5ACF66765B68A
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205690.jpgsave_picture_205690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205690.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:B51B9C0BB1C7E20B24AF8CFDA1F8CCAE6372CBF6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205691.jpgsave_picture_205691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205691.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:C7CB45A25C29F58F87BB45ACC07C670F360A89BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205692.jpgsave_picture_205692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205692.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:E23E4B85189375B33C6B7EDCACA3774FCDA2FC41
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205693.jpgsave_picture_205693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205693.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:833CB952D2AA079555E1D39A6DE730992F2CE7A0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205694.jpgsave_picture_205694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205694.jpg" />
 </div>
 
 

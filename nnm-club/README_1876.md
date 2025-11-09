@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49133.jpgsave_picture_49133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49133.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BA1EC316FB78841A9F07A05C5617D69522FD8E8E
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49134.jpgsave_picture_49134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49134.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:92E51EABDA567BE1FD248C19948053D401AF9BD7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49135.jpgsave_picture_49135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49135.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:92E51EABDA567BE1FD248C19948053D401AF9BD7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49136.jpgsave_picture_49136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49136.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:844D2C9CCC6C6A2BEA6FFB960CB180D905F4F69E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49137.jpgsave_picture_49137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49137.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:BD95D9C6BBAA7BF2228E76209EB9ED8F5FAC6F8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49138.jpgsave_picture_49138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49138.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49139.jpgsave_picture_49139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49139.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Marc Bolan And T.Rex - "Born To Boogie" (2005) 2xDVD9 (Special Edition)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49140.jpgsave_picture_49140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49140.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:3B480AD53FA30D30D20F25E3780A0684CB56AD23
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49141.jpgsave_picture_49141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49141.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49142.jpgsave_picture_49142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49142.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Whitesnake - Made In Japan (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49143.jpgsave_picture_49143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49143.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:773177F7A16AC555444AEEA7E1BF61607C753B42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49144.jpgsave_picture_49144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49144.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:5C3A6F14C3DFBDF01F6A65A67D446682070FA920
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49145.jpgsave_picture_49145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49145.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Adobe Illustrator 2024 28.6.0.709 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49146.jpgsave_picture_49146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49146.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:84E291B6B6C7CC9244EF230409AF809D99E1437B
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49147.jpgsave_picture_49147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49147.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Supertramp - Live in Paris '79 (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49148.jpgsave_picture_49148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49148.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:6E7B5A4401D2452AFB891AE97715697D5F6B8485
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49149.jpgsave_picture_49149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49149.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:ECE70BBA2735BA4F3D9E20F1A80D3F0E2DFC3B6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49150.jpgsave_picture_49150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49150.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:ECE70BBA2735BA4F3D9E20F1A80D3F0E2DFC3B6F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49151.jpgsave_picture_49151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49151.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:0C11F8BFA93DB09568A8C53E5A7D35967B8D1EB0
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49152.jpgsave_picture_49152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49152.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:1F2AEC40A6D8DDB935293260F047BFB8005D9ED1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49153.jpgsave_picture_49153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49153.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:8B596099E7FBC11FF0461FAA12BEDC07EA75DB69
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49154.jpgsave_picture_49154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49154.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:149EF103B6C03F192B393287DB812527A2B27F2F
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49155.jpgsave_picture_49155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49155.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:7C4AF757FBEADC667916D36C189F87CAADC381E8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49156.jpgsave_picture_49156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49156.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:D89B0CF76DC622EB351F03FD8DD6C02391665DB8
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49157.jpgsave_picture_49157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49157.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:19D1068645AFEA562946D2626B81A07AB8248E11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49158.jpgsave_picture_49158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49158.jpg" />
 </div>
 
 

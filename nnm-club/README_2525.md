@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66400.jpgsave_picture_66400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66400.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Coffee Funk (Feel the Heat of Acid Jazz Funk) (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66401.jpgsave_picture_66401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66401.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Best Dance Music Summer 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66402.jpgsave_picture_66402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66402.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pino Scotto - The Devil's Call (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66403.jpgsave_picture_66403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66403.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:7B2231419769E2EE02B417C599E4D653B9224621
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66404.jpgsave_picture_66404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66404.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:21FD7441055E9B8558FA67CB434EEAD5F67892B1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66405.jpgsave_picture_66405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66405.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Soulmates (2025) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66406.jpgsave_picture_66406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66406.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Uplifting Only Top 15: May 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66407.jpgsave_picture_66407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66407.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:196A6D22DC3EA677F3BDD7399470D37B17CE6644
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66408.jpgsave_picture_66408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66408.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:E8CC7BD92D1B955B07E919B31A273C0F06BAD9FE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66409.jpgsave_picture_66409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66409.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:06F5605509E218E19BEF6A02C0D980102F5B4DC4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66410.jpgsave_picture_66410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66410.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - Danse Macabre Sampler (Q1 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkw
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66411.jpgsave_picture_66411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66411.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - In Noir We Trust (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66412.jpgsave_picture_66412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66412.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Lavay Smith & Her Red Hot Skillet Lickers - Miss Smith To You (2009) Fat Note Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66413.jpgsave_picture_66413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66413.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Extize - DeLorean 666 (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, EBM, Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66414.jpgsave_picture_66414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66414.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:CA1215F1A599F17A5B8EA7E46FCB244E81ABE157
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66415.jpgsave_picture_66415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66415.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Photo Supreme 2025.1.7.7729 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66416.jpgsave_picture_66416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66416.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:FEDBCA94957E5188722EC542C693AC32316507F8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66417.jpgsave_picture_66417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66417.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Miley Cyrus - Something Beautiful (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66418.jpgsave_picture_66418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66418.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66419.jpgsave_picture_66419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66419.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Auto Reply: автоответчик v5.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66420.jpgsave_picture_66420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66420.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:ED43F0D3613FCB58A49209E55C646417AE9EE8BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66421.jpgsave_picture_66421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66421.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66422.jpgsave_picture_66422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66422.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VivaCut v4.2.0 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66423.jpgsave_picture_66423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66423.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VN - Video Editor / VN - Видеоредактор v2.6.0 Mod by PieMods [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66424.jpgsave_picture_66424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66424.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:6A3AC4DE5F92EB0C0C9ABE6EF2BC315823A0C735
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66425.jpgsave_picture_66425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66425.jpg" />
 </div>
 
 

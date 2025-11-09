@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91183.jpgsave_picture_91183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91183.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91184.jpgsave_picture_91184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91184.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wobbly Life (2020) [Ru/Multi] (1.0.0.2-17415dd4e2) Repack FitGirl [Game & Soundt
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91185.jpgsave_picture_91185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91185.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.29) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91186.jpgsave_picture_91186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91186.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:DE3308C1DD552B3FEE899D8385B63AD2F66E3B5C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91187.jpgsave_picture_91187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91187.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:43932E61992EC1189C9BC351A521C5C142CC2D6F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91188.jpgsave_picture_91188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91188.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Buckingham Nicks - Buckingham Nicks (1973) Remastered, 2025, Rhino [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91189.jpgsave_picture_91189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91189.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6DFC9F2B89B46859E37D3870E92F4A509D75D98A
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91190.jpgsave_picture_91190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91190.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:476420F9D8C3F9713F04EB54EB31D8E948CACD0D
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91191.jpgsave_picture_91191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91191.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:71BDA8A3C29B6C0B0C754E8DBD4417701461AD9F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91192.jpgsave_picture_91192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91192.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:7307E8B933BBE02E8901B2CDC0EAD1E4C26F38C6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91193.jpgsave_picture_91193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91193.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ui Kits - UI8 -  WeCare - Medical Admin Dashboard UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91194.jpgsave_picture_91194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91194.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Dawesome - Kontrast 1.01 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91195.jpgsave_picture_91195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91195.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3E3D7C9BAC0CED1838F9C04B3B0D8283C2C514E6
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91196.jpgsave_picture_91196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91196.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:1E9F41F75792B35EF4BECCC614173635E3445A88
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91197.jpgsave_picture_91197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91197.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:A0D21A42466A8EB63099B99B57A716FCDFF21A81
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91198.jpgsave_picture_91198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91198.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:DBE9F0AFF3F9CC7C4579AD488D0E9BF3B810AC2E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91199.jpgsave_picture_91199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91199.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:45D69DC5F638B4FEBDB5D4FC781874B3994CAA66
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91200.jpgsave_picture_91200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91200.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Othe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91201.jpgsave_picture_91201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91201.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Dece
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91202.jpgsave_picture_91202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91202.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0/dlc) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91203.jpgsave_picture_91203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91203.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:EBE3FFFBDE8488695154E3A9B24C9BD2C2214E14
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91204.jpgsave_picture_91204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91204.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:4B1828012C794F86494679ABE56CA453AB847C14
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91205.jpgsave_picture_91205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91205.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:6849017DDA3193544E6BCF458C58A55AB7DB7A4A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91206.jpgsave_picture_91206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91206.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:227EE8F9BB3575EC26AC2642AD3070355D1A51C5
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91207.jpgsave_picture_91207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91207.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Notification Dots v1.2.79 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91208.jpgsave_picture_91208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91208.jpg" />
 </div>
 
 

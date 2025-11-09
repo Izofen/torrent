@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168110.jpgsave_picture_168110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168110.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Majestic Drum And Bass Vol.07 (2019) [MP3|320 Kbps] <Drum & Bass, Bassline,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168111.jpgsave_picture_168111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168111.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Гонка (29.10.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168112.jpgsave_picture_168112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168112.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:995A0CE6E482509A90B90E81EFA478291DA01B04
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168113.jpgsave_picture_168113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168113.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6947826FDC080FE40D279AE454421F009071E052
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168114.jpgsave_picture_168114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168114.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:65E4018E61A2B09107CC5993DE7DDA944D0557BE
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168115.jpgsave_picture_168115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168115.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Skylark - Divine Gates Part II Gate Of Heaven (2000) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168116.jpgsave_picture_168116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168116.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ KissXsis / Поцелуй Сестёр [2010, TV, 12 серий] HDTV 720p raw +
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168117.jpgsave_picture_168117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168117.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:D328E18439A0372DE376ADDB4021E305C0848222
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168118.jpgsave_picture_168118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168118.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:40733CEE5D69B438B72B17005334B930D2E40EF9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168119.jpgsave_picture_168119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168119.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E8AECA0EDD6EFE585298EC2D449DE5D6E6BF151C
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168120.jpgsave_picture_168120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168120.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Bonafide - Are You Listening? (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168121.jpgsave_picture_168121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168121.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:3D0D365259313646F3F10F1F2E603F8E3BC54611
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168122.jpgsave_picture_168122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168122.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:91B765AFEDD7063CC83C841961A54757F993FDD6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168123.jpgsave_picture_168123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168123.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Udemy | Android разработка на Kotlin - с нуля до продви
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168124.jpgsave_picture_168124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168124.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Kumo no Mukou, Yakusoku no asho / The Place Promised in Our Early Days / За о
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168125.jpgsave_picture_168125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168125.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Firefox Browser ESR 102.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168126.jpgsave_picture_168126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168126.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:30D1EE1AB6DF6649A618F9ABE634DFF1BABF4428
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168127.jpgsave_picture_168127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168127.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:33613ED8C10E96F8D52E4215D9023016BDEEB871
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168128.jpgsave_picture_168128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168128.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Andy Taylor Group - Drifting Days (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168129.jpgsave_picture_168129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168129.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ HDCleaner 2.040 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168130.jpgsave_picture_168130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168130.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:87D8134C1FE6FBB0E807823E86E2F7176FE35253
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168131.jpgsave_picture_168131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168131.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:2A421CAA21FF239D0094A9C0FEFF90CC05997183
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168132.jpgsave_picture_168132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168132.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Best Rock 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168133.jpgsave_picture_168133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168133.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Opera 65.0.3467.72 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168134.jpgsave_picture_168134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168134.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ BurnAware Professional 16.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168135.jpgsave_picture_168135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168135.jpg" />
 </div>
 
 

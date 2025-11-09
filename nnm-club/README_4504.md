@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140872.jpgsave_picture_140872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140872.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bad Montana - Crazy Game (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140873.jpgsave_picture_140873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140873.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:ECF66DD95FC24C43B22BB438D1078F1480C0ABDF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140874.jpgsave_picture_140874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140874.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:EF7F058AAA12488239BE295763EA874AFBF29D87
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140875.jpgsave_picture_140875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140875.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Depeche Mode - Playing The Angel (2005) SACD [FLAC|Lossless|tracks + .cue] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140876.jpgsave_picture_140876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140876.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:F66F0551F0AD8983171294497B86DBC045BA5928
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140879.jpgsave_picture_140879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140879.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:5880DBA2CBE399F9C1C856760747FA6B5487F833
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140880.jpgsave_picture_140880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140880.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140881.jpgsave_picture_140881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140881.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:5E434BE39F9B4503D7E1490209C2EA3791B9CF12
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140882.jpgsave_picture_140882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140882.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:441716D46F5BCCB7E425D038B9BCD3B5F0881C5C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140883.jpgsave_picture_140883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140883.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ App Cleaner & Uninstaller Pro 7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140885.jpgsave_picture_140885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140885.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Call of Duty Black Ops 2/II (2012) [Ru] (1.0.0.1 upd3) RePack R.G. Games [Digita
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140886.jpgsave_picture_140886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140886.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Call of Duty Black Ops 2/II (2012) [Ru] (1.0.0.1 upd3) RePack R.G. Games [Digita
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140887.jpgsave_picture_140887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140887.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Downie 4 v4.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140888.jpgsave_picture_140888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140888.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Punto Switcher 4.1.9 Build 903 Final RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140889.jpgsave_picture_140889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140889.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:F3F5D604F0FE9523DFE35179BFE7CEE0EDF4AE4F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140890.jpgsave_picture_140890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140890.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - International Sports Collective 7 (2017) [MP3|320 Kbps] <House, Euro-House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140891.jpgsave_picture_140891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140891.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ KiCad 5.1.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140893.jpgsave_picture_140893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140893.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:6D0839BACBAED8246DFE75AC7E76AF364C04FE7C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140894.jpgsave_picture_140894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140894.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ George Shearing - Walkin' (1995) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140895.jpgsave_picture_140895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140895.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:DD1B356E8E2408D85EA225AF9FFA18E621B3BE27
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140897.jpgsave_picture_140897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140897.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:50E39533F972B36400B77B024B6FA1DB10FE4A12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140898.jpgsave_picture_140898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140898.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lyzzard - Savage (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140899.jpgsave_picture_140899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140899.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:79237FE127B7435A9CBFA923CF58BCCEFE6123C9
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140900.jpgsave_picture_140900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140900.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:219E01ED3D39D70E43359077436F7EED93B4D507
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140901.jpgsave_picture_140901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140901.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140902.jpgsave_picture_140902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140902.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Armin Van Buuren - A State Of Trance 1153 (Yearmix 2023) (2023) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125162.jpgsave_picture_125162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125162.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D4216D88557B8D07776A7EC4866B5B3C77FD17C9
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125163.jpgsave_picture_125163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125163.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:48A16A310BDD4862E714A44C8A51F6D84A6E8ECE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125164.jpgsave_picture_125164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125164.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:7ADA9CF99E74BFC9A5D928589073E0BF5FF83D3D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125165.jpgsave_picture_125165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125165.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:30406597B6DF5DE41FBD1B5EB623E6D6E5115133
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125166.jpgsave_picture_125166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125166.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:5AA287A3BF9BE187BEAF9F4F1018A74B08E3A94C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125167.jpgsave_picture_125167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125167.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:81FD68C3E4A98E929B9354E1CC1DB77C99F012F4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125168.jpgsave_picture_125168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125168.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7B2BD59A8307104ABB3419000239084FF4737F42
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125169.jpgsave_picture_125169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125169.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:D71826CC3C7CE2871DDD4A4F6C516F1DC6EA599D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125170.jpgsave_picture_125170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125170.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:527BCDF88220B3DA748AF67265B65024C75C053D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125171.jpgsave_picture_125171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125171.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:218F5FB7613B87F4F1A4CB76FB943F8539BDAC7F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125172.jpgsave_picture_125172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125172.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Bazaart: Photo Editor & Graphic Design v2.4.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125173.jpgsave_picture_125173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125173.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:6EE957DF1F04A08D24BC23B7336C63D20FA10D44
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125174.jpgsave_picture_125174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125174.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:07914ACFA7A7BF511DD130415495F2D783F5A9C7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125175.jpgsave_picture_125175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125175.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Silver Wind - Legion Of The Exiled (2017) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125176.jpgsave_picture_125176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125176.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:E77E2D3E0C17ED5FDE6E749017957D4B10290AA5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125177.jpgsave_picture_125177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125177.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:54E20C7E65689412E619FDE2DEF191E2598DBBB8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125178.jpgsave_picture_125178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125178.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:A5B9079EC621F3EAF5E13A08272042D336A12AA7
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125179.jpgsave_picture_125179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125179.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:FBC7A4E57AF76269716BF9A8B279925A4842E920
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125180.jpgsave_picture_125180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125180.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:0023ED74F056D1459E5AE5C1B6AD52424C166AE4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125181.jpgsave_picture_125181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125181.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:9868BD267AF6F8A768709F164CC2EBECEEA57BE5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125182.jpgsave_picture_125182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125182.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:028F1BEE67A7FB70BEBEE3CED2AEB9C457F7448E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125183.jpgsave_picture_125183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125183.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:86FA50BFDEEE0F4F0DE32C6AE1D1968E1D7FE86D
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125184.jpgsave_picture_125184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125184.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Be-Bop Deluxe - Sunburst Finish (1976) 3 x CD, Reissue, Remastered, Repress, 201
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125185.jpgsave_picture_125185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125185.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:C0F2D7D8C9C15A406F48A3346B9DECB2359BFBB9
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125186.jpgsave_picture_125186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125186.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:CFBFF160DFC72119538DEFB82E0885C81B8E1EB9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125187.jpgsave_picture_125187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125187.jpg" />
 </div>
 
 

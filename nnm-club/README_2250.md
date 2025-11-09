@@ -6,7 +6,7 @@ Firefox Browser 125.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58867.jpgsave_picture_58867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58867.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5BD988C2BB1071C8C82FA01CE48FF5F29684AAB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58868.jpgsave_picture_58868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58868.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:59B804156BA943237EF49933E1ED6035ACBE2AC3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58869.jpgsave_picture_58869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58869.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B91BD603B855C86290346139A7C97AAD5723596E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58870.jpgsave_picture_58870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58870.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3410F7A495BDECD462682DBF96B16A81BB51F8EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58871.jpgsave_picture_58871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58871.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Within Temptation - The Artone Sessions (2024) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58872.jpgsave_picture_58872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58872.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Aron's Adventure (2021) [En] (1.05) Scene CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58873.jpgsave_picture_58873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58873.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:E43EACD63A7D2A0E6340FEC69504E9B4A0958F5B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58874.jpgsave_picture_58874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58874.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ YT Downloader 9.7.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58875.jpgsave_picture_58875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58875.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Glary Utilities Pro 6.9.0.13 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58876.jpgsave_picture_58876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58876.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:1CBA55F3281A3EB411B39BFCD5B1A47C75B7EE06
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58877.jpgsave_picture_58877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58877.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ XYplorer 25.90.0000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58878.jpgsave_picture_58878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58878.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:652F134E8FF3614AF979919EAF6C35BCF956EE65
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58879.jpgsave_picture_58879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58879.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Omega Mouse Zero (2024) [En] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58880.jpgsave_picture_58880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58880.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:420B4492D02CBB6620C617F224E7A0A39290999C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58881.jpgsave_picture_58881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58881.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ X2 The Threat: New Life / X2 Угроза: Новая жизнь (2003) [Ru] (1.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58882.jpgsave_picture_58882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58882.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:85775887C7D0377247180A98FD678AFDB465DDB1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58883.jpgsave_picture_58883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58883.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Mato Anomalies (2023) [Multi] (rc3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58884.jpgsave_picture_58884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58884.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:12B72E33D69DE78A9AE8D41FDCEC4450CAC96704
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58885.jpgsave_picture_58885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58885.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MiXplorer Silver 6.64.3-Silver Mod by Zilllot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58886.jpgsave_picture_58886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58886.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ NirLauncher Package 1.30.11 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58887.jpgsave_picture_58887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58887.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sophia the Traveler (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58888.jpgsave_picture_58888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58888.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:E359CB6EE6FB7D14FADC0722922A6BDC355F90C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58889.jpgsave_picture_58889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58889.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:17E971173F7B65F0A1C2C978B4F3FBB5015E9D50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58890.jpgsave_picture_58890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58890.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Battle Planet - Judgement Day (2019) [Multi] (1.7.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58891.jpgsave_picture_58891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58891.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Absolute Uninstaller 6.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58892.jpgsave_picture_58892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58892.jpg" />
 </div>
 
 

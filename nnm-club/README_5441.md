@@ -6,7 +6,7 @@ Storyist 4 v.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168374.jpgsave_picture_168374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168374.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C0284C95E3406BFEB1BFB7E8A24216DCF02E695
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168375.jpgsave_picture_168375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168375.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8D0EBADF80683F7D2CF1FF5655453B3E47A52391
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168376.jpgsave_picture_168376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168376.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:24E6C5254EB0776CFC0F99765226A97B137F292A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168377.jpgsave_picture_168377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168377.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C6E10A9175F35D9B2E717425D57C71D691FF5CB2
 >>Трейлеры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168378.jpgsave_picture_168378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168378.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:43C36516C80D3E3A1DB821173B24CC081620AD79
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168379.jpgsave_picture_168379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168379.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:9D9F207749B062FF11F1583016930DC79E6A08F3
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168380.jpgsave_picture_168380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168380.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:CB017FA2C8F8261C315F6D04D4049C847816F8A2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168381.jpgsave_picture_168381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168381.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D5D157AEE0AF48367F7EF97C1C87410245FDF7E7
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168382.jpgsave_picture_168382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168382.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F25B38424EBF656A8CE37D14BA72A4EAF4716300
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168383.jpgsave_picture_168383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168383.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Amoriello - Phantom Sounds (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168384.jpgsave_picture_168384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168384.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D1F74730D15AF9B57EC20DFA4688AA2D8E5CFD34
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168385.jpgsave_picture_168385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168385.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F09B32F12CD8BC28C5B02EE45D857DF35DCD6992
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168386.jpgsave_picture_168386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168386.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F0DAF5DCBBBBA0E0528AF539F52ADF6A370E72F3
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168387.jpgsave_picture_168387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168387.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Overlay 3.82 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168388.jpgsave_picture_168388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168388.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:8CB84CCB2649104E0FF0C7FBCC83911E4FED98C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168389.jpgsave_picture_168389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168389.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:CC8A55309E69A0B45FE166E62D82B3E888D91D1A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168390.jpgsave_picture_168390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168390.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Firefox Browser 91.4.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168391.jpgsave_picture_168391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168391.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:9A66DFFF638B7E3F8325C4ED179A8B0AB177B346
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168392.jpgsave_picture_168392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168392.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.0.175) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168393.jpgsave_picture_168393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168393.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:771F218BDEF440BD109587249648A9B29D8113B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168394.jpgsave_picture_168394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168394.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Coming soon 3 v.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168395.jpgsave_picture_168395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168395.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:D4E2D716E06E54BFBD9265053F78815C1DDC0C3D
 >>Дневники вампира / Vampire Diaries; Настоящая кровь / True Blood; Древние / Originals; Наследие / Legacies
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168396.jpgsave_picture_168396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168396.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:5C734E38841FE7B6D16EE4B5D2DD623E88157420
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168397.jpgsave_picture_168397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168397.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:5FE0FEE039E41661A9B0962B9014A6404D307447
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168398.jpgsave_picture_168398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168398.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ DICE | Артбук по игре Battlefield 1 / The Art of Battlefield 1 (2016
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168399.jpgsave_picture_168399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168399.jpg" />
 </div>
 
 

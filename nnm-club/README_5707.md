@@ -6,7 +6,7 @@ HDCleaner 2.059 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175906.jpgsave_picture_175906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175906.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7D5865EAB3BDDCC494072C732507B7DBC78B9504
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175908.jpgsave_picture_175908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175908.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ HomeBank 5.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175910.jpgsave_picture_175910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175910.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:29D39A21787AB83EBC805556E4E289960E6FB5EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175911.jpgsave_picture_175911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175911.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175912.jpgsave_picture_175912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175912.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175913.jpgsave_picture_175913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175913.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ One Desire - Midnight Empire (2020) Jараnеsе Еditiоn [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175914.jpgsave_picture_175914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175914.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:DF76B5B78128EC06043F3977E0E1624390CFE34E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175915.jpgsave_picture_175915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175915.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Mystery Case Files 24: The Last Resort / За семью печатями 24: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175916.jpgsave_picture_175916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175916.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:9BF4D8F8187193E2A0784765088B11C3255A27E1
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175917.jpgsave_picture_175917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175917.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Living Legends 10: The Blue Chamber / Живые легенды 10: Синяя �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175918.jpgsave_picture_175918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175918.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:41CB85B894D37926A7BD23B6F8B9D80A27AAB8C4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175919.jpgsave_picture_175919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175919.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:E0689635E970C52AAB86459D9237DF0088E381D5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175920.jpgsave_picture_175920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175920.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:325F2F2E1B7A4AE7731F7936843BDB1D65CD1DC4
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175921.jpgsave_picture_175921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175921.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:C2251C692E3602A7700D552234D009AED311C8F2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175922.jpgsave_picture_175922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175922.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:ADEF4232E9F694B5E5809C0C775C5C7E482B91BB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175924.jpgsave_picture_175924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175924.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:696F82F16DF3FCED41B9B3901474230751D20664
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175925.jpgsave_picture_175925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175925.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:0A2CBEFB051110C0088042767A917DEB39834B02
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175926.jpgsave_picture_175926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175926.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Polarr v6.8.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175928.jpgsave_picture_175928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175928.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ V.A. - 90's Dance Rarities, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175929.jpgsave_picture_175929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175929.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:E21D136B84E1846307B4E0F17B8283D316BF3A28
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175930.jpgsave_picture_175930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175930.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:81BFCA076BB8A86D0FFCF5B852792D646130BE7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175932.jpgsave_picture_175932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175932.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ IcoFX 3.9.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175933.jpgsave_picture_175933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175933.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Chilled Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175934.jpgsave_picture_175934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175934.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lionville - Magic Is Alive (2020) Jараnеsе Еditiоn [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175936.jpgsave_picture_175936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175936.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:5577CA700C09E14FD8153B3380B633A3C03A93A5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175937.jpgsave_picture_175937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175937.jpg" />
 </div>
 
 

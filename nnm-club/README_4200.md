@@ -6,7 +6,7 @@ Nomad Factory - 80s Spaces 1.0.2 VST, VST3, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130092.jpgsave_picture_130092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130092.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Twelve Foot Ninja - Vengeance (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130093.jpgsave_picture_130093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130093.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Photoshop CS6 13.0 RePack by MarioLast (32-bit) [Русский, Укра�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130094.jpgsave_picture_130094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130094.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Tony Valor Sounds Orchestra - 2 Albums (1976, 1978) LP [MP3|320 Kbps] <Electroni
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130095.jpgsave_picture_130095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130095.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130097.jpgsave_picture_130097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130097.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:3D4AA4173199464449BB655B2C6C4EF2200490DB
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130098.jpgsave_picture_130098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130098.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:749A826A1EA83FD5284F6DD4B0D150DE8D33247B
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130099.jpgsave_picture_130099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130099.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ SUMo Pro 5.14.9.516 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130100.jpgsave_picture_130100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130100.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Recon - Behind Enemy Lines (1990) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130101.jpgsave_picture_130101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130101.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:8D2DBD29B81A8E0988A954E271A7BE9ED7E60548
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130103.jpgsave_picture_130103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130103.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:8D2DBD29B81A8E0988A954E271A7BE9ED7E60548
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130105.jpgsave_picture_130105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130105.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ TreeSize Professional v5.5.5.816 Final Portable x32/x64 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130106.jpgsave_picture_130106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130106.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ TreeSize Professional - данная программа показывает д�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130108.jpgsave_picture_130108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130108.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:475698DDE659447B2A573992D262E5111F70C8D8
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130109.jpgsave_picture_130109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130109.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:5D62303D6899536334C74533BD68EF1EAC74883F
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130110.jpgsave_picture_130110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130110.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ RadioBOSS Advanced 6.1.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130111.jpgsave_picture_130111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130111.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:192B910752373E8D38C215672FDCFA3EDD6755D9
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130112.jpgsave_picture_130112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130112.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:0F06130065E86E818F1DD0DD4CC025EF86A19ECB
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130113.jpgsave_picture_130113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130113.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Global Operations [Ru] (RePack) 2002 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130114.jpgsave_picture_130114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130114.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Numia: Астрология и Гороскопы v2.0.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130115.jpgsave_picture_130115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130115.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Windows and Office Genuine ISO Verifier 11.10.24.22 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130117.jpgsave_picture_130117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130117.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sandboxie 5.55.8 / Sandboxie Plus 1.0.8 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130118.jpgsave_picture_130118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130118.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Adobe Audition CS6 5.0 build 708 RePack by MKN [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130120.jpgsave_picture_130120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130120.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Adobe Audition – профессиональный инструмент для 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130121.jpgsave_picture_130121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130121.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ John January & Linda Berry - Luck Don't Live Here Anymore (2021) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130122.jpgsave_picture_130122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130122.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cat Power - Covers (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130124.jpgsave_picture_130124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130124.jpg" />
 </div>
 
 

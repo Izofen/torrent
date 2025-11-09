@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150770.jpgsave_picture_150770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150770.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office for Mac Standard 2019 v.16.20.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150771.jpgsave_picture_150771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150771.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Cuphead (2017) [Ru/Multi] (1.3.9/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150772.jpgsave_picture_150772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150772.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CC7C52AA2C1190F264B595BDE2113BC988007E5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150773.jpgsave_picture_150773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150773.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EC5782BC3DCCE24A953CFB6162B338BD7EBE546B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150774.jpgsave_picture_150774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150774.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:442BEF3F67FB145263C027534AC5718D1ED3BE8A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150775.jpgsave_picture_150775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150775.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C378C84AD2CEE542A4264EAE1A9863D656EAB5B3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150776.jpgsave_picture_150776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150776.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3FF5FE8DD368B8C00614BF66BC915A370C09FE25
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150777.jpgsave_picture_150777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150777.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2EF06E1834AB3A0ACF42F8FE0E9B4D3C8CC3DD16
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150778.jpgsave_picture_150778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150778.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:41922BA494A23AFF09CD20957A2EF63C73039F87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150779.jpgsave_picture_150779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150779.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:29B149AA2E8E9FD0A71B8F7C0FFEEFCD6AB3569C
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150780.jpgsave_picture_150780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150780.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:2A98CB048BC7A83C0A4D90B116CE747978B56863
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150781.jpgsave_picture_150781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150781.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:1A301104E256FC88C49E9E496F3C6B61C94BC71C
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150782.jpgsave_picture_150782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150782.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:53B35368C7020F360599223F019D0B9A7E7FDEDC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150783.jpgsave_picture_150783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150783.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:2104E82B4974CDB13EE9D3ACDA6D743F7FBDD3E2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150784.jpgsave_picture_150784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150784.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:850E936C711CB917A1C0C6F272DE5A57AD3FD5DE
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150785.jpgsave_picture_150785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150785.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:4F5F5FADE0911743486B30A6339406A72431FEE6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150786.jpgsave_picture_150786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150786.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Daft Punk - Random Access Memories (2023) Drumless Edition [FLAC 24/88.2|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150787.jpgsave_picture_150787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150787.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ AOMEI Partition Assistant Technician Edition 9.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150788.jpgsave_picture_150788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150788.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Movavi Video Editor Plus 2022 v22.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150789.jpgsave_picture_150789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150789.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:4FCF3508EE6EFB0B154EFF7346AA593B4D2D26D5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150790.jpgsave_picture_150790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150790.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:7E3ED38A216F2369BDB0E8EF824D7CCB294FD9A5
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150791.jpgsave_picture_150791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150791.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:9F50736F369793254CD4B0C7AF3F28C81162AA1C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150792.jpgsave_picture_150792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150792.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:3139E4CAEC2069D21A7B7F376EEFB9C742A2D7FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150793.jpgsave_picture_150793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150793.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Sam Ryder - Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150794.jpgsave_picture_150794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150794.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Udemy | Полный курс по кибербезопасности: Сете�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150795.jpgsave_picture_150795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150795.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Aldo Romano - Inner Smile (2011) [FLAC|Lossless]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81990.jpgsave_picture_81990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81990.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Abrosoft FantaMorph Deluxe 5.3.1 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81992.jpgsave_picture_81992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81992.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ FantaMorph - программа для создания анимированны
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81994.jpgsave_picture_81994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81994.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eiyuu Gaiden Mozaicka / Heroic Armor Mosaica / Героическая броня
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81996.jpgsave_picture_81996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81996.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Eiyuu Gaiden Mozaicka / Heroic Armor Mosaica / Героическая броня
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81997.jpgsave_picture_81997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81997.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Eiyuu Gaiden Mozaicka / Heroic Armor Mosaica / Героическая броня
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82000.jpgsave_picture_82000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82000.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:C7C397FD1CCD49FD5B3536DD688ECB1218A8CDEA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82001.jpgsave_picture_82001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82001.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:ACB368FAF912925887C135E4630C6CF94FE988D6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82003.jpgsave_picture_82003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82003.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:A062BE15A6C5801632276E51844B5984F953746D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82004.jpgsave_picture_82004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82004.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Atma - Music Revolution (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82005.jpgsave_picture_82005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82005.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Atma - Music Revolution (2011) [FLAC|Lossless]<Psychedelic / Full On>
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82007.jpgsave_picture_82007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82007.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:3BA6C1129CD9123E32E31034F092FE81F0947B3F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82008.jpgsave_picture_82008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82008.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:5A34BC8DD6BF207ACD19510448E1DE8A179B7E77
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82010.jpgsave_picture_82010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82010.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:C0AFD65C97CEBEACEC6ECFD29EE6E94DCB3DE907
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82013.jpgsave_picture_82013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82013.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:8861F2265BF66E62DFCE091243BCFC624B58F1C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82015.jpgsave_picture_82015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82015.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Space Sieged (L) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82016.jpgsave_picture_82016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82016.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:4272ED02300D39082BFC342E2D366B0B32FE193B
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82019.jpgsave_picture_82019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82019.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:0745FF1D8037A1FFDDEDA7CFA11718C438D8A773
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82020.jpgsave_picture_82020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82020.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82021.jpgsave_picture_82021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82021.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Московские окна: Песни на все времена (1995)
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82022.jpgsave_picture_82022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82022.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82023.jpgsave_picture_82023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82023.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:943E395A335EA2F211E75FA22CF1F4C6E09532CD
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82025.jpgsave_picture_82025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82025.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:5F8F034BF361B4D1CE25EAEBDD95EAAECD5562FA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82027.jpgsave_picture_82027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82027.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:5F8F034BF361B4D1CE25EAEBDD95EAAECD5562FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82029.jpgsave_picture_82029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82029.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:4F438EEBAC5D96CB1BC06BDAEC9CDD10CFB37C6A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82030.jpgsave_picture_82030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82030.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Iоаннъ Гоффертъ | Иллюстрированная Отечеств
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82031.jpgsave_picture_82031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82031.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Snappy Driver Installer Origin R763 | Драйверпаки 24.04.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60297.jpgsave_picture_60297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60297.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A6DEFE8ED744E17E7EA0BD0A32BA3B2212B30BFC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60298.jpgsave_picture_60298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60298.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MAGIX Vegas Pro 21.0 Build 300 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60299.jpgsave_picture_60299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60299.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8534E17A5C10393E3EAA36ED794F01D4C14DDE35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60300.jpgsave_picture_60300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60300.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A3746EB7069A8E99E647C758E1DD7087E1E17CE5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60301.jpgsave_picture_60301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60301.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:23281D005600B865260566FFAEA3EF31EBA8AFDA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60302.jpgsave_picture_60302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60302.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ In Stars and Time (2023) [Multi] (1.0.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60303.jpgsave_picture_60303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60303.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Grand Theft Auto V / GTA 5 (2015) [Ru/Multi] (1.0.1868/1.50/dlc) Repack xatab
 >>28
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60304.jpgsave_picture_60304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60304.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:1FEDA4CF0D26257024106C698AAB2C76B5657CD1
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60305.jpgsave_picture_60305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60305.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Videosmile, Михаил Бычков | Супер After Effects (2022) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60306.jpgsave_picture_60306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60306.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:47C2F2DEE0F1266F61C3D61FAA21720CDA5B0BB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60307.jpgsave_picture_60307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60307.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Windows 7 Домашняя расширенная SP1 x64 USB 3.0 JAWS 18 для
 >>Сборки Windows для незрячих
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60308.jpgsave_picture_60308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60308.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Crusader Kings III v.1.12.4 (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60309.jpgsave_picture_60309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60309.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:F3A32DF22F58C1C84BC8ED3C87015CEC91AB9384
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60310.jpgsave_picture_60310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60310.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:AB272052166A20957BC20DA4FBB72A1C04B6AE7E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60311.jpgsave_picture_60311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60311.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:E79AC80FE8913B72A9FC5CA11B46A3827D20A82F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60312.jpgsave_picture_60312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60312.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:7533CDD629C7B238AA1944E3902F5A2E3ED4EE9B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60313.jpgsave_picture_60313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60313.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:8D67BB987AD37B0CA614FE2DB4E58C28A875CA29
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60314.jpgsave_picture_60314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60314.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8D67BB987AD37B0CA614FE2DB4E58C28A875CA29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60315.jpgsave_picture_60315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60315.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:C43B50955A1AF271F200C9BE13D89A847DC77D1D
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60316.jpgsave_picture_60316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60316.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:2660B59C34C2B5303A1DA37A01B74C87526F8B6C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60317.jpgsave_picture_60317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60317.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:9B33591AADD21FEE580FCCCD2801A4DAEA24BD22
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60318.jpgsave_picture_60318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60318.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:D2FA1021218382913DE9B02EB784AC9798022C28
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60319.jpgsave_picture_60319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60319.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:DC1C7228D1A915FAAB4225A172DFAC8A0831A422
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60320.jpgsave_picture_60320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60320.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Last Hope Bunker: Zombie Survival (2024) [Ru/Multi] (107) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60321.jpgsave_picture_60321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60321.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:B260EB7FB8A36F2C3524B294583542A2CC13D856
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60322.jpgsave_picture_60322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60322.jpg" />
 </div>
 
 

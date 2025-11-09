@@ -6,7 +6,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114131.jpgsave_picture_114131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114131.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ CJ Redan - VOL. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114132.jpgsave_picture_114132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114132.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:62467993225A63F023CA54E4A8D669841D0D7CCD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114133.jpgsave_picture_114133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114133.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Twisted Tower Dire - Wars In The Unknown (2019) [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114134.jpgsave_picture_114134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114134.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AList Desktop for Mac ARM 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114135.jpgsave_picture_114135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114135.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:60176B4D3559EFCBA3FD2E9DEAC8F56A74A810EB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114136.jpgsave_picture_114136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114136.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ TechSmith Camtasia 2023 Studio 2023.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114137.jpgsave_picture_114137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114137.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Menuwhere 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114138.jpgsave_picture_114138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114138.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:98274FED96BD08F2D08B4651F57057522B6C9F9F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114139.jpgsave_picture_114139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114139.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ iA Writer 7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114140.jpgsave_picture_114140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114140.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:0991E4F0FB7FFD3CE12235BAEE25A120FCF90CD2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114141.jpgsave_picture_114141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114141.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:39F82F71700DA351C72FD0C722BB31510AD26291
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114142.jpgsave_picture_114142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114142.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Image Uploader 1.4.0 Build 5135 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114143.jpgsave_picture_114143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114143.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Nadir - Standing at the Cosmic Horizon (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114144.jpgsave_picture_114144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114144.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114145.jpgsave_picture_114145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114145.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:936989504FE8B4A6356EFFE26742EEAFB578B022
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114146.jpgsave_picture_114146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114146.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:7AD917A3786631425BD004A63038BA804DAE1FE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114147.jpgsave_picture_114147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114147.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Vargas Blues Band - Best of my Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114148.jpgsave_picture_114148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114148.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114149.jpgsave_picture_114149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114149.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ DxO FilmPack 7 for Mac v.7.5.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114150.jpgsave_picture_114150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114150.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:D3A2700D498AF1E94B4B8510A23133C98E7BB598
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114151.jpgsave_picture_114151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114151.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Kid Colling Cartel - Living On The Wild Side (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114152.jpgsave_picture_114152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114152.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:031B54656433AD95FD9C3746F4D2A50A6BA59A7D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114153.jpgsave_picture_114153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114153.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Emotive Echoes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114154.jpgsave_picture_114154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114154.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114155.jpgsave_picture_114155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114155.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:15DC3CF8925ED6984013B5E8180F046325C8CCA5
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114156.jpgsave_picture_114156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114156.jpg" />
 </div>
 
 

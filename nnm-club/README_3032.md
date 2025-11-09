@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94718.jpgsave_picture_94718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94718.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:E836D9E0EF68E5C5015C9118478B0A3F7D04011B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94722.jpgsave_picture_94722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94722.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F65DA3D2BF3564E3395AD73678322EBD6C05096E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94724.jpgsave_picture_94724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94724.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94726.jpgsave_picture_94726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94726.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94728.jpgsave_picture_94728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94728.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:1ADA097D6C3544C54F671E5B1A7E16151C1B05B2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94730.jpgsave_picture_94730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94730.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Lester Young - The Lester Young Story (1936 - 1949) 4CD, 2000, Proper Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94731.jpgsave_picture_94731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94731.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:79563577E810F034776F312A689128DA3FCC7549
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94732.jpgsave_picture_94732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94732.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7CB0EF9C33C02DC0D00419C94FF155E101593C1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94733.jpgsave_picture_94733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94733.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8F0BD68CF23C95AA69CC1913145AE29E780C6AD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94734.jpgsave_picture_94734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94734.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:C9CD0EB0385DFFA2C2EE216DE20D4170529E85AA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94735.jpgsave_picture_94735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94735.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:C9CD0EB0385DFFA2C2EE216DE20D4170529E85AA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94736.jpgsave_picture_94736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94736.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:E56001FEB085FC6E945D768124F5D57E8C218EB9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94737.jpgsave_picture_94737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94737.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Lange & Audrey Gallagher - Our Way Home (2012) HDRip [1080p]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94741.jpgsave_picture_94741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94741.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:4F276F009004B571E2D4203BBE8B23B92AC6150F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94743.jpgsave_picture_94743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94743.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Massive - 1 More Time (2012) [MP3|320 кб/с]<Psychedelic/ Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94744.jpgsave_picture_94744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94744.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Return to Castle Wolfenstein (2020) [Ru/Multi] (5.2-final-1/dlc) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94745.jpgsave_picture_94745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94745.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:7EB2843BD1EC484CE0003C2D843B3BB719FBBB65
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94747.jpgsave_picture_94747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94747.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Eboxyde - Bonus Tracks (2012) [MP3|320 кб/с]<Dubstep, House, Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94748.jpgsave_picture_94748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94748.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:99417221D2150ACF020286ADA59891F2E84D5A69
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94749.jpgsave_picture_94749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94749.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:41EA8951B58C3B56C5A6DC5508366A5305433D50
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94751.jpgsave_picture_94751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94751.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Minimal Audio - Effect Bundle 2025.10 VST, VST 3, AAX Repack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94753.jpgsave_picture_94753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94753.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Jigsawscapes® - Пазлы v4.2.3 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94755.jpgsave_picture_94755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94755.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:5FB831F4E8AADF931FE95109C95260ECDAEA0F81
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94759.jpgsave_picture_94759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94759.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Drum and Bass Deafening (2012) [MP3|256~320 кб/с]<Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94761.jpgsave_picture_94761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94761.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:4A51B7F9D0FEAEA4AAE2A68D0A74B077B57BF277
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94762.jpgsave_picture_94762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94762.jpg" />
 </div>
 
 

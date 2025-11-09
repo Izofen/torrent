@@ -6,7 +6,7 @@ Birdstone - The Great Anticipation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107831.jpgsave_picture_107831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107831.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John Pena - Life, Legacy & Music, Pt. 2 (2024) [FLAC 24/192|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107832.jpgsave_picture_107832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107832.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sacrum - SACRUM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107833.jpgsave_picture_107833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107833.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jose (José) Privat - Clin d'Œil (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107834.jpgsave_picture_107834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107834.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stanton Moore - Groove Alchemy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107835.jpgsave_picture_107835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107835.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Iiro Rantala - Tough Stuff (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107836.jpgsave_picture_107836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107836.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Nation Beat - Archaic Humans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107839.jpgsave_picture_107839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107839.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Torture Squad - Studio Albums (10 releases) (1998-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107858.jpgsave_picture_107858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107858.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Annabel - Worldviews (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107886.jpgsave_picture_107886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107886.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Xeneris - Eternal Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107887.jpgsave_picture_107887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107887.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Gustave Reichert - Mars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107889.jpgsave_picture_107889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107889.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Finn Rees - Dawn Is A Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107890.jpgsave_picture_107890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107890.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8E91FD2569BCDCD23459AF6ADFFA9D624233E3B3
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107898.jpgsave_picture_107898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107898.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jill Barber - Encore! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107899.jpgsave_picture_107899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107899.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dagoba - Different Breed (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107901.jpgsave_picture_107901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107901.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Atlantis Drive - Atlantis Drive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107902.jpgsave_picture_107902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107902.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ben Sidran - Rainmaker (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107903.jpgsave_picture_107903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107903.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Isobel Campbell - Bow to Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107904.jpgsave_picture_107904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107904.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Equal Spirits - Wise and Waiting (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107906.jpgsave_picture_107906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107906.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Golgotha - Spreading The Wings Of Hope (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107911.jpgsave_picture_107911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107911.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Zsela - Big For You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107914.jpgsave_picture_107914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107914.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Mariah Carey - Rainbow (1999) 25th Anniversary Expanded Edition, 2024, Columbia 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107915.jpgsave_picture_107915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107915.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eduardo Cardinho - Not far from paradise (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107918.jpgsave_picture_107918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107918.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Little Feat - Feats Don't Fail Me Now (1974) Deluxe Edition, 2024, Warner Record
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107920.jpgsave_picture_107920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107920.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Bob Recchione - Waited Too Long To Start (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107925.jpgsave_picture_107925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107925.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Marius Acke, Rubba J, Enice Mokamba - Deepwater Sessions No. 3 (2010) Remastered
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107928.jpgsave_picture_107928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107928.jpg" />
 </div>
 
 

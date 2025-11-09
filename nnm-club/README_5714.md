@@ -6,7 +6,7 @@ Bucilla | Схемы для вышивки крестом фирмы Bucilla (19
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176154.jpgsave_picture_176154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176154.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kingston Wall - I (1992) Mix, 2023, WM Finland [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176155.jpgsave_picture_176155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176155.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:4AF158D4A9E163583DC8F821D3261D425F69062C
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176156.jpgsave_picture_176156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176156.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Surge (2017) [Ru/Multi] (55623) License GOG [Augmented Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176157.jpgsave_picture_176157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176157.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:6F05BF7C35C63F1E28AABBB9B0C28C04596DF47C
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176158.jpgsave_picture_176158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176158.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:3DCEBC1F54C7993D4B4FAC7A1B9B72EA13FE951C
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176159.jpgsave_picture_176159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176159.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:6CECD9F54D78453976AAEE3F86A2EA2A33F1856A
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176161.jpgsave_picture_176161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176161.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176162.jpgsave_picture_176162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176162.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:D4B692C29D66FB7628C6B010C7D0C73AF3FBCF2E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176163.jpgsave_picture_176163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176163.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:4AA2F5CC2CD88B0EDF3E7E840F99D1E616A935F8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176164.jpgsave_picture_176164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176164.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Karfagen - Land of Green and Gold (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176165.jpgsave_picture_176165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176165.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Delight - A New (2004) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176167.jpgsave_picture_176167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176167.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Celestial Season - Mysterium I-II (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176168.jpgsave_picture_176168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176168.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:A99107653BD77B97AF455FD37FF2F3337E6C993A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176169.jpgsave_picture_176169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176169.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Gerry Mulligan & Chet Baker - The Complete Pacific Jazz and Capitol Recordings O
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176171.jpgsave_picture_176171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176171.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Hammock - Discography 40 Releases (2005-2020) Hammock Music, Darla Records [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176172.jpgsave_picture_176172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176172.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Markus Venehsalo & Mavon Safia - Introlation (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176173.jpgsave_picture_176173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176173.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Helvegen - Следуй за мной (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176175.jpgsave_picture_176175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176175.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:81649365A68B7576BF20C6B140D20C69A47682A0
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176176.jpgsave_picture_176176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176176.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Eradikated - Descendants (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176177.jpgsave_picture_176177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176177.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Delight - Breaking Ground (2007) [FLAC|Lossless|image + .cue] <Alternative Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176179.jpgsave_picture_176179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176179.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ About Us - About Us (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176180.jpgsave_picture_176180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176180.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:FCD22154A99B1627DB44353A78E24B7E6D9FD8A6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176182.jpgsave_picture_176182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176182.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Delight - Eternity (2002) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176183.jpgsave_picture_176183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176183.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:3CA4E3BE4B4D60280D5CBCF272D0A425F56D17BA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176185.jpgsave_picture_176185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176185.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Delight - The Fading Tale (2001) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176186.jpgsave_picture_176186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176186.jpg" />
 </div>
 
 

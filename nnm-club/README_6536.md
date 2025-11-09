@@ -6,7 +6,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208180.jpgsave_picture_208180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208180.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208181.jpgsave_picture_208181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208181.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ KiCad 7.0.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208183.jpgsave_picture_208183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208183.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Coventrate - Roots of all Evil (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208186.jpgsave_picture_208186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208186.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8E69F547C517BCECF441FB90AEFFD0E043DAA3C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208188.jpgsave_picture_208188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208188.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:3EF922A1DF2CEBA525E14421415E2F005DAF652F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208191.jpgsave_picture_208191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208191.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Windows Update Viewer 0.5.16.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208192.jpgsave_picture_208192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208192.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Vivaldi 6.1.3035.204 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208195.jpgsave_picture_208195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208195.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Smart Launcher 6.2 build 047 Mod by Balatan, derrin, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208196.jpgsave_picture_208196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208196.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:2E9548AD59F865ADDAE3ACD36074ADD9B47A2FAF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208198.jpgsave_picture_208198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208198.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ IceCream Ebook Reader Pro 6.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208203.jpgsave_picture_208203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208203.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B515C7D2909FDAC95D8F5F01395534923CECEFFD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208206.jpgsave_picture_208206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208206.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Muddy Colors, David Finch | Fantasy Anatomy (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208207.jpgsave_picture_208207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208207.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Projectivy Launcher 4.34 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208210.jpgsave_picture_208210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208210.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:7351B84943397F3F528BAE9E9BA41EA9FBD5077B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208213.jpgsave_picture_208213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208213.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Atlanta Symhonic Orchestra & Chorus - Carl Orff: Carmina Burana (1981) Remaster,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208214.jpgsave_picture_208214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208214.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:EF206D9BF5415A9D940EDDB559223F305936F8D2
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208217.jpgsave_picture_208217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208217.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:041AE667098751C946A52C518D827940D39B1A91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208218.jpgsave_picture_208218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208218.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:9B7E9BA7DF2D08DB572DE308D1A3FDA316198976
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208221.jpgsave_picture_208221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208221.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:17CD8604B9E14BE1C9CE6DA8079E735815532EB4
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208222.jpgsave_picture_208222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208222.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ CG Forge, Tyler Bay | Pyro I - Smoke & Steam (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208226.jpgsave_picture_208226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208226.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ XnViewMP 1.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208228.jpgsave_picture_208228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208228.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Profileschool, Алексей Шадрин | Художественный обр
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208229.jpgsave_picture_208229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208229.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Draw.io 21.6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208231.jpgsave_picture_208231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208231.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Digital Art Club, Алёна Клементьева | Цифровая Живо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208233.jpgsave_picture_208233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208233.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Rock Retro Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208235.jpgsave_picture_208235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208235.jpg" />
 </div>
 
 

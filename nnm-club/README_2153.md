@@ -6,7 +6,7 @@ Wondershare PDFelement 10.4.1.2755 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56345.jpgsave_picture_56345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56345.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kuroi Ame ni Utarete | Жертвы чёрного дождя [1984, Movie] DVDR
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56346.jpgsave_picture_56346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56346.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Slash - Orgy of the Damned (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56347.jpgsave_picture_56347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56347.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9A1C9986E7CCFAE6042EA1E3FBB20D6E1B7A2DF6
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56348.jpgsave_picture_56348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56348.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ CalenGoo - Calendar and Tasks 1.0.183 (build 1647) Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56349.jpgsave_picture_56349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56349.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6FB86411872AC8D5D7564866C75E7A1058CBE2A5
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56350.jpgsave_picture_56350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56350.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3965FA1CE5366230E305E059A076770050C5E8BD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56351.jpgsave_picture_56351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56351.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ IsMyLcdOK 5.59 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56352.jpgsave_picture_56352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56352.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ CyberLink PhotoDirector Ultra 15.4.1706.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56353.jpgsave_picture_56353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56353.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:2130836C9602D6DA324485D27F354B172005854F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56354.jpgsave_picture_56354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56354.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1258B007567009DD9D60E7C88A0FAF06A28ECE39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56355.jpgsave_picture_56355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56355.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinCatalog 2024.7.0.515 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56356.jpgsave_picture_56356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56356.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:110BC748A6F68DA312CDCD5C31740F719B157E14
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56357.jpgsave_picture_56357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56357.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ NetLimiter 5.3.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56358.jpgsave_picture_56358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56358.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Poltergeist Watcher (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56359.jpgsave_picture_56359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56359.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Psiphon 3 build 183 (14.05.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56360.jpgsave_picture_56360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56360.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Onvier - IP Camera Monitor (Ранее. Onvifer) 19.11 Mod by Alex.Strannik [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56361.jpgsave_picture_56361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56361.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:16EABE6F76619BFAADF3A1D75E1F14A6E039765D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56362.jpgsave_picture_56362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56362.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ CamScanner 6.64.1.2405070000 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56363.jpgsave_picture_56363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56363.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Epic Pen Pro 3.12.148 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56364.jpgsave_picture_56364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56364.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ ZWCAD 2025 SP0 Professional [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56365.jpgsave_picture_56365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56365.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Adobe Bridge 2024 14.1.0.257 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56366.jpgsave_picture_56366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56366.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Duplicate File Detective 7.2.74 ENTERPRISE EDITION RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56367.jpgsave_picture_56367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56367.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Wireshark 4.2.5 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56368.jpgsave_picture_56368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56368.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:64DF158B612A83656BC557C9084D6AC0F917F544
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56369.jpgsave_picture_56369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56369.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:36C01AABE5859E6920D69733D0B9EFBFC522D1BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56370.jpgsave_picture_56370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56370.jpg" />
 </div>
 
 

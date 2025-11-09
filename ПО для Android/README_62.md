@@ -6,7 +6,7 @@ Calm - Sleep, Meditate, Relax 6.12.2 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178624.jpgsave_picture_178624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178624.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WeatherPro: прогноз погоды 5.6.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179683.jpgsave_picture_179683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179683.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BD95B7E06864C04F72BE43DF8CFABFABC1E43808
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179866.jpgsave_picture_179866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179866.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Office 365 (Mobile) 16.0.15726.20196 Mod by StephenP [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180086.jpgsave_picture_180086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180086.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sleep Timer v22.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180405.jpgsave_picture_180405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180405.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Colorize - Color to Old Photos v3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180884.jpgsave_picture_180884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180884.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:D98FFC132E6A92F25FB9D533AF57C001B42B3B42
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180955.jpgsave_picture_180955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180955.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Code Editor Pro 0.7.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181028.jpgsave_picture_181028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181028.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ QuickEdit Text Editor Pro 1.9.7 Mod by Katafrakt [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181058.jpgsave_picture_181058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181058.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181156.jpgsave_picture_181156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181156.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181236.jpgsave_picture_181236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181236.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:BE3042F4376A035271BD5779A84F4F9EE9E22A5A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181293.jpgsave_picture_181293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181293.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:055FF64A271026614C32313E2B40AD96E71B0EF0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181442.jpgsave_picture_181442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181442.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:2ABB0C4C060338D069E5345D776F59EA2032709A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181520.jpgsave_picture_181520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181520.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:C77C2FCCF7E381873353F76E057C8424D3669C0F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181539.jpgsave_picture_181539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181539.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:66EE885510A8D4C59D4F0F47F06BF1C87E3D75F7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181564.jpgsave_picture_181564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181564.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181911.jpgsave_picture_181911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181911.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:31B5DD2D028E9274FEBB4288BC97A92596EF3FE7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181978.jpgsave_picture_181978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181978.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182017.jpgsave_picture_182017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182017.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182062.jpgsave_picture_182062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182062.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ ImageMeter - photo measure v3.8.8 Mod by KitKat [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182078.jpgsave_picture_182078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182078.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Universal Copy v6.3.5 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183842.jpgsave_picture_183842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_183842.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ DNS Changer Fast&Secure Surf 1.2.8 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184486.jpgsave_picture_184486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184486.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ultimate Background Eraser v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184954.jpgsave_picture_184954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184954.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:8F642AE772A85F3E58C7FA64AF599B19B65F5C91
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185222.jpgsave_picture_185222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185222.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Battery Alert 40-80 Pro 1.48 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185667.jpgsave_picture_185667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185667.jpg" />
 </div>
 
 

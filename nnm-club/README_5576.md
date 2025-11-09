@@ -6,7 +6,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171964.jpgsave_picture_171964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171964.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VMware Workstation 17 Pro 17.5.0 Build 22583795 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171965.jpgsave_picture_171965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171965.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kaspersky Free 21.15.8.493 Repack by LcHNextGen (20.10.2023) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171966.jpgsave_picture_171966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171966.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E1B3E84691BAF4DDA9A772A7C68E223E4BD774E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171967.jpgsave_picture_171967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171967.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7D54D009FDADE267934AAD2C2CDD3639C023284B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171968.jpgsave_picture_171968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171968.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DFDEAFEFBF12485C23EAC8DABD3A738302254ADD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171969.jpgsave_picture_171969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171969.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171970.jpgsave_picture_171970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171970.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (7315520/dlc) Repack Decepticon 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171971.jpgsave_picture_171971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171971.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171972.jpgsave_picture_171972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171972.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171973.jpgsave_picture_171973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171973.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:B1D7A6066F32DAE30CFD18963AEF3A2EE54A59B9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171974.jpgsave_picture_171974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171974.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:AAE93C8CC3C8D1CDE1AF61F12055FDAD89B8B36E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171975.jpgsave_picture_171975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171975.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:D9F77ED85E35C183CAB2FCE77C5210F585B93913
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171976.jpgsave_picture_171976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171976.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:94BE1FB789E0B90BDED6488FC020A19BAFF04098
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171977.jpgsave_picture_171977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171977.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171978.jpgsave_picture_171978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171978.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:AC04E89A530727333A213C72F6A0561D1F16E30B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171979.jpgsave_picture_171979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171979.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:F08A412A1AEF214AE3BB3693B1A37A443DE35A06
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171980.jpgsave_picture_171980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171980.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:6D2AD0CDE300162CC3AACF6CF9402B06553BD98F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171981.jpgsave_picture_171981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171981.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ EA Sports FC 24 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171982.jpgsave_picture_171982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171982.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VMware Fusion Pro 13 v.13.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171983.jpgsave_picture_171983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171983.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VMware Workstation Player 17.5.0 Build 22583795 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171984.jpgsave_picture_171984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171984.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:51A31193802EC58E166C8B1456948EEB33236351
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171985.jpgsave_picture_171985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171985.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:4BFA34450DA2B263DEB8F6B4825890A7BF5184C0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171986.jpgsave_picture_171986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171986.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:B67493636DD07D8F2763207CE6C928D33F4A7BDA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171987.jpgsave_picture_171987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171987.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:0E027006818E9F71732BC244CEE9AAFC508E9543
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171988.jpgsave_picture_171988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171988.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:520B7CA1371F899EDA77FE455B61D022B0CC13AC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171989.jpgsave_picture_171989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171989.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154668.jpgsave_picture_154668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154668.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Shultais Education | Проектирование баз данных (2018) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154669.jpgsave_picture_154669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154669.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:34E6F3B90D69E3BD434B847A6FA01F425B871594
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154670.jpgsave_picture_154670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154670.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D6D9C38A76686E3205BF5585A1D7E4939E4519F8
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154671.jpgsave_picture_154671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154671.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:7835031D16C4DE32249DAC9A678EF48DF0CC43C5
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154672.jpgsave_picture_154672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154672.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Learn Squared, Maxx Burman | Intro to Matte Painting (2017) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154673.jpgsave_picture_154673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154673.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Disco Christmas 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154674.jpgsave_picture_154674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154674.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Rogue Deal - Escape from Justice (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154675.jpgsave_picture_154675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154675.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:083C0DC6C22285467670D6E13CCF2F23F378ECF2
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154676.jpgsave_picture_154676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154676.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154677.jpgsave_picture_154677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154677.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:FF5C320214060EBC8E17BB10397122ADD4D3DABE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154678.jpgsave_picture_154678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154678.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Webbed (2021) [Ru/Multi] (1.04b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154680.jpgsave_picture_154680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154680.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:0234D9722DD513555336A57032EEA531CAD8043B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154682.jpgsave_picture_154682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154682.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ E-Trophee Andros. Сезон 2020-2021. Этап 1. Андорра. Гонка 1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154683.jpgsave_picture_154683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154683.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Underworld - Best275z (1988 - 2016) [MP3|320 Kbps] <Electronic, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154684.jpgsave_picture_154684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154684.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:9F24BB29A2247B34856C6FAA22B42689C63FCCCA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154685.jpgsave_picture_154685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154685.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:188DA94B4A7DCACB9AA1A443BE7FCA65ACCD83AB
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154686.jpgsave_picture_154686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154686.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:E97DD4DE159877F7C9D905416367A94FB27FD1DE
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154687.jpgsave_picture_154687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154687.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Pat Martino - Footprints (1972) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154688.jpgsave_picture_154688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154688.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ iThoughtsX 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154689.jpgsave_picture_154689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154689.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Blackmagic Design DaVinci Resolve Studio 18.1.2 Build 6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154690.jpgsave_picture_154690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154690.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:C58865F9E749DF39511FCA0A7D2D0C5368DE92E1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154691.jpgsave_picture_154691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154691.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:EA2CCE78B74E76BAC35DD4FB82189DD76E5BB36F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154692.jpgsave_picture_154692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154692.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:EC2301DA776405853505660B242B723F7A44510F
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154693.jpgsave_picture_154693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154693.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Linux Mint 19.1 Tessa (XFCE, Mate, Cinnamon) [32bit,64bit] 6xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154694.jpgsave_picture_154694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154694.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:7D5BA5A6EFD7B1BC299D0A832AB49EB3431EEC17
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154695.jpgsave_picture_154695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154695.jpg" />
 </div>
 
 

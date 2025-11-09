@@ -6,7 +6,7 @@ Photo Lab PRO v3.13.52 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23947.jpgsave_picture_23947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23947.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23948.jpgsave_picture_23948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23948.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ ROOK ROAD - Rook Road II (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23949.jpgsave_picture_23949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23949.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5E7F7939107A8D9B5550CC7E6D13236253C40BF4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23950.jpgsave_picture_23950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23950.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:F307394DF29C0529A5C5E9C7AE9232C08F9381BA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23951.jpgsave_picture_23951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23951.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:196BCBDAE76A4D2D3683ACD7D63754D01FEC0AF2
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23952.jpgsave_picture_23952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23952.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ AntiPlagiarism.NET 4.142.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23953.jpgsave_picture_23953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23953.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:7B14E14A4BF57969AC24A39B12DA0B99DF1964A1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23954.jpgsave_picture_23954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23954.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:5C3FBF61FA0BEA1983BE84F95BCA0FAA515421D0
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23955.jpgsave_picture_23955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23955.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ IPTV Pro v9.0.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23956.jpgsave_picture_23956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23956.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:92CC7EE243C88B8DCF2933D8A2E89D5B07CBA460
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23957.jpgsave_picture_23957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23957.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:736F82E2D66F0841906DD0C02770CF88FE0FF64D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23958.jpgsave_picture_23958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23958.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:14899EBFA76B1653E90F927BB6A32ABDD52368E4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23959.jpgsave_picture_23959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23959.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:9789A59B0E277F3C8631168EB390DB8ABA97788D
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23960.jpgsave_picture_23960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23960.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Opera One 117.0.5408.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23961.jpgsave_picture_23961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23961.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Aquatic Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23962.jpgsave_picture_23962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23962.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AD5A1D4632ACCD35A1F5405A3C76163A6EF58993
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23963.jpgsave_picture_23963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23963.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:209DB59CC91F006B06626DC8218C79076359BE71
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23964.jpgsave_picture_23964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23964.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - 80's Dance Rarities (1989) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi-NRG, Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23965.jpgsave_picture_23965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23965.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3E00E71E84B609F5FB5B33F1BB321D43E5078505
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23966.jpgsave_picture_23966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23966.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:5D09FAB6CF921B9A310B7A39D3FA53A38BE2C40A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23967.jpgsave_picture_23967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23967.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Brave Browser 1.76.80 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23968.jpgsave_picture_23968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23968.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Storykeepers: Hidden Mystery (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23969.jpgsave_picture_23969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23969.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:30BA93A92606549E1CE5935CBC7CCDD7997E2D29
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23970.jpgsave_picture_23970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23970.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:06440C73273B7A954DFB2EE2A52952522B83312A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23971.jpgsave_picture_23971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23971.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ ABViewer Enterprise 15.2.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23972.jpgsave_picture_23972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23972.jpg" />
 </div>
 
 

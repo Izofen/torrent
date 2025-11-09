@@ -6,7 +6,7 @@ Microsoft Windows 11 [10.0.22631.5624], Version 23H2 (Updated July 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11452.jpgsave_picture_11452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11452.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.26100.4652], Version 24H2 (Updated July 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11454.jpgsave_picture_11454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11454.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MAGIX Vegas Pro 22.0 Build 250 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11455.jpgsave_picture_11455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11455.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11458.jpgsave_picture_11458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11458.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5343ECBFD25896F71B2618619FBDD8FCCFAACC53
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11459.jpgsave_picture_11459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11459.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4EC0BDE627C4D4B7D2D61710B3CAE8BD33FB750A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11460.jpgsave_picture_11460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11460.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:862B417898C37766BD99F044B74BD3FA342A3D90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11461.jpgsave_picture_11461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11461.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:6C287AC3D6A15A669A3CA343213271CEF81A8362
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11462.jpgsave_picture_11462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11462.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:FC78F4E2B3BCE9A5A8FA971BA6A71CFB2031AFFD
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11463.jpgsave_picture_11463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11463.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B48BCF67A54005EA59FF617ED6ECFF90CEA507A7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11464.jpgsave_picture_11464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11464.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A5B10FBB1C0DA88A3149F49B02BF185EA4C15AFD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11465.jpgsave_picture_11465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11465.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:5913DE9AAEA6BA547F727CD841FB859D5A0E21AC
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11466.jpgsave_picture_11466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11466.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:5913DE9AAEA6BA547F727CD841FB859D5A0E21AC
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11467.jpgsave_picture_11467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11467.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:5913DE9AAEA6BA547F727CD841FB859D5A0E21AC
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11468.jpgsave_picture_11468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11468.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11469.jpgsave_picture_11469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11469.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D6BDF7FAF923A7C125FEA6070B90E19F4617C847
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11471.jpgsave_picture_11471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11471.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:7CCE6B213D0AB572DDA45B21F82DC58BD37DC3EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11473.jpgsave_picture_11473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11473.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:7CCE6B213D0AB572DDA45B21F82DC58BD37DC3EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11474.jpgsave_picture_11474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11474.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Windows Server 2025 LTSC [10.0.26100.4652], Version 24H2 (Updated July 2025) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11475.jpgsave_picture_11475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11475.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:EFC6D7337DC821AD4B5CE3984D4FF6C819CCE2AD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11476.jpgsave_picture_11476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11476.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:EFC6D7337DC821AD4B5CE3984D4FF6C819CCE2AD
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11477.jpgsave_picture_11477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11477.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:14EBAC07796523B4D5F55AA8CD6B7EA29EBB7485
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11478.jpgsave_picture_11478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11478.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:14EBAC07796523B4D5F55AA8CD6B7EA29EBB7485
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11479.jpgsave_picture_11479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11479.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:14EBAC07796523B4D5F55AA8CD6B7EA29EBB7485
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11480.jpgsave_picture_11480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11480.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:0CA1A6A69B101369BCE39164C666398776DD2349
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11481.jpgsave_picture_11481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11481.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:00B428FE9FDD9C41D40401FDD55DE2C714551498
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11482.jpgsave_picture_11482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11482.jpg" />
 </div>
 
 

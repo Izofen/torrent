@@ -6,7 +6,7 @@ Built For The Future - 2084:Heretic (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204026.jpgsave_picture_204026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204026.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:841904209B5D5960D2B61C0F06EB79F85EAE8075
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204027.jpgsave_picture_204027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204027.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D4FEA1DC1218CD91F0A3A7B82C244A61302BB71B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204028.jpgsave_picture_204028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204028.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2E7BFBDDC0CBCF18DA0F1607F8039C6FF0C7B358
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204029.jpgsave_picture_204029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204029.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204030.jpgsave_picture_204030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204030.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:308D76FCC36CE60DD8BA3419E8D26BCB951C42F1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204031.jpgsave_picture_204031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204031.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:EBC6731894CEE7A66223A303A604399F5321DF29
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204032.jpgsave_picture_204032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204032.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:CB6A250D4D6E340ECCCC09C855F4D91117029DC9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204033.jpgsave_picture_204033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204033.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Musify for Mac 3.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204034.jpgsave_picture_204034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204034.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:E60A670B0F91BB7BF264CB88335C5F49D8669B55
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204035.jpgsave_picture_204035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204035.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Podlodka Crew | PHP Crew #1 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204036.jpgsave_picture_204036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204036.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Magic Disk Cleaner 2.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204037.jpgsave_picture_204037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204037.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:5124E5552AA375635B6062BB8AB71140EA92D731
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204038.jpgsave_picture_204038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204038.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:0E380F88E1BB7AE5E2B80DD0ABD65135E59561C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204039.jpgsave_picture_204039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204039.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:F157C768BF60BC39F225B25930321A983435FEB8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204040.jpgsave_picture_204040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204040.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MaterialEyes - Inside Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204041.jpgsave_picture_204041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204041.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ ExactScan Enterprise 23.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204042.jpgsave_picture_204042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204042.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Avid Sibelius Ultimate 2022.9 Build 1464 RePack by OctaneS [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204043.jpgsave_picture_204043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204043.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Who Is She? - Goddess Energy (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204044.jpgsave_picture_204044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204044.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Luminar Neo 1.6.2.10871 (Repack & Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204045.jpgsave_picture_204045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204045.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Holding Absence - The Noble Art Of Self Destruction (2023) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204046.jpgsave_picture_204046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204046.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204047.jpgsave_picture_204047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204047.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204048.jpgsave_picture_204048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204048.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ YT Saver Video Downloader & Converter for Mac 7.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204049.jpgsave_picture_204049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204049.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:F5BAC68B755B592698069433CA9BCB3E28CCD144
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204050.jpgsave_picture_204050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204050.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:ABCFC6E85C033FC75459D1E3724F60BF1FC8CDD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204051.jpgsave_picture_204051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204051.jpg" />
 </div>
 
 

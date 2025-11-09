@@ -6,7 +6,7 @@ Hellraiser - Dream of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166886.jpgsave_picture_166886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166886.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F05E5AF07AADD259EE3C79A4986234190559206A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166887.jpgsave_picture_166887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166887.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Floorp Browser 11.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166888.jpgsave_picture_166888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166888.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Rising Faith - The Arrival (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166889.jpgsave_picture_166889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166889.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0C5E394C0A784C35BE09A458E76C79E953B5B1B7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166890.jpgsave_picture_166890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166890.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D6CC67CBD5ADE60EDD316685BE9166C91AB5F99E
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166891.jpgsave_picture_166891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166891.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:29FBE3185CACDF2152F7CCB97261E4D7417E24A0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166892.jpgsave_picture_166892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166892.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Lordi - Lordiversity: Abracadaver (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166893.jpgsave_picture_166893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166893.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Room Arranger 9.8.1.641 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166894.jpgsave_picture_166894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166894.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Serge Chaloff - The Complete Serge Chaloff Sessions (1946 - 1956) 4CD, 1993, Mos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166895.jpgsave_picture_166895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166895.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:7941569269FF25D5A7B169DC5CE334B79C88DA13
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166896.jpgsave_picture_166896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166896.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:D0F712911F8A83C6E81EECC612C89E650628DAB0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166897.jpgsave_picture_166897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166897.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:D9B5AE82FBAA501135DA3A4251428BCAFA4F2356
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166898.jpgsave_picture_166898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166898.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Claudia Robbens - Make a Difference (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166899.jpgsave_picture_166899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166899.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ TechSmith Camtasia 23.3.2 build 49471 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166900.jpgsave_picture_166900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166900.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166901.jpgsave_picture_166901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166901.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Rod Levitt - The Dynamic Sound Patterns of The Rod Levitt Orchestra (1963) 2003,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166902.jpgsave_picture_166902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166902.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:BC175677BDAC82E71DFC3E109E829E650F78DD34
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166903.jpgsave_picture_166903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166903.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ BOULEVARD DEPO, SP4K - QWERTY LANG (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166904.jpgsave_picture_166904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166904.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Leama & Moor - Distance Between Us (2006) Single [MP3|320 Kbps] <Progressive Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166905.jpgsave_picture_166905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166905.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.0 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166906.jpgsave_picture_166906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166906.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Die Blues Buam - Broken World (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166907.jpgsave_picture_166907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166907.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Pink Floyd - Lyon 12 June 1971 & Tokyo 16 March 1972 (2021) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166908.jpgsave_picture_166908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166908.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ FX Player Pro 3.7.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166909.jpgsave_picture_166909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166909.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:0AFFBCDDA7BC593D4DD91BEFA78103AD7EF5AADD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166910.jpgsave_picture_166910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166910.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ PDFpen Pro 13 v13.1 fix [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166911.jpgsave_picture_166911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166911.jpg" />
 </div>
 
 

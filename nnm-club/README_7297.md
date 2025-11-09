@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249759.jpgsave_picture_249759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249759.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB2FD187D885F122A4FED48A2B424009836D5F42
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249760.jpgsave_picture_249760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249760.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ RJ TextEd 15.83.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249761.jpgsave_picture_249761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249761.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:44CD9D906722103599FA84AE4F44AB0AC0654E2E
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249762.jpgsave_picture_249762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249762.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ O&O Defrag Professional / Server 25.2 Build 7405 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249763.jpgsave_picture_249763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249763.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:A68BD92B50C27096A8C282B029CF47D021004787
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249764.jpgsave_picture_249764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249764.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Helloluxx, Rich Nosworthy | Houdini In Bloom (2021) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249765.jpgsave_picture_249765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249765.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Microsoft .Net Framework 12.07.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249766.jpgsave_picture_249766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249766.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Michael Feinstein - Michael & George: Feinstein Sings Gershwin (1998) Concord Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249767.jpgsave_picture_249767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249767.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:A8EE96B5DEAF311E488EECF16B29CE000294D6F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249768.jpgsave_picture_249768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249768.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) 3.8.0.101 Mod by Valik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249769.jpgsave_picture_249769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249769.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Best Of Disco Balls Records 2022, Vol. 3 (2023) [MP3|320 Kbps] <Disco, Nu-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249770.jpgsave_picture_249770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249770.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:785008F861F3F548D547417EAA349B489454DE68
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249771.jpgsave_picture_249771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249771.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:32B62E4AFE31882162DD3CD471C2FAEF52BDC759
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249772.jpgsave_picture_249772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249772.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Perfectly Clear WorkBench 4.3.0.2439 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249773.jpgsave_picture_249773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249773.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Telegram for Android 9.5.2 (3208) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249774.jpgsave_picture_249774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249774.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8EB8699B164F0723728F768A52AB4E895C500031
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249775.jpgsave_picture_249775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249775.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery. Суперфабрики любимая еда / Super Factories Food
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249776.jpgsave_picture_249776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249776.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:39BC177144B21D53E865ACA1997C28E734A3FD67
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249777.jpgsave_picture_249777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249777.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:90FDE9E4EE0A831BBB3E48526D5AE3C344ABC023
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249778.jpgsave_picture_249778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249778.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ CGMA, Adam Swaab | Abstract FX in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249779.jpgsave_picture_249779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249779.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ CGcircuit, Tyler Bay | Houdini For The Artist Modeling I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249780.jpgsave_picture_249780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249780.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:327452EBE538A02C0866556223EAD79BD159024D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249781.jpgsave_picture_249781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249781.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Discoid Clubbing Vol. 3 (2023) [MP3|320 Kbps] <Funky House, Club House, Ind
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249782.jpgsave_picture_249782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249782.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ YouTube Vanced [ROOT] (Extended) 17.28.32 Mod by Number one' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249783.jpgsave_picture_249783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249783.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Miami (2023) [MP3|320 Kbps] <Tech House, Club House, Techno, Electronica>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249784.jpgsave_picture_249784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249784.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ DATE A LIVE: Ren Dystopia (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40513.jpgsave_picture_40513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40513.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0.13) Repack FitGirl [Supporte
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40514.jpgsave_picture_40514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40514.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40519.jpgsave_picture_40519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40519.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kvark (2023) [Ru/Multi] (1.0.5.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40522.jpgsave_picture_40522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40522.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40525.jpgsave_picture_40525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40525.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40527.jpgsave_picture_40527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40527.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Bloomtown: A Different Story (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40535.jpgsave_picture_40535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40535.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40540.jpgsave_picture_40540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40540.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40546.jpgsave_picture_40546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40546.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) Repack FitGirl [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40552.jpgsave_picture_40552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40552.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cash Cow DX (2024) [En] (1.1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40564.jpgsave_picture_40564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40564.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.43094/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40593.jpgsave_picture_40593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40593.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40598.jpgsave_picture_40598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40598.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40603.jpgsave_picture_40603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40603.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40607.jpgsave_picture_40607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40607.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Kvark (2023) [Ru/Multi] (1.0.5.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40629.jpgsave_picture_40629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40629.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Europa (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40633.jpgsave_picture_40633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40633.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mech Engineer (2020) [Ru/Multi] (1.0.65) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40640.jpgsave_picture_40640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40640.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ash of Gods: Redemption (2018) [Ru/Multi] (1.6.24/dlc) License GOG [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40649.jpgsave_picture_40649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40649.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40693.jpgsave_picture_40693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40693.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Ru/Multi] (1.0.0.349/dl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40709.jpgsave_picture_40709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40709.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Grim Realms (2024) [Multi] (1.0.1.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40717.jpgsave_picture_40717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40717.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Thyria (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40719.jpgsave_picture_40719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40719.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40723.jpgsave_picture_40723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40723.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40730.jpgsave_picture_40730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40730.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40736.jpgsave_picture_40736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40736.jpg" />
 </div>
 
 

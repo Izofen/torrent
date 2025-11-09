@@ -6,7 +6,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58503.jpgsave_picture_58503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58503.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ground Control Антология (1999-2004) [Ru] (1.05/1.0.0.8/dlc) Repack Pil
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58504.jpgsave_picture_58504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58504.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A158C180FB9A2D236B28E2AF598D2368C42405FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58505.jpgsave_picture_58505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58505.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7B503C919D10BD035EB941CEDECC8122BE11DAAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58506.jpgsave_picture_58506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58506.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:52AADBE25892D1A52AA3ABFE1EE60290830BAB6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58507.jpgsave_picture_58507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58507.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:F27260ED202F1EBEF2DA1FEF5A5FCC1D7FE886F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58508.jpgsave_picture_58508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58508.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Remnant II (2023) [Ru/Multi] (417.127/dlc) Scene FairLight
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58509.jpgsave_picture_58509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58509.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4CDBEE4D0213209DC4B5F97AB39C1F89230FB80A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58510.jpgsave_picture_58510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58510.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A9DF33639759426B13588A430C9794C62E6F4932
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58511.jpgsave_picture_58511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58511.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:5531EBF68D530A6FC40B8547D2F8BE3165D872F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58512.jpgsave_picture_58512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58512.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:6AE548B9272CB880DCA045C0596349DFDFE2B1B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58513.jpgsave_picture_58513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58513.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:AB6633BDFEAA94B835FAEC7DC29080F78EDE10F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58514.jpgsave_picture_58514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58514.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:9F649A0C29EFB288E0A08BC5AE52C80BAE563DA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58515.jpgsave_picture_58515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58515.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:57CB10E6B3322E2F8DCEE2B80DF5693BB99A732D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58516.jpgsave_picture_58516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58516.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:038D673C4F450CCB0AE14645F4FAB09207599736
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58517.jpgsave_picture_58517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58517.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.35) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58518.jpgsave_picture_58518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58518.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7B32D7C6AC7C77154D040BA8CDCAA9A86382B96B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58519.jpgsave_picture_58519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58519.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:26C9167EDAF2105B90B289B2551B30512784EC54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58520.jpgsave_picture_58520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58520.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C37864945ED2BABC2D0FDEA8DF5A90C48C1610F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58521.jpgsave_picture_58521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58521.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:A5B34E6194A85E31C1944306ACEF9E39D79E4436
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58522.jpgsave_picture_58522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58522.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:C2BBED485285B1E642FEA4E045627083DCFBEBC2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58523.jpgsave_picture_58523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58523.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E9F4D960345F6FE54490C3D96990534A20005306
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58524.jpgsave_picture_58524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58524.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:F0AFDC03F3CD65EC009B23C4902ED05460A73065
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58525.jpgsave_picture_58525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58525.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:85B74F50E2AD8F489838A6A4CD89B7DC1894082B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58526.jpgsave_picture_58526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58526.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Return to Castle Wolfenstein (2001) [Ru/En] (1.42c) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58527.jpgsave_picture_58527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58527.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:F1C76C6D8350B8CB56CE3DE86F9A674C7EF92E89
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58528.jpgsave_picture_58528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58528.jpg" />
 </div>
 
 

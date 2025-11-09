@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151078.jpgsave_picture_151078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151078.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:63AB6C25B873DB9BDA1F2AFC6AE78191970AAA1D
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151079.jpgsave_picture_151079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151079.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BAFA43DC4108FDDEECECC4B94CF47EBA121B52C4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151080.jpgsave_picture_151080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151080.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:76FFF0B5E4C3A16B4D7551ADEB7777E152782C96
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151081.jpgsave_picture_151081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151081.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:FA7800EF063B65E921A721DBD1C141DB9CDBA5D8
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151082.jpgsave_picture_151082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151082.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4BE558FEC863C67134397134A108A6925BE45031
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151084.jpgsave_picture_151084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151084.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Internet Download Manager 6.14.1 Final RePack by KpoJIuK [Русский / Ан�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151086.jpgsave_picture_151086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151086.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Auslogics BoostSpeed 10.0.1.0 DC 27.12.2017 RePack (& Portable) by TryRooM  [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151087.jpgsave_picture_151087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151087.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Lucky Patcher 11.0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151088.jpgsave_picture_151088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151088.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F8B6CD60853710D36D2D2EB8D8C63230C596F617
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151089.jpgsave_picture_151089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151089.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F8B6CD60853710D36D2D2EB8D8C63230C596F617
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151090.jpgsave_picture_151090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151090.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151091.jpgsave_picture_151091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151091.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ ON1 Photo RAW 2020 14.0.1.8289 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151092.jpgsave_picture_151092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151092.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:CF53C2150084AC32D7132626B29AEFC3A295BB67
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151093.jpgsave_picture_151093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151093.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:38ECB0EE48CDFA768183F7BAD0368C018B0C7325
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151095.jpgsave_picture_151095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151095.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Ништяк, браток! Лей и пей (1996) [FLAC|Lossless|tracks +
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151096.jpgsave_picture_151096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151096.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:05AFBFCAFC53C2F688A0B62E8FFBAC0592964C06
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151097.jpgsave_picture_151097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151097.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Movavi Video Suite for Mac 2022 v22.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151098.jpgsave_picture_151098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151098.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AAct 3.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151099.jpgsave_picture_151099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151099.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:CAEE6552BD8ACB6A470EC72B6350FA86B1040A0F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151100.jpgsave_picture_151100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151100.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Bryan Adams - Video Collection от ALEXnROCK (2018) WEBRip
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151101.jpgsave_picture_151101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151101.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:D83AAF8DF37E33BE7A695E419D4535C50AA7A36A
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151103.jpgsave_picture_151103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151103.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Mozilla Firefox Quantum 57.0.3 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151104.jpgsave_picture_151104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151104.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:18B6BB77C6D6CB5179C0C12AB05C06784950863C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151105.jpgsave_picture_151105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151105.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - D.Trance 104 (2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151106.jpgsave_picture_151106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151106.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:C3AA66F3190949FC9542DC8D1EB83E73EAC5FA88
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151107.jpgsave_picture_151107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151107.jpg" />
 </div>
 
 

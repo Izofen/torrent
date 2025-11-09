@@ -6,7 +6,7 @@ Noir – Dark Mode for Safari 2024.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112545.jpgsave_picture_112545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112545.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:2805F02C0D8B49CCBEB7A262B381252B46843515
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112546.jpgsave_picture_112546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112546.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1B158B8AE257C08C2343290FA5F54FA9377A9331
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112547.jpgsave_picture_112547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112547.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Deep-House Heaven, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112548.jpgsave_picture_112548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112548.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - трибьют Пурген (2024) [MP3|320 Kbps] <Rock, Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112549.jpgsave_picture_112549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112549.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:A78181E4DF30D6B8AC15289879350EBC3AE4589C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112550.jpgsave_picture_112550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112550.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ PhotoDirector v19.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112551.jpgsave_picture_112551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112551.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ The Moving Sidewalks - The Complete Collection (2012) 2 x CD [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112552.jpgsave_picture_112552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112552.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:6F30534F2D4CC635E13E418D571E3B5012E8696E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112553.jpgsave_picture_112553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112553.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Jeff Beck Group - Jeff Beck Group (1972) Reissue, 1989, Epic [FLAC|Lossless|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112554.jpgsave_picture_112554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112554.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:28B621083E084801C6B61ECBFA901132C1B2E99E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112555.jpgsave_picture_112555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112555.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Eisenwut - Die Herrschaft der Leere (2017) [FLAC|Lossless|WEB-DL|tracks] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112556.jpgsave_picture_112556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112556.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:25052429A0C51EB7FFA270645905881F945013E2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112557.jpgsave_picture_112557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112557.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Fatal Fire - Arson (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112558.jpgsave_picture_112558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112558.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Ne Obliviscaris - Exul (Deluxe) (2023) 2024, Season of Mist [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112559.jpgsave_picture_112559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112559.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Rage - Afterlifelines (1990) Reissue, Remastered, 2024, Steamhammer [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112560.jpgsave_picture_112560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112560.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:849D5AEDE71DD774F51A11D35386B2A9EFC00332
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112561.jpgsave_picture_112561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112561.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Moonspell - Anno Satanæ (1993 Remastered) (2024) Remastered [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112562.jpgsave_picture_112562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112562.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ The Quill - Wheel Of Illusion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112563.jpgsave_picture_112563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112563.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|image + .cue] <Celtic Folk, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112564.jpgsave_picture_112564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112564.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Glyph - Honor. Power. Glory. (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112565.jpgsave_picture_112565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112565.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Jimmy Rosenberg - The One And Only (1998) Hot Club Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112566.jpgsave_picture_112566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112566.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Anita O'Day - Big Band At Carnegie Hall (1985) 2009, Emily Productions [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112567.jpgsave_picture_112567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112567.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Smorrah - Welcome to Your Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112568.jpgsave_picture_112568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112568.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Skiltron - The Highland Way (2010) [FLAC|Lossless|image + .cue] <Celtic Folk, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112569.jpgsave_picture_112569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112569.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Photo Studio PRO v2.7.3.2445 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112570.jpgsave_picture_112570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112570.jpg" />
 </div>
 
 

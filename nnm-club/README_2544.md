@@ -6,7 +6,7 @@ Thin Lizzy - The Acoustic Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66894.jpgsave_picture_66894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66894.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Future Sound of Egypt - Spring 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66895.jpgsave_picture_66895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66895.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Chilled Beach Songs (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66896.jpgsave_picture_66896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66896.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:A1C8BBC38F2CAFC0E339E369520BDE1120ABD896
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66897.jpgsave_picture_66897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66897.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:0B48D706FDB6A5CFB35077A95037FE52C9C90072
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66898.jpgsave_picture_66898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66898.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:1944EB8DCB4B2A3F171BE10A8A9CFB31F139BF32
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66899.jpgsave_picture_66899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66899.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66900.jpgsave_picture_66900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66900.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:BE68455DB3162E593140C65D78DA3E7A1760227A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66901.jpgsave_picture_66901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66901.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66902.jpgsave_picture_66902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66902.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Dimmu Borgir - Inspiratio Profanus (2023) Compilation, Remastered, Nuclear Blast
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66903.jpgsave_picture_66903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66903.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:913231826FACCC7018CC8CC4DC8C0311A2883DE2
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66904.jpgsave_picture_66904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66904.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listing
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66905.jpgsave_picture_66905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66905.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - 25 Years Of Anjuna Mixed By Durante (2025) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66906.jpgsave_picture_66906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66906.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Sounds Like Summer, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66907.jpgsave_picture_66907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66907.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:EAC6BC010B6EC52B4214BCFED333182875CE8FED
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66908.jpgsave_picture_66908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66908.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:CA7AB2E7A7C5ED499E702BB38C4A58E21D73FE2B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66909.jpgsave_picture_66909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66909.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ The Smoke Kings - Where Are Your Demons? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66910.jpgsave_picture_66910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66910.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Tad Robinson - Soul In Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66911.jpgsave_picture_66911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66911.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Armin van Buuren - A State Of Trance 1224 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66912.jpgsave_picture_66912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66912.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Mezcaleros - No Way Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66913.jpgsave_picture_66913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66913.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Trance Fusion, Vol. 10 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66914.jpgsave_picture_66914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66914.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Kurt Deimer - And So it Begins (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66915.jpgsave_picture_66915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66915.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sandy Denny - Gold Dust (The Final Concert) (1998) Japanese Edition, SHM-CD, Rei
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66916.jpgsave_picture_66916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66916.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Star Overdrive - Star Overdrive 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66917.jpgsave_picture_66917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66917.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Tale of Fairy Tail: Koori no Kiseki | Хвост Феи. Ледяная троп
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66918.jpgsave_picture_66918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66918.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 10 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66919.jpgsave_picture_66919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66919.jpg" />
 </div>
 
 

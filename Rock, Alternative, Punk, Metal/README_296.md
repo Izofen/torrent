@@ -6,7 +6,7 @@ Internal Suffering - Rituals (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175406.jpgsave_picture_175406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175406.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rebel - The Wild Hunt (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175413.jpgsave_picture_175413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175413.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vice - For the Fallen (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175417.jpgsave_picture_175417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175417.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Resistance - Skulls Of My Enemy (2022) [FLAC|Lossless|image + .cue] <Power, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175440.jpgsave_picture_175440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175440.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ofyr - Disconnected (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175446.jpgsave_picture_175446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175446.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hall of Misery - Reverence to Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175467.jpgsave_picture_175467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175467.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Graveyard of Souls - Pequeños Fragmentos de Tiempo Congelado (2017) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175475.jpgsave_picture_175475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175475.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dwell In Doom - Songs from the Deadland (2022) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175479.jpgsave_picture_175479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175479.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pleroma Orchestra - Слово устремленного к свету (2022) [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175581.jpgsave_picture_175581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175581.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4205233813DB530ABDD58DC3AC9B45E7A44A20A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175623.jpgsave_picture_175623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175623.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A063F10B589EBD76DC5A1621BF157661FB83DDFD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175626.jpgsave_picture_175626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175626.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ NOFX - Double Album (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175631.jpgsave_picture_175631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175631.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:D15D621125081770A457DA589DC34698B96D076A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175642.jpgsave_picture_175642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175642.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Shakra - 19 Albums (1992-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175645.jpgsave_picture_175645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175645.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:2CF36563AF7F36E6196C00F6095A58AB391D5DFC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175647.jpgsave_picture_175647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175647.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Defiant - No More Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175649.jpgsave_picture_175649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175649.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fiddler's Green - Seven Holy Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175664.jpgsave_picture_175664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175664.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Philosophobia - Philosophobia (2022) [MP3|320 Kbps] <Progressive Rock, Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175666.jpgsave_picture_175666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175666.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Rosanna's Raiders - Calling Down Fire (1988) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175669.jpgsave_picture_175669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175669.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Mentalist - Freedom of Speech (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175674.jpgsave_picture_175674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175674.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Asterise - Two Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175675.jpgsave_picture_175675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175675.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Metal Order - Adventures & Nightmares (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175677.jpgsave_picture_175677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175677.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nightmare - Aeternam (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175680.jpgsave_picture_175680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175680.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Temple Agents - Next Step (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175697.jpgsave_picture_175697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175697.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Paul Bartolome - Reflections (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175701.jpgsave_picture_175701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175701.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:D7E1525D8E1D56275AB0681161AA7A25B986E7C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175715.jpgsave_picture_175715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175715.jpg" />
 </div>
 
 

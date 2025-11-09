@@ -6,7 +6,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148564.jpgsave_picture_148564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148564.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Far Kingdoms: Awakening Quest / Дальние королевства: Пр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148606.jpgsave_picture_148606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148606.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Batman: Arkham Knight / Batman: Рыцарь Аркхема (2015) [Ru/Multi] (1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148914.jpgsave_picture_148914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148914.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0.3) Repack West4it
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148915.jpgsave_picture_148915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148915.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dark Tales 10: Edgar Allan Poe's The Raven (2016) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148993.jpgsave_picture_148993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148993.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Worms Revolution (2012) [Ru/En] (1.0.140/dlc) Repack Mizantrop1337 [Gold Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149064.jpgsave_picture_149064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149064.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149081.jpgsave_picture_149081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149081.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Scarf (2021) [Ru/Multi] (1.0.1) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149106.jpgsave_picture_149106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149106.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ City Patrol: Police (2018) [Multi] (1.0) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149134.jpgsave_picture_149134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149134.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Mass Effect 3 Digital Deluxe Edition [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 |
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149753.jpgsave_picture_149753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149753.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Straya (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149840.jpgsave_picture_149840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149840.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149935.jpgsave_picture_149935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149935.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tooth and Tail (2017) [Ru/Multi] (1.8.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150054.jpgsave_picture_150054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150054.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150152.jpgsave_picture_150152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150152.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150229.jpgsave_picture_150229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150229.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ The Christmas Spirit 4: Journey Before Christmas / Дух Рождества 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150478.jpgsave_picture_150478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150478.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ The Last Faith (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150588.jpgsave_picture_150588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150588.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Dead Island Retro Revenge (2016) [Ru/Multi] (build 1160760) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150680.jpgsave_picture_150680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150680.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.3.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150681.jpgsave_picture_150681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150681.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Tomb Raider I-III Remastered (2024) [Ru/Multi] (Build 19617537) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150700.jpgsave_picture_150700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150700.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Rose of Wind (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150705.jpgsave_picture_150705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150705.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Mind Diver (2025) [Ru/Multi] (1.0.93) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150706.jpgsave_picture_150706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150706.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717/dlc) Repack Wanterlude [Gold Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150730.jpgsave_picture_150730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150730.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Royal Romances 5: Cursed Hearts (2023) [Multi] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150755.jpgsave_picture_150755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150755.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150756.jpgsave_picture_150756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150756.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/Multi] (rc2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150805.jpgsave_picture_150805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150805.jpg" />
 </div>
 
 

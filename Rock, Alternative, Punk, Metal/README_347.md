@@ -6,7 +6,7 @@ Asidie - Inside a Restless Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192774.jpgsave_picture_192774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192774.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bloodthorne - Cosmic Passengers (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192775.jpgsave_picture_192775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192775.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Torrid Affair - Torrid Affair (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192776.jpgsave_picture_192776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192776.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Imperial Crystalline Entombment - Ancient Glacial Resurgence (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192777.jpgsave_picture_192777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192777.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ledmotiv - An Astronaut's Diary (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192778.jpgsave_picture_192778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192778.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ War Chile - War Chile (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192780.jpgsave_picture_192780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192780.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Demoniac - Nube Negra (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192782.jpgsave_picture_192782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192782.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Spiral Shades - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192783.jpgsave_picture_192783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192783.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Celestial Sanctuary - Insatiable Thirst for Torment (2023) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192786.jpgsave_picture_192786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192786.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ricky Loud - Kaming Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192787.jpgsave_picture_192787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192787.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Eyes of the Oak - The Stone Vortex (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192795.jpgsave_picture_192795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192795.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|WEB-DL|tracks] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192797.jpgsave_picture_192797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192797.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Vortex Unit - The Bringer of Sun (2020) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192798.jpgsave_picture_192798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192798.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Pearls and Flames - Reliance (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192799.jpgsave_picture_192799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192799.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192923.jpgsave_picture_192923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192923.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Faith in Jane - Axe to Oak (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192927.jpgsave_picture_192927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192927.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Orianthi - Rock Candy (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192930.jpgsave_picture_192930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192930.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192946.jpgsave_picture_192946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192946.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192947.jpgsave_picture_192947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192947.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Young Gun Silver Fox - West End Coast (2015) Japanese Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192949.jpgsave_picture_192949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192949.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [MP3|320 Kbp
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192953.jpgsave_picture_192953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192953.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:1980193BA435FBDEBCE4DC5D8E883165812F84D0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192961.jpgsave_picture_192961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192961.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Rock Playlist Masters - Top 100 Rock Anthems Playlist (2013) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192962.jpgsave_picture_192962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192962.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:D2E83911B7F364C19BD72B358A37EE72B90C378B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192963.jpgsave_picture_192963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192963.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Damned - A Night of a Thousand Vampires (Live in London) (2022) [FLAC 2.0|48
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192965.jpgsave_picture_192965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192965.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Los Bastardos Finlandeses - Viva! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192967.jpgsave_picture_192967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192967.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Noumena - Anima (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236035.jpgsave_picture_236035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236035.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nervochaos - Chthonic Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236040.jpgsave_picture_236040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236040.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Fifth Angel - When Angels Kill (2023) [MP3|320 Kbps] <Heavy, Power Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236052.jpgsave_picture_236052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236052.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Monachopsis Art - An Empty Existence (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236058.jpgsave_picture_236058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236058.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Force Of Progress - Redesign (2021) [FLAC|Lossless|image + .cue] <Instrumental P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236061.jpgsave_picture_236061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236061.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Naitaka - Emergence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236066.jpgsave_picture_236066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236066.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gary Hughes - Waterside (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236072.jpgsave_picture_236072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236072.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Necromortis - Burning Priest (1997) EP [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236074.jpgsave_picture_236074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236074.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Extreme - Six (2023) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236078.jpgsave_picture_236078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236078.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Silent Winter - The Circles of Hell (2019) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236080.jpgsave_picture_236080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236080.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Loud & Clear - Disc-Connected (2002) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236082.jpgsave_picture_236082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236082.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Paramore - This Is Why (2023) [FLAC|Lossless|image + .cue] <Alt. Rock, Pop Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236084.jpgsave_picture_236084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236084.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Christian Liljegren - Melodic Passion (2021) [FLAC|Lossless|WEB-DL|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236086.jpgsave_picture_236086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236086.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Never Reborn - Ashes of Our Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236089.jpgsave_picture_236089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236089.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Necrovescent Ruiner - Untouchable Faith Decay (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236096.jpgsave_picture_236096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236096.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:9E33AAE28895D8CCEB5B6CA5BBE9D01EF4208913
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236098.jpgsave_picture_236098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236098.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Molekh - Ritus (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236105.jpgsave_picture_236105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236105.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Supernova Plasmajets - Now Or Never (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236108.jpgsave_picture_236108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236108.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Alcotopia - It Hits the Spot (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236110.jpgsave_picture_236110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236110.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Answer - Sundowners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236111.jpgsave_picture_236111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236111.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Ondfodt - Hexkonst (2014) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236126.jpgsave_picture_236126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236126.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Pandrador - Seidr (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236135.jpgsave_picture_236135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236135.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Horizon's End - The Great Destroyer (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236153.jpgsave_picture_236153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236153.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Ondfodt - Det osterbottniska Morkret (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236161.jpgsave_picture_236161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236161.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Mystic Prophecy - Hellriot (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236168.jpgsave_picture_236168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236168.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Primitai - Violence of the Skies (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236178.jpgsave_picture_236178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236178.jpg" />
 </div>
 
 

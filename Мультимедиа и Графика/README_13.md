@@ -6,7 +6,7 @@ Polarr Photo Editor Pro 5.11.10 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23144.jpgsave_picture_23144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23144.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ nakst - Apricot 1.1.32 (x86/x64) FL Studio Native, CLAP [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23299.jpgsave_picture_23299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23299.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Synchro Arts Complete 27.03.2025 STANDALONE, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23311.jpgsave_picture_23311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23311.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sonic Academy - ANA 2 2.5.5 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23404.jpgsave_picture_23404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23404.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ u-he - Presswerk 1.1.6 VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23425.jpgsave_picture_23425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23425.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ GoldWave 7.02 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23451.jpgsave_picture_23451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23451.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ GoldWave 7.02 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23544.jpgsave_picture_23544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23544.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Topaz Gigapixel AI Pro 8.3.3 RC [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23586.jpgsave_picture_23586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23586.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ inPixio Photo Editor 10.5.8103 RePack (& Portable) by TryRooM [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23876.jpgsave_picture_23876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23876.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ ABViewer Enterprise 15.2.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23972.jpgsave_picture_23972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23972.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ inPixio Photo Focus Pro 4.3.8624 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24058.jpgsave_picture_24058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24058.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ InPixio Photo Maximizer Pro 5.3.8624 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24068.jpgsave_picture_24068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24068.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ InPixio Photo Editor 10.5.8103 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24073.jpgsave_picture_24073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24073.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Mixland - 280 PRE 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24143.jpgsave_picture_24143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24143.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ u-he - TyrellN6 3.0.0 rev.16947 Beta VSTi, VSTi 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24148.jpgsave_picture_24148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24148.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Process Audio - Protility 1.1.0 VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24150.jpgsave_picture_24150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24150.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ LosslessCut 3.65.0 Standalone (x64) [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24219.jpgsave_picture_24219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24219.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ inPixio Photo Eraser 10.5.7924 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24292.jpgsave_picture_24292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24292.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ inPixio Photo Cutter 10.5.8105 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24300.jpgsave_picture_24300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24300.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ MusicBee 3.6.9202 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24386.jpgsave_picture_24386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24386.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ WonderFox HD Video Converter Factory Pro 27.9 RePack (& Portable) by elchupacabr
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24405.jpgsave_picture_24405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24405.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Tone Empire - ELUX 1.0.0 VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24473.jpgsave_picture_24473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24473.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Plugin Alliance & Kiive Audio - Tape Face 1.1.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24571.jpgsave_picture_24571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24571.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ FxSound Pro 1.1.31.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24636.jpgsave_picture_24636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24636.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ AVS Image Converter 7.0.2.22 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24828.jpgsave_picture_24828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24828.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sonic Academy - KICK 3 1.1.2 VSTi 3, AAX (x64) RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24977.jpgsave_picture_24977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24977.jpg" />
 </div>
 
 

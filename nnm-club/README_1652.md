@@ -6,7 +6,7 @@ Dark Tranquillity - Studio Albums (14 releases) (1993-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43309.jpgsave_picture_43309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43309.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43310.jpgsave_picture_43310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43310.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7920D7C3884E5E3929DE6D69C1D4EBCAA13C9353
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43311.jpgsave_picture_43311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43311.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EBBA32712F95E77FACDC18CE16E7B821281F0B9F
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43312.jpgsave_picture_43312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43312.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0390FCB240A17244360C9AAF5459ED418D8C8D18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43313.jpgsave_picture_43313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43313.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:09921362251BBAB08A8200A863A487F80A067EC5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43314.jpgsave_picture_43314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43314.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Oblivion VPN (Unofficial Warp Client) 6 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43315.jpgsave_picture_43315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43315.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:30415B7DBD947961686A25FCD6F5494F76E0A23C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43316.jpgsave_picture_43316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43316.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Internet Download Manager 6.42 Build 22 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43317.jpgsave_picture_43317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43317.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D15DF29FF0BD5D3B0D89C70453B4558DAAE9A550
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43318.jpgsave_picture_43318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43318.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:9352AFDF1B47ADAD2EE7E912E9F0451D925F23F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43319.jpgsave_picture_43319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43319.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9352AFDF1B47ADAD2EE7E912E9F0451D925F23F7
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43320.jpgsave_picture_43320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43320.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:C56CDF222FA1C825F2EBD93A8E5F29204180764D
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43321.jpgsave_picture_43321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43321.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:4FF047D6A159AF8016B0C2BBD89E6F7C7872B545
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43322.jpgsave_picture_43322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43322.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.002.26228) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43323.jpgsave_picture_43323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43323.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:4217A894FA008D0061C22359FB952E42E02D34C7
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43324.jpgsave_picture_43324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43324.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r11 Portable by Ratiborus [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43325.jpgsave_picture_43325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43325.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:9124CCA24C106FA78705FCDE1E59F096A69C1EB5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43326.jpgsave_picture_43326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43326.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:82F62E9B33B0BD4C7BD52339B893FA64CD4DFBF7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43327.jpgsave_picture_43327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43327.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Tactical Breach Wizards (2024) [En] (20240912) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43328.jpgsave_picture_43328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43328.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:FD26D0BAC000DC5178F2596E8117844B3D0C9902
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43329.jpgsave_picture_43329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43329.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:46BA067B390524836569E9AEF56B9BB61859AC8C
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43330.jpgsave_picture_43330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43330.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Windows Server 2022 LTSC [10.0.20348.2700], Version 21H2 (Updated September 2024
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43331.jpgsave_picture_43331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43331.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:96C410FC84D8704D16FFCD4BA8364F5A66DE7967
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43332.jpgsave_picture_43332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43332.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Microsoft Windows 11 [10.0.22621.4169], Version 22H2 (Updated September 2024) - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43333.jpgsave_picture_43333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43333.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.78.11833/dlc) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43334.jpgsave_picture_43334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43334.jpg" />
 </div>
 
 

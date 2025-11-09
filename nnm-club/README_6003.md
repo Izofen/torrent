@@ -6,7 +6,7 @@ The Victor Lawson Blues Band - Mainstreet Blues (2022) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188878.jpgsave_picture_188878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188878.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pixelmator Pro 3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188879.jpgsave_picture_188879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188879.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:5E92B269150F86B11F4C77B093418B46FB83794A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188880.jpgsave_picture_188880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188880.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ OpenNumismat 1.9.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188881.jpgsave_picture_188881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188881.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:51578C96A1E69568D19F60EC371CB54377185432
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188882.jpgsave_picture_188882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188882.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Steve Hackett - Foxtrot at Fifty + Hackett Highlights: Live in Brighton 2022 (20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188883.jpgsave_picture_188883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188883.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Deseret - Woodlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Sl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188884.jpgsave_picture_188884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188884.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Holy Dragon - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188885.jpgsave_picture_188885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188885.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:C842D13491E240147A6D94A5B4772EB6C87181C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188886.jpgsave_picture_188886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188886.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Will McCarty - Belonging (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188887.jpgsave_picture_188887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188887.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ WinSnap 6.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188888.jpgsave_picture_188888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188888.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:23FD59C9201136616C2B020A7D8575B5699CC858
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188889.jpgsave_picture_188889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188889.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Snowborn - Pipe of the Peace (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188890.jpgsave_picture_188890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188890.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:8E2C0BACA8A7415C1DAFD3E686BF4BCE11CE660C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188891.jpgsave_picture_188891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188891.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Sumatra PDF 3.5.15500 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188892.jpgsave_picture_188892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188892.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:E854464102BBD00BB13AE98D347B97331F71068D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188893.jpgsave_picture_188893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188893.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Firefox Browser ESR 115.2.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188894.jpgsave_picture_188894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188894.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:932D40665BF1F48B3B4C3772E081616530A6C4D6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188896.jpgsave_picture_188896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188896.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:B8E3021BC4FCDBFA0E65948147EDB12F9D3F0AE8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188897.jpgsave_picture_188897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188897.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:D87BD6343AA7276861D47D645898402ABB1B4E0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188898.jpgsave_picture_188898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188898.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ronnie Romero - Too Many Lies, Too Many Masters (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188899.jpgsave_picture_188899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188899.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:916A1DC3CA1AB564A571038DBDE84D300420BB16
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188901.jpgsave_picture_188901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188901.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Waterfox Current G5.1.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188902.jpgsave_picture_188902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188902.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5365.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188903.jpgsave_picture_188903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188903.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Rhinoceros 7 v.7.33 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188904.jpgsave_picture_188904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188904.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 11.2022 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188905.jpgsave_picture_188905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188905.jpg" />
 </div>
 
 

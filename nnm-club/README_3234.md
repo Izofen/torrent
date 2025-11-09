@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104442.jpgsave_picture_104442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104442.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C640C3AF3812364E4D050B623C747D6AAA864447
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104443.jpgsave_picture_104443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104443.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:45841B71233CCCB46F94A66EFFD572B6AC1F457F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104444.jpgsave_picture_104444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104444.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9A5C8149B89D7858FE0724E9660A72AC1A3F1366
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104445.jpgsave_picture_104445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104445.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:57EE3802ADB239169880AC6D65753A7B29450FBC
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104446.jpgsave_picture_104446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104446.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:D934D96080E9233F9B0406C3A0D9E0FB4184D2E4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104447.jpgsave_picture_104447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104447.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Acres - The Host (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104448.jpgsave_picture_104448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104448.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:57A6585CD6F8E193482A5188F196EBC6E486A6F8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104449.jpgsave_picture_104449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104449.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Playingtheangel - любовь побеждает смерть (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104450.jpgsave_picture_104450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104450.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.6) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104451.jpgsave_picture_104451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104451.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:6BF0494702743CCA157158BDDBA28D6B58EB9D37
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104452.jpgsave_picture_104452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104452.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Deaf Havana - We're Never Getting Out (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104453.jpgsave_picture_104453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104453.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Shen Lab - Relaxing Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104454.jpgsave_picture_104454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104454.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:226ED5FEF6F356B605588DDAAE26BD09BEF4AF50
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104455.jpgsave_picture_104455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104455.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Minimal Firewall 2.4.3 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104456.jpgsave_picture_104456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104456.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:35DA2EC501EDB6045A11840610FD407D886B5EA2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104457.jpgsave_picture_104457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104457.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:CC346B4D5796DF71403E4E1A622C21E111382342
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104458.jpgsave_picture_104458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104458.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104459.jpgsave_picture_104459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104459.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:19A5949982E6DDD91BB398A6C5382D3251E648EF
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104460.jpgsave_picture_104460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104460.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:9CFDC89704A8E3B68CFC1F168B0A737B4AE45A93
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104461.jpgsave_picture_104461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104461.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:07BC5D56923F71247017461557D3840EA913250E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104462.jpgsave_picture_104462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104462.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:D90CBB66D0272973E95F86DE7506A0FF85193EBA
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104463.jpgsave_picture_104463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104463.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:E50C59B8F76FB3E87B038F641CB6D067E5B2D664
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104464.jpgsave_picture_104464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104464.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:4CB560FAC6768D76544E7CF04473257DF7C0E352
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104465.jpgsave_picture_104465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104465.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:54C9116DF15C9188E8C559ADFBEAA47D9B60618C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104466.jpgsave_picture_104466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104466.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104467.jpgsave_picture_104467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104467.jpg" />
 </div>
 
 

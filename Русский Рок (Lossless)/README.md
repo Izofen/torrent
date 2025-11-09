@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1146.jpgsave_picture_1146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1146.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:64F90597093540911AA818FC2BF42DBD509DBC93
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1559.jpgsave_picture_1559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1559.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:7BAC6EDBED20C7BD92986228337DBE9046DA990A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2346.jpgsave_picture_2346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2346.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:687B0962C8F617A483B1E1463ED455E03C08FEC7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3153.jpgsave_picture_3153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3153.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:4C9A293382D2B9AE5F4245C18168A725334D518E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3161.jpgsave_picture_3161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3161.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:C6E9EE565DCCA7A72E55F39DAC349185331703BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3359.jpgsave_picture_3359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3359.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:E04EE3E782F9C2A7BFC82F620A6EFBF22D448565
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8560.jpgsave_picture_8560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8560.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:DA5459CD9F2E67F69619A421CB3B8A2D92751C11
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10262.jpgsave_picture_10262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10262.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:0147282421E68EA2BBA9FE38700FB949B975C940
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12151.jpgsave_picture_12151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12151.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ The Essence - Есенин (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12414.jpgsave_picture_12414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12414.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:4EADE0E737E5EE04AAF26E85C86FA7AF37C0E0D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12541.jpgsave_picture_12541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12541.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:17C1BC78D2137D6D5DC1138394032EE05BB87957
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13957.jpgsave_picture_13957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13957.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:30EE73A0CA30C23F23D4137294361F4507759130
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14216.jpgsave_picture_14216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14216.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:23C0646F5220D308EC54722A8FD96ADD582EB0A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14624.jpgsave_picture_14624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14624.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ EverEve - .Enetics (2003) 2 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15130.jpgsave_picture_15130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15130.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:850C9B52318988BBF9C32D65BA33688693CF9822
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16112.jpgsave_picture_16112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16112.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:C9F2EEC3C8B0A43F0DB353AB0A67D22166DE7979
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16528.jpgsave_picture_16528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16528.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:CCE967E451D81218631DAFF230DEB7E6F14D1FE8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17105.jpgsave_picture_17105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17105.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:E388FB22F6B6AC79FCA20AF7992062DDB4F52A76
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18810.jpgsave_picture_18810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18810.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:62E4BCBBB7C738B81042AC64E4FAC3D86F897DB8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19263.jpgsave_picture_19263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19263.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:B6DAEB2CA8E46A2C89818218832AA861D865AFB3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20190.jpgsave_picture_20190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20190.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Охота! 87 (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21308.jpgsave_picture_21308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21308.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Arida Vortex - The Illustrated Man (2015) [FLAC|Lossless|image + .cue] <Power Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22092.jpgsave_picture_22092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22092.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:8BDD75F4DDFB986CF6471BBCCAFF84912F14DA8A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23282.jpgsave_picture_23282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23282.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:B050DC81F1B80ACA4BC38A215314C26A5D9425E8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23460.jpgsave_picture_23460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23460.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Lumen - Три пути. 20 лет (Live) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25103.jpgsave_picture_25103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25103.jpg" />
 </div>
 
 

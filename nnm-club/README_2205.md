@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57697.jpgsave_picture_57697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57697.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B34F40E209212DFEA7B7CAA65374B5DDB95C095E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57698.jpgsave_picture_57698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57698.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Steinberg Cubase Pro 13.0.30.226 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57699.jpgsave_picture_57699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57699.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Optimizer 16.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57700.jpgsave_picture_57700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57700.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ IceCream Ebook Reader Pro 6.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57701.jpgsave_picture_57701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57701.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4464EB515D25222D2C9318CB2E79059BAD534644
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57702.jpgsave_picture_57702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57702.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Topaz Video AI 5.0.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57703.jpgsave_picture_57703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57703.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mark Knopfler - The Boy (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57704.jpgsave_picture_57704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57704.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.91 (0503) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57705.jpgsave_picture_57705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57705.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Adobe Animate 2024 24.0.3.19 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57706.jpgsave_picture_57706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57706.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:610212B1EFAB8688AC22583DB2C33B9BDF832EA8
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57707.jpgsave_picture_57707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57707.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinScan2PDF 8.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57708.jpgsave_picture_57708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57708.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ R-Wipe & Clean 20.0.2455 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57709.jpgsave_picture_57709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57709.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Serif Affinity Designer 2.4.2.2371 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57710.jpgsave_picture_57710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57710.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Topaz Gigapixel AI 7.1.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57711.jpgsave_picture_57711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57711.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ K-Lite Codec Pack Update 18.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57712.jpgsave_picture_57712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57712.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ reaConverter Pro 7.808 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57713.jpgsave_picture_57713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57713.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:C046F95F064B9D3DF8C10D862A78C8C87D117AF5
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57714.jpgsave_picture_57714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57714.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ MediaHuman YouTube Downloader 3.9.9.91 (0503) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57715.jpgsave_picture_57715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57715.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Nevercenter CameraBag Pro 2024.1.0 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57716.jpgsave_picture_57716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57716.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ TreeSize Professional 9.1.4.1881 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57717.jpgsave_picture_57717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57717.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Serif Affinity Photo 2.4.2.2371 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57718.jpgsave_picture_57718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57718.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Viber 22.6.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57719.jpgsave_picture_57719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57719.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:B2F66D862C2D606C7B620D5E4981D1F27F032FFD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57720.jpgsave_picture_57720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57720.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Mark Knopfler - The Boy (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57721.jpgsave_picture_57721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57721.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Icecream Ebook Reader 6.49 Pro Portable by 7997 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57722.jpgsave_picture_57722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57722.jpg" />
 </div>
 
 

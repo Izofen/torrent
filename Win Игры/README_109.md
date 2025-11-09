@@ -6,7 +6,7 @@ Amenti (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31212.jpgsave_picture_31212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31212.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Construction Simulator 3 (2024) [Ru/Multi] (0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31213.jpgsave_picture_31213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31213.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Undead Realm: Ego (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31214.jpgsave_picture_31214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31214.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shadows of the Damned: Hella Remastered (2024) [Ru/Multi] (Build 15991776) Repac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31217.jpgsave_picture_31217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31217.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dungeon Defenders: Going Rogue (2022) [En] (0.9.34625EA) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31219.jpgsave_picture_31219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31219.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31221.jpgsave_picture_31221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31221.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Teardown (2022) [Ru/Multi] (20241204/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31229.jpgsave_picture_31229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31229.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31251.jpgsave_picture_31251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31251.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31253.jpgsave_picture_31253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31253.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:DFE11B908F53F75F7697A619D64DC108A3CCF4C8
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31272.jpgsave_picture_31272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31272.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.5.55.748x) Repack Let'
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31281.jpgsave_picture_31281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31281.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ HELLSEED: All Chapters (2022) [Ru/Multi] (Build 16646433) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31285.jpgsave_picture_31285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31285.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Guardian's Guide (2025) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31292.jpgsave_picture_31292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31292.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31294.jpgsave_picture_31294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31294.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31297.jpgsave_picture_31297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31297.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31302.jpgsave_picture_31302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31302.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31303.jpgsave_picture_31303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31303.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31306.jpgsave_picture_31306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31306.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31316.jpgsave_picture_31316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31316.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31328.jpgsave_picture_31328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31328.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9140.27121) Repack Wagner [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31336.jpgsave_picture_31336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31336.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ TankHead (2024) [En] (1.0.69881) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31341.jpgsave_picture_31341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31341.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Millennia (2024) [Ru/Multi] (1.0.23641.F/dlc) Repack Let'sРlay [Premium Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31343.jpgsave_picture_31343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31343.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31375.jpgsave_picture_31375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31375.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (Build 1374323) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31378.jpgsave_picture_31378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31378.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20241030.529/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31387.jpgsave_picture_31387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31387.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.97 (0401) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31841.jpgsave_picture_31841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31841.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Topaz Video AI 6.0.2 RC [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31842.jpgsave_picture_31842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31842.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F543EE9BA74D9882FB998CB0CE2D58697BA1968E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31843.jpgsave_picture_31843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31843.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:609AA16B7A8FF4FF652B13F41CCAF60D03AE1139
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31844.jpgsave_picture_31844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31844.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31845.jpgsave_picture_31845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31845.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Heads Will Roll Reforged (2023) [Ru/En] (2.02b/dlc) Repack Let'sРlay [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31846.jpgsave_picture_31846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31846.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A80AA153F8F8164B72C2988B90638CE69725E49B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31847.jpgsave_picture_31847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31847.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5F5111A505B5516889C1C31B30123B4B584B60AA
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31848.jpgsave_picture_31848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31848.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:EAB4CE79FE3D1E901AD3577816EAAD55A9BF2CB5
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31849.jpgsave_picture_31849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31849.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:806F34685A663BCCDB778D159DE5423A82D04588
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31850.jpgsave_picture_31850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31850.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:1C0787265557649B8C160F3F1EB53BE322139B0E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31851.jpgsave_picture_31851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31851.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:38E9DEFDE3233B0E8A949EB0C2B8070853D431FA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31852.jpgsave_picture_31852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31852.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Only Up: Lizards Must Fall / Only Up: Восхождение Русов (2025) [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31853.jpgsave_picture_31853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31853.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Techworld with Nana, Nana Janashia, Nicole Hiller | DevOps Bootcamp (2024) WEB-D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31854.jpgsave_picture_31854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31854.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D0396896CF6BF21A8CA1E9F81553FC0F35D96FB1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31855.jpgsave_picture_31855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31855.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Navitel / Официальные карты релиза Q3 2024 v9 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31856.jpgsave_picture_31856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31856.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:ADD5D46CFEE6C1B63583267775EAB0BBB0CFD800
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31857.jpgsave_picture_31857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31857.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:ADD5D46CFEE6C1B63583267775EAB0BBB0CFD800
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31858.jpgsave_picture_31858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31858.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:51FF1D3410C263A33E5D94495C6465F41A2E8111
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31859.jpgsave_picture_31859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31859.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ YTDisBystro (универсальная сборка на основе Zapret) 2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31860.jpgsave_picture_31860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31860.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:570A6BD489914C5580DF8615965ED2A0F987225A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31861.jpgsave_picture_31861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31861.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:DC7B7B76D5AA5B05935CDD8894044BB836E2983A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31862.jpgsave_picture_31862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31862.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Grand Theft Auto IV (2020) [Ru/Multi] (1.2.0.59/dlc) Repack dixen18 [The Complet
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31863.jpgsave_picture_31863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31863.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:12EE8326FDBC0DB6CD7E09164A7FD928EDF4B3F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31864.jpgsave_picture_31864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31864.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Total Commander 11.50 LitePack & PowerPack + Portable 2025.1 by SamLab [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31865.jpgsave_picture_31865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31865.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Techworld with Nana, Nana Janashia | DevSecOps Bootcamp (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31866.jpgsave_picture_31866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31866.jpg" />
 </div>
 
 

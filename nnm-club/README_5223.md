@@ -6,7 +6,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162557.jpgsave_picture_162557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162557.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WWE 2K20 (2019) [Multi] (1.08/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162558.jpgsave_picture_162558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162558.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FE4E96C97DD2C4A3DAD6E4025E695C77E91301C1
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162559.jpgsave_picture_162559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162559.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EDC65657CE3FAA480723AAF6EF6FB7E8E82582D3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162560.jpgsave_picture_162560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162560.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - The Greatest Rock Tunes 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162561.jpgsave_picture_162561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162561.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ PotPlayer 1.7.21397 (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162562.jpgsave_picture_162562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162562.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:CACD05F4619AD08F2B394ABEE5DDDDB73DBD0989
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162563.jpgsave_picture_162563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162563.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Adobe Photoshop Lightroom Classic v10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162564.jpgsave_picture_162564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162564.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2BF1EB86DD7F7B63374CC2B4C42A4C3E6693E760
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162565.jpgsave_picture_162565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162565.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:C8652E4B376BE232ACBC68CC58115379A1219205
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162566.jpgsave_picture_162566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162566.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Grant Green & Ike Quebec - Complete Instrumental Session (1961, 1962) 2CD, 2013,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162567.jpgsave_picture_162567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162567.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:FF5A0BE0E35F3B159680880A4C534CC5B515DC05
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162568.jpgsave_picture_162568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162568.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:5EDE40345EE4D5309EC7F80174C572F97C085CF1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162569.jpgsave_picture_162569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162569.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:064F26DD319F39567F15AC8E5AAA5123A3381D64
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162570.jpgsave_picture_162570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162570.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:E05AE2D51B2662CD19D6B0D9C7A654BD6E82FDCB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162571.jpgsave_picture_162571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162571.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:AE80E36B403D0DD2DA531DC6DCED56CBD2F98262
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162572.jpgsave_picture_162572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162572.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:7217A5257810593B997736312FC472F3A5F4DF01
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162573.jpgsave_picture_162573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162573.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Bad Montana - Rock City (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162574.jpgsave_picture_162574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162574.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:DC2B66FD842E3859EEC0EDC3852610A1969856A3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162575.jpgsave_picture_162575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162575.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:F1DA9DAA360E416E9660BC391C39DAEE3A953150
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162576.jpgsave_picture_162576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162576.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Clayton Doley - Optimistic (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162577.jpgsave_picture_162577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162577.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:DAA753AED082B4ACB30FDD473B76946BCCD1E2D1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162578.jpgsave_picture_162578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162578.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162579.jpgsave_picture_162579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162579.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:32248B8601BE2C56E830979D84BE853DCF392DBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162580.jpgsave_picture_162580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162580.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:60C6B114DE0FAFD11067B1324D1B445FFB4E3C04
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162581.jpgsave_picture_162581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162581.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Badery - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162582.jpgsave_picture_162582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162582.jpg" />
 </div>
 
 

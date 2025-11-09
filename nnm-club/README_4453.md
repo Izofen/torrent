@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139209.jpgsave_picture_139209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139209.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:345221FDEE062A32061596BC7B2AF0E8CA289AF9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139210.jpgsave_picture_139210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139210.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Take 6 - We Wish You a Merry Christmas (1999) [FLAC|Lossless|tracks + .cue] <Sou
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139211.jpgsave_picture_139211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139211.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B491ACC4EDDD937C50EB1DABB31F4DA195107296
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139212.jpgsave_picture_139212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139212.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5AA847177B82FA992AB58CAB734A86EB539EA524
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139213.jpgsave_picture_139213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139213.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E62E82A6F69E5600084D458C2B11B63AF654277A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139214.jpgsave_picture_139214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139214.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:7F5AB289E0471A930FE380475AC1F6155389C477
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139215.jpgsave_picture_139215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139215.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2F61BFCDD8B496E4BC88BDC56730999A653D7A03
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139217.jpgsave_picture_139217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139217.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:2C0D57B119171F7EA56F1836EF2AFB3C9E8DEBB1
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139218.jpgsave_picture_139218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139218.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ ChronoSync 4.7.2 & ChronoAgent 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139219.jpgsave_picture_139219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139219.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:A0A241989156178FDA770FCB19ADB3DD6213844B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139221.jpgsave_picture_139221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139221.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:36A23564597E37F663F4B9F924AD4C52DD5D4775
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139223.jpgsave_picture_139223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139223.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:423357F0831B00D950E42F618D145C3B088EC3DA
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139224.jpgsave_picture_139224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139224.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139225.jpgsave_picture_139225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139225.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Trance Traveling 84 (Top 20) (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139226.jpgsave_picture_139226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139226.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Neil Young - Songs for Judy (2018) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Country Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139228.jpgsave_picture_139228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139228.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:E85B7E15EA09D59ADCA4A4656B38CF6AA1932D16
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139230.jpgsave_picture_139230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139230.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Erotica - Love Me Deeper : Sexy Saxophone (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139231.jpgsave_picture_139231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139231.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F135ACBD65CD71A39B70A9270AEDC349B49680D0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139232.jpgsave_picture_139232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139232.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:938F60BC789DA1584A974E38F71DDC87D843DF25
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139234.jpgsave_picture_139234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139234.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:15D9BCBDB6E2192435D2F9E2D3B991546526BE39
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139235.jpgsave_picture_139235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139235.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:0DC27581C0A82E58F17EA3905148637222AD9F0B
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139237.jpgsave_picture_139237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139237.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139238.jpgsave_picture_139238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139238.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:B9096711EB1627032C3F361FAE4B036E87056A08
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139239.jpgsave_picture_139239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139239.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ HTML Academy | Интенсивный онлайн-курс «Базовый Jav
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139240.jpgsave_picture_139240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139240.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ PatshTeodorStyle 0.1.2.0 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139241.jpgsave_picture_139241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139241.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243168.jpgsave_picture_243168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243168.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hounds Of Bayanay (Псы Байаная) - Legends Of The North (2023) [FLAC|Lo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243169.jpgsave_picture_243169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243169.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Silence In Solitude - Resurgence (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243170.jpgsave_picture_243170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243170.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Remedy - Something That Your Eyes Won't See (2022) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243171.jpgsave_picture_243171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243171.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ iFlicks 3 v3.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243172.jpgsave_picture_243172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243172.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ EVO (Eternal Voice of Orbits) - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|track
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243173.jpgsave_picture_243173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243173.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ The Rolling Stones - Tattoo You (1981) Series: Nice Price, 1987 [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243174.jpgsave_picture_243174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243174.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243175.jpgsave_picture_243175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243175.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Jeremy Pelt - November (2008) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243176.jpgsave_picture_243176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243176.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:6D9ED469781C739079E9D6D9FE84A93371092262
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243177.jpgsave_picture_243177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243177.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Hex Editor Neo Ultimate 7.30.00.8482 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243178.jpgsave_picture_243178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243178.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:D01A19DCD71E646673CF43BB364E2BC2A9437A3D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243179.jpgsave_picture_243179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243179.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:6C79F260349CED6DE2111FFFA6F36848DBF41C1A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243180.jpgsave_picture_243180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243180.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:902D04658918996CDE93D050303ABD219E64ADF2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243181.jpgsave_picture_243181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243181.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:81D55ECF8E9EFA7E0BCF3B303310327C7E3681B1
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243182.jpgsave_picture_243182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243182.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:20CBFFED257E3EFE8F271E21B5419C5F4BF69069
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243184.jpgsave_picture_243184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243184.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ VA - Winter Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243185.jpgsave_picture_243185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243185.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.2.1  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243186.jpgsave_picture_243186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243186.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:BE56423426AD30E296C3B7AE496FC1F5273C5653
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243187.jpgsave_picture_243187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243187.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Vision Mastermixers - The Immaculate Mix (1997) [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243188.jpgsave_picture_243188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243188.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:38226C571C61ECC217A2C40B6AF1F34CF6480D57
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243189.jpgsave_picture_243189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243189.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:2432AE0AB9310B131720CC8D32D628740FF49FE8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243190.jpgsave_picture_243190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243190.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:99C32AE4EA5F3EC5070DD853292B5953757B67F4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243191.jpgsave_picture_243191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243191.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A96CBBA0E7D8677865C5BB1B0160B17C119CB281
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243192.jpgsave_picture_243192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243192.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ MultiMode Cocoa 6.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243193.jpgsave_picture_243193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243193.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Wondershare UniConverter for Mac 14.2.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243194.jpgsave_picture_243194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243194.jpg" />
 </div>
 
 

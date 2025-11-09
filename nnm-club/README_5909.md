@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186170.jpgsave_picture_186170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186170.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5EA4041794BF61FA23DE18C5FCBC868D98B62999
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186171.jpgsave_picture_186171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186171.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy, Василий Швалев | Ultimate QGIS: с нуля до экспе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186172.jpgsave_picture_186172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186172.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ JUG Ru Group | DevOops 2023. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186174.jpgsave_picture_186174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186174.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DF2378802B114DC8286341596EC24AAAF5C00345
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186175.jpgsave_picture_186175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186175.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:70BEBE0E43C523EA31C057A588ACFA4FD72A901E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186176.jpgsave_picture_186176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186176.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:AE315DFD028CEFE15A6E1792D2EA6F0775A9CECE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186177.jpgsave_picture_186177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186177.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Upscayl 2.8.6 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186178.jpgsave_picture_186178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186178.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Udemy, Derek Smith | The Complete English Idioms Course - Master English Idioms 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186179.jpgsave_picture_186179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186179.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:48B85B923BA2E340B4357EDBF42FE96B10A75483
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186180.jpgsave_picture_186180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186180.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:92E9891A4A12E857E344EA13C2CAEBA156BD5F92
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186181.jpgsave_picture_186181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186181.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:12126720215F8F012F01E79793999D2947A262D0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186182.jpgsave_picture_186182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186182.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ NVIDIA GeForce Desktop Game Ready 537.42 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186183.jpgsave_picture_186183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186183.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ JUG Ru Group | DotNext 2023. Конференция для .NET‑разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186184.jpgsave_picture_186184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186184.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:71E0003217E1431090616AB082042D83B2ACB37E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186185.jpgsave_picture_186185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186185.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:53990888B31BE9E1679123CE51DABE80FEFB045A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186186.jpgsave_picture_186186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186186.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Gnomon Workshop, Simon Littlejohn | Creating an FX Production Shot in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186187.jpgsave_picture_186187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186187.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Floorp Browser 11.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186188.jpgsave_picture_186188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186188.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6293FC74CE263985200B6ADDCB0066D5C9EEB1B5
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186189.jpgsave_picture_186189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186189.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:B389D91B3C3CCA4396D8D24BD04ECD8A4F41D127
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186190.jpgsave_picture_186190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186190.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:FDF9EF05D6036BE623DB638B45E08B67D436E346
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186191.jpgsave_picture_186191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186191.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:0F86E08AAA83881D94B96BD711B4D9A951A28CAE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186192.jpgsave_picture_186192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186192.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:2908A5DDA625C3228EB68E2870C2CB50F483B885
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186193.jpgsave_picture_186193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186193.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:61104CAADABC9B066DB0E74A21F7E5796E5A2BE8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186194.jpgsave_picture_186194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186194.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Udemy, Brad Merrill | Modern Productivity — Superhuman Focus In A Distracted W
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186195.jpgsave_picture_186195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186195.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Gnomon Workshop, Timucin Ozger | Controlled Building Demolition FX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186196.jpgsave_picture_186196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186196.jpg" />
 </div>
 
 

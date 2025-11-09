@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101321.jpgsave_picture_101321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101321.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Feel The Burn Body Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101322.jpgsave_picture_101322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101322.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101323.jpgsave_picture_101323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101323.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A5371DCE845B2FD9004975F508507C0073B27583
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101324.jpgsave_picture_101324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101324.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Karnage Through Crossing - Shattered Chains (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101325.jpgsave_picture_101325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101325.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:899B9EB8EFF33CBF106DEDFD11A77E5F74C16EDF
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101326.jpgsave_picture_101326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101326.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Hawkwind - Live At The Royal Albert Hall (2024) [MP3|320 Kbps] <Psychedelic, Spa
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101327.jpgsave_picture_101327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101327.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Rival Sons - Pair of Aces, Pt. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101328.jpgsave_picture_101328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101328.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Roberta Flack - Chapter Two (1970) 50th Anniversary Edition, Remaster, 2021, Rhi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101329.jpgsave_picture_101329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101329.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:72B4ADF30A214DCCE1C47482853CDF42A51CBEC3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101330.jpgsave_picture_101330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101330.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:97EB31ACEC068CA313C6E0AA6D39DD48B060B65A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101331.jpgsave_picture_101331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101331.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ J.J. Johnson - J.J. Johnson's Jazz Quintets (1946 - 1949) 1992, Savoy Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101332.jpgsave_picture_101332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101332.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Letdown. - Be OK (Continued) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101333.jpgsave_picture_101333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101333.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Illusion Force - Halfana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101334.jpgsave_picture_101334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101334.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Stevie And The Amayumi Band - I Like Your Style (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101335.jpgsave_picture_101335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101335.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mörk Gryning - Fasornas Tid (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101336.jpgsave_picture_101336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101336.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:8A92D1E9A0B640FDA9EA12152A112214E2727800
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101337.jpgsave_picture_101337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101337.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:8A92D1E9A0B640FDA9EA12152A112214E2727800
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101338.jpgsave_picture_101338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101338.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:DB79EFE19D20638C11312682956CE47E12E94A7D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101339.jpgsave_picture_101339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101339.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:50E91344FB89402708F2A70F64ED5927C1DAD605
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101340.jpgsave_picture_101340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101340.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:AE17045C795044F23E4708850247566895E54557
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101341.jpgsave_picture_101341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101341.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World: Troxy London MMXXIV 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101342.jpgsave_picture_101342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101342.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:CD06174B90982BDE116F092FA68DA9B7D1A6B09B
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101343.jpgsave_picture_101343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101343.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Katie Melua - Call Off The Search (2004) CD, Album, Enhanced [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101344.jpgsave_picture_101344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101344.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World_ Troxy London MMXXIV 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101345.jpgsave_picture_101345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101345.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:8DBDB925A0E9713351AD8B4794AB18137E3697B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101346.jpgsave_picture_101346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101346.jpg" />
 </div>
 
 

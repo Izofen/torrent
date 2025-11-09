@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251892.jpgsave_picture_251892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251892.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251900.jpgsave_picture_251900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251900.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251902.jpgsave_picture_251902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251902.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251904.jpgsave_picture_251904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251904.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:E7469DE856C3810E77B8DFFC5369B35019A9DE3B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252124.jpgsave_picture_252124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252124.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Plus Messenger (Telegram+)  v12.1.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252293.jpgsave_picture_252293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252293.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ WPS Office + PDF v18.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252296.jpgsave_picture_252296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252296.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252297.jpgsave_picture_252297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252297.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Photo Studio PRO v2.8.7.4631 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252299.jpgsave_picture_252299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252299.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Background Video Recorder Pro v13.9.77 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252300.jpgsave_picture_252300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252300.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252356.jpgsave_picture_252356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252356.jpg" />
 </div>
 
 

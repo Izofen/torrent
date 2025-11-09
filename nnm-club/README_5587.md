@@ -6,7 +6,7 @@ Google Chrome 118.0.5993.89 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172251.jpgsave_picture_172251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172252.jpgsave_picture_172252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172252.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ AMD Radeon Software Adrenalin Edition 23.10.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172253.jpgsave_picture_172253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172253.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:89E724DA7A1E05A01F2B9BABAEBFA49085BBE9B8
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172254.jpgsave_picture_172254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172254.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Workout, Beast Mode, Aggressive (2023) [MP3|320 Kbps] <Rock, Hard Rock, Oth
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172255.jpgsave_picture_172255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172255.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:66A6B431827747D37A69A368E4BAAB5DC4B005C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172256.jpgsave_picture_172256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172256.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Topaz Video AI 4.0.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172257.jpgsave_picture_172257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172257.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Cyberlink ColorDirector Ultra 12.0.3416.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172258.jpgsave_picture_172258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172258.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ SnapEdit - AI photo editor 4.9.1 Mod by KirillCXV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172259.jpgsave_picture_172259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172259.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Fotosizer Pro 3.17.2.584 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172260.jpgsave_picture_172260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172260.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:2B08C15AA6B9DDC4BFCC657A05C08EAEA25A9B11
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172261.jpgsave_picture_172261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172261.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:ED1DF3E8FE528F51C32125E253DE6ADF3025333F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172262.jpgsave_picture_172262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172262.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172263.jpgsave_picture_172263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172263.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:2F777D970CB393CEF7FA881793F8DFC5B8845A8B
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172264.jpgsave_picture_172264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172264.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ FotoJet Collage Maker 1.2.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172265.jpgsave_picture_172265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172265.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A858C112611F71009D37BB8B208E859B2D476A41
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172266.jpgsave_picture_172266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172266.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Serif Affinity Photo 2.2.1.2075 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172267.jpgsave_picture_172267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172267.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Allavsoft Video Downloader Converter 3.26.0.8691 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172268.jpgsave_picture_172268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172268.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:AF5949F8E6AF29E2DF7C809AB89399CEA07BF602
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172269.jpgsave_picture_172269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172269.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Italo 2000 - Italo Rarities (1998) 2 CD [OGG Vorbis|480 Kbps] <Electronic, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172270.jpgsave_picture_172270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172270.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:81618E47DAA0193948AE076059DD53A374442639
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172271.jpgsave_picture_172271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172271.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:FEC839E55C8AFE040FF8AE48E560134148B4ECDA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172272.jpgsave_picture_172272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172272.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:3C89903026D2FEDBE5F9E70C3A3FFD778C99232D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172273.jpgsave_picture_172273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172273.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ RAR Extractor Max-Unzip File 12.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172274.jpgsave_picture_172274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172274.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Cyberduck 8.7.0 Build 40629 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172275.jpgsave_picture_172275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172275.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:5ED757670138E8935F3148CA7BFDCAF353328091
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172276.jpgsave_picture_172276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172276.jpg" />
 </div>
 
 

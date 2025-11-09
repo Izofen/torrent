@@ -6,7 +6,7 @@ MailWasher Pro 7.12.188 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154421.jpgsave_picture_154421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154421.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ GroupsPro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154422.jpgsave_picture_154422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154422.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:F0767F4B6FEA35EECF546C26BAF9BD36F78839A1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154423.jpgsave_picture_154423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154423.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Cent Browser 4.3.9.238 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154424.jpgsave_picture_154424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154424.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:8946B1F2E9B3AB39FE234D2734724D7CD5D2E900
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154425.jpgsave_picture_154425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154425.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Topaz Photo AI 2.1.1 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154426.jpgsave_picture_154426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154426.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:5E0E55A1416D03C71C66E113CA33DCB57931BC90
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154427.jpgsave_picture_154427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154427.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3D1C0BA7813A9E031F8A0DD3AC04172A6B3B7E02
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154428.jpgsave_picture_154428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154428.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Pixelmator Pro 2.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154429.jpgsave_picture_154429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154429.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:6A71C66472F26BDEFECC0D34662BF4F85C6ED8D7
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154430.jpgsave_picture_154430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154430.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:1ECCEB6CC78423681E555F865D23C2F9831FF321
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154431.jpgsave_picture_154431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154431.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:5650227D4514BC9626C582A77333DEE1C8A4AD9D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154432.jpgsave_picture_154432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154432.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ DesktopOK 8.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154433.jpgsave_picture_154433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154433.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5B1DAFA5AF3E3048E88A8C1926CFAC16D4F4766B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154434.jpgsave_picture_154434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154434.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Opera One 105.0.4970.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154435.jpgsave_picture_154435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154435.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:99EF1574C84D1443253CF68AABFDA15B647FE098
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154436.jpgsave_picture_154436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154436.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:F3C1F1110167BC8F51A24524A8D91E1116958647
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154437.jpgsave_picture_154437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154437.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:AB6749C8BD0A944A77135345697EDA838144D9B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154438.jpgsave_picture_154438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154438.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Passcode - Strive (2020) [MP3|320 Kbps] <Metalcore, Electrocore, Post Hardcore>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154439.jpgsave_picture_154439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154439.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Mushoku Tensei: Isekai Ittara Honki Dasu / Mushoku Tensei: Jobless Reincarnation
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154440.jpgsave_picture_154440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154440.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ PDF24 Creator 8.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154441.jpgsave_picture_154441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154441.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Microsoft .NET 6.0.25 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154442.jpgsave_picture_154442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154442.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:ED26B76C999266D936E42594E5DC627003A600BA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154443.jpgsave_picture_154443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154443.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Topaz Photo AI 2.1.1 (x64) RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154444.jpgsave_picture_154444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154444.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:0F07551E33449B7466DE1C6990EBA87BF028D44D
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154446.jpgsave_picture_154446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154446.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A7570AE7CCE653A9DFA661FCAA886AC180EF8D03
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154447.jpgsave_picture_154447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154447.jpg" />
 </div>
 
 

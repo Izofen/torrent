@@ -6,7 +6,7 @@ Byzantine - Harbingers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14415.jpgsave_picture_14415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14415.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Hu - Echos of Thunder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14434.jpgsave_picture_14434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14434.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Katatonia - Studio Albums (15 releases) (1993-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14545.jpgsave_picture_14545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14545.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14710.jpgsave_picture_14710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14710.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14712.jpgsave_picture_14712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14712.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14715.jpgsave_picture_14715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14715.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14717.jpgsave_picture_14717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14717.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14730.jpgsave_picture_14730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14730.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14731.jpgsave_picture_14731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14731.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14743.jpgsave_picture_14743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14743.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14825.jpgsave_picture_14825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14825.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15026.jpgsave_picture_15026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15026.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15037.jpgsave_picture_15037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15037.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Samael - Exodus (1998) (EP) Reissue, 2014, Floga Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15041.jpgsave_picture_15041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15041.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15043.jpgsave_picture_15043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15043.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Sanctorium - Studio Albums (3 releases) (2014-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15124.jpgsave_picture_15124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15124.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15132.jpgsave_picture_15132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15132.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15136.jpgsave_picture_15136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15136.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15137.jpgsave_picture_15137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15137.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15138.jpgsave_picture_15138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15138.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15139.jpgsave_picture_15139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15139.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15141.jpgsave_picture_15141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15141.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15142.jpgsave_picture_15142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15142.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15143.jpgsave_picture_15143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15143.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15144.jpgsave_picture_15144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15144.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Cat Tales - Fables and Stories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15146.jpgsave_picture_15146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15146.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Tantrum - Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229331.jpgsave_picture_229331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229331.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PGD/MV - Morvan (2019) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229334.jpgsave_picture_229334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229334.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:57B5B2B1F1455705B88CA3D4F7E64982390B2C90
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229335.jpgsave_picture_229335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229335.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:33BD98D51CE4D8AD18C964859E46D2F065C326D6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229336.jpgsave_picture_229336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229336.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Banktivity 7 v7.5.3 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229337.jpgsave_picture_229337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229337.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:D56504809789A16A1A36709A63B20E3B0FA313C5
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229340.jpgsave_picture_229340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229340.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Sevendust - Superficial Drug (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229341.jpgsave_picture_229341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229341.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:417BEFF7D0DF36C6FB6A4689EED84913EC850F66
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229344.jpgsave_picture_229344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229344.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Alien Force - We Meet Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229346.jpgsave_picture_229346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229346.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Green Labyrinth - Sequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229347.jpgsave_picture_229347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229347.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Alex Malheiros - Tempos Futuros (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229349.jpgsave_picture_229349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229349.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:4435DA09600035B70C38CAA4C99890F9E2EA6164
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229350.jpgsave_picture_229350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229350.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ NoteBurner Netflix Video Downloader 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229351.jpgsave_picture_229351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229351.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Carlos Lucena - Medium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229355.jpgsave_picture_229355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229355.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Soccer - Soccer (1979) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229356.jpgsave_picture_229356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229356.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:9FF70681CBF763D1FCB8CF22E0B4B7AF7AC83E72
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229357.jpgsave_picture_229357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229357.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Dj De Key - Friday Evening Disco (2019) [MP3|320 Kbps] <Disco House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229358.jpgsave_picture_229358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229358.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:30254FBEA5EE1ECE5F1F78AAF571DB5C4508A114
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229360.jpgsave_picture_229360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229360.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:4A561974512838CDBBC52608381B94A979FA3E0B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229363.jpgsave_picture_229363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229363.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Clipboard Manager 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229364.jpgsave_picture_229364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229364.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:647EB52E37F28A4701015F4CFF62354C30986085
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229365.jpgsave_picture_229365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229365.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Elek Bacsik - The Electric Guitar Of The Eclectic Elek Bacsik (1962) 1989, Fonta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229366.jpgsave_picture_229366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229366.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ O Yuki Conjugate - Sleepwalker (2019) Auf Abwegen [FLAC|Lossless|tracks+.cue] <A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229367.jpgsave_picture_229367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229367.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:E33355B4B2762705BE23AE0E1BD6AA5432F0287C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229370.jpgsave_picture_229370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229370.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Sgt. Splendor - Death Of The Hoochie Koo (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229371.jpgsave_picture_229371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229371.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:E03D7B68DCB967CB6AC83DA19456AC89CAE77F64
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229372.jpgsave_picture_229372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229372.jpg" />
 </div>
 
 

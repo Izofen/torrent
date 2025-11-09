@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129010.jpgsave_picture_129010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129010.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 11 Manager 1.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129011.jpgsave_picture_129011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129011.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Creedence Clearwater Revival - Gold (1972) 1975 [DTS 4.1 CD-Audio|44.1/16|image+
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129013.jpgsave_picture_129013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129013.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:7608CDAD3A6216436CCAAF79AF151291455CBD2D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129014.jpgsave_picture_129014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129014.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:C28E3DC69E9A9AC848BCBA5DF928051BD7EDBBA6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129016.jpgsave_picture_129016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129016.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:AA7D18FBCA03E3480847F080AFD5246677D6684F
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129017.jpgsave_picture_129017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129017.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A2DDB8C4E7792CCC589A42A80C11B0471FDFF22A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129018.jpgsave_picture_129018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129018.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:CD5DEA1405128248E1C7A66D32FD5CED8D4C023C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129019.jpgsave_picture_129019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129019.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3A52D72EE86F7E6ADF3CC329B085C5194FFFA024
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129020.jpgsave_picture_129020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129020.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Lenovo, HP и Acer будут выпускать ноутбуки с росси�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129021.jpgsave_picture_129021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129021.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Lenovo, HP и Acer будут выпускать ноутбуки с росси�
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129023.jpgsave_picture_129023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129023.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:D737F4B5DCAF10D79AB4A34FFBE35464E10F0D06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129024.jpgsave_picture_129024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129024.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:489E66FE387FF25C2DC29BEE3706A6F6788655E7
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129025.jpgsave_picture_129025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129025.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:19B92716CE11F7F8384045E34E4FF0A2BF1E601A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129026.jpgsave_picture_129026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129026.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Kaspersky Free 21.3.10.391 Repack by LcHNextGen (21.01.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129027.jpgsave_picture_129027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129027.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:0A0F47334B866EB2CFE7FAB59337248890D9A43B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129029.jpgsave_picture_129029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129029.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129030.jpgsave_picture_129030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129030.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:BC394BDD36B6E964FE42BEC941FFEA1538905BD2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129031.jpgsave_picture_129031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129031.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:6C0402FF6324C203F812EA0EB6BE847CB09E2827
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129032.jpgsave_picture_129032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129032.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:D18A9C02900E221D37DD5520E7361D1066F3EE5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129033.jpgsave_picture_129033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129033.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:CF22BD6C645CB78E87DDAFCD81B555133A83DDC9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129034.jpgsave_picture_129034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129034.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:CF22BD6C645CB78E87DDAFCD81B555133A83DDC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129035.jpgsave_picture_129035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129035.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:353E08F1F000854316C09FE8CB05A9C123D27F57
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129036.jpgsave_picture_129036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129036.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:60BF6D95F167D8CB03AD17558838A24DE89B3B9B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129037.jpgsave_picture_129037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129037.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129038.jpgsave_picture_129038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129038.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:263A5D212F72D3A4CBD87F541B6C906F28131DFD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129039.jpgsave_picture_129039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129039.jpg" />
 </div>
 
 

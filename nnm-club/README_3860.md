@@ -6,7 +6,7 @@ Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120780.jpgsave_picture_120780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120780.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anita O'Day - Live At The City San Francisco (1979) 1997, Emily Productions [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120781.jpgsave_picture_120781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120781.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Text Workflow 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120782.jpgsave_picture_120782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120782.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Sojourner - Premonitions (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120783.jpgsave_picture_120783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120783.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:D8582203F78CBD1B60FEED9C0B8333E0B795B14D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120784.jpgsave_picture_120784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120784.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [MP3|320 Kbps] <Nu-Metal, Industr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120785.jpgsave_picture_120785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120785.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ The Luna Sequence - I Only Remember Falling (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120786.jpgsave_picture_120786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120786.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Trance 2024 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120787.jpgsave_picture_120787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120787.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Manag
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120788.jpgsave_picture_120788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120788.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:F377CE74B9669AF7EB5DE18D570B70FCA3ECBD1A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120789.jpgsave_picture_120789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120789.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:54D0534E28015C614BC670766F43CF7384BC0752
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120790.jpgsave_picture_120790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120790.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Cheetah3D for Mac 8.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120791.jpgsave_picture_120791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120791.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:B9007FFE1384DFE5452972E1009132FDC6A85885
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120792.jpgsave_picture_120792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120792.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ The Gems (ex-Thundermother) - Phoenix (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120793.jpgsave_picture_120793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120793.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Timo Gross - Black Dawg Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120794.jpgsave_picture_120794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120794.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Bravo Hits 107 (2019) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120795.jpgsave_picture_120795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120795.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:2F66A25C1D08313ACB325226BDB4412227B47A39
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120796.jpgsave_picture_120796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120796.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120797.jpgsave_picture_120797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120797.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120798.jpgsave_picture_120798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120798.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120799.jpgsave_picture_120799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120799.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Byron - Chapter II: The Lotus Covenant (2024) [MP3|320 Kbps] <classic melodic me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120800.jpgsave_picture_120800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120800.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Tower Pro 10 v.10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120801.jpgsave_picture_120801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120801.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VA - Armin van Buuren - A State Of Trance 1157 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120802.jpgsave_picture_120802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120802.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ OmniGraffle Pro 7.22.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120803.jpgsave_picture_120803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120803.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:253A26439DC4CC02A302929BE7FAEF7BADD0C60E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120804.jpgsave_picture_120804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120804.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120805.jpgsave_picture_120805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120805.jpg" />
 </div>
 
 

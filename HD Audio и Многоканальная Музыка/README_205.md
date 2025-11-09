@@ -6,7 +6,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191222.jpgsave_picture_191222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191222.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191294.jpgsave_picture_191294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191294.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Grand Hotel Orchestra - Palm Court of Grand Hotel (1965) [FLAC 1.0|24/96|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191300.jpgsave_picture_191300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191300.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vega - Battlelines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191318.jpgsave_picture_191318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191318.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191320.jpgsave_picture_191320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191320.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191324.jpgsave_picture_191324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191324.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191913.jpgsave_picture_191913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191913.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191974.jpgsave_picture_191974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191974.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaugh
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192096.jpgsave_picture_192096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192096.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лице
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpgsave_picture_192270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192270.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192302.jpgsave_picture_192302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192302.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Andy McCoy - Too Much Ain't Enough (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpgsave_picture_192447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192447.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192610.jpgsave_picture_192610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192610.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpgsave_picture_192745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192745.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Lo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192771.jpgsave_picture_192771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192771.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192877.jpgsave_picture_192877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192877.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193069.jpgsave_picture_193069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193069.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193101.jpgsave_picture_193101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193101.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193138.jpgsave_picture_193138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193138.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193139.jpgsave_picture_193139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193139.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193142.jpgsave_picture_193142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193142.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193169.jpgsave_picture_193169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193169.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193218.jpgsave_picture_193218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193218.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193257.jpgsave_picture_193257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193257.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Amorphis - Дискография (26 releases) (1991-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpgsave_picture_193411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193427.jpgsave_picture_193427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193427.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mystfall - Celestial Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230854.jpgsave_picture_230854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230854.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ravenchild - Caves Of Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230866.jpgsave_picture_230866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230866.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230883.jpgsave_picture_230883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230883.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Necrofier - Burning Shadows in the Southern Night (2023) [MP3|320 Kbps] <Melodic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230889.jpgsave_picture_230889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230889.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Decimator - Dirty, Hot & Hungry (1993) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230894.jpgsave_picture_230894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230894.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Necrofier - Prophecies of Eternal Darkness (2021) [MP3|320 Kbps] <Melodic Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230899.jpgsave_picture_230899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230899.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jag Panzer - The Hallowed (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230906.jpgsave_picture_230906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230906.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Dawnlight - Until the Dark Sun Rises (2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230915.jpgsave_picture_230915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230915.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Who - Who’s Next : Life House (1971) Remastered, 2022, Universal Music Cat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230919.jpgsave_picture_230919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230919.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Crossing Eternity - The Rising World (2018) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230933.jpgsave_picture_230933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230933.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Necrofier - Visions In Fire (2018) EP [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230944.jpgsave_picture_230944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230944.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Pelican - The Fire In Our Throats Will Beckon The Thaw (2005) Deluxe, Remix & Re
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230959.jpgsave_picture_230959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230959.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:9DAF267EFC6120C4C137121A452226C2FC7A805D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230962.jpgsave_picture_230962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230962.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Warfield Within - Beast Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230964.jpgsave_picture_230964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230964.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Edu Falaschi - Vera Cruz (2021) Japan Edition [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230967.jpgsave_picture_230967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230967.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Black Sabbath - Live Evil (1982) 2023, 4CD, 40th Anniversary Super Deluxe, Sanct
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230972.jpgsave_picture_230972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230972.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Everyone Dies In Utah - Supra / Infra (2021) Deluxe Edition, 2023, Everyone Dies
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230981.jpgsave_picture_230981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230981.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Desolator - Spawn of Misanthropy (2016) EP [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230986.jpgsave_picture_230986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230986.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Greta Van Fleet - Starcatcher (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230987.jpgsave_picture_230987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230987.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Dream Death - Dissemination (2016) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230994.jpgsave_picture_230994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230994.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Desolator - Unearthly Monument (2013) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231001.jpgsave_picture_231001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231001.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Arch Echo - Final Pitch (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231003.jpgsave_picture_231003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231003.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dona Eis Requiem - The Litanies of the Quietus (2011) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231006.jpgsave_picture_231006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231006.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Mortemia - The Pandemic Pandemonium Sessions (2022) [MP3|320 Kbps] <Symphonic Go
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231008.jpgsave_picture_231008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231008.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Desolator - Sermon of Apathy (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231016.jpgsave_picture_231016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231016.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Dona Eis Requiem - Grant Them Rest (2007) Demo [FLAC|Lossless|image + .cue] <Exp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231025.jpgsave_picture_231025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231025.jpg" />
 </div>
 
 

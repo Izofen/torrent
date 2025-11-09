@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153848.jpgsave_picture_153848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153848.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Take Me To The Dungeon!! (2023) [Ru/Multi] (1.0.11) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153849.jpgsave_picture_153849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153849.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7B18D0CF690DB34E366816CB18D4CF8574EA2BE4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153850.jpgsave_picture_153850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153850.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Лучшие хитовые треки в стиле Rap, Hip Hop & R'n'B �
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153851.jpgsave_picture_153851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153851.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E41739ECF8E7C316F94F76F4B7C8233327E47310
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153852.jpgsave_picture_153852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153852.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3C5A4CF5ED1AF63E6C34AF4B9D3DC14C7D76BFFB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153853.jpgsave_picture_153853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153853.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Ashampoo Burning Studio 18.0.1.11 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153854.jpgsave_picture_153854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153854.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gumroad, Alex Hanneman | NUKE: Advanced CG Compositing and Look Development NK60
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153855.jpgsave_picture_153855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153855.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:D9C95A8E97F8E6D64DD7A2AEB5CC0B0337F1B6A8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153856.jpgsave_picture_153856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153856.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:2A43CA5372070F73CBBF31D557ED0A86B408B172
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153857.jpgsave_picture_153857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153857.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Perfectly Clear WorkBench 4.2.0.2382 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153858.jpgsave_picture_153858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153858.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:BE3686A4F02D6380788F26481A4C71DFFD97FC11
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153859.jpgsave_picture_153859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153859.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:396F6348EFC91F5ACC6DE6DCED705F4A4F9F047D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153860.jpgsave_picture_153860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153860.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:8454198C31EEBECD1D212FABF637D5655EBAC1BF
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153861.jpgsave_picture_153861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153861.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Adobe Audition 24.0.3.3 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153862.jpgsave_picture_153862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153862.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:8568BA9FBF3BC3779401A9F6788D8EE6EED027B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153863.jpgsave_picture_153863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153863.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:C68C0BBAF7935EAEE151D73ED7C42CF602892BF7
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153864.jpgsave_picture_153864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153864.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:8B845846AEE2C313A3C3FDC1A8ED1EA3D68E3AB1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153865.jpgsave_picture_153865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153865.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:B01688637FE72A642417644124ACBA2CB4A104C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153866.jpgsave_picture_153866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153866.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153867.jpgsave_picture_153867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153867.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:F3698E7663D91BB45CF81382B4D018FC2A7CDC4E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153868.jpgsave_picture_153868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153868.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Smart Driver Manager Pro 7.1.1105 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153869.jpgsave_picture_153869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153869.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:8DE88DF819A1DE0C716984DF2CC2C6678C479A82
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153870.jpgsave_picture_153870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153870.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:C2EBF2A7AA6AAF1FA0614C8DBCD088B84F3EEA97
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153871.jpgsave_picture_153871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153871.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153872.jpgsave_picture_153872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153872.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:89E1A9349AADF9256845795A37543E4D760C9DD2
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153873.jpgsave_picture_153873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153873.jpg" />
 </div>
 
 

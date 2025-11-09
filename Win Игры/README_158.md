@@ -6,7 +6,7 @@ Diari (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46614.jpgsave_picture_46614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46614.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46626.jpgsave_picture_46626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46626.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Binary Domain (2012) [Ru] (1.0.0.1upd2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46631.jpgsave_picture_46631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46631.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ MT Force Aliens Uprising (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46643.jpgsave_picture_46643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46643.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46644.jpgsave_picture_46644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46644.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Strange Investigations 4: Truth Will Out (2024) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46695.jpgsave_picture_46695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46695.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tale of Immortal (2021) [Multi] (1.1.103.259/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46731.jpgsave_picture_46731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46731.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (20240621) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46737.jpgsave_picture_46737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46737.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Old School RPG (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46753.jpgsave_picture_46753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46753.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46785.jpgsave_picture_46785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46785.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Northgard (2018) [Ru/Multi] (3.5.15.38668/dlc) Scene Tenoke [The Viking Age Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46789.jpgsave_picture_46789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46789.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.34f/dlc) Scene Tenoke [Anniversary Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46850.jpgsave_picture_46850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46850.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Pawn Simulator (2024) [Multi] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46863.jpgsave_picture_46863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46863.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dungeons & Degenerate Gamblers (2024) [Ru/Multi] (1.0a) Scene TinyISO
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46865.jpgsave_picture_46865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46865.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Bathhouse (2024) [Multi] (1.03) Repack FitGirl [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46873.jpgsave_picture_46873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46873.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bo: Path of the Teal Lotus (2024) [Multi] (1.1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46874.jpgsave_picture_46874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46874.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ One More Night (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46892.jpgsave_picture_46892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46892.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ingression (2024) [Ru/Multi] (1.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46949.jpgsave_picture_46949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46949.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fishing Adventure (2019) [Ru/Multi] (20230814/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46955.jpgsave_picture_46955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46955.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ KitHack Model Club (2024) [En] (1.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46970.jpgsave_picture_46970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46970.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Cassette Beasts (2023) [Multi] (1.6.2/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46971.jpgsave_picture_46971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46971.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Age of Defense (2019) [En] (1.15) Scene Tenoke
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46972.jpgsave_picture_46972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46972.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46981.jpgsave_picture_46981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46981.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.2.0.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46985.jpgsave_picture_46985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46985.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Artifact Seeker (2024) [Ru/Multi] (1.2.8/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46990.jpgsave_picture_46990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46990.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Bzzzt (2023) [Multi] (1.325f-240802) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46994.jpgsave_picture_46994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46994.jpg" />
 </div>
 
 

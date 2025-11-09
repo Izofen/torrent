@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180795.jpgsave_picture_180795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180795.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:971E76B8613A7E43883EF28182214132B7CC9D08
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180798.jpgsave_picture_180798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180798.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BC2032D8F0062B25375153759595859C8BD9A5D0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180803.jpgsave_picture_180803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180803.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:14278DB1D791498317E33342A2FF495ECAAED2DF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180804.jpgsave_picture_180804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180804.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Abelssoft Win10PrivacyFix 2023 5.0.42337 Portable by zeka.k [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180805.jpgsave_picture_180805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180805.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:8E061BB831B5179C200156B0B97578DB81C30D79
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180806.jpgsave_picture_180806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180806.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:8E45E5BB0BEB31BBAA2F4750E0F1D9A12382A04D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180807.jpgsave_picture_180807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180807.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:1B0A9F8184155B3D742F8F7171BB8B7D37E17FDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180808.jpgsave_picture_180808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180808.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:8CEA36925746956BF2A8A5A1CFC1D7857CBB339E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180809.jpgsave_picture_180809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180809.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - ЕвроХит Топ 40 Europa Plus 25.11.2022 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180810.jpgsave_picture_180810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180810.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Cradle Of Filth - Trouble And Their Double Lives (2023) 2 x CD [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180813.jpgsave_picture_180813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180813.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:C15F04808E2E4291568325B113A8C85998E31887
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180816.jpgsave_picture_180816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180816.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Waterfox Current G6.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180817.jpgsave_picture_180817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180817.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Firefox Browser 118.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180820.jpgsave_picture_180820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180820.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:9018DAC1E37543B00C5496940272571695F3D172
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180821.jpgsave_picture_180821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180821.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ EasyWay - общественный транспорт 6.0.2.30 Mod by Ambeg [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180822.jpgsave_picture_180822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180822.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:360FEB36A9D5E025154B94E1DBCA88C4FD3329B0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180825.jpgsave_picture_180825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180825.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:97C7A773C2113AB13CCCD489DDA7F4A939B8C3D1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180828.jpgsave_picture_180828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180828.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Mighty Mo Rodgers - MEMPHIS CALLIN' (Soul Music & The American Dream) (2023) [FL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180831.jpgsave_picture_180831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180831.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:24DCE43D4D1F3EC52EF97552CEE631B5C9E9FF53
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180834.jpgsave_picture_180834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180834.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Chromium 117.0.5938.132 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180837.jpgsave_picture_180837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180837.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:D564E47C525CED98E7B006BCFD2A9729EB492D85
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180840.jpgsave_picture_180840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180840.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:D3DA10BE8B2FD4E05B283CE2C6BB4C7C3F0F0472
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180843.jpgsave_picture_180843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180843.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:B7B6BF7C511EE91EFC7C3D6691DB856982216885
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180846.jpgsave_picture_180846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180846.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - В машине с музыкой Vol.321 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180847.jpgsave_picture_180847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180847.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Ann Wilson & Tripsitter - Another Door (2023) [FLAC|Lossless|WEB-DL|tracks] <Cla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180851.jpgsave_picture_180851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180851.jpg" />
 </div>
 
 

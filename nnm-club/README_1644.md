@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43101.jpgsave_picture_43101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43101.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:24F5E84E2A7FD77E501CEC0EA6E8DFE444E87FFC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43102.jpgsave_picture_43102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43102.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AEAD50DA5926FF753B6E27F0692F7DC287737AA1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43103.jpgsave_picture_43103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43103.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43104.jpgsave_picture_43104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43104.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:ACD87D8C47D0B1366C0BDA17B034FD4AA74E6E94
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43105.jpgsave_picture_43105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43105.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F40C469F6E7822C6C12098870C4B340DDB5809F3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43106.jpgsave_picture_43106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43106.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B2FC57D1753F65C40F1B5F1D6F771E1FF88E9068
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43107.jpgsave_picture_43107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43107.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Farmer's Life (2021) [Ru/Multi] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43108.jpgsave_picture_43108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43108.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Half-Life: Alyx (2020) [Ru/Multi] (1.5.4/dlc) Repack dixen18 [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43109.jpgsave_picture_43109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43109.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ ACDSee Photo Studio Ultimate 2025 18.0.0.3929 Full / Lite RePack by KpoJIuK [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43110.jpgsave_picture_43110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43110.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B5794133B33DD72D7BA27010CF2CCDE13EBAE4B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43111.jpgsave_picture_43111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43111.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ AnyDesk 8.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43112.jpgsave_picture_43112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43112.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Stuxnet: вирус, меняющий правила кибервойн
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43113.jpgsave_picture_43113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43113.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stuxnet: вирус, меняющий правила кибервойн
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43114.jpgsave_picture_43114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43114.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ IObit Driver Booster Pro 12.0.0.308 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43115.jpgsave_picture_43115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43115.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:723924A57607F3C926A644271E5B40BDF0B36F29
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43116.jpgsave_picture_43116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43116.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Abelssoft SSD Fresh Plus 2025 14.0.56618 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43117.jpgsave_picture_43117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43117.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43118.jpgsave_picture_43118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43118.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:E4632B52417CA9803258F17F01EEFE1CC2CC3A4F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43119.jpgsave_picture_43119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43119.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:2011E97C6FD6E0030CA08BCD90DBB11934A46D0E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43120.jpgsave_picture_43120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43120.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Far Cry 3 Dilogy (2012-2013) [Ru/En] (1.05/1.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43121.jpgsave_picture_43121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43121.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:9DFF46C506681EE1337F9CADFE14413A2D543D54
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43122.jpgsave_picture_43122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43122.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:643D8FB09E833443AE828AAA1B1D88191FC96C68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43123.jpgsave_picture_43123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43123.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:0D0258D06ABB1880867B7E672D780AB89F6E0703
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43124.jpgsave_picture_43124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43124.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:0D0258D06ABB1880867B7E672D780AB89F6E0703
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43125.jpgsave_picture_43125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43125.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Michael Schenker Group - My Years with UFO (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43126.jpgsave_picture_43126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43126.jpg" />
 </div>
 
 

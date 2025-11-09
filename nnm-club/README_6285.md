@@ -6,7 +6,7 @@ CPU-Z 2.06.1 (x64) Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196997.jpgsave_picture_196997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WhatsApp (outdated) 2.2325.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196998.jpgsave_picture_196998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196998.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CED7CE26C463CA0FEA3C4E5013664F1DF700A0A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196999.jpgsave_picture_196999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196999.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5708E2313081A9626C7FFE6D570729395882F461
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197000.jpgsave_picture_197000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197000.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Contra Anniversary Collection (2019) [En] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197001.jpgsave_picture_197001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197001.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:562C3A009E876CF8655B345D57EA321325B9E94F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197002.jpgsave_picture_197002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197002.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:009A75FAE748A04CE662D2B979E8E8A6E648CF43
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197003.jpgsave_picture_197003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197003.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ S.U.N. Project - 7 albums (1997-2005)[MP3|128-320 kbps]<Psychedelic , Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197004.jpgsave_picture_197004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197004.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E4A15368CF09ABEF862BDA7CA140E7F9FBF2AE04
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197005.jpgsave_picture_197005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197005.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:218537415B156A13FC0E4E566986066FCA9CB2B2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197006.jpgsave_picture_197006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197006.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Project Lazarus (2023) [Ru/Multi] (7.0) Scene DARKSIDERS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197007.jpgsave_picture_197007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197007.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:A4248A534DE3DB94FF80AB23F887DD4B6308C504
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197008.jpgsave_picture_197008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197008.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Microsoft Office 2021 for Mac LTSC v16.74 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197009.jpgsave_picture_197009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197009.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:2689620693CDEE083F1E54592F94D85EC4E5A081
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197010.jpgsave_picture_197010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197010.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D9F4465DAAFE78F14EDD0B14306AB66F74E62BDC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197011.jpgsave_picture_197011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197011.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:93F76B1C1E773949E76A3B1680DFB372C13067A6
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197012.jpgsave_picture_197012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197012.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ CCleaner 6.13.10517 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197013.jpgsave_picture_197013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197013.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:BE763A21D013377229F33D7F34BE94D784BD403E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197014.jpgsave_picture_197014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197014.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Stim Axel - Тишина (2006) [MP3|320 Kbps] <Drum & Bass, Vocal>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197015.jpgsave_picture_197015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197015.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Psiphon 3 build 179 (15.06.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197016.jpgsave_picture_197016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197016.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.1848] [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197017.jpgsave_picture_197017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197017.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:4BA841DF68D827F9E66FD72008090B9AAEA2330E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197018.jpgsave_picture_197018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197018.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Aphrodite - Break In Reality (2007)
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197019.jpgsave_picture_197019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197019.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Topaz Video AI 3.3.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197020.jpgsave_picture_197020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197020.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:29A2F128E65B1BA748768641EB7F91BC70D9905B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197022.jpgsave_picture_197022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197022.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Stim Axel - AcousticA (2010) [MP3|320 kbps]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197023.jpgsave_picture_197023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197023.jpg" />
 </div>
 
 

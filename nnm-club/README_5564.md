@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171651.jpgsave_picture_171651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C930FD75F714D68E899EAAE28581C7FF0A780B7E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171652.jpgsave_picture_171652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171652.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Colosseum - 13 альбомов, Box Set (1969 - 2014) 26 CD [FLAC|WavPack|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171653.jpgsave_picture_171653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171653.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:69525CEAD01345491ADE13A6217A4BA55F21AF1C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171654.jpgsave_picture_171654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171654.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:650D3CA2A5266D3757F3D7CEF2CF5CDCE778FCC0
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171655.jpgsave_picture_171655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171655.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:446224F4A9975618858040CA0AC579C9C62ABCB3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171656.jpgsave_picture_171656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171656.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4E94B30217B5984F12542E4BA652BA42E83C7EF3
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171657.jpgsave_picture_171657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171657.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:4E94B30217B5984F12542E4BA652BA42E83C7EF3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171658.jpgsave_picture_171658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171658.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:0043796B6183705F7126DD30F74C2FD52A7119EA
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171659.jpgsave_picture_171659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171659.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:439CC68EF9EC82EC5B01108CB09EB0F52DDA9A0C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171660.jpgsave_picture_171660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171660.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:7F2C974A21370917064F50F5C23681510C7CE103
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171661.jpgsave_picture_171661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171661.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Incognito - Into You (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171662.jpgsave_picture_171662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171662.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:0E93C1241B00F0B5C1B09B0EEE78A89A29E213C8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171663.jpgsave_picture_171663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171663.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:073C1F1A99CE8C7ED34E087412687849DBB214CB
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171664.jpgsave_picture_171664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171664.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:47573FCD270EA24C8A70A0C5B6F241398B191330
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171665.jpgsave_picture_171665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171665.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:276C61138D9AE9857763946D09945C26192EC8AC
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171666.jpgsave_picture_171666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171666.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:B144E4F97105C118BDF72CD5C27467CA7B7905E5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171667.jpgsave_picture_171667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171667.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:887B9E5D6D3B841D5B31C1AA63E6975DFEAD0D27
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171668.jpgsave_picture_171668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171668.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:09C186FBB6191852745CFF0E01157081B70ADA03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171669.jpgsave_picture_171669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171669.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Udemy, Sergio Miller | Норвежский язык "с нуля" до А2 (202
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171670.jpgsave_picture_171670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171670.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171671.jpgsave_picture_171671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171671.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Rock For All Times (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171672.jpgsave_picture_171672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171672.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:1D669115F906F9DD95C1663FF1FEB4ECBFBACC51
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171673.jpgsave_picture_171673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171673.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Musica Gregoriana Catolica (2023) [MP3|320 Kbps] <New Age, Symphonic, Grego
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171674.jpgsave_picture_171674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171674.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:B62E93DE6B1A1147EE05C6F2AA38114DD316B2B7
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171675.jpgsave_picture_171675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171675.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VPN Russia - VPN сервера в России 1.176 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171676.jpgsave_picture_171676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171676.jpg" />
 </div>
 
 

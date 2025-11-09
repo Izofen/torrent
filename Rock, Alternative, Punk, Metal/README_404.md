@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233405.jpgsave_picture_233405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233405.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Borealis - Illusions (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233411.jpgsave_picture_233411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233411.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ High Priest - Invocation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233416.jpgsave_picture_233416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233416.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:FC4FC9A4AD736FA79137C55584C532D237A59DDA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233418.jpgsave_picture_233418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233418.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Great Gray Funk - The Great Gray Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233426.jpgsave_picture_233426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233426.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jaded Heart - Heart Attack (2022) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233434.jpgsave_picture_233434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233434.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Host - IX (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Electro>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233448.jpgsave_picture_233448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233448.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ The Black Apples - Highball Roller (2023) [MP3|320 Kbps] <Heavy Psych, Stoner, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233459.jpgsave_picture_233459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233459.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ The Samurai Of Prog - The Man In The Iron Mask (2023) [MP3|320 Kbps] <Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233461.jpgsave_picture_233461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233461.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Sakrum - Escombros de Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233463.jpgsave_picture_233463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233463.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EE01391E7A2CE02E72C262AB11A098F1300BDC07
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233468.jpgsave_picture_233468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233468.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Screamer - Phoenix (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233478.jpgsave_picture_233478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233478.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Revolution Saints - Eagle Flight (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233484.jpgsave_picture_233484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233484.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Okwaho - The Usurper Regime (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233485.jpgsave_picture_233485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233485.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ ScreaMachine - ScreaMachine (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233493.jpgsave_picture_233493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233493.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Stray Gods - Olympus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233497.jpgsave_picture_233497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233497.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ ScreaMachine - Borderline (2022) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233501.jpgsave_picture_233501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233501.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Cinderella - Cinderella's Rocked, Wired & Bluesed: The Greatest Hits (2005) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233504.jpgsave_picture_233504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233504.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Abscession - Rot Of Ages (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233508.jpgsave_picture_233508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233508.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ The Arcane Order - Distortions from Cosmogony (2023) [MP3|320 Kbps] <Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233521.jpgsave_picture_233521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233521.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:77B51CCCB4B92D5F263D78F12C651DD983B346BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233536.jpgsave_picture_233536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233536.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [MP3|320 Kb
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233539.jpgsave_picture_233539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233539.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Within Temptation - Wireless (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233559.jpgsave_picture_233559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233559.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Rage And Fire - The Last Wolf (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233563.jpgsave_picture_233563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233563.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - 90s Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233567.jpgsave_picture_233567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233567.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ magnet:?xt=urn:btih:6ACA38234D2D1E01449F9A6F99DD2B50FDC52F48
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233574.jpgsave_picture_233574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233574.jpg" />
 </div>
 
 

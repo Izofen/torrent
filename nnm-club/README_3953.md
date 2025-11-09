@@ -6,7 +6,7 @@ Fort Firewall 3.10.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123273.jpgsave_picture_123273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123273.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vivaldi 6.5.3206.53 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123274.jpgsave_picture_123274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123274.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chromium 120.0.6099.217 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123275.jpgsave_picture_123275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123275.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Schwarz & Funk - Diamonds of Lounge, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123276.jpgsave_picture_123276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123276.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ HWiNFO 7.69 Build 5330 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123277.jpgsave_picture_123277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123277.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Graveworm - Studio Albums (10 releases) (1997-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123278.jpgsave_picture_123278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123278.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy 560 (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123279.jpgsave_picture_123279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123279.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ S-VOX feat. Давид Тодуа, Вадим Самойлов - Фотоаль�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123280.jpgsave_picture_123280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123280.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Blank & Jones - #WhatWeDoAtNight 4 EP 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123281.jpgsave_picture_123281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123281.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Icecream Slideshow Maker PRO 5.07 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123282.jpgsave_picture_123282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123282.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:0BC6CFCC784EBD87BC78D8E3D15CDFEB8D332946
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123283.jpgsave_picture_123283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123283.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:6E6B069314DD949E2A422093CDA1639B8F50BBDD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123284.jpgsave_picture_123284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123284.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:AD09B9F08C4A4E0D71B92E98762A6327409D4FE8
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123285.jpgsave_picture_123285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123285.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:659E2EE534A36B1AB1691856D0E89B2766C585A5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123286.jpgsave_picture_123286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123286.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ IceCream Ebook Reader Pro 6.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123287.jpgsave_picture_123287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123287.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:8CEFAD59D5236F2ADD6852C0C115FFD5BB27646F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123288.jpgsave_picture_123288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123288.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Opera One 106.0.4998.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123289.jpgsave_picture_123289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123289.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123290.jpgsave_picture_123290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123290.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Icecream Photo Editor Pro 1.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123291.jpgsave_picture_123291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123291.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123292.jpgsave_picture_123292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123292.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Music News vol.330 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123293.jpgsave_picture_123293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123293.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:EB5F6C768DC47F2CAAD69F7D4F1C3D79F233497E
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123294.jpgsave_picture_123294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123294.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Icecream Video Editor Pro 3.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123295.jpgsave_picture_123295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123295.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ EF Commander 2024.01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123296.jpgsave_picture_123296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123296.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:4B34AFF8250598929B0C6FA72B29CEE3C7FF9C7E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123297.jpgsave_picture_123297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123297.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Opera One 106.0.4998.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123298.jpgsave_picture_123298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123298.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Macon Music Revue - Macon Music Revue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136843.jpgsave_picture_136843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136843.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136844.jpgsave_picture_136844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136844.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136845.jpgsave_picture_136845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136845.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ reaConverter Pro 8.0.144 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136846.jpgsave_picture_136846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136846.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Kara Grainger - That's How I Got To Memphis (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136847.jpgsave_picture_136847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136847.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Johnnie Johnson - I'm Just Johnnie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136848.jpgsave_picture_136848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136848.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Jimmy Burns & Soul Message Band - Full Circle (2025) [FLAC 24/48|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136849.jpgsave_picture_136849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136849.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136850.jpgsave_picture_136850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136850.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:ADEB6617791BB0EDDE730568EE155EF4BFEEA738
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136851.jpgsave_picture_136851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136851.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136852.jpgsave_picture_136852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136852.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:1C82F93415B98D7D23EB14FE4123A8DB3653C0EF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136853.jpgsave_picture_136853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136853.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136854.jpgsave_picture_136854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136854.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136855.jpgsave_picture_136855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136855.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136856.jpgsave_picture_136856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136856.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:16928BBA8B36CBE039081BEFCE254D708D935FEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136857.jpgsave_picture_136857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136857.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Sai
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136858.jpgsave_picture_136858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136858.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136859.jpgsave_picture_136859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136859.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Bruce Wojick & The Struggle - The Hard Way (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136860.jpgsave_picture_136860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136860.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:0C6EAC55867DEEBCFE6C13E207A154E0B9A3FE1F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136861.jpgsave_picture_136861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136861.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:319F35ABA79EE4395E6B7AF2C4B345A3BD43430E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136862.jpgsave_picture_136862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136862.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:D32F7E401469CC4C1F2CE238CB0C387FFBC3AAA3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136863.jpgsave_picture_136863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136863.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:6E6D13FF414FA235A7535FCB5D2975CC5853AF4F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136864.jpgsave_picture_136864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136864.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:573E832929327CE5DD1F361E6F0EC86125DD37BD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136865.jpgsave_picture_136865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136865.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:E626913CFB8DD11B5FF698D5B3FB8A292CB0D40C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136866.jpgsave_picture_136866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136866.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Project Hunt (2024) [Ru/Multi] (2025-9-25/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136867.jpgsave_picture_136867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136867.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136868.jpgsave_picture_136868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136868.jpg" />
 </div>
 
 

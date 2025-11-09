@@ -6,7 +6,7 @@ WinRAR просит купить сумку, раз вы не хотите по�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24337.jpgsave_picture_24337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24337.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WinRAR просит купить сумку, раз вы не хотите по�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24338.jpgsave_picture_24338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24338.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24339.jpgsave_picture_24339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24339.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WiFi Analyzer v6.0 (b98) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24340.jpgsave_picture_24340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24340.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Windows Server 2022 LTSC [10.0.20348.3328], Version 21H2 (Updated March 2025) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24341.jpgsave_picture_24341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24341.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Superjet совершил первый полет с российским дви
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24342.jpgsave_picture_24342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24342.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Superjet совершил первый полет с российским дви
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24343.jpgsave_picture_24343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24343.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24344.jpgsave_picture_24344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24344.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ StartAllBack 3.9.6 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24345.jpgsave_picture_24345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24345.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:421C1EB22322068BAE76FB76B3B732CD4CA64558
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24346.jpgsave_picture_24346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24346.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Device Info HW+ v5.21.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24347.jpgsave_picture_24347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24347.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:107DE87203A80D6D0FEF847B3247618CDEB7A03F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24348.jpgsave_picture_24348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24348.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:3C3CE92A4D1F84501238C140BBFE6A215C42A02D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24349.jpgsave_picture_24349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24349.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:B02C51BA264C8D7ABA29A788038D192E530ADD5C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24350.jpgsave_picture_24350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24350.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ My TTS: Text-to-Speech v1.5.0 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24351.jpgsave_picture_24351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24351.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:68AED8D9486536439B5E123A521DDD12361B3559
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24352.jpgsave_picture_24352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24352.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Dancing Pandas: Ranger's Path (2025) [En] (4.34H) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24353.jpgsave_picture_24353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24353.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:952F0CCD97B3C24240A0EBC9FD395B7BD32AB4DD
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24354.jpgsave_picture_24354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24354.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:44D2D796A7740CA15FBC862BD7C6A154DEA525DA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24355.jpgsave_picture_24355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24355.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ WiFi Analyzer v6.0 (b98) Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24356.jpgsave_picture_24356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24356.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:3DA7BA0DE64E3A5E2470AB8DCB00ADE72AFBAE74
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24357.jpgsave_picture_24357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24357.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:7ABB3EEE2EFDD43B555FA258ECB3E2DD86ED4F5D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24358.jpgsave_picture_24358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24358.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:9C2EB3B5A7D5CD5E724353E8A6E9AECC77458212
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24359.jpgsave_picture_24359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24359.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:F76A62E9FA01BA5EE797A7946D6A82C3D271D3F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24360.jpgsave_picture_24360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24360.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:239E3542548AAE085BE170E88EA930AE56B02336
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24361.jpgsave_picture_24361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24361.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Process Lasso Pro 15.1.1.1 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24362.jpgsave_picture_24362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24362.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236817.jpgsave_picture_236817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236817.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Gnomon Workshop, Bill Buckley | Creating Game Ready Animations for Productio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236818.jpgsave_picture_236818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236818.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5B543DACBF630F895E99CF65AA9AC8CB302118B2
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236819.jpgsave_picture_236819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236819.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7C7BB2EE68A4BC5AE81AF0CEB3E4C7BC24494908
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236820.jpgsave_picture_236820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236820.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Disturbed - Live and Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236822.jpgsave_picture_236822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236822.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ TweakNow WinSecret Plus! 4.7.5 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236824.jpgsave_picture_236824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236824.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Affinity Photo 2 v.2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236825.jpgsave_picture_236825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236825.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:F5669EFEBFF7E5AABB1692860A206D76213628DB
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236826.jpgsave_picture_236826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236826.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Livlos - And Then There Were None (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236827.jpgsave_picture_236827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236827.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:9BB76C3081D32C52268FCF0400B02FF9E40D7E40
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236828.jpgsave_picture_236828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236828.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:C8779DD71ED9296720D81622F7215AD6EAF83065
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236829.jpgsave_picture_236829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236829.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Icecream Screen Recorder PRO 7.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236831.jpgsave_picture_236831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236831.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:BB868BD77E8743565CD1D7C9DDC10BEDC891AAB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236832.jpgsave_picture_236832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236832.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:BB868BD77E8743565CD1D7C9DDC10BEDC891AAB9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236833.jpgsave_picture_236833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236833.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:C3608445CE17DD45EAF8C11133A080FA61CFEE09
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236834.jpgsave_picture_236834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236834.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Pale Moon 32.2.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236835.jpgsave_picture_236835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236835.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Network & Battery 12.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236836.jpgsave_picture_236836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236836.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Degenerated Sequences - Schism (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236837.jpgsave_picture_236837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236837.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ DesignCourse, Gary Simon | Kickstart your UI/UX Design Career (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236838.jpgsave_picture_236838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236838.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:3EED2F7AEFBBC6231C9104BE33C27E72B2C76701
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236839.jpgsave_picture_236839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236839.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Lynda, Brenda Romero | Game Design Foundations: 1 Ideas, Core Loops, and Goals (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236840.jpgsave_picture_236840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236840.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:A1274BA7DF3A630E6F64EC0B253B71F1939EA79D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236842.jpgsave_picture_236842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236842.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Disturbed - Prayer (2002) Maxi-Single [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236843.jpgsave_picture_236843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236843.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:AC21B5E8F01C33F43253B5D95F78D4893E835EB0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236844.jpgsave_picture_236844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236844.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:A096BDF18657E88AC237FC84499F003AEC43525E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236845.jpgsave_picture_236845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236845.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Affinity Designer 2 v.2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236848.jpgsave_picture_236848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236848.jpg" />
 </div>
 
 

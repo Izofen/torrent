@@ -6,7 +6,7 @@ Expansion - Europa Universalis IV: Domination (2023) [Multi] (1.37.0/dlc) Scene 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57103.jpgsave_picture_57103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57103.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:544C64E6F9B159755D7F21476619A4D52F9A6E30
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57108.jpgsave_picture_57108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57108.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Divinity Chronicles: Journey to the West (2023) [Multi] (1.14.20b/dlc) Scene Ten
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57118.jpgsave_picture_57118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57118.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57253.jpgsave_picture_57253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57253.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57358.jpgsave_picture_57358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57358.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Internet Cafe Evolution (2024) [Multi] (1.2.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57431.jpgsave_picture_57431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57431.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tales from Candleforth (2024) [Multi] (1.08) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57441.jpgsave_picture_57441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57441.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57551.jpgsave_picture_57551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57551.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dark City 9: Amsterdam / Мрачный город 9: Амстердам (2024) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57607.jpgsave_picture_57607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57607.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Crossroads 4: Fatal Truths / Перекрёсток 4: Роковые истин
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57618.jpgsave_picture_57618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57618.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lunar Lander Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57643.jpgsave_picture_57643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57643.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Game of Sisyphus (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57676.jpgsave_picture_57676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57676.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wild Card Football (2023) [Multi] (20240423/dlc) Scene Tenoke [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57980.jpgsave_picture_57980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57980.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.8) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57988.jpgsave_picture_57988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57988.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (8410_27382) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58002.jpgsave_picture_58002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58002.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ POOLS (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58008.jpgsave_picture_58008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58008.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719/dlc) Sc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58059.jpgsave_picture_58059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58059.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Bootleg Steamer (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58064.jpgsave_picture_58064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58064.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Oriental Valley (2024) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58066.jpgsave_picture_58066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58066.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Tad the Lost Explorer (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58068.jpgsave_picture_58068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58068.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58077.jpgsave_picture_58077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58077.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Unholy Village (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58079.jpgsave_picture_58079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58079.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58087.jpgsave_picture_58087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58087.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58091.jpgsave_picture_58091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58091.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dawn of Man (2019) [Multi] (1.8.2) License GOG (обновляемая)
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58099.jpgsave_picture_58099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58099.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58104.jpgsave_picture_58104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58104.jpg" />
 </div>
 
 

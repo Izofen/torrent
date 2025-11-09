@@ -6,7 +6,7 @@ Folder Player Pro v5.36 b353 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_315.jpgsave_picture_315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_315.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A42CE0A9DE3D360589E7036CE4CEC85159B5E7F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_316.jpgsave_picture_316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_316.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_317.jpgsave_picture_317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_317.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D1F6564363D87FB83B0025901907469EAEB00C76
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_318.jpgsave_picture_318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_318.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FF49DD62568D7FEC0A3074BEB63ED65BF7B42488
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_319.jpgsave_picture_319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_319.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Moon+ Reader Pro v10.2 (b1002000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_320.jpgsave_picture_320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_320.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ MassTube Ultra 21.0.3.167 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_321.jpgsave_picture_321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_321.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:99118EA0B3D7C59ED66DF3016FA101BC9D75620F
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_322.jpgsave_picture_322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_322.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_323.jpgsave_picture_323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_323.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Vanced Tube v5.4.80.375 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_324.jpgsave_picture_324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_324.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Minimal Firewall 2.2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_325.jpgsave_picture_325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_325.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:792CFBAC163F4906DFB3E609A8F7E87CE6392791
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_326.jpgsave_picture_326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_326.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:208CA98E847EAECF8A3AF8D9A7A8B738DD8E600E
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_327.jpgsave_picture_327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_327.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:FAEF39AD47E8EADE6DE408C0D049A3585857FF71
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_328.jpgsave_picture_328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_328.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:1C1536342DAA78D5356A3D063DFA158CB5A0C7E4
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_329.jpgsave_picture_329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_329.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ FacePic - AI Face App v2.9.4 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_330.jpgsave_picture_330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_330.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:112EB4E4EE3050C37243DC7EDD29CEF42CFF99D3
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_331.jpgsave_picture_331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_331.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:069DB90753F4347A33A2B08D59DE055DA59240D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_332.jpgsave_picture_332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_332.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:ECD4A6C839CE46D4863FCA5125AF7AFE59995703
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_333.jpgsave_picture_333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_333.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0B7C5920638C398F748C80447051F695E4847FEE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_334.jpgsave_picture_334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_334.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ AI Photo Editor - AIFoto v1.15.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_335.jpgsave_picture_335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_335.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:2848724FE5A0442425AEC7F6EBF06490CB2BCD96
 >>Беседка Талантов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_336.jpgsave_picture_336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_336.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Internet Download Manager 6.42 Build 48 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_337.jpgsave_picture_337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_337.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:D29235BD74AC5B02BB1EAF98CD0251DBA743DD2C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_338.jpgsave_picture_338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_338.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:D8369E3198FE1973F0B95C0B82BB9964F754E92B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_339.jpgsave_picture_339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_339.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:501E5B73DC80FDD2ECEA7AE1676638D7266C6AB0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_340.jpgsave_picture_340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_340.jpg" />
 </div>
 
 

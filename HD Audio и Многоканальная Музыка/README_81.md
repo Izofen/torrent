@@ -6,7 +6,7 @@ Destruction - Birth Of Malice (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69759.jpgsave_picture_69759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69759.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tate McRae - So Close To What (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69769.jpgsave_picture_69769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69769.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Stuka - Electronic Body Metal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <EBM, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69784.jpgsave_picture_69784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69784.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Andrew Bird - Collection (2016-2024) [FLAC|24/44.1-96|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69786.jpgsave_picture_69786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69786.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Years Of Messages - The Bitterness of Love & Obsession (2025) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69787.jpgsave_picture_69787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69787.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Gravecloud - A Tear In The Veil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69791.jpgsave_picture_69791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69791.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Thrashist Regime - Studio Albums (2 releases) (2012-2018) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69799.jpgsave_picture_69799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69799.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Morlas Memoria - Adieu (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69824.jpgsave_picture_69824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69824.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Antony Szmierek - Service Station At The End Of The Universe (2025) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69842.jpgsave_picture_69842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69842.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Christian Mistress - Children of the Earth (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69843.jpgsave_picture_69843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69843.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69846.jpgsave_picture_69846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69846.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69847.jpgsave_picture_69847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69847.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69848.jpgsave_picture_69848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69848.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69853.jpgsave_picture_69853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69853.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69857.jpgsave_picture_69857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69857.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Harlott - Studio Albums (5 releases) (2012-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69898.jpgsave_picture_69898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69898.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ The Beckies - Demos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Pop, Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69899.jpgsave_picture_69899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69899.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Mdou Moctar - Tears of Injustice (2025) Injustice Version, 2025, Matador [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69900.jpgsave_picture_69900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69900.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Djabe & Steve Hackett - Freya Arctic Jam (2025) [FLAC 16/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69909.jpgsave_picture_69909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69909.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Gleb Kolyadin (Глеб Колядин) - Mobula (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69920.jpgsave_picture_69920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69920.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Silent Stream of Godless Elegy (SSoGE) - Studio Albums (9 releases) (1996-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69921.jpgsave_picture_69921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69921.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Gillan - The Japanese Album (1978) Deluxe Edition. 2025, Edsel [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69929.jpgsave_picture_69929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69929.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Dark Chapel (Часовня Тьмы) - Spirit in The Glass (2025) [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69941.jpgsave_picture_69941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69941.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ John Lee Hooker - The Standard School Broadcast Recordings (2025) [FLAC 24/96|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69942.jpgsave_picture_69942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69942.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Linkin Park - From Zero: A Cappellas + Instrumentals (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69947.jpgsave_picture_69947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69947.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Bon Jovi - Slippery When Wet (1986) Deluxe Edition, 2025, Bon Jovi Profit Split 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69952.jpgsave_picture_69952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69952.jpg" />
 </div>
 
 

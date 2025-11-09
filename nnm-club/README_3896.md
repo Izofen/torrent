@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121757.jpgsave_picture_121757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121757.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:7D263B14C01E736057D60BEFC4366B83D4720E95
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121758.jpgsave_picture_121758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121758.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8AACAC440D6EB462438A5C94F0397DF65FB606B7
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121759.jpgsave_picture_121759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121759.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:892A07F9F9094DC9ECAD24AE8E1F2A31FB3A5C91
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121760.jpgsave_picture_121760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121760.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Saxon - Дискография (33 releases) (1979-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121761.jpgsave_picture_121761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121761.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:C1C38FAAC544AD9051D3A177815806307F29EDF9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121762.jpgsave_picture_121762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121762.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E1CCEB092621CED1E9B7C76A37D762E276D7A5F2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121763.jpgsave_picture_121763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121763.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AVS All-In-One Install Package 5.6.1.185 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121764.jpgsave_picture_121764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121764.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:2B0F2C473864A063588948DE0049E65A736F2755
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121765.jpgsave_picture_121765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121765.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7EB8D476445C64AC66E8238F5F3FCD2B7B8018BA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121766.jpgsave_picture_121766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121766.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Resource Hacker 5.2.7.427 Final Portable by alexalsp [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121768.jpgsave_picture_121768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121768.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:5A57106F1C2ACBE2A40AE09921B8197B9CD4E345
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121769.jpgsave_picture_121769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121769.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Dark Western Country Rock (2024) [MP3|320 Kbps] <Blues, Country, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121770.jpgsave_picture_121770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121770.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B2C3143267C3AA3136CD2BC3AD7B0D0899ABB328
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121771.jpgsave_picture_121771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121771.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Photo Lab PRO v3.12.88 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121772.jpgsave_picture_121772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121772.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:946A1F53F858CCA0898C9AE2267F79F20D3390E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121773.jpgsave_picture_121773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121773.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ SHAMAN - Сделано в России (2023) 2CD [FLAC|Lossless|image + .cue] 
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121774.jpgsave_picture_121774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121774.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:797839CEDE978082DCF2FA8ABF2DC78FD3055EA6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121775.jpgsave_picture_121775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121775.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:6307A5A8B50FA41505D27C1446CCDBAFD03621A0
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121776.jpgsave_picture_121776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121776.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:8287BFCF182E6DA19B3CBD08BCED27808E470A78
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121777.jpgsave_picture_121777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121777.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:56C896851D4B829851CE0AF9611319FEE3A4FBDC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121778.jpgsave_picture_121778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121778.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VK X 6.8.2 (29200) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121779.jpgsave_picture_121779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121779.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121780.jpgsave_picture_121780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121780.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121781.jpgsave_picture_121781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121781.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121782.jpgsave_picture_121782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121782.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121783.jpgsave_picture_121783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121783.jpg" />
 </div>
 
 

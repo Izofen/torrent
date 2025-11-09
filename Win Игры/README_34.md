@@ -6,7 +6,7 @@ Ratopia (2023) [Ru/Multi] (1.0.0510) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9908.jpgsave_picture_9908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9908.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9918.jpgsave_picture_9918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9918.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9922.jpgsave_picture_9922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9922.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Terminator: Dark Fate - Defiance (2024) [Ru/Multi] (1.07.1145/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9926.jpgsave_picture_9926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9926.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9979.jpgsave_picture_9979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9979.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10018.jpgsave_picture_10018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10018.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sР
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10028.jpgsave_picture_10028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10028.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10030.jpgsave_picture_10030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10030.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10035.jpgsave_picture_10035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10035.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10110.jpgsave_picture_10110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10110.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Beff Jezos Simulator (2024) [Ru/Multi] (1.1.0.0711) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10114.jpgsave_picture_10114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10114.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Steep (2016) [Ru/Multi] (1.23.7640008/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10146.jpgsave_picture_10146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10146.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10147.jpgsave_picture_10147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10147.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack Other s [Wreckma
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10151.jpgsave_picture_10151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10151.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Laser Tag Massacre (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10153.jpgsave_picture_10153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10153.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10170.jpgsave_picture_10170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10170.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Kunitsu-Gami: Path of the Goddess (2024) [Ru/Multi] (Build 19024694/dlc) Repack 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10172.jpgsave_picture_10172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10172.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Starmetal Crusaders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10173.jpgsave_picture_10173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10173.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10176.jpgsave_picture_10176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10176.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Kick'n Hell (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10177.jpgsave_picture_10177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10177.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10180.jpgsave_picture_10180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10180.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Endzone 2 (2024) [Ru/Multi] (1.0.9336.24144/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10181.jpgsave_picture_10181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10181.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ No More Heroes / No More Heroes 2: Desperate Struggle (2021) [Ru] (Patch 4/29/25
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10182.jpgsave_picture_10182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10182.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10195.jpgsave_picture_10195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10195.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10245.jpgsave_picture_10245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10245.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rooftops & Alleys: The Parkour Game (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10250.jpgsave_picture_10250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10250.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ CCleaner 6.39.11548 Free / Professional / Business / Technician Edition RePack (
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6831.jpgsave_picture_6831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6831.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6834.jpgsave_picture_6834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6834.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Torrent File Editor 1.0.0 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6851.jpgsave_picture_6851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6851.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Glary Disk Cleaner 6.0.1.31 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6922.jpgsave_picture_6922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6922.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RadioMaximus 2.33.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6938.jpgsave_picture_6938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6938.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ OCCT 14.2.6 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6966.jpgsave_picture_6966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6966.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ashampoo Burning Studio 26.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6975.jpgsave_picture_6975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6975.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Ventoy 1.1.07 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6982.jpgsave_picture_6982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6982.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Total Commander 11.56 Final [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6983.jpgsave_picture_6983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6983.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6991.jpgsave_picture_6991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6991.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ YT Downloader 9.15.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7100.jpgsave_picture_7100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7100.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ TapinRadio 2.16.008 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7102.jpgsave_picture_7102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7102.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7116.jpgsave_picture_7116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7116.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Advanced Renamer 4.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7289.jpgsave_picture_7289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7289.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VCap Downloader 0.1.35.6662 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7293.jpgsave_picture_7293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7293.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DLNow Video Downloader 1.54.2025.08.16 RePack (& Portable) by elchupacabra [Mult
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7300.jpgsave_picture_7300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7300.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ TweakNow WinSecret Plus! 7.1.5 RePack (& Portable) by elchupacabra [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7325.jpgsave_picture_7325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7325.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:8891EBB1730D76D006321E55D500868EA1C0FADC
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7329.jpgsave_picture_7329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7329.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ The Bat! Professional 11.4.3.0 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7340.jpgsave_picture_7340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7340.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ TranslucentTB 2025.1 Portable (x64) [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7349.jpgsave_picture_7349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7349.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ TechSmith Camtasia 25.2.2.11661 [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7497.jpgsave_picture_7497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7497.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ PrivaZer Pro 4.0.109 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7528.jpgsave_picture_7528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7528.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ WinTools.net 25.9.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7732.jpgsave_picture_7732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7732.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Wise Care 365 Pro 7.2.8.709 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7743.jpgsave_picture_7743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7743.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Foxit PDF Editor Pro 13.2.0.23874 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7771.jpgsave_picture_7771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7771.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ FastStone Capture 11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7788.jpgsave_picture_7788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7788.jpg" />
 </div>
 
 

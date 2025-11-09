@@ -6,7 +6,7 @@ USB Device Tree Viewer 3.8.7.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206912.jpgsave_picture_206912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206912.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BC0B8134D5F7B8D68D7C640F8C057ABF855E4BE9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206915.jpgsave_picture_206915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206915.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:26F5A8600EB2847B36CF4A63CA5FD0D00F871933
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206916.jpgsave_picture_206916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206916.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AIMP 5.11 Build 2434 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206920.jpgsave_picture_206920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206920.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FFFF16A6FBB9BC1ABC5571307399832C110BB994
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206924.jpgsave_picture_206924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206924.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6F206235A2AF64208F7BF65B5ECC3B41AE50FD1C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206930.jpgsave_picture_206930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206930.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Delight VPN Mod by DEXUNPACKER 6.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206931.jpgsave_picture_206931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206931.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Defender Remover Portable 12.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206934.jpgsave_picture_206934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206934.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:EAA33F5DE5063CB4D753BC824B04372D21E23A56
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206936.jpgsave_picture_206936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206936.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Windows 11 Manager 1.2.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206937.jpgsave_picture_206937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206937.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Supermium 117.0.5874.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206939.jpgsave_picture_206939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206939.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Rhinoceros 3D 7.31.23166.15001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206940.jpgsave_picture_206940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206940.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:79CC7C5B864DAAB0BC731B7288C25B24DBFDDAE1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206943.jpgsave_picture_206943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206943.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:00EE696302F18857DCD6762962138657C3712D5C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206946.jpgsave_picture_206946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206946.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:ED791E9CE747C0DE3783EA9015BFE13FD877583E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206948.jpgsave_picture_206948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206948.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:582F3147A564CF582BF321C55A59AE0F17B1F658
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206950.jpgsave_picture_206950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206950.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:71D4AD94C00228B55944E38A2115E5BA36A1F8FD
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206952.jpgsave_picture_206952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206952.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Mystical Riddles 3: Ship From Beyond / Мистические загадки 3: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206954.jpgsave_picture_206954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206954.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206956.jpgsave_picture_206956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206956.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:763FD8B0F636A08C7924F453F41E3EFFF590589C
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206957.jpgsave_picture_206957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206957.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:52697FF14F510B9492B2F670A3182A5B81FA8C95
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206959.jpgsave_picture_206959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206959.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ DefenderUI 1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206961.jpgsave_picture_206961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206961.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Probo Rush (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206963.jpgsave_picture_206963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206963.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:9808944124E7B8331DEC0CDC3C4B6AF53C69FF16
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206967.jpgsave_picture_206967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206967.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AIMP 5.11 Build 2434 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206969.jpgsave_picture_206969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206969.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:3AAC706B4A0106C0E32FC85C324693D64BE70B1B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206972.jpgsave_picture_206972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206972.jpg" />
 </div>
 
 

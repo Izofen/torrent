@@ -6,7 +6,7 @@ Crow'near - Full Moon Fever. Anniversary Edition (1992) Compilation, Reissue, Re
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172356.jpgsave_picture_172356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172356.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A05B4059B04B13A8DC4661402BC0180192D90D3C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172357.jpgsave_picture_172357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172357.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Johnny Griffin Quartet + 3 - Dance Of Passion (1993) PolyGram [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172358.jpgsave_picture_172358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172358.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Iron Savior - Firestar (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172359.jpgsave_picture_172359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172359.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F2268E510607BEA7BCACBD7E09A112026264A688
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172360.jpgsave_picture_172360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172360.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Clare Fischer - Just Me: Solo Piano Excursions (1995) Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172361.jpgsave_picture_172361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172361.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Saclas - Achamoth (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172362.jpgsave_picture_172362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172362.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ GoodTask 7.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172364.jpgsave_picture_172364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172364.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dash 7.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172365.jpgsave_picture_172365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172365.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Noir – Dark Mode for Safari 2023.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172366.jpgsave_picture_172366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172366.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Saclas - Achamoth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172367.jpgsave_picture_172367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172367.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Ravendusk - Shadowcast (2001) [FLAC|Lossless|image + .cue] <Symphonic Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172368.jpgsave_picture_172368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172368.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ EdgeView 4.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172369.jpgsave_picture_172369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172369.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 10.2023 by OVGorskiy 1DVD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172370.jpgsave_picture_172370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172370.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:0F9F4E9C9F7B0CB2B0EBC2C28B7802717C22FEB1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172371.jpgsave_picture_172371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172371.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:98421D2D9AB7738E6A21E431BA1D788965176F6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172372.jpgsave_picture_172372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172372.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:A5A875F3B77B30F5D650D0354E308241BBDC6F86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172373.jpgsave_picture_172373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172373.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Microsoft Windows 10.0.19045.3570, Version 22H2 (Updated October 2023) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172374.jpgsave_picture_172374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172374.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Witchfire (2023) [En] (0.1.9 Build 47935) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172375.jpgsave_picture_172375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172375.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Marc Sommerfeld | Изготовление стола для фрезера. [20
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172376.jpgsave_picture_172376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172376.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:313E5303EA2EDCD1FC8A03BBBD731E66A64C7D5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172377.jpgsave_picture_172377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172377.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:CC428CB040D967032468052BBE8D00478693BA30
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172378.jpgsave_picture_172378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172378.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:B6C23E392051CFC47CCD53F69DFE09DDB71BF162
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172379.jpgsave_picture_172379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172379.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:3CC810C2DFDF5BB91F2CC9AAD23A138C4CC27284
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172380.jpgsave_picture_172380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172380.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:1F277D29B6FDB7634FD5E333995C9F1682928704
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172381.jpgsave_picture_172381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172381.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:F2D81F4AAF2F883E71F24F650227180DBB962492
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172382.jpgsave_picture_172382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172382.jpg" />
 </div>
 
 

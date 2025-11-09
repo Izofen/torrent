@@ -6,7 +6,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41671.jpgsave_picture_41671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41671.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4EA8FAFA36612BABC86ED02E2E54098675BF7ADD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41672.jpgsave_picture_41672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41672.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Marigold Bachman Blackout - Phoenix Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41673.jpgsave_picture_41673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41673.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:DF3BD4CA1A366F6C993D274024DA2D1CC60ABF43
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41674.jpgsave_picture_41674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41674.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:512879849351A837BC06EA23FF47952A5AA7A3CC
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41675.jpgsave_picture_41675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41675.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:520016B49BDFB21132CF96534395009202D08859
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41676.jpgsave_picture_41676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41676.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Darnell "Showcase" Taylor - Worth the Wait (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41677.jpgsave_picture_41677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41677.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:4695FD75E2FFBFB2147638DB83230CAA994FE055
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41678.jpgsave_picture_41678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41678.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:2CADE0B822FE64C8F2B3F4F62FB4968C566A2DCF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41679.jpgsave_picture_41679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41679.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:4AFC29A056908A450C3BF47B35D23C481CED58B1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41680.jpgsave_picture_41680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41680.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:2BDD9F1E3A1CDA20768820A21F3768F34ACFBA34
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41681.jpgsave_picture_41681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41681.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:7931A420EBDBB466C64A8EACEDC28DACCD493357
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41682.jpgsave_picture_41682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41682.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:032DE3C150CDD9BE2EC73BB2F4DBF5E0CA611DDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41683.jpgsave_picture_41683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41683.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:032DE3C150CDD9BE2EC73BB2F4DBF5E0CA611DDE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41684.jpgsave_picture_41684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41684.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:8CC1AA5360EBC23F8BBF65D5480E0AE5AE2531EF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41685.jpgsave_picture_41685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41685.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:E98DF638E9BFD91A02236E6DB5328088CF435B58
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41686.jpgsave_picture_41686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41686.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Bryan Ferry (Roxy Music) - Retrospective (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41687.jpgsave_picture_41687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41687.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:1192A632A2900FE2DFB0FF6C4873CE45973B2FCE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41688.jpgsave_picture_41688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41688.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:736FD0E89F08AD35D887B893B29EF8669F1F60A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41689.jpgsave_picture_41689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41689.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:736FD0E89F08AD35D887B893B29EF8669F1F60A7
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41690.jpgsave_picture_41690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41690.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:44CAD94DFF45B419C37773BB9E9F44FF19D984AD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41691.jpgsave_picture_41691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41691.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:B6A1F0EAF8D5246B1A2FA529204D11308888E2EA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41692.jpgsave_picture_41692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41692.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:D06764DBB1891D346E08A52E0C07D2E4C26DD261
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41693.jpgsave_picture_41693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41693.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:285BAF1638771A227756B82BF8B14AEAC95F4C4B
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41694.jpgsave_picture_41694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41694.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:6C9F34E704B45C88880871FFEF109B5252ADB3EC
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41695.jpgsave_picture_41695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41695.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:E6628D0A59422813ADE3B739BD469452FD943544
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41696.jpgsave_picture_41696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41696.jpg" />
 </div>
 
 

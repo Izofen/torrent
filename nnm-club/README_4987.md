@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155813.jpgsave_picture_155813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155813.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2558B90227A71FEE6A23963D57BAC47ECDF70203
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155814.jpgsave_picture_155814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155814.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1CA83E62ECA7D2ABA62EFBC406348BBD0417C2E4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155815.jpgsave_picture_155815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155815.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:0C5D59F9540FA55C4109C4FBA4A5B56206867E18
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155816.jpgsave_picture_155816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155816.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Lounge Music 1.0 (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155817.jpgsave_picture_155817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155817.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Six Bar Break - Ghost Town (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155818.jpgsave_picture_155818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155818.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:27E02994F551D163319793E6C76FB0427C6A6455
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155819.jpgsave_picture_155819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155819.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:96B9BC72CA92946BA570AA0A3D60236AD2AC7634
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155820.jpgsave_picture_155820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155820.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Harold Lopez-Nussa - Timba A La Americana (2023) Blue Note Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155821.jpgsave_picture_155821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155821.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:751C4B96CF8903846D663AB13A0EB99C07FCC7B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155822.jpgsave_picture_155822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155822.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ AMD Radeon Software Crimson ReLive Edition 16.12.2 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155823.jpgsave_picture_155823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155823.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155824.jpgsave_picture_155824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155824.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:24CEAD075E5D7E30FE3D5D0B79011E4091DA9948
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155825.jpgsave_picture_155825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155825.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:D8D5716AB628DA0AEEBD17E62647B690C022F6DB
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155826.jpgsave_picture_155826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155826.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Alpine Grooves Easy Beats 1 (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155827.jpgsave_picture_155827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155827.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:369902F9899D98C588B54E91C65C57715684E813
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155828.jpgsave_picture_155828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155828.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:EA40FE176001798C6E7D4B67DE3E5B1BD27C0440
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155829.jpgsave_picture_155829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155829.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:F30861EBF23EC54BC307761EF36A137710642111
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155830.jpgsave_picture_155830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155830.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Test Drive: Ferrari Racing Legends [En] (Lossless Repack) 2012 | R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155832.jpgsave_picture_155832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155832.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Darkness Ablaze - It All Shall Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155833.jpgsave_picture_155833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155833.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:132B93ED2F2D0326ED4985836375CC01485D7551
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155834.jpgsave_picture_155834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155834.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:1917910F4400B6998CF17A3086CC7909FAECD495
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155835.jpgsave_picture_155835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155835.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Forma Tadre - Discography 4 Releases (1997-2017) Off Beat [FLAC|Lossless|tracks+
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155836.jpgsave_picture_155836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155836.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:A29759F01AF6499CF13819528A5BADD76EDEC8B2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155837.jpgsave_picture_155837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155837.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ WinTools.net Premium 13.0.1 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155838.jpgsave_picture_155838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155838.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Comodo Internet Security Premium 10.0.0.6086 Final [Multi/Ru] [Web Installer]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155839.jpgsave_picture_155839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155839.jpg" />
 </div>
 
 

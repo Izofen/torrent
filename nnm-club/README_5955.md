@@ -6,7 +6,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187491.jpgsave_picture_187491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187491.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7063C9EA78F33AA63A51F211BF8EC735774F236E
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187492.jpgsave_picture_187492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187492.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C9300056E30B0CC75D2EA9C3934993EF3DBA7CC4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187493.jpgsave_picture_187493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187493.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F0DC5ED4E2EC864D7C3A6728820DA9875B0B6639
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187494.jpgsave_picture_187494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187494.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Process Lasso Pro 12.0.0.24 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187495.jpgsave_picture_187495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187495.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ QOwnNotes 23.9.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187496.jpgsave_picture_187496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187496.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7802B8F05E7393FA7BF0A4719D142723659E8B4C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187497.jpgsave_picture_187497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187497.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187498.jpgsave_picture_187498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187498.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:FFC9ADAB9B8DB11EB6BC9B092E5E25B52E6F1D22
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187499.jpgsave_picture_187499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187499.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:30A1FB7E8D251233582F7B9030C2A71084688E0C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187500.jpgsave_picture_187500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187500.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Hernan Cattaneo & Soundexile - Future Memories (2022) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187501.jpgsave_picture_187501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187501.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:F83B46704EE07E2C9B6E1E4DCB0AAF22EA1FB81F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187502.jpgsave_picture_187502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187502.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F2CCA92C8AC2564D4EE2F43A1E492961FA0FE126
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187504.jpgsave_picture_187504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187504.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ The Ides Of June - Rising Tide (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187505.jpgsave_picture_187505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187505.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - A Tribute To Eric Clapton (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187506.jpgsave_picture_187506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187506.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:CC9CA9171D4DCF7665DBCF97957FFC2DC96ED3B0
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187507.jpgsave_picture_187507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187507.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Kill Devil Hill - Seas Of Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187508.jpgsave_picture_187508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187508.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:72CBD509FCCB5B74278033BED33C07601CE39379
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187509.jpgsave_picture_187509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187509.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:6E443BB9FBA4D1CAE30CD28E71238B58E5C04891
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187510.jpgsave_picture_187510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187510.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:55AB8868719A2A34FE621FB33A19968CFAFE74E2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187511.jpgsave_picture_187511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187511.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ HWiNFO 7.33 Build 4910 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187512.jpgsave_picture_187512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187512.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:FA7504D61DC146E45BCB453FD7D8BA9615998E02
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187513.jpgsave_picture_187513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187513.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Sinheresy - Event Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187514.jpgsave_picture_187514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187514.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Tesseract - War of Being (2023) [FLAC|Lossless|tracks + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187515.jpgsave_picture_187515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187515.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:3D90168F3C0693E4CB38DBB287BB8B4B255DEEA3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187516.jpgsave_picture_187516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187516.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Kill City Kills - Escape Into The Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187517.jpgsave_picture_187517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187517.jpg" />
 </div>
 
 

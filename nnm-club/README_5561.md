@@ -6,7 +6,7 @@ Softorino YouTube Converter PRO for Mac 5.1.9 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171573.jpgsave_picture_171573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171573.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Erik Norlander - Music Machine (2003) 2CD [FLAC|Lossless|image + .cue] <Symphoni
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171574.jpgsave_picture_171574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171574.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Things 3 v.3.19.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171575.jpgsave_picture_171575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171575.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Get Backup Pro 3 v.3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171576.jpgsave_picture_171576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171576.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ PD (Progressive Downloader) 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171577.jpgsave_picture_171577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171577.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ DxO FilmPack 6 ELITE Edition v.6.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171578.jpgsave_picture_171578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171578.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:FB0A5B8B34B9366C20F5A4C2708A88912582466A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171579.jpgsave_picture_171579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171579.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Master of Typing 3 - Practice 15.13.24 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171580.jpgsave_picture_171580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171580.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Rozario - To the Gods We Swear (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171581.jpgsave_picture_171581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171581.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Final Draft 12 v.12.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171582.jpgsave_picture_171582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171582.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171583.jpgsave_picture_171583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171583.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Grant Green - Live At The Lighthouse (1972) 2012, EMI Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171584.jpgsave_picture_171584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171584.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Mellel 5 v.5.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171585.jpgsave_picture_171585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171585.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Erik Norlander - Threshold (1999) Special Edition, 2CD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171586.jpgsave_picture_171586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171586.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ My Metronome - Tempo Keeper 1.3.9 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171587.jpgsave_picture_171587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171587.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:DFEFBB48C6C06038A80B7848162C7C09C7A29ED0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171588.jpgsave_picture_171588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171588.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Erik Norlander - Into The Sunset (2000) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171589.jpgsave_picture_171589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171589.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ DiskCatalogMaker 9.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171590.jpgsave_picture_171590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171590.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Professional Recorder & Editor 7.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171591.jpgsave_picture_171591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171591.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ AltTab 6.63.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171592.jpgsave_picture_171592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171592.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ A Better Finder Rename 12.02 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171593.jpgsave_picture_171593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171593.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Sound Siphon 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171594.jpgsave_picture_171594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171594.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Robert Conti - The Jazz Quintet (1981) 2000, Pinnacle Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171595.jpgsave_picture_171595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171595.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Afterbirth - In But Not Of (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171596.jpgsave_picture_171596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171596.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:7EC750A9A336E5C0FE61E263099AB198A651B715
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171597.jpgsave_picture_171597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171597.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ TinkerTool System 8 v.8.86 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171598.jpgsave_picture_171598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171598.jpg" />
 </div>
 
 

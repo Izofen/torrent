@@ -6,7 +6,7 @@
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180559.jpgsave_picture_180559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180559.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MediaHuman YouTube Downloader 3.9.9.86 (2809) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180561.jpgsave_picture_180561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180561.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Artificial Brain - Artificial Brain (2022) [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180563.jpgsave_picture_180563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180563.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Maleficarum - The Nine Circles (2019) [FLAC|Lossless|WEB-DL|tracks] <Death, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180564.jpgsave_picture_180564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180564.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Maelstrom - Slaughter of the Dead (2013) Compilation [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180565.jpgsave_picture_180565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180565.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:3B161991E039A917AEF5DC723E63D7638C395339
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180566.jpgsave_picture_180566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180566.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Maligno - Maligno (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180567.jpgsave_picture_180567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180567.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:BBED01C96C8FBA2275BA60E1C865A298F609D894
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180570.jpgsave_picture_180570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180570.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:053D78D6D52066AB4EB3E607D9AB8D17B036717E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180571.jpgsave_picture_180571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180571.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Dream&Draw, Анастасия Козлова | Клуб "Мечтай и рис
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180574.jpgsave_picture_180574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180574.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:54C7539E7FDFEC5D8060308939728C558C4AD69B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180577.jpgsave_picture_180577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180577.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ DxO PhotoLab Elite 7.0.1 build 76 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180580.jpgsave_picture_180580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180580.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Evil West (2022) [Ru/Multi] (1.0.3/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180581.jpgsave_picture_180581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180581.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:DCB82900072356BC7435009BB36611F860DF33FA
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180584.jpgsave_picture_180584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180584.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:8DCBF04899F1B90D09A4F4FBBFEA0F0F5F4455CD
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180588.jpgsave_picture_180588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180588.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:A441F996335216D6E48C2B891108C8C099A4E2CA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180589.jpgsave_picture_180589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180589.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:8AA9AD1B98DF43BE9D759C5CF789B414BB8EB2D5
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180592.jpgsave_picture_180592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180592.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180593.jpgsave_picture_180593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180593.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:1184D560515A69CB9CB9AC2F5B4A6B0042C45067
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180595.jpgsave_picture_180595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180595.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:C6D016029350DEDE878BEA218E6C1D8D6B0CA449
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180599.jpgsave_picture_180599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180599.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:453A0E6A5EF40A54B9CA7FC61D5337D48909E7D7
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180604.jpgsave_picture_180604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180604.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:2908DF40B4E03E17571ACD9E8CE2AB30719FCF1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180608.jpgsave_picture_180608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180608.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальны
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180610.jpgsave_picture_180610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180610.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:3604300C14C0CA3DD9EC81FCC74521AA9AAA5907
 >>Сериалы без русского перевода (украинская озвучка)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180612.jpgsave_picture_180612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180612.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ ProductStar, Денис Соболев и др. | Курс "Аналитик д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180614.jpgsave_picture_180614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180614.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:9C12A1DD4E86D4F2FB36DEEB330C0E8DD8DC508C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180615.jpgsave_picture_180615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180615.jpg" />
 </div>
 
 

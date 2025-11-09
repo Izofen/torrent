@@ -6,7 +6,7 @@ Hiruy Tirfe - 10,000 Hours (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120243.jpgsave_picture_120243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120243.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Twilight Aura - For A Better World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120244.jpgsave_picture_120244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120244.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Felix Tellier Pouliot - Hometown Zero (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120245.jpgsave_picture_120245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120245.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ OmniReader Pro for Mac 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120246.jpgsave_picture_120246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120246.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mimestream 1.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120247.jpgsave_picture_120247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120247.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Scheen Jazzorkester, Cortex & Thomas Johansson - Frameworks (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120248.jpgsave_picture_120248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120248.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Qow Trio - The Hold Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120249.jpgsave_picture_120249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120249.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Jonas Cambien - Maca Conu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120250.jpgsave_picture_120250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120250.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Indignatio - Principium (2023) [MP3|320 Kbps] <Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120251.jpgsave_picture_120251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120251.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Amadine 1.5.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120252.jpgsave_picture_120252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120252.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ iReal Pro 2024.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120253.jpgsave_picture_120253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120253.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ JD Allen - Americana, Vol. 2 (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120254.jpgsave_picture_120254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120254.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PullTube 1.8.5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120255.jpgsave_picture_120255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120255.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalco
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120256.jpgsave_picture_120256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120256.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ GraphicConverter 12 for Mac 12.1 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120257.jpgsave_picture_120257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120257.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ doubleTake 2.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120258.jpgsave_picture_120258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120258.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Indignatio - Principium (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120259.jpgsave_picture_120259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120259.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Boxy SVG 4.23.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120260.jpgsave_picture_120260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120260.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ EdgeView 4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120261.jpgsave_picture_120261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120261.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D74A68242F91B33ED82A73513955B00758166AD2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120262.jpgsave_picture_120262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120262.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Hazel 5.3.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120263.jpgsave_picture_120263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120263.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Noir – Dark Mode for Safari 2024.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120264.jpgsave_picture_120264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120264.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Magnum - Here Comes The Rain (2024) [FLAC|Lossless|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120265.jpgsave_picture_120265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120265.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Beyond Border - Gathering (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120266.jpgsave_picture_120266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120266.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:BE52484C67F194508BEF81677CE3A37703D9DE9B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120267.jpgsave_picture_120267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120267.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Kinga Glyk (Kinga Głyk) - Real Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120268.jpgsave_picture_120268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120268.jpg" />
 </div>
 
 

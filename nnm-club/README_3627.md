@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114677.jpgsave_picture_114677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114677.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B7AF8DDD6D4E0BD2C8F370D00C98C8F8F4935260
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114678.jpgsave_picture_114678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114678.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1EE9A71892FE465609BC4FBB8B73AA7AEF8C2B94
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114679.jpgsave_picture_114679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114679.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4ACFECE56DDD6EAA6ED1F8B396AD21F41C329DFE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114680.jpgsave_picture_114680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114680.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114681.jpgsave_picture_114681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114681.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A5DBA3E47F0A8CACA268CD1A66D0A30400877F92
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114682.jpgsave_picture_114682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114682.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8AAE1D1765C69753D82467FD3910242F142BBF64
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114683.jpgsave_picture_114683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114683.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A1C6EBC648D6F8A0B927F43108486A062004A27E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114684.jpgsave_picture_114684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114684.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:6C9A263166C5AC94561F3D584D2DE5ECA3915C9B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114685.jpgsave_picture_114685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114685.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Mandarin Chill Out, Vol. 4 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114686.jpgsave_picture_114686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114686.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:8DA32FC1A52677B4F91E6B8D91C4496950F1109C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114687.jpgsave_picture_114687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114687.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114688.jpgsave_picture_114688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114688.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Filmora - Редактор видео с AI 13.1.85 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114689.jpgsave_picture_114689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114689.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [ha
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114690.jpgsave_picture_114690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114690.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blue Brain Games | Артбук по игре The House of Da Vinci / The House 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114691.jpgsave_picture_114691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114691.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Straight to the Heart (Buddha-Bar) (2024) [MP3|320 Kbps] <Chillout, Relax, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114692.jpgsave_picture_114692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114692.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:6579F4CFEA141CDDEBD9D224D21F2D59DF4D3EF7
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114693.jpgsave_picture_114693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114693.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:01A4B0C398010133DA846ACE28BE23913A3CAE23
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114694.jpgsave_picture_114694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114694.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Electronic compilation part 60 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114695.jpgsave_picture_114695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114695.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:EC4A133DCB520373DD2A98C7713CB6C4D29A0D3D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114696.jpgsave_picture_114696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114696.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:2199E2BFDE0FCCC8E6B22B04D2CE157208F4BE6B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114697.jpgsave_picture_114697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114697.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114698.jpgsave_picture_114698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114698.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Crossroads 4: Fatal Truths (2024) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114699.jpgsave_picture_114699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114699.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:FF010DE7111C6DFEFE1A38B430E55CDB1F08EBE3
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114700.jpgsave_picture_114700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114700.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Imagine 1.5.1 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114701.jpgsave_picture_114701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114701.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:A091A7DE83674E3DF9139C89F4999A3B9BDE862B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114702.jpgsave_picture_114702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114702.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 10 Pro VL x64 21Н2 (build 19044.1706) by ivandubskoj 16.05.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234643.jpgsave_picture_234643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5A6274227E966EDC109C4A722F05FCC8D15D9209
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234644.jpgsave_picture_234644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234644.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Beat It Guitar Solos (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234645.jpgsave_picture_234645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234645.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Morass Of Molasses - End All We Know (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234646.jpgsave_picture_234646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234646.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Jett Black - Night Flight (1985) Reissue, Remastered, 2022, Bad Reputation [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234647.jpgsave_picture_234647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234647.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:045EA79AC63019B88230E2EAAE36C1807C8D294A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234648.jpgsave_picture_234648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234648.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ CCleaner Pro: ПО для очистки 6.4.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234649.jpgsave_picture_234649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234649.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:70B05751972B93853882FEDA82F3CF915A82BF3A
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234650.jpgsave_picture_234650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234650.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Laura Cox - Head Above Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Bl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234651.jpgsave_picture_234651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234651.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ House of Shakira - Xit (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234652.jpgsave_picture_234652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234652.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Angerot - The Profound Recreant (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234653.jpgsave_picture_234653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234653.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Transworld Identity - Seven Worlds (2023) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234654.jpgsave_picture_234654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234654.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:ED635B7A5E74A0BB8801A54CAB553902AC2D5F2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234655.jpgsave_picture_234655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234655.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:AFFDF379D407BBB3E19155A50BA89D90C5EE93D5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234656.jpgsave_picture_234656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234656.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bob Moses - The Silence in Between (Remixed) (2023) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234657.jpgsave_picture_234657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234657.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:C24E3CCBCF631A767C7EAF8029AE9E0FD9995735
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234658.jpgsave_picture_234658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234658.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Irvue 2.7.14 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234659.jpgsave_picture_234659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234659.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sarcator - Alkahest (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234660.jpgsave_picture_234660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234660.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:9AFF104212E86B641731C51B40D3F6CCE3475F68
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234661.jpgsave_picture_234661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234661.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7E0A7642BA12183A7B0FA9FBDD50C0928E553399
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234662.jpgsave_picture_234662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234662.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Tulus - Fandens Kall (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234663.jpgsave_picture_234663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234663.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:31E195FEFDFDD22D0955A4BFD320D6A61F71C774
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234664.jpgsave_picture_234664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234664.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:1EFE29B2286FCAA2FFCE9EEB8D51C52478FABA08
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234665.jpgsave_picture_234665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234665.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:E91B3EE13D69DA7664110F3014C753A9F1C039EB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234666.jpgsave_picture_234666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234666.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stats 2.8.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234667.jpgsave_picture_234667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234667.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:24F2F209E2153B621F06B78A679B17DB3939F7E7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234668.jpgsave_picture_234668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234668.jpg" />
 </div>
 
 

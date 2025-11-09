@@ -6,7 +6,7 @@ VA - Chillout Tour (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157410.jpgsave_picture_157410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157410.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MediaHuman YouTube Downloader 3.9.9.87 (1111) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157411.jpgsave_picture_157411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157411.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Monkey's Audio 10.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157412.jpgsave_picture_157412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157412.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:AE80A43BB22FB489811C68E95DC31BF3293C006F
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157413.jpgsave_picture_157413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157413.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:C44250AD08C34915E7189FCAE32ED202CA8A3E01
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157414.jpgsave_picture_157414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157414.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Microsoft Visual Studio 2019 Enterprise 16.3.10 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157416.jpgsave_picture_157416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157416.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E5A7FB1D8AC6AE3650DAEC8C9489E26833053AAF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157417.jpgsave_picture_157417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157417.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ MediaInfo 17.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157418.jpgsave_picture_157418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157418.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:69AC3934628CB043CB9D4016CC941664568BBECF
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157421.jpgsave_picture_157421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157421.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Hit News Vol. 11 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157422.jpgsave_picture_157422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157422.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ MacPilot 12 v12.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157423.jpgsave_picture_157423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157423.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:775BDB261C8037113D27F1513657AA849B11E078
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157424.jpgsave_picture_157424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157424.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:E35EF1A24B955913115385E5FE63D864311EC771
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157425.jpgsave_picture_157425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157425.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:2739FCE0B2ABB1F1E4ECC01001E1E0E9322858B2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157426.jpgsave_picture_157426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157426.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157427.jpgsave_picture_157427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157427.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:AEB47D6EAD014AEB0A224E106EC0446F8EBD3D57
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157428.jpgsave_picture_157428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157428.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:584FE6C2193F6D388F594892F13B95A2CAEC3152
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157430.jpgsave_picture_157430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157430.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ MediaHuman Audio Converter 1.9.6.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157431.jpgsave_picture_157431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157431.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:3FCE57AB61F62BF3B0B3F7FBBFCB9A2ABB838F62
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157432.jpgsave_picture_157432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157432.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1111) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157433.jpgsave_picture_157433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157433.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Stone Raiders - Truth To Power (2012) [FLAC|Lossless|tracks + .cue] <Eclectic Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157434.jpgsave_picture_157434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157434.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:EF710F4A6BDC48C594C1DAFEF7B8BF509068DEDD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157435.jpgsave_picture_157435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157435.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Ashampoo Burning Studio 21.3.0.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157436.jpgsave_picture_157436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157436.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ FireAlpaca 2.11.11 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157438.jpgsave_picture_157438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157438.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ XYplorer 23.90.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157439.jpgsave_picture_157439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157439.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Equilibrium: Pure Deep House (2018) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157440.jpgsave_picture_157440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157440.jpg" />
 </div>
 
 

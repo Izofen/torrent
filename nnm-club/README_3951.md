@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123221.jpgsave_picture_123221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123221.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:65EC0C099804D9CD6F82BC78F1029990C6DBFE11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123222.jpgsave_picture_123222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123222.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:37046773BD84513D584FCD99F8F8E5812F8A22F7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123223.jpgsave_picture_123223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123223.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:871D14C7F615D76FFA2552945A8A9F6711E2CFB7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123224.jpgsave_picture_123224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123224.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1AFD207D9E266848683ACAE2E8143F542973B954
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123225.jpgsave_picture_123225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123225.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3BB6CBC6B9B38D31C6ECE872AB7B9911C51F9902
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123226.jpgsave_picture_123226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123226.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:3D6C2C7B4F1336D3FF90CF339C9F0088CA50D642
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123227.jpgsave_picture_123227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123227.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:0CA4F0B7A7EB2E9FD0141F3175367C1FBFD53344
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123228.jpgsave_picture_123228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123228.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:548B8C2ABCB4C8CB4CD8A33D2526B0D0747EBE9B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123229.jpgsave_picture_123229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123229.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:BFB55931C5EDEEF89FC42F759BCD2587B0CAFD1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123230.jpgsave_picture_123230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123230.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Remnant II (2) (2023) [Ru/Multi] (402.015/dlc) Scene Rune [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123231.jpgsave_picture_123231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123231.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123232.jpgsave_picture_123232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123232.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:5A8250FFA679D1A2809E95483B2DC9E97426F38A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123233.jpgsave_picture_123233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123233.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123234.jpgsave_picture_123234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123234.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Avast Premium Security 23.11.6090 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123235.jpgsave_picture_123235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123235.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Clarity Vision - Clarity Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123236.jpgsave_picture_123236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123236.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Green Labyrinth - Studio Albums (2 releases) (2014-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123237.jpgsave_picture_123237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123237.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Infernal Poetry - Studio Albums (4 releases) (2002-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123238.jpgsave_picture_123238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123238.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Acid Enema - A Faint Light At The End Of The World (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123239.jpgsave_picture_123239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123239.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ McCoy Tyner - Passion Dance (1978) 2005, Original Jazz Classics [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123240.jpgsave_picture_123240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123240.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Teramaze - Are We Soldiers (2019) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123241.jpgsave_picture_123241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123241.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Athemon - Athemon (2022) Reissue, 2024, Athemon [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123242.jpgsave_picture_123242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123242.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Al-Namrood - 10 Years of Resistance (2018) [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123243.jpgsave_picture_123243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123243.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:DADB02171C9E835554D51F1A404B83A1873CA82F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123244.jpgsave_picture_123244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123244.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:B7E840E8B72C27198B500236663BB00B85A51866
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123245.jpgsave_picture_123245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123245.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.2 (2023) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123246.jpgsave_picture_123246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123246.jpg" />
 </div>
 
 

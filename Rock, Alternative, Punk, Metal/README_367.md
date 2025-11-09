@@ -6,7 +6,7 @@ Hawklords - Faith (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212389.jpgsave_picture_212389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212389.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aranda - Four0Five Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212401.jpgsave_picture_212401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212401.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Civil Daze - Once In A Blue Moon (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Melodic 
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212406.jpgsave_picture_212406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212406.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ David Gilmour - The Luck And Strange Concerts (2025) 2XCD, Japanese Edition [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212463.jpgsave_picture_212463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212463.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Remina - The Silver Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212518.jpgsave_picture_212518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212518.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ cLOUDs - Once Upon A Time... The Collection (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212664.jpgsave_picture_212664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212664.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:6CE5BA7A76BDFB30965E1B480D2114A146FB0FD9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213447.jpgsave_picture_213447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213447.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Frank Zappa - Halloween 78 (Super Deluxe - Live At The Palladium, NYC - October,
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213454.jpgsave_picture_213454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213454.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8BF11D9A1CEC570EA953591E4273BCA200905177
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213463.jpgsave_picture_213463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213463.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Crematory - Klagebilder (2006) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213467.jpgsave_picture_213467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213467.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AFCFF893E71D9C257E845C244C23273BFB3B779C
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213471.jpgsave_picture_213471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213471.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:DC1FFCAFEFD0682BC3E42861097FDC5ED0D5866A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213502.jpgsave_picture_213502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213502.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:400DB8238398B48C88F966F7C29DCAC4677DF0C8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213503.jpgsave_picture_213503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213503.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:D8546C477905C37834FA0CA09DC6B3F988685E03
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213594.jpgsave_picture_213594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213594.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Glen Matlock - Consequences Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213600.jpgsave_picture_213600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213600.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Magnum - On A Storyteller’s Night (1985) Japanese Edition, Reissue, Remastered
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213617.jpgsave_picture_213617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213617.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Long Voyage Back - Close to Animal (2002) [FLAC|Lossless|image + .cue] <Gothic, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213632.jpgsave_picture_213632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213632.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213634.jpgsave_picture_213634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213634.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Decadents - Lost in Translation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213636.jpgsave_picture_213636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213636.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Liverbox - The Great Spirit Of Rock 'n' Roll (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213673.jpgsave_picture_213673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213673.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Tania Kikidi - Wings of Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213685.jpgsave_picture_213685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213685.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Shores of Null - Quiet Whispers (Unplugged at Traffic Garden) (2021) Live albom 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213694.jpgsave_picture_213694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213694.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Vanta - Empire On Fire (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213698.jpgsave_picture_213698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213698.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213705.jpgsave_picture_213705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213705.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Shores of Null - The Loss of Beauty (2023) [MP3|320 Kbps] <Melodic Black, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213717.jpgsave_picture_213717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213717.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Ascendants of Kings - Ellisius (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213742.jpgsave_picture_213742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213742.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137001.jpgsave_picture_137001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137001.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2BF195AEDB0640DB4EF88771C7E2BCDC8E565BDE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137002.jpgsave_picture_137002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137002.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137003.jpgsave_picture_137003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137003.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:80B553439C74DF68CE5CE41958607F06E45B3DAB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137004.jpgsave_picture_137004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137004.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137005.jpgsave_picture_137005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137005.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C9585581C71E4947111D6D7E19FC5BB22A905615
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137006.jpgsave_picture_137006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137006.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8CFD248375310190BF7A6F34007D16644B5BCEB7
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137008.jpgsave_picture_137008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137008.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:81E9A155CADE8605A573B5E15854782A10EA5873
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137009.jpgsave_picture_137009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137009.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:FC86548F4F3332DAC3E0C850ED5D9B7EA7D50651
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137010.jpgsave_picture_137010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137010.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F5FC6A801EEF298A754BF64931ADD119C338004C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137011.jpgsave_picture_137011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137011.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Dark Light (2020) [Multi] (1.0.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137012.jpgsave_picture_137012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137012.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137013.jpgsave_picture_137013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137013.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ All activation Windows (7-8-10) v2 [Multi/Ru] (авторская раздача
 >>24
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137015.jpgsave_picture_137015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137015.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:DEDCDEDB1A4C967B6EBE944B36F79838845D7FB0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137016.jpgsave_picture_137016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137016.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:60482FF8EBB9FA3B953B9C5684062BC801F876D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137017.jpgsave_picture_137017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137017.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:EC704E94019D7DC8B763278FD1372ABE2B3CA86D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137018.jpgsave_picture_137018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137018.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:1A0F3DFB00A14365AA43EEA90A9066650F71B281
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137019.jpgsave_picture_137019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137019.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:FA4F11AC2CC4AB4B77F8D07C201E1AE0E836FC77
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137020.jpgsave_picture_137020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137020.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Fade to Silence (2019) [Ru/Multi] (1.0.2025hf) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137021.jpgsave_picture_137021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137021.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:45C152150D53C0F6B99C688E3160C588139D8F64
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137022.jpgsave_picture_137022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137022.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:00824A43C0148CB3A5A7D6A1C6EF203EB7CF2379
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137023.jpgsave_picture_137023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137023.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:8F0932387ABA25C9716F3F4EF070E7B9FCD2C98D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137024.jpgsave_picture_137024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137024.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:1129C997D8C0C6C4CE2343AF342C7544B2E6F1D9
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137025.jpgsave_picture_137025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137025.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:C83CE739D4F923E5C1DB74AA709F828BB41C90AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137026.jpgsave_picture_137026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137026.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:E9DCB48C09CB2D2A5EA5CD10AA287FF2EFD83A7E
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137027.jpgsave_picture_137027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137027.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:5E1CFC5517DA400BD50290D4D94D4BD35E020D14
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137028.jpgsave_picture_137028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137028.jpg" />
 </div>
 
 

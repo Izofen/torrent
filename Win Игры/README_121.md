@@ -6,7 +6,7 @@ Detectives United 7: Mission Possible / Лига детективов 7: Мис�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34595.jpgsave_picture_34595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34595.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Maze of Realities 5: Synergy of Worlds / Лабиринт Реальностей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34599.jpgsave_picture_34599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34599.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shredder 13 + DeepShredder 13 (2016) [Multi] (13) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34616.jpgsave_picture_34616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34616.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Grim Tales 25: Light in the Darkness / Страшные сказки 25: Све�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34621.jpgsave_picture_34621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34621.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bridge to Another World 12: The Christmas Curse / Мост в другой ми�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34632.jpgsave_picture_34632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34632.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack FitGirl [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34639.jpgsave_picture_34639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34639.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Aurora Hills: Chapter 1 / Аврора-Хиллз: Глава 1 (2024) [Ru/Multi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34648.jpgsave_picture_34648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34648.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34651.jpgsave_picture_34651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34651.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Karate Survivor (2024) [Ru/Multi] (1.2.0.277/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34666.jpgsave_picture_34666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34666.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Twin Mind 5: The Deathly Trick / Двуединое сознание 5: Смер
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34677.jpgsave_picture_34677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34677.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Strange Investigations 4: Truth Will Out / Удивительные рассле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34680.jpgsave_picture_34680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34680.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Primateria (2023) [Multi] (2.17.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34749.jpgsave_picture_34749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34749.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sun Haven (2023) [Ru/Multi] (1.7.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34758.jpgsave_picture_34758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34758.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Chasm (2018) [Multi] (1.093) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34762.jpgsave_picture_34762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34762.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34817.jpgsave_picture_34817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34817.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34826.jpgsave_picture_34826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34826.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Let'sРlay [Complete 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34837.jpgsave_picture_34837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34837.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ CONSCRIPT (2024) [Ru/Multi] (1.0.1.2/dlc) Repack Let'sРlay [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34838.jpgsave_picture_34838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34838.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34840.jpgsave_picture_34840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34840.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Outlanders (2023) [Ru/Multi] (Build 16661186/dlc) Repack Let'sРlay [Complete Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34851.jpgsave_picture_34851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34851.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34873.jpgsave_picture_34873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34873.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34878.jpgsave_picture_34878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34878.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Railbound (2022) [Multi] (3.06) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34879.jpgsave_picture_34879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34879.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Alder's Blood: Prologue (2020) [En] (1.0.20a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34888.jpgsave_picture_34888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34888.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ticket to Ride (2023) [Multi] (1.6.0/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34912.jpgsave_picture_34912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34912.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Fatal Midnight (2024) [Ru/Multi] (Build 16185793) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34916.jpgsave_picture_34916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34916.jpg" />
 </div>
 
 

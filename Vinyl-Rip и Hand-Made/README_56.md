@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233757.jpgsave_picture_233757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233757.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233869.jpgsave_picture_233869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233869.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233980.jpgsave_picture_233980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233980.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234242.jpgsave_picture_234242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234242.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C2790C2EB12578DDB8E8939DB4CD50EF1643E1ED
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234631.jpgsave_picture_234631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234631.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:6CAD26BF0A0C9FA18BA2436F744B4FB8201ABA93
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235260.jpgsave_picture_235260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235260.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235348.jpgsave_picture_235348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235348.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235630.jpgsave_picture_235630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235630.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:7ACB39F6A822F85F74B3091BAC2ED8668239BAAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235659.jpgsave_picture_235659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235659.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235786.jpgsave_picture_235786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235786.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235909.jpgsave_picture_235909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235909.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235963.jpgsave_picture_235963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235963.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236092.jpgsave_picture_236092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236092.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236104.jpgsave_picture_236104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236104.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236312.jpgsave_picture_236312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236312.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237196.jpgsave_picture_237196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237196.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Tom Jones/Том Джонс - Лучшие песни из репертуара.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237201.jpgsave_picture_237201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237201.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237215.jpgsave_picture_237215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237215.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237227.jpgsave_picture_237227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237227.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карр
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237241.jpgsave_picture_237241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237241.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237259.jpgsave_picture_237259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237259.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237289.jpgsave_picture_237289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237289.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237318.jpgsave_picture_237318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237318.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237374.jpgsave_picture_237374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237374.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Helloween - Легенды Зарубежного Рока (2000) Compilation, U
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237412.jpgsave_picture_237412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237412.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237534.jpgsave_picture_237534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237534.jpg" />
 </div>
 
 

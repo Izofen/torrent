@@ -6,7 +6,7 @@ Yum Audio - Spread 1.7.1 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33661.jpgsave_picture_33661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33661.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:10BDD7C226D57C926C2B59975950960EF2B47CB2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33662.jpgsave_picture_33662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33662.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Text Editor Pro 31.1.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33663.jpgsave_picture_33663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33663.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33664.jpgsave_picture_33664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33664.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ KORG - Opsix Native 1.3.0 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33665.jpgsave_picture_33665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33665.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Blue October - Happy Birthday (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33666.jpgsave_picture_33666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33666.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:733FA65AC83D38FE35E9862B2776617DDB35F83F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33667.jpgsave_picture_33667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33667.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4A0DC527851F49B7ED651B9EDFD06869C124DEC8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33668.jpgsave_picture_33668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33668.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33669.jpgsave_picture_33669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33669.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33670.jpgsave_picture_33670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33670.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Franzis BLACK & WHITE Pro 8.25.04078 Portable by Spirit Summer [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33671.jpgsave_picture_33671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33671.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:3BF00A2C02BA61E179191090D6808A106950CDB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33672.jpgsave_picture_33672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33672.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33673.jpgsave_picture_33673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33673.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7EFBFEE842CC8B7BB645068739771903C8B094C8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33674.jpgsave_picture_33674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33674.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ XRecode 3 1.160 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33675.jpgsave_picture_33675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33675.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FACD65F8E50DD336545CEE56076CA078D4982722
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33676.jpgsave_picture_33676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33676.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:9B9E8CF0F493AF6769B08573BE3C109C6871F5BE
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33677.jpgsave_picture_33677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33677.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Jimmy Carpenter - Just Got Started (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33678.jpgsave_picture_33678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33678.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Spiritfarer Netflix Edition v1.5.8 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33679.jpgsave_picture_33679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33679.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ IObit Uninstaller Pro 14.1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33680.jpgsave_picture_33680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33680.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Pocket Rogues: Ultimate v1.37.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33681.jpgsave_picture_33681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33681.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:321FE5DA69A79D96C0E6E6A188ADEBD3CAD14448
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33682.jpgsave_picture_33682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33682.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:49EBDFFDB72251E3082453607C878EA47C4BC990
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33683.jpgsave_picture_33683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33683.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33684.jpgsave_picture_33684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33684.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33685.jpgsave_picture_33685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33685.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:77DE3CDDCB3BE0223FA86788EE841F50796E38BD
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33686.jpgsave_picture_33686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33686.jpg" />
 </div>
 
 

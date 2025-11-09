@@ -6,7 +6,7 @@ Auslogics BoostSpeed 10.0.1.0  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153469.jpgsave_picture_153469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153469.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4DBD4E114F20C5437C804179D243780EDE7BB2BA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153471.jpgsave_picture_153471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153471.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E3B27C6F16377B4A08C681F844648F6051F0A1F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153472.jpgsave_picture_153472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153472.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:983F8C1604F43F57090F78B2DEB69D960A623480
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153474.jpgsave_picture_153474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153474.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:582A94E62FC11E514C4B508CE4EC4734DBF491DA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153476.jpgsave_picture_153476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153476.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Grant Green - Remembering (1961) 2013, Essential Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153477.jpgsave_picture_153477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153477.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Tapatunya | Сборник произведений [8 книг] (2019-2020) [FB
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153478.jpgsave_picture_153478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153478.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ WinUtilities Professional Edition 12.25 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153479.jpgsave_picture_153479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153479.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:91FDAEF8C447087F840679299AC12C521162812F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153480.jpgsave_picture_153480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153480.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Scrutiny 6.8.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153481.jpgsave_picture_153481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153481.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Artlantis 2021 v9.5.2.25095 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153482.jpgsave_picture_153482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153482.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153484.jpgsave_picture_153484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153484.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:5419944191261D5C819C51F1E39E6C59E8E13DAD
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153485.jpgsave_picture_153485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153485.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:80677AE32EDCEC7D081BE1CD6AEED3E660F401CD
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153486.jpgsave_picture_153486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153486.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:E8153228689861B98148E2D1363976E47D85A589
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153487.jpgsave_picture_153487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153487.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - House In My Head New Edition (2016) [MP3|320 Kbps] <Electro House, Dance, C
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153489.jpgsave_picture_153489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153489.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Lantern: Лучше, чем VPN v6.8.10 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153490.jpgsave_picture_153490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153490.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - не Громкие новинки недели 92 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153491.jpgsave_picture_153491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153491.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Earthside - Let The Truth Speak (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153492.jpgsave_picture_153492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153492.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:54E5E6E8E5BAD432F0D4AD66CC56E3B06C76FE6B
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153493.jpgsave_picture_153493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153493.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:4D5BC15105E504CFC606AEFC08384B3CD74AA8A3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153494.jpgsave_picture_153494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153494.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Urashimasakatasen no Nichijou | Days of Urashimasakatasen | Деньки Ура�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153495.jpgsave_picture_153495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153495.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Empire Records - Club Hit 3 (2016) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153496.jpgsave_picture_153496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153496.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:7B13AC4F23A3ADD9ED81C666532DAF43FF69CFE2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153497.jpgsave_picture_153497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153497.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Glary Utilities Pro 5.157.0.183 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153498.jpgsave_picture_153498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153498.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:9C26CC06458F9E08B095BD868AF0974F19181A94
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153499.jpgsave_picture_153499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153499.jpg" />
 </div>
 
 

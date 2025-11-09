@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68402.jpgsave_picture_68402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68402.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CCB3EF14E3AB06FB6E5DF5DB1CB13EFF933C3982
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68403.jpgsave_picture_68403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68403.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Lethal X - 90 Tons Of Thunder (2025) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68404.jpgsave_picture_68404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68404.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:87142FF4B8FEB525C47D306C148DF1997E67594D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68405.jpgsave_picture_68405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68405.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:E45AC01B007F21BA2781583B4DB4DF8F3ACFE6C3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68406.jpgsave_picture_68406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68406.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:1B51D5CCD2F57D33E6F1FA5CA9FD43D1A5E007EA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68407.jpgsave_picture_68407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68407.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:9BBAA897B920F5620F7D28B7403161DD1B64C22C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68408.jpgsave_picture_68408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68408.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Groove Xanadu - Groove Xanadu (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68409.jpgsave_picture_68409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68409.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Eddie B - No Record for My Good (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68410.jpgsave_picture_68410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68410.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Derek Mc Gowan - Live at Matts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68411.jpgsave_picture_68411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68411.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Bob Corritore - Doin' The Shout (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68412.jpgsave_picture_68412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68412.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Delta Cream - El Desierto (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68413.jpgsave_picture_68413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68413.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Cisco Herzhaft - Roots & B4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68414.jpgsave_picture_68414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68414.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Between the Lines (Norway) - Back to the Blues EP (2025) [FLAC|Lossless|WEB-DL|t
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68415.jpgsave_picture_68415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68415.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:613EBF41C97AE748E931B711C49ABA00016B6AF2
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68416.jpgsave_picture_68416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68416.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Blues Mucus - Blandad Kompost (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68417.jpgsave_picture_68417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68417.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68418.jpgsave_picture_68418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68418.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68419.jpgsave_picture_68419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68419.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Aeonian Sorrow - Studio Albums (4 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68420.jpgsave_picture_68420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68420.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:BBC99651D76B408754434EA309F642C11CC108EB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68421.jpgsave_picture_68421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68421.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:0AC013FA97024B17D5E9591C2980BDE9DC2D67E0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68422.jpgsave_picture_68422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68422.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 2 | Thunderbolt Fantasy: Sword Seekers 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68423.jpgsave_picture_68423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68423.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:DC33026C640C02D4CABE0213C03D6B59FCA1F7BF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68424.jpgsave_picture_68424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68424.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:7063D32F468D38A841CD05CA764B2A0BD25E485A
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68425.jpgsave_picture_68425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68425.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Blut Reaktor - Plastic Bitch (2025) [MP3|320 Kbps] <Dark Electro, Electro-Indust
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68426.jpgsave_picture_68426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68426.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - 25 Years Of Anjuna Mixed By Nourey (2025) [MP3|320 Kbps] <Trance, Progressi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68427.jpgsave_picture_68427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68427.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53901.jpgsave_picture_53901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53901.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 10 Professional 22H2 x64 Game OS 1.7 by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53902.jpgsave_picture_53902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53902.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VLC Media Player 3.0.21 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53903.jpgsave_picture_53903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53903.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Stronghold (2023) [Ru/En] (1.2/dlc) Repack dixen18 [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53904.jpgsave_picture_53904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53904.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.1170.0.8/dlc) Repack dix
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53905.jpgsave_picture_53905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53905.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Ventoy 1.0.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53906.jpgsave_picture_53906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53906.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A0F8F015CBBA0D0D60212D65B1D14822A7927036
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53907.jpgsave_picture_53907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53907.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7486CC1C6658D5C918C381616BF35D68686A7251
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53908.jpgsave_picture_53908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53908.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C666C7797E186EE4189E911DF73279084347238A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53909.jpgsave_picture_53909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53909.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:450F5736F28C9F5266E28282149427FFF47958D7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53910.jpgsave_picture_53910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53910.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VMware Workstation Player 17.5.2 Build 23775571 Free [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53911.jpgsave_picture_53911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53911.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:16A3E43D3DBCA75C8B88CC7F30DE6F7010E4AA22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53912.jpgsave_picture_53912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53912.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:2E9A432E037216F821C9FC39183C129EEAD2F6C4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53913.jpgsave_picture_53913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53913.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:58E471E226D810797359AAAD3DD5D6DC36957153
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53914.jpgsave_picture_53914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53914.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:5E2A2497A74FEDC30343DE3CE09D548020BA20A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53915.jpgsave_picture_53915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53915.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:E7748D32E33E98B1A11F1B35BD627B969C8107B2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53916.jpgsave_picture_53916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53916.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:7BAE4FFE2DFB0B7CA59A10E2A6C8FD6F263AF512
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53917.jpgsave_picture_53917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53917.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53918.jpgsave_picture_53918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53918.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:77E50A26DC4E0DDE07DFCE13617FE5B0BE76EC2D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53919.jpgsave_picture_53919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53919.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ TechSmith Camtasia 2024 24.0.0 (Build 1041) (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53920.jpgsave_picture_53920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53920.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:658DE161A6591ECEF5023B32F7C45D429EFBE0F0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53921.jpgsave_picture_53921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53921.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Compilation Easy Listening part 85 (2024) [MP3|320 Kbps] <Instrumental, Eas
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53922.jpgsave_picture_53922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53922.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:2D711C8E629C57C3551D37C2D82F5BBCAA18E666
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53923.jpgsave_picture_53923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53923.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:5C605F1601629C15572E3DECA325441AB2C3A8A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53924.jpgsave_picture_53924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53924.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:5C605F1601629C15572E3DECA325441AB2C3A8A8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53925.jpgsave_picture_53925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53925.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ultimaker Cura 5.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53926.jpgsave_picture_53926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53926.jpg" />
 </div>
 
 

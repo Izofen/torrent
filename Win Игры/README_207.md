@@ -6,7 +6,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78868.jpgsave_picture_78868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78868.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0C9BCB467F8F5A35BE8D06FBAAC1DAF5D2968FD1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79273.jpgsave_picture_79273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79273.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7A5AEC7B32A7EC4D2430D0D06DED48E3E82B18D0
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79515.jpgsave_picture_79515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79515.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Sims Carnival BumperBlast (L) [En] 2008
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79555.jpgsave_picture_79555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79555.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Space Lines (L) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79566.jpgsave_picture_79566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79566.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ My Diary / Мой дневник (L) [Ru/En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79599.jpgsave_picture_79599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79599.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Turtle Odyssey 2 / Одиссея Черепашки 2 (P) [Ru] 2007
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79639.jpgsave_picture_79639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79639.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:11E74CB3E7E7AAA5660B958FBB7B6465DBA68C9D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79658.jpgsave_picture_79658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79658.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:DA9A1ECD249DF5AF6FFB6DEFE8F1D5E99493A87A
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80008.jpgsave_picture_80008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80008.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Billiards Pyramid (L) [En] (2011)
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80031.jpgsave_picture_80031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80031.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2C9DAA6C30627A7DDEA1658BA7FC43A8488A0D59
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80049.jpgsave_picture_80049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80049.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:5C57FD6002DE8F4A9784EA2F1E3B96D0BC14C6F3
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80068.jpgsave_picture_80068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80068.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80222.jpgsave_picture_80222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80222.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:C1EFDECE3D7A529DB665BD50B0530CB2C71D9202
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80329.jpgsave_picture_80329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80329.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Whispers / Шепот (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80746.jpgsave_picture_80746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80746.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:9C2D6A75B906D3A60BBC2B9D338CA20690AF73B4
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80807.jpgsave_picture_80807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80807.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Delicious 7: Emily's True Love. Premium Edition / Деликатесы Эмил�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80866.jpgsave_picture_80866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80866.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:EF3FAAF1FDEE416246060E40790CD9E26F967F4F
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80908.jpgsave_picture_80908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80908.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Katty and Bob: Tropical Rush / Кэти и Боб. Вперед домой (P) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81048.jpgsave_picture_81048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81048.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Major League Baseball 2K12 (Lossless Repack) [En] 2012 | R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81073.jpgsave_picture_81073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81073.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81180.jpgsave_picture_81180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81180.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Lost Horizon [Ru] (RePack) 2010 | LandyNP2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81487.jpgsave_picture_81487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81487.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Ambulance Simulator 2012 (L) [Ge/En] 2012 | TiNYiSO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81742.jpgsave_picture_81742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81742.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81764.jpgsave_picture_81764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81764.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Brink of Consciousness: Dorian Gray Syndrome. Collectors Edition / Край со
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81909.jpgsave_picture_81909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81909.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Blade Kitten (Р) [Ru] 2010
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81918.jpgsave_picture_81918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81918.jpg" />
 </div>
 
 

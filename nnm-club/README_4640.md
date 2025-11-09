@@ -6,7 +6,7 @@ Comfy Photo Recovery 4.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145242.jpgsave_picture_145242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145242.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D182EADC47C6EDA92AFC158C8A963DC4230CA1CF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145243.jpgsave_picture_145243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145243.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8C0EED7C85A1E45DA6460DAB69B3280DD257EB02
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145244.jpgsave_picture_145244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145244.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1AA2164085E293361BFFA12B6D521B3BCED62E0D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145245.jpgsave_picture_145245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145245.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4ACD78FAA9D1280CBC0A99641BE71CC1A5BFDE2D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145246.jpgsave_picture_145246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145246.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ VA - Музыкальные новинки mp3. Сборник № 7 (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145247.jpgsave_picture_145247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145247.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Aimp v4.05.1382 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145248.jpgsave_picture_145248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145248.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:46BFC93C1D65E3C5E00280582F93A5DA465BFC77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145249.jpgsave_picture_145249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145249.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7E0173D996701EF8FEFDD3C4F86653AB9528D256
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145250.jpgsave_picture_145250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145250.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:68D0AC80613262E658AE4B04A1C5092FA9514A77
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145252.jpgsave_picture_145252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145252.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:212C0BC96C01AE283F93E352AF645CBC4D065600
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145253.jpgsave_picture_145253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145253.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:3081648DD0339AE5D325872A02410F30594A5180
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145254.jpgsave_picture_145254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145254.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:FD23297513E62F803D12DF6B7933FADCFC94A288
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145255.jpgsave_picture_145255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145255.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:868B8F2719E1EA7671A313ECE1CCF2AFB5077783
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145257.jpgsave_picture_145257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145257.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:20894159A87C70A7C4004044FD039363D284E9B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145258.jpgsave_picture_145258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145258.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:20894159A87C70A7C4004044FD039363D284E9B4
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145259.jpgsave_picture_145259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145259.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:4FA34139FF32E09932D4B277A82FE6999E1B618B
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145260.jpgsave_picture_145260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145260.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:F8F8049C6DB77EA971C1160B3415EF1DF39DB96E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145262.jpgsave_picture_145262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145262.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145263.jpgsave_picture_145263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145263.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:241D689B10D309689BAD40F77A1019690A4D161B
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145266.jpgsave_picture_145266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145266.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Topaz Video AI 4.0.5 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145267.jpgsave_picture_145267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145267.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Зимние мега хиты. Русская версия (2016) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145268.jpgsave_picture_145268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145268.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Vezér 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145269.jpgsave_picture_145269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145269.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E5D2E4534691979FF88C0F5E795924B399D2A525
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145270.jpgsave_picture_145270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145270.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Wolf Hoffmann - Compilation (2021) [MP3|320 Kbps] <Rock, Instrumental>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145272.jpgsave_picture_145272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145272.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:47EF96CF65F2E0A21D89010E78A4B3C0BED3FFBE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145273.jpgsave_picture_145273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145273.jpg" />
 </div>
 
 

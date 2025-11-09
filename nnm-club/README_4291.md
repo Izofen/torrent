@@ -6,7 +6,7 @@
 >>50
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133197.jpgsave_picture_133197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133197.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133198.jpgsave_picture_133198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133198.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133199.jpgsave_picture_133199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133199.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:D7F78B96300FA1381CE6E00916D37001CE292A04
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133200.jpgsave_picture_133200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133200.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:4D405C8CC59B9D8D7134118D82577B07DAB75D9C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133201.jpgsave_picture_133201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133201.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133203.jpgsave_picture_133203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133203.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133204.jpgsave_picture_133204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133204.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133205.jpgsave_picture_133205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133205.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:5E99BEA474B2E72172CDD0C6DB0BA3E980CF6AB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133207.jpgsave_picture_133207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133207.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:65577B0315B76CCB30F4B96A0E1201F0C6EF3D13
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133209.jpgsave_picture_133209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133209.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Final Cut Pro X 10.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133211.jpgsave_picture_133211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133211.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:9195CE343E39F38871FB68CE356705104092D945
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133213.jpgsave_picture_133213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133213.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:9195CE343E39F38871FB68CE356705104092D945
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133215.jpgsave_picture_133215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133215.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133217.jpgsave_picture_133217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133217.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Connie Evingson - 8 Альбомов (1995 - 2012) [MP3|320 кб/с]<Vocal Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133218.jpgsave_picture_133218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133218.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Connie Evingson - 8 Альбомов (1995 - 2012) [MP3|320 кб/с]<Vocal Jazz>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133219.jpgsave_picture_133219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133219.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:F667CCE830751D37D86359AEF4EF9DF9D34B9B95
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133220.jpgsave_picture_133220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133220.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:9CD8DFBCBB103A33BB8C92BB01407727A6E400E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133221.jpgsave_picture_133221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133221.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ GoodbyeDPI 0.2.2 Launcher 6.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133223.jpgsave_picture_133223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133223.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:DFDD8B8F96F3D18BFAE4A6AE104217103DC2E959
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133224.jpgsave_picture_133224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133224.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:7FD6E7908F06F0366D0C78697CA84C615E174237
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133225.jpgsave_picture_133225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133225.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133227.jpgsave_picture_133227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133227.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Jazzy Market (2010) [MP3|320 kbps] <Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133228.jpgsave_picture_133228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133228.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:389280BB12E6D844D4BF56EC4F89874A8F62D11A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133229.jpgsave_picture_133229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133229.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (s1.021s/dlc) Repack Other
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133231.jpgsave_picture_133231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133231.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:027D7DD0712E3537EF1944A38402BF9161EF2C97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133233.jpgsave_picture_133233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133233.jpg" />
 </div>
 
 

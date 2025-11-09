@@ -6,7 +6,7 @@ VA - Armada Music - Trance Legacy III (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30827.jpgsave_picture_30827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30827.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Anfitrite - Clitemnestra (2025) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30828.jpgsave_picture_30828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30828.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Watercolor Jazz Inspiration (2024) [MP3|320 Kbps] <Jazz, Instrumental, Impr
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30829.jpgsave_picture_30829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30829.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30830.jpgsave_picture_30830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30830.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:4123C2CC3A2E8F1794DCB222182C83441B531B8B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30831.jpgsave_picture_30831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30831.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Love Lounge, Vol 4 (2025) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30832.jpgsave_picture_30832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30832.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Monk Rules the Rhino - Fuzzy Unicorn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30833.jpgsave_picture_30833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30833.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ David Rose - Songs for You (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30834.jpgsave_picture_30834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30834.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [AAC|320 Kbps] <Electronic, Synth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30835.jpgsave_picture_30835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30835.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:E62FC4BCEDCF0E83B06ED8A5A6752DB27F03EB34
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30836.jpgsave_picture_30836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30836.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Always Progressive, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House, Melodi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30837.jpgsave_picture_30837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30837.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:96A877BFB7F0B38E9542025A144394F3D539BD9B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30838.jpgsave_picture_30838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30838.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Sangin Nam - Timeless Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30839.jpgsave_picture_30839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30839.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ From. ____ - Coffee for two (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30840.jpgsave_picture_30840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30840.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:877AC4C2FC9AC8FBA24C87876B4453623F1514BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30841.jpgsave_picture_30841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30841.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Zed Charles - Hear My Word (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30842.jpgsave_picture_30842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30842.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Crimson Storm - Livin' On The Bad Side (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30843.jpgsave_picture_30843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30843.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Allison Miller & One O'Clock Lab Band - Big & Lovely (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30844.jpgsave_picture_30844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30844.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Iron Jaw - Cursed (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30845.jpgsave_picture_30845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30845.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Exorddium - Observador das Eras (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30846.jpgsave_picture_30846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30846.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Nikki Jones Band - Battle Me Up (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30847.jpgsave_picture_30847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30847.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Carl Allen - Tippin' (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30848.jpgsave_picture_30848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30848.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Deodato - 2 (1988) [FLAC|Lossless]<Jazz, Latin Jazz, Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30849.jpgsave_picture_30849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30849.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Wise Care 365 Pro 7.1.1.694 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30850.jpgsave_picture_30850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30850.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Muhammad H. Rashid (ed.) | Power Electronics Handbook (2006) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30851.jpgsave_picture_30851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30851.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:DCEC735993EB7CFC88802CD82373B389D82727CA
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30852.jpgsave_picture_30852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30852.jpg" />
 </div>
 
 

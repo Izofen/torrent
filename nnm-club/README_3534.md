@@ -6,7 +6,7 @@ Tad Morose - A Mended Rhyme (1997) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112257.jpgsave_picture_112257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112257.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tad Morose - Undead (2000) [FLAC|Lossless|image + .cue] <Progressive Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112258.jpgsave_picture_112258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112258.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:0D0CD445549764C6324FA6462458C663324C655A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112259.jpgsave_picture_112259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112259.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A2DC45EC2845A6ADE1A9B1794A86707FE5572A8A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112260.jpgsave_picture_112260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112260.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:5A1F2E453E0059F48869D5E9F8073888D7AE612B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112261.jpgsave_picture_112261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112261.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B3DA5E54A3B597889A6CFE46C26FE75A327B92C7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112262.jpgsave_picture_112262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112262.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:BE69D7CA34F8E4A03F05CD2562B3B5CEF2F79F2E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112263.jpgsave_picture_112263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112263.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:E03F9B6C5DCF1A8FA130343FAAF193315CB631A0
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112264.jpgsave_picture_112264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112264.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Text Edit Plus 14.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112265.jpgsave_picture_112265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112265.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112266.jpgsave_picture_112266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112266.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Tad Morose - Matters of the Dark (2002) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112267.jpgsave_picture_112267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112267.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:6A118829623CB1F3565C61F1E5B3EFC600B01045
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112268.jpgsave_picture_112268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112268.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Tin Idols - Jesus Christ Supernova : The Heavy Metal Soundtrack (2013) 2CD [MP3|
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112269.jpgsave_picture_112269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112269.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:F5415D2A9B362BB697C404A19CF425ECBB3A8456
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112270.jpgsave_picture_112270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112270.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Emilie Simon - Polaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112271.jpgsave_picture_112271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112271.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ CudaText 1.211.4.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112272.jpgsave_picture_112272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112272.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Unleash The Tapir - Unleash The Tapir (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112273.jpgsave_picture_112273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112273.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:8D4A06A64840A01C7F6A4132BF151E4DDE08756D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112274.jpgsave_picture_112274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112274.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Lockeheart - All Of Us Divine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112275.jpgsave_picture_112275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112275.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Stoned Turtle - Blackout (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112276.jpgsave_picture_112276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112276.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Flood - Ripped Into Exile (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112277.jpgsave_picture_112277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112277.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Candi Carpenter - Demonology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112278.jpgsave_picture_112278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112278.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by Eco19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112279.jpgsave_picture_112279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112279.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Leviathan Project - MCMLXXXII (2024) [MP3|320 Kbps] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112280.jpgsave_picture_112280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112280.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:5AAAB8B03DD04B1A9252029CA58A6E99BE4225EC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112281.jpgsave_picture_112281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112281.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:BD6A98C23BD85B1BABD0181C446C675CBE417C76
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112282.jpgsave_picture_112282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112282.jpg" />
 </div>
 
 

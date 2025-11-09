@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252215.jpgsave_picture_252215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252215.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Air: Большой прыжок / Air (2023) WEB-DLRip [H.264] [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252216.jpgsave_picture_252216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252216.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Timesavervfx, Юлия Корчагина| Моушн-графика в Davinci 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252217.jpgsave_picture_252217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252217.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:9A9B6E7C44D6BB2E842C8E2B86385F9D5F49111A
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252218.jpgsave_picture_252218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252218.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Windows 7 Professional SP1 build: 7601 VL x86/x64 with update 10.05.2023 by Spik
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252219.jpgsave_picture_252219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252219.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Alexcode, Алексей Леонов | Разработчик 1С с нуля (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252220.jpgsave_picture_252220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252220.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:4773D321E7E75B380E2F9CA8000E5A2394DA12A7
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252221.jpgsave_picture_252221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252221.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252222.jpgsave_picture_252222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252222.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:4522EE202E2AA6EF3C3AAB5873C7A26C44EEC601
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252223.jpgsave_picture_252223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252223.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:D406E91C753E3CA44D9F5F0D5D0931BE81FED782
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252224.jpgsave_picture_252224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252224.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:80B45EAE214BC17DCE970E596F6C4140FF9950F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252225.jpgsave_picture_252225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252225.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:3265CDF450F661BCCBB2C9471A2DC7C71F9146B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252226.jpgsave_picture_252226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252226.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1726 (Updated May 2023) - О�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252227.jpgsave_picture_252227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252227.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 16.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252228.jpgsave_picture_252228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252228.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Trimble Tekla Structures 2023 SP3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252229.jpgsave_picture_252229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252229.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Microsoft принудительно обновит Windows 10 21H2 до фин�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252230.jpgsave_picture_252230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252230.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Microsoft принудительно обновит Windows 10 21H2 до фин�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252231.jpgsave_picture_252231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252231.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:E06E8C24F66BA7D66B60023F2CE607A2F8A13254
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252232.jpgsave_picture_252232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252232.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Mark Knopfler - Headin' Home (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252233.jpgsave_picture_252233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252233.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Jethro Tull's Ian Anderson - 53 albums, 16 Box sets, 222CD (1968-2023) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252234.jpgsave_picture_252234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252234.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Adobe Premiere Pro 2023 23.4.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252235.jpgsave_picture_252235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252235.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:92CD607BF38CE5AA95CAB855AAC113F96D07234D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252236.jpgsave_picture_252236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252236.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ CyberYozh Academy, Евгений Ивченков | Комплексная на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252237.jpgsave_picture_252237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252237.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Adobe After Effects 2023 23.4.0.53 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252238.jpgsave_picture_252238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252238.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:BBF50C7F655307D32FB49BB0494CF77E4816BD14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252239.jpgsave_picture_252239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252239.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Resident Evil 4 (2023) [Ru/Multi] (11025382/dlc) Repack DjDI [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252240.jpgsave_picture_252240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252240.jpg" />
 </div>
 
 

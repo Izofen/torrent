@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126056.jpgsave_picture_126056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126056.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:39C619E5D13536CD73080DA47CABB78700E25715
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126057.jpgsave_picture_126057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126057.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A1AB34AD25764E1788AC2815D7C33663CAD26BE3
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126058.jpgsave_picture_126058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126058.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Letters Sent Home - Forever Undone (2024) Extended Edition, 2025, SharpTone Reco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126059.jpgsave_picture_126059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126059.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7E5EF97DADCBF02A402D0722E5589501CB983B15
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126060.jpgsave_picture_126060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126060.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3140F90C3B62298FF9220C2F31809E2BD5281657
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126061.jpgsave_picture_126061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126061.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:2144F76B2C8C94ED53F2C3A1F4C49E805D150FC3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126062.jpgsave_picture_126062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126062.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E9FE11019FBCB415E1ADF04020973789452DFDCB
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126063.jpgsave_picture_126063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126063.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6D5C7D10B3C050B386D655C27AA57B6DA0D721EC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126064.jpgsave_picture_126064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126064.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:F427D0460BDD926FC686BD3960A5B9CB6C3124A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126065.jpgsave_picture_126065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126065.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126066.jpgsave_picture_126066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126066.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.0) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126067.jpgsave_picture_126067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126067.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:5B0869FB9B6A59F304CCCEEDA5BB8B576F48A36E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126068.jpgsave_picture_126068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126068.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:33CCD142F09A2C5C60E25289D0D3DCB29B83B0E1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126069.jpgsave_picture_126069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126069.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:09BF04DAF171F406C07C7813A697BE3E6399143D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126070.jpgsave_picture_126070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126070.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:325828FA939369DE871078BD4EC617966508AF7E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126071.jpgsave_picture_126071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126071.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:13F0B42C3B60C42C35DA26D3CE76F79E0EBBB5A6
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126072.jpgsave_picture_126072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126072.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:4352D617DF239AF1E2A7931EC0345F03DAAA46E7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126073.jpgsave_picture_126073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126073.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126074.jpgsave_picture_126074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126074.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126075.jpgsave_picture_126075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126075.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126076.jpgsave_picture_126076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126076.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Unanimated - Studio Albums (5 releases) (1993-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126077.jpgsave_picture_126077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126077.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:89A7B1317627F59747691AA209B220A1D1C53101
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126078.jpgsave_picture_126078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126078.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:6EEDFB69E2549E1C97019BA078B6F37B052469C6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126079.jpgsave_picture_126079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126079.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:2BE9DAE9DDCD42B02752E10A59281C08E3AEC4CD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126080.jpgsave_picture_126080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126080.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:08BD563A2920B1C73BC0455FBEFA9FF1FA5FCCBD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126081.jpgsave_picture_126081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126081.jpg" />
 </div>
 
 

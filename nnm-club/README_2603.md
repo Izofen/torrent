@@ -6,7 +6,7 @@ Aya - hexed! (2025) [MP3|320 Kbps] <Electronic, Footwork, Grime, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68428.jpgsave_picture_68428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68428.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D2B9771EC627B9F71307BF6B60646AE0B90F4763
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68429.jpgsave_picture_68429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68429.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Outlasted - Universal Human Desire (2025) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68430.jpgsave_picture_68430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68430.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Hitman Blues Band - Calling Long Distance (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68431.jpgsave_picture_68431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68431.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Jessy Mach - Dice of doom (2025) [MP3|320 Kbps] <Synthwave, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68432.jpgsave_picture_68432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68432.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Neverlove - Nu Glam (2025) [MP3|320 Kbps] <Alternative Rock, Alternative Mrtal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68433.jpgsave_picture_68433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68433.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Unleash The Archers - Phantoma (2024) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68434.jpgsave_picture_68434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68434.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Nightwish - Amaranth (2007) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68435.jpgsave_picture_68435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68435.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:FD26508BD3B166C56CEE4EAE2D3AE3280554D78D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68436.jpgsave_picture_68436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68436.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:E9F6E82FD5DA22B13019744CF419790519C7229A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68437.jpgsave_picture_68437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68437.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Highway Heavy - Pinky Ring Music Volume 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68438.jpgsave_picture_68438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68438.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ White Willow - Signal to Noise (2006) Remastered, 2025, Karisma Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68439.jpgsave_picture_68439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68439.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Firefox Browser 137.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68440.jpgsave_picture_68440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68440.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - Best Movie Hits Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68441.jpgsave_picture_68441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68441.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:20576914F6EC10745FF8599407DDBE7C44E14973
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68442.jpgsave_picture_68442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68442.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Firefox Browser ESR 128.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68443.jpgsave_picture_68443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68443.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:F9DCC3C357D1CE82E3019DC4CD617C643A1D2C0C
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68444.jpgsave_picture_68444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68444.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Klevgrand - OneShot 1.0.3 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68445.jpgsave_picture_68445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68445.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Best Movie Hits Vol. 2 (1994) [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68446.jpgsave_picture_68446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68446.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:C2BBD9D66AE5F0E6F8F185C7EA8225DE9C77851B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68447.jpgsave_picture_68447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68447.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:B27E31608F78FCE117F20445143EBB3318E9D324
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68448.jpgsave_picture_68448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68448.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki | Thunderbolt Fantasy: Sword Seekers | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68449.jpgsave_picture_68449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68449.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:05A33E836B0A88713D40F0A09A6A900B0278C458
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68450.jpgsave_picture_68450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68450.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:A8D0CAA343BC4E84160DA3297697A14C0DE63B1C
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68451.jpgsave_picture_68451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68451.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Wolfgang Flur (ex. Kraftwerk) - Times (2025) [FLAC|Lossless|WEB-DL|tracks] <EDM,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68452.jpgsave_picture_68452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68452.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68453.jpgsave_picture_68453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68453.jpg" />
 </div>
 
 

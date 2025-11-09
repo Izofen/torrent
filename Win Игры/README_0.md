@@ -6,7 +6,7 @@ Placid Plastic Duck Simulator (2022) [Ru/Multi] (2.2.0/dlc) Repack FitGirl [More
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165.jpgsave_picture_165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mage and Monsters II (2025) [Ru/Multi] (1.07b) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168.jpgsave_picture_168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28714) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171.jpgsave_picture_171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PixARK (2019) [Ru/Multi] (1.216/dlc) Repack R.G. Alkad
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173.jpgsave_picture_173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Wandering Sword (2023) [Multi] (1.24.30/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176.jpgsave_picture_176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177.jpgsave_picture_177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arctic Awakening (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180.jpgsave_picture_180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_190.jpgsave_picture_190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_190.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_198.jpgsave_picture_198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_198.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_201.jpgsave_picture_201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_201.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Icebound Secrets 2: Soul Hunter (2025) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_238.jpgsave_picture_238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_238.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Editio
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_298.jpgsave_picture_298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_298.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_353.jpgsave_picture_353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_353.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Decepti
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_358.jpgsave_picture_358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_358.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ SOMA (2015) [Ru/Multi] (Build 20049349) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_361.jpgsave_picture_361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_361.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Platypus Reclayed (2025) [Ru/Multi] (1.1.7) Repack Let'sPlay [Deluxe Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_377.jpgsave_picture_377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_377.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Circus of Pain (2025) [Ru/Multi] (1.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_393.jpgsave_picture_393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_393.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_405.jpgsave_picture_405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_405.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hades II (2024) [Ru/Multi] (1.131346) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_411.jpgsave_picture_411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_411.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Greedland (2025) [Ru/Multi] (1.0.36c) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_419.jpgsave_picture_419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_419.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_421.jpgsave_picture_421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_421.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_425.jpgsave_picture_425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_425.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_426.jpgsave_picture_426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_426.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_429.jpgsave_picture_429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_429.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_444.jpgsave_picture_444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_444.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Katanaut (2025) [Ru/Multi] (1.014) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_452.jpgsave_picture_452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_452.jpg" />
 </div>
 
 

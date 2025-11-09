@@ -6,7 +6,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235870.jpgsave_picture_235870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235870.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Power from Hell - The True Metal (2004) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235871.jpgsave_picture_235871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235871.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C3CF1AEA4E18BB90CF80330D822A6511B899B441
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235872.jpgsave_picture_235872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235872.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Foxit Reader 11.2.2.53575 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235873.jpgsave_picture_235873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235873.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Steely Dan - Countdown To Ecstasy (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <R
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235874.jpgsave_picture_235874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235874.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Armand Hammer & The Alchemist - Haram (2021) Compilation [MP3|320 Kbps] <Undergr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235876.jpgsave_picture_235876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235876.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Музыка для машины Vol.14 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235877.jpgsave_picture_235877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235877.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:A16EFD83E4B9511477526A15C2E66882F4973457
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235878.jpgsave_picture_235878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235878.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ FireWolfe - We Rule The Night (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235879.jpgsave_picture_235879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235879.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ LibreWolf 114.0.2-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235880.jpgsave_picture_235880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235880.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:783B290AD46A6F11DBAAFC1FF3D5E2BA3B74E64B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235881.jpgsave_picture_235881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235881.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ FilelistCreator 23.4.23 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235882.jpgsave_picture_235882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235882.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:F0FDBDBDF70B9D20E98B8FF1A4FDA4DE3700F65E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235883.jpgsave_picture_235883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235883.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:2352DB386F42AEBA7EDEE39A4C2BBBE4C61C33C0
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235885.jpgsave_picture_235885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235885.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:338AA04AAC2D461F04CCA59E02B10D9A2C75E3C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235886.jpgsave_picture_235886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235886.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Music Collection 3.5.8.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235887.jpgsave_picture_235887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235887.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Draw.io 21.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235888.jpgsave_picture_235888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235888.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:1EBF0C2EB584E13F0DEAC129D51F5028805552BD
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235889.jpgsave_picture_235889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235889.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Hal Singer & Jef Gilson - Soul Of Africa (1974) 2008, Kindred Spirits [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235890.jpgsave_picture_235890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235890.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235891.jpgsave_picture_235891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235891.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mirillis Action! 4.32.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235893.jpgsave_picture_235893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235893.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:3096C4653E1FB05C594B256CB9730B39C3FF8941
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235894.jpgsave_picture_235894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235894.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:1F4FB49BC52BE9D2C9F8CC2CE53F987165B7B2C0
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235895.jpgsave_picture_235895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235895.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:B4A703BD3E8064E5F5EE5B8238FFF939317E423A
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235896.jpgsave_picture_235896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235896.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ UNKLE - Rōnin I (2021) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield, Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235897.jpgsave_picture_235897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235897.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Unarchiver - Unzip RAR ZIP 3.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235898.jpgsave_picture_235898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235898.jpg" />
 </div>
 
 

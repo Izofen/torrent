@@ -6,7 +6,7 @@ XYplorer 26.90.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24779.jpgsave_picture_24779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24779.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9406182F1D2A0E2576506E1DAAD0349491FB665A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24780.jpgsave_picture_24780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24780.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Black Hole Trance Music 03-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24781.jpgsave_picture_24781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24781.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ QOwnNotes 25.3.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24782.jpgsave_picture_24782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24782.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:CB6D5375B9B437852423C9F6113EE41DAE9FDE07
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24783.jpgsave_picture_24783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24783.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F0384723F79CBAA2B90A6961A245470E4065434D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24784.jpgsave_picture_24784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24784.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CED66D2A8A353EFA8F2158F6CA6DE5A3D838DA11
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24785.jpgsave_picture_24785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24785.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Zopa - Diamond Vehicle (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24786.jpgsave_picture_24786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24786.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:BA24951FFC9D5E80F26C6A3A4AAFA3B4CFEB30B6
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24787.jpgsave_picture_24787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24787.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:07BA7D38D710484F2EBB8CD03CFE499A64698DF3
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24788.jpgsave_picture_24788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24788.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - I Love ZYX Italo Disco Collection 2 (2010) 3 CD [OGG Vorbis|480 Kbps] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24789.jpgsave_picture_24789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24789.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:78C5309C6ED23FA32830D826367823452385B0D7
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24790.jpgsave_picture_24790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24790.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E573C0069A02DCD05722128E39DB0E32ED323270
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24791.jpgsave_picture_24791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24791.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Paint.NET 5.1.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24792.jpgsave_picture_24792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24792.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B3A3ACCC5D38DC7ABBF7ABA7C67559D67E82FABA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24793.jpgsave_picture_24793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24793.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:7BDAB0062A8B72781A84F93E5665406E190570D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24794.jpgsave_picture_24794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24794.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack dixen18 [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24795.jpgsave_picture_24795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24795.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:579495B1EF24DDCDBC3BFB57CCACECAFE71EC34A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24796.jpgsave_picture_24796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24796.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ FanControl V217 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24797.jpgsave_picture_24797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24797.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24798.jpgsave_picture_24798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24798.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:ECB123E257A49E29F7D736412D2E0837B43A46B5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24799.jpgsave_picture_24799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24799.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Mirrors of Deception: The Silver Peaks Secret / Зеркала Обмана: С�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24800.jpgsave_picture_24800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24800.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:00DCCD17D7C56EC87E815F0729403EAF9218916F
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24801.jpgsave_picture_24801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24801.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Dame Was Loaded (1996) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24802.jpgsave_picture_24802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24802.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:AC45B9B541BE1C4A1489CA3FC429482034B67F06
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24803.jpgsave_picture_24803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24803.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:F1CD796B96CAEC99C3D6CF35357EDDC1C3A10667
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24804.jpgsave_picture_24804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24804.jpg" />
 </div>
 
 

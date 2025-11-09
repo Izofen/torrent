@@ -6,7 +6,7 @@ VA - Top 40 Ambient Tracks (2013) [FLAC|Lossless|WEB-DL]<Psybient, Ambient, Down
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156445.jpgsave_picture_156445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Choir of King's College, Cambridge and Daniel Hyde - Carols From King's (2020 Co
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156476.jpgsave_picture_156476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156476.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ E-Mantra - Raining Lights (2015) Altar Records [FLAC|Lossless|WEB-DL|24Bit|track
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156496.jpgsave_picture_156496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156496.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Hed Kandi Anthems (2015) [MP3|320 кб/с] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156621.jpgsave_picture_156621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156621.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Vocal Trance 2018 (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156682.jpgsave_picture_156682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156682.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - The Christmas Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156737.jpgsave_picture_156737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156737.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Ocean Waves & Sea Sound Relax (2016) [MP3|320 Kbps] <Downtempo, Chillout, I
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156755.jpgsave_picture_156755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156755.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Deep and Loud (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156833.jpgsave_picture_156833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156833.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Rautu - Sphere (2017) IMMINENT [FLAC 2.0|44.1/24|tracks|WEB-DL] <Future Garage, 
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156919.jpgsave_picture_156919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156919.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Serenity Sexy Lounge & Chill Out Pearls Vol 1 (2015) [MP3|320 кб/с] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156943.jpgsave_picture_156943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156943.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Horizon In Blue (Selected Chill Out & Lounge), Vol. 1 - 4 (2023) [MP3|320 K
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156962.jpgsave_picture_156962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156962.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Fatum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156989.jpgsave_picture_156989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156989.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Slow Dancing Society - Discography 25 Releases (2006-2018) [FLAC|Lossless|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157056.jpgsave_picture_157056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157056.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Sync24 - Comfortable Void (2012) Ultimae Records [FLAC|Lossless|WEB-DL|tracks] <
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157117.jpgsave_picture_157117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157117.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Black Hole Trance Music (12-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157127.jpgsave_picture_157127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157127.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157284.jpgsave_picture_157284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157284.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Morning Glory (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157386.jpgsave_picture_157386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157386.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Koan - Muses & Poets: Incomprehensible Sonets (2019) Blue Tunes Chillout [FLAC|L
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157584.jpgsave_picture_157584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157584.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Acoustic Chill Out, Tantric Sexuality Masters - Sensual Night Chillout (2019) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157660.jpgsave_picture_157660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157660.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Daniel Roeth & Koan - Nothing, Nobody, Never (2018) Blue Tunes Chillout [FLAC|Lo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157694.jpgsave_picture_157694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157694.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Koan - Esbat: Exilio (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <E
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157704.jpgsave_picture_157704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157704.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Koan - Esbat: Initiatio (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks]
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157717.jpgsave_picture_157717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157717.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - World Sound The Best Of 2022 [MP3|320 Kbps] <House, Funky House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157723.jpgsave_picture_157723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157723.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [F
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157814.jpgsave_picture_157814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157814.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Lane 8 - Winter 2019 Mixtape 2019-12-17 [MP3|320 Kbps] <Deep House, Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157862.jpgsave_picture_157862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157862.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Dark Amsterdam Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157876.jpgsave_picture_157876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157876.jpg" />
 </div>
 
 

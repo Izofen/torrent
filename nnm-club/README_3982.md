@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124059.jpgsave_picture_124059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124059.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Skillshare, Dawid Tuminski | How To Create A Flat Design Night Camping in Affini
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124060.jpgsave_picture_124060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124060.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F3FB7358713027306E9D28F493D79901AB2D4CE9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124061.jpgsave_picture_124061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124061.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:09AF545AA4C0FEA58FF718D443318075375520BB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124063.jpgsave_picture_124063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124063.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Perfect365 Makeup Photo Editor v9.45.9 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124064.jpgsave_picture_124064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124064.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Text Editor Pro 28.3.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124065.jpgsave_picture_124065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124065.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B9D535340BAB1123F7C15FF8EDDB37B534D361A0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124066.jpgsave_picture_124066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124066.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ L'ame Immortelle (L'Âme Immortelle) - Ungelebte Leben (2024) [FLAC|Lossless|WEB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124067.jpgsave_picture_124067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124067.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:129787F8746EF00EEFD384E23DC73329AE41E5D4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124068.jpgsave_picture_124068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124068.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:24E6332FD3AB93E6AB0A935A96D3A75CCBD31CA8
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124069.jpgsave_picture_124069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124069.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Perfect365 Video Makeup Editor v1.6.20 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124070.jpgsave_picture_124070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124070.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:D43F7E4E05787961DFFFC9C2D06EB3C83CC2EC30
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124071.jpgsave_picture_124071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124071.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:2815C372753444E824EFD99EDB0CEAC44081151B
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124072.jpgsave_picture_124072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124072.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:D7589799822BCB8FE429DE1C1D9C594BB64DCE4D
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124073.jpgsave_picture_124073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124073.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:16E9079EBE488272293FF76B5AABF1C7733EE318
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124075.jpgsave_picture_124075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124075.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:66F1E18B210E625D8222B8EB2119CC74ADBE9F5C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124077.jpgsave_picture_124077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124077.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B62FAB6174A9105EFF4298073864FD10BAD5EC99
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124078.jpgsave_picture_124078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124078.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:8CBEEB2F7D81345402BB80D3A77A06D3F2CDD8FF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124079.jpgsave_picture_124079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124079.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Notepad++ 8.6.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124080.jpgsave_picture_124080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124080.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Nucleer Coffee - My Music Collection 2.3.13.148 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124081.jpgsave_picture_124081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124081.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:54D0E383229E950B35E6CE662EDD6B5D625592E5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124083.jpgsave_picture_124083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124083.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:DC3DD27D782B469AAF9B7B5A1E5F450C3CFD8621
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124084.jpgsave_picture_124084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124084.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:083B840EC8152DE99B6A5DC5C59BDC98DD9650BD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124085.jpgsave_picture_124085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124085.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:B0EEB8CD88EAA0D3D5D1B2E74D017F41673D14F4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124086.jpgsave_picture_124086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124086.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Wireshark 4.2.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124087.jpgsave_picture_124087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124087.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ AirBrush: ИИ Фоторедактор v6.0.1 Mod by ImanAlien [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124088.jpgsave_picture_124088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124088.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Udemy, Денис Фадеев | Программирование игр для 
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175477.jpgsave_picture_175477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175477.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MWeb Pro 4.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175478.jpgsave_picture_175478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175478.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Dwell In Doom - Songs from the Deadland (2022) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175479.jpgsave_picture_175479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175479.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175481.jpgsave_picture_175481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175481.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ NIUBI Partition Editor 9.0.0 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175482.jpgsave_picture_175482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175482.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ BusyContacts 2023.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175483.jpgsave_picture_175483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175483.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Discovery: Высадка союзников - цветная съемка / D-d
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175485.jpgsave_picture_175485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175485.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Texifier 1.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175486.jpgsave_picture_175486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175486.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Rock part  12 Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175487.jpgsave_picture_175487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175487.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Revo Uninstaller Pro 5.0.8 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175489.jpgsave_picture_175489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175489.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:10A60EC24B3624EC18578938FE28E5E9E2020F92
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175490.jpgsave_picture_175490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175490.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Marked 2 - Markdown Preview 2.6.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175491.jpgsave_picture_175491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175491.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Screen Wonders 2.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175493.jpgsave_picture_175493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175493.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:EC10A4002B6FFB4C21BE8342562537190911BE1B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175494.jpgsave_picture_175494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175494.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Milo Yip | A Study Path for Game Programmer / Путь разработчика 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175495.jpgsave_picture_175495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175495.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175496.jpgsave_picture_175496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175496.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:935E19FA72581DFAF28C9B231928E89C0C568E98
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175497.jpgsave_picture_175497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175497.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:9C05ECEC1205B65375DF3374A926E266F3A569F9
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175498.jpgsave_picture_175498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175498.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Skype 8.92.0.204 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175499.jpgsave_picture_175499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175499.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:7F5069F7CE826A376CD5B05E3DFEE1EEC583CF0B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175500.jpgsave_picture_175500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175500.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:A8565AE8AFDDA98F590AE909890913223EBC86C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175501.jpgsave_picture_175501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175501.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:69E969C242101E2397D4B6CA5C90A0D60F75EAE4
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175502.jpgsave_picture_175502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175502.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:3A25748D225CFCB5323F49D5D52D143AEA27BAD0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175503.jpgsave_picture_175503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175503.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:D659A7274E95F0FD301A1384D3382E5BB1815036
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175504.jpgsave_picture_175504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175504.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ LG демонстрация 4К-ТВ / 4K-LG ULTRA HD Landscape demo (2013) Ultr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175506.jpgsave_picture_175506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175506.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:39BB70201504293B62FCB97ECF06D832D9E157CE
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175507.jpgsave_picture_175507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175507.jpg" />
 </div>
 
 

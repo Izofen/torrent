@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8869.jpgsave_picture_8869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8869.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8870.jpgsave_picture_8870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8870.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The House of the Dead 2: Remake (2025) [Multi] (1.0) Scene FairLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8871.jpgsave_picture_8871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8871.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Blackmagic Design DaVinci Resolve Studio 20.1.0 Build 20 RePack by KpoJIuK (08.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8873.jpgsave_picture_8873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8873.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:661F2F275BF561DDD8EF9A6464B3A0CFC2BFA6E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8874.jpgsave_picture_8874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8874.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (4.06/dlc) Repack FitGirl [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8875.jpgsave_picture_8875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8875.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:66828EB3C664D7E28D71323327510B923E3B06CA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8876.jpgsave_picture_8876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8876.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:A38772D9511522231590C26F543D8013B1D27897
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8878.jpgsave_picture_8878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8878.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:23F96BF78F8109B399020F24A6A1DE8981C767A1
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8879.jpgsave_picture_8879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8879.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Reg Organizer 9.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8880.jpgsave_picture_8880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8880.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8881.jpgsave_picture_8881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8881.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:2307DA4819257544584ACAFF2E0332AF405F7236
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8882.jpgsave_picture_8882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8882.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:2307DA4819257544584ACAFF2E0332AF405F7236
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8883.jpgsave_picture_8883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8883.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:04C17CC5BA8D92EB4EC57DA4BF5A51FA3AF2739C
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8884.jpgsave_picture_8884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8884.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:BE2D5D1817BCE82BB57510B4E6D6225A8FCBC1A2
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8885.jpgsave_picture_8885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8885.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Firefox Browser 141.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8886.jpgsave_picture_8886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8886.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:DA07DE6A64B056793C77D60DE3A78CDA3DD28545
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8887.jpgsave_picture_8887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8887.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:666C94D7A4C6000047BD41E0A766C202CFB8CDC1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8888.jpgsave_picture_8888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8888.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:CD932C0AFCD233C54775A9E67277165348C9A4DB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8889.jpgsave_picture_8889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8889.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.2 CL#424353) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8890.jpgsave_picture_8890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8890.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:8DCE61CAC4D139F4306A9EB34F81D9FA8DD60D45
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8891.jpgsave_picture_8891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8891.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8892.jpgsave_picture_8892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8892.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:30181E5CEE86954F23E78EEFACCC9106E424D2D3
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8893.jpgsave_picture_8893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8893.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Ocenaudio 3.15.3 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8894.jpgsave_picture_8894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8894.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:D0E83D01F5322D589B999DB64A917478C3DB21B7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8895.jpgsave_picture_8895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8895.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:6E828776992196B940FEA5BD943F2B6C7BCBE56E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8896.jpgsave_picture_8896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8896.jpg" />
 </div>
 
 

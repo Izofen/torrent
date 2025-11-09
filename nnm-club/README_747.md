@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19748.jpgsave_picture_19748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19748.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KIBORG (2025) [Ru/Multi] (202.50.4 30:1:50) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19749.jpgsave_picture_19749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19749.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FastStone Image Viewer 8.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19750.jpgsave_picture_19750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19750.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:582B6605155AAF6D654449AB8C5AFBD5BF729E9B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19751.jpgsave_picture_19751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19751.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:54779372C0BA7133BD5BD260E0A514BEA8114F46
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19752.jpgsave_picture_19752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19752.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0BB13A889120F0B0CF3C3F6DDA564A99308137C5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19753.jpgsave_picture_19753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19753.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19754.jpgsave_picture_19754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19754.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19755.jpgsave_picture_19755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19755.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Charles Rouse - Two Is One (1974) 1992, Strata-East [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19756.jpgsave_picture_19756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19756.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:14B8F17819B17B923DDBAEFBC38EA4F32CAED8E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19757.jpgsave_picture_19757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19757.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ GForce Software & Novation - Bass Station 1.0.1 STANDALONE, VSTi, VSTi 3, AAX (x
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19758.jpgsave_picture_19758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19758.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ GForce Software & Oberheim - TVS Pro 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19759.jpgsave_picture_19759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19759.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Yan Jia, Zhaoquan Gu, Aiping Li et al. (eds.) | MDATA Cognitive Model: Theory an
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19760.jpgsave_picture_19760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19760.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:FAF4B14E4D154C08EF63C5D7B0155D63148A0DF8
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19761.jpgsave_picture_19761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19761.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:8FB7FED375997A8F68A549C904C67BDCD0AC861A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19762.jpgsave_picture_19762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19762.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Chill Electronica (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19763.jpgsave_picture_19763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19763.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - A State of Trance - Classics Top 10, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19764.jpgsave_picture_19764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19764.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Chill Out Tempel (Ambient Chill Out Tunes), Vol. 2 (2025) [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19765.jpgsave_picture_19765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19765.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:54E8B2C2718BB9366AE6A798CD672C027F8AECDE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19766.jpgsave_picture_19766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19766.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Houkago Shounen Hanako-kun | After-School Hanako-kun | Ханако после �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19767.jpgsave_picture_19767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19767.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:7F38DF1C2B8CE5619B89F2C248287816DE2A6A14
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19768.jpgsave_picture_19768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19768.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ The Halo Effect - March Of The Unheard (Bonus Edition) (2025) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19769.jpgsave_picture_19769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19769.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ MONOЛИЗА - Кит (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19770.jpgsave_picture_19770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19770.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ In Flames - Used And Abused...In Live We Trust (2005) 2xCD, Reissue, Remastered,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19771.jpgsave_picture_19771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19771.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Houkago Shounen Hanako-kun II | After-School Hanako-kun II | Ханако пос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19772.jpgsave_picture_19772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19772.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:270996B755A343CEE59699354D968B3324CFE765
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19773.jpgsave_picture_19773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_19773.jpg" />
 </div>
 
 

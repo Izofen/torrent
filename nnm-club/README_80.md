@@ -6,7 +6,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.3 Build #41195/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2117.jpgsave_picture_2117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2117.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2118.jpgsave_picture_2118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2118.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2119.jpgsave_picture_2119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2119.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Darkest Dungeon II (2) (2023) [Ru/Multi] (2.03.79909/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2120.jpgsave_picture_2120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2120.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E0AB5A37E8B3E9A31C1F8F8FAB8A5EE923ED1BDC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2121.jpgsave_picture_2121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2121.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:79DFFA2B535AC67B841E6DD530FC20788CFE78B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2122.jpgsave_picture_2122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2122.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Operation: Polygon Storm (2024) [Multi] (1.5.2.7/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2123.jpgsave_picture_2123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2123.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:5FC0032E098AAC079B44B2A2EBBC443366C337A1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2124.jpgsave_picture_2124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2124.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edit
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2125.jpgsave_picture_2125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2125.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:470AC366684BFE14CDC51D0F0DFBDAAB5A85730A
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2126.jpgsave_picture_2126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2126.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:09E1C0B4C80061FC4AF5356CA5E37112C20F49A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2127.jpgsave_picture_2127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2127.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:89D654369F5D202C5446589834DE0691EE30454E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2128.jpgsave_picture_2128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2128.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:44C05977F9339CD73A75A152F32A6C4D86B02F38
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2129.jpgsave_picture_2129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2129.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:B9A2960BC328DB50CB188E15D6C39CBD7269576D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2130.jpgsave_picture_2130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2130.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2131.jpgsave_picture_2131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2131.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:2BB9C2A25080D8D4981EB9421CAE7BE68E5D217D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2132.jpgsave_picture_2132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2132.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2133.jpgsave_picture_2133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2133.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Booze & Glory - Whiskey Tango Foxtrot (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2134.jpgsave_picture_2134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2134.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:EDAA408B4FF64039B88A2A2D74F45665A6FB27FB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2135.jpgsave_picture_2135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2135.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Rinrin - The Nut House (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2136.jpgsave_picture_2136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2136.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bill Evans - Quiet Now: Never Let Me Go (1999) Verve [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2137.jpgsave_picture_2137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2137.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Moss Upon The Skull - Quest For The Secret Fire (2024) [MP3|320 Kbps] <Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2138.jpgsave_picture_2138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2138.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Sfinx - Feral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2139.jpgsave_picture_2139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2139.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Infektum - Schicksal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2140.jpgsave_picture_2140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2140.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2141.jpgsave_picture_2141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2141.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2142.jpgsave_picture_2142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2142.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Abscession - Rot Of Ages (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233508.jpgsave_picture_233508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233508.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ CGMA, Nicolas Weis | Environment Design for Animation Workshops (2016) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233509.jpgsave_picture_233509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233509.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4CCF55EC29A2854D58C4E00C366AFBEC14DB3359
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233510.jpgsave_picture_233510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233510.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3D77D2E0BD4760F6EF47CC52A3002EDD636E50D8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233511.jpgsave_picture_233511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233511.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Ibiza House Anthems (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233512.jpgsave_picture_233512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233512.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233513.jpgsave_picture_233513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233513.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8F702D02EABE5A25D248D1838F4E067394583A34
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233515.jpgsave_picture_233515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233515.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Mega Hits Sommer 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233516.jpgsave_picture_233516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233516.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ PowerISO 8.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233517.jpgsave_picture_233517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233517.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ The Gnomon Workshop, Jason Shum | Combat Animation for Games (2017) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233519.jpgsave_picture_233519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233519.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:91F25FF67F284080C5519DBDC6B911B334AAF317
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233520.jpgsave_picture_233520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233520.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ The Arcane Order - Distortions from Cosmogony (2023) [MP3|320 Kbps] <Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233521.jpgsave_picture_233521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233521.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:77B51CCCB4B92D5F263D78F12C651DD983B346BE
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233522.jpgsave_picture_233522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233522.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:FD5FF58318D5DDE7AF1927CFE055209A8EA1A84A
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233523.jpgsave_picture_233523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233523.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:96FC5D9F1C099DF6A524A99248BEEF96E98ADEEE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233524.jpgsave_picture_233524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233524.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VueScan Pro 9.8.09 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233526.jpgsave_picture_233526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233526.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Allegorithmic, Daniel Thiger | Creating Photorealistic Procedural Materials in S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233527.jpgsave_picture_233527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233527.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:02712CFCB5B7B343E6858FE4F1BDF9576682FCE2
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233528.jpgsave_picture_233528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233528.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ It Happened Here: Streaming Lives / Это случилось здесь: Пря
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233529.jpgsave_picture_233529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233529.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ David Newman - Heads Up (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233530.jpgsave_picture_233530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233530.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wondershare UniConverter 13.6.4.1 (х64) Repack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233531.jpgsave_picture_233531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233531.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:E65297ED6B2E8F2ECC81E622124CFF5DC972FA03
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233533.jpgsave_picture_233533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233533.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233534.jpgsave_picture_233534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233534.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BiglyBT 3.4.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233535.jpgsave_picture_233535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233535.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:FFFA16B08DA2699121C8BBF46EC819A3C75C51A2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233536.jpgsave_picture_233536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233536.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Movavi Video Converter 22.4.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233537.jpgsave_picture_233537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233537.jpg" />
 </div>
 
 

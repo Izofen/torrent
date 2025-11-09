@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191085.jpgsave_picture_191085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191085.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Future Nu Disco Classics Vol. 11 (2022) CD, Compilation [MP3|320 Kbps] <Nu 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191086.jpgsave_picture_191086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191086.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:90EB0350A2C64AB01917EA0C12F7A417377DB5F5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191087.jpgsave_picture_191087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191087.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Future Nu Disco Classics Vol. 12 (2022) CD, Compilation [MP3|320 Kbps] <Nu 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191088.jpgsave_picture_191088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191088.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:9E9F51C2A326CF26F8868E34E8CB8D9A7C486EFB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191089.jpgsave_picture_191089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191089.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:1A785AB3C30C1F682281DA6D5A11A09A449502D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191090.jpgsave_picture_191090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191090.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:DEFA517C2E89D0EC328C1AEEEAAF9B65DE4CB4AC
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191091.jpgsave_picture_191091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191091.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:8ED5D456D4D7A7B8A819B5CFA8E12E25029F25F2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191092.jpgsave_picture_191092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191092.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - The Best Songs of All Time - Greatest Hits (2023) [MP3|320 Kbps] <Dance, Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191093.jpgsave_picture_191093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191093.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Kaspersky Small Office Security 21.14.5.462 (Web Installer) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191094.jpgsave_picture_191094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191094.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Headway - Headway (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191095.jpgsave_picture_191095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191095.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:A9E03F9327420957B6EA232A0FA50B0212EF84D6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191096.jpgsave_picture_191096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191096.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:BFC4B85C10F7785EB96C0B7D8BD87D3F0A29419E
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191097.jpgsave_picture_191097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191097.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Perfect Plan - Brace For Impact (2022) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191098.jpgsave_picture_191098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191098.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:2BE22F41ABA2316F2839AAA13F6D0A4AE7B25350
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191099.jpgsave_picture_191099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191099.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:C106249AB83FB5106B4F95ABFE9F4DD092A14B4A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191100.jpgsave_picture_191100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191100.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191101.jpgsave_picture_191101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191101.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:D6E9C8F8D2DA3D2D76ACFD0DE670B7B729F0076B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191102.jpgsave_picture_191102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191102.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:AB3358B39D276A2AA5C334CF32B116A9372E32DA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191103.jpgsave_picture_191103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191103.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:3640C418E109E0F3F39C3E09462CC777B632DDD0
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191104.jpgsave_picture_191104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191104.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Blue System - When You Are Lonely (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191105.jpgsave_picture_191105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191105.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:3C8B405152525F59F6D24B75CA9E3E0342FAF00B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191106.jpgsave_picture_191106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191106.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - House It Up Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Funky House, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191107.jpgsave_picture_191107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191107.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Jimi Jamison - Rock Hard (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191108.jpgsave_picture_191108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191108.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:88DB6D88C0C0C7059291D2B6007E36F5D6809834
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191109.jpgsave_picture_191109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191109.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Brian McDonald - Wind It Up (2000) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191110.jpgsave_picture_191110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191110.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.86 (2209) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185363.jpgsave_picture_185363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185363.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7A0E25102C916E914807E35B1B0D220EFB36B0F3
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185364.jpgsave_picture_185364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185364.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1861C3507340A6042BEF582634DEAB502F7ED121
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185365.jpgsave_picture_185365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185365.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Soft Organizer Pro 9.41 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185368.jpgsave_picture_185368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185368.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A32DD263482C51242E0CC9742A4894A804063532
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185369.jpgsave_picture_185369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185369.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Blocs 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185372.jpgsave_picture_185372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185372.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Pepto Audio - Black Metal Keys 2.9.1 VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185373.jpgsave_picture_185373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185373.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Firefox Browser ESR 115.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185374.jpgsave_picture_185374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185374.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Wallace Wang | Pro iPhone Development with SwiftUI, 4th Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185377.jpgsave_picture_185377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185377.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Vinnie Moore - Double Exposure (2022) [MP3|320 Kbps] <Neoclassical, Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185378.jpgsave_picture_185378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185378.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Katatonia - Dead Air (2020) 2CD [FLAC|Lossless|image + .cue] <Doom Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185379.jpgsave_picture_185379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185379.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:1CCF1114A63510ADC177CDC73C1539D9D533800D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185381.jpgsave_picture_185381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185381.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Rectangle Pro 2.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185382.jpgsave_picture_185382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185382.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Zoc Terminal 8.01.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185384.jpgsave_picture_185384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185384.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:1B9BF389299CA18F9146CE7255FCD3C9059DF162
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185385.jpgsave_picture_185385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185385.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ MacCleaner 2 PRO 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185387.jpgsave_picture_185387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185387.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:27694CC5D7F9DEF75F59C8C88E5DBA15E9260F29
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185388.jpgsave_picture_185388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185388.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:888EE8D04074E4CEEADC2AA26E0BD69F3E801E7F
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185390.jpgsave_picture_185390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185390.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ BTS - BE (2020) [AAC|~318 Kbps] <kpop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185392.jpgsave_picture_185392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185392.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Process Lasso Pro 12.4.0.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185395.jpgsave_picture_185395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185395.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:A96C80B8A702A323ABAEF7DB67DDDF54B73EB455
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185396.jpgsave_picture_185396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185396.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ DMG Canvas 3.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185398.jpgsave_picture_185398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185398.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:A102C599AFF98FB84AF3417BCFC224704BF302DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185400.jpgsave_picture_185400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185400.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:C277ECD406443D8109155AD5197D8AAD0AC870C7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185402.jpgsave_picture_185402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185402.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Draw.io 21.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185404.jpgsave_picture_185404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185404.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:5E2884F82746A4F6E54BE2C99021122CE92DBB03
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185407.jpgsave_picture_185407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185407.jpg" />
 </div>
 
 

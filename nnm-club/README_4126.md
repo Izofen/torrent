@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127851.jpgsave_picture_127851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127851.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5CACB6C948CDE7969117C89D51C956704F6BD44F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127852.jpgsave_picture_127852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127852.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CE62138E7505916A786B6119C86D7035A3CDFF4B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127853.jpgsave_picture_127853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127853.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Doggy Style: Sexy Chillout Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127854.jpgsave_picture_127854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127854.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:89D0A0431F6559EE968D348E5BA20B748AF8D044
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127855.jpgsave_picture_127855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127855.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9E679A6930684FAA21EDF72BFDCC7FEB0C0D5C9B
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127856.jpgsave_picture_127856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127856.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:7BEB534F82908AB3EA0991A57AA7BA4077A85079
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127857.jpgsave_picture_127857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127857.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127858.jpgsave_picture_127858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127858.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ StartAllBack 3.7.2 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127859.jpgsave_picture_127859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127859.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:EBA56E2A9E51A978A93DBFA5442EFB211A579577
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127860.jpgsave_picture_127860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127860.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:A05B7225784CD44014C1AEDFFB1C722D5B319C1E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127861.jpgsave_picture_127861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127861.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:48DEF4CB3F4628AB233E68DEF9B6A7969D527D42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127862.jpgsave_picture_127862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127862.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:48DEF4CB3F4628AB233E68DEF9B6A7969D527D42
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127863.jpgsave_picture_127863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127863.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:A250A03AFB96797DB4442C8FA34BA104E406749C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127864.jpgsave_picture_127864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127864.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:DF0B2C9F0935F9059F05F84B095A7A1309B5344C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127865.jpgsave_picture_127865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127865.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:DF0B2C9F0935F9059F05F84B095A7A1309B5344C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127866.jpgsave_picture_127866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127866.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:60437A9A1E129CC081A1E35CE0E7FAB873F00A33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127867.jpgsave_picture_127867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127867.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:60437A9A1E129CC081A1E35CE0E7FAB873F00A33
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127868.jpgsave_picture_127868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127868.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:C1C616F2AE54D2B2F22688F2CABDAE261A2A6E31
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127869.jpgsave_picture_127869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127869.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:6C748BAA62CCCB47EA77905BC7701C9C080F6CC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127870.jpgsave_picture_127870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127870.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:20C8E4AA49EFE58C8FBD8E1004C7AA745C5ED5D4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127871.jpgsave_picture_127871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127871.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:5E6618D770ADAB3D785B4C5B6C674344AE218803
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127872.jpgsave_picture_127872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127872.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:B4ADF6FEC8304FC4E49AF29208E0BB988DDEFC08
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127873.jpgsave_picture_127873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127873.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Ableton - Live 12 12.0b22 (x64) Beta [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127874.jpgsave_picture_127874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127874.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Glary Utilities Pro 6.3.0.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127875.jpgsave_picture_127875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127875.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:B0F405068BB13E9B1BF4960BD194A370597FC9F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127876.jpgsave_picture_127876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127876.jpg" />
 </div>
 
 

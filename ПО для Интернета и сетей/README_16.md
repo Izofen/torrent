@@ -6,7 +6,7 @@ Google Chrome 142.0.7444.135 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250747.jpgsave_picture_250747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250747.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Chromium 142.0.7444.135 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250815.jpgsave_picture_250815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250815.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Apple Safari 5.1.7 Final [Русский]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251048.jpgsave_picture_251048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251048.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 29.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251228.jpgsave_picture_251228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251228.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ YT Downloader 9.18.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251692.jpgsave_picture_251692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251692.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ YT Downloader 9.18.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251710.jpgsave_picture_251710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251710.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8BAB450F93E154F65350102068FCC411FBD11F4D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251711.jpgsave_picture_251711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251711.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Any Video Downloader Pro 9.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251779.jpgsave_picture_251779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251779.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ant Download Manager 2.16.2 Build 91828 (91829) + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251947.jpgsave_picture_251947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251947.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ TeamViewer 15.40.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252155.jpgsave_picture_252155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252155.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ YT Downloader 9.18.1 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252313.jpgsave_picture_252313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252313.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VCap Downloader 0.1.40.6802 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252366.jpgsave_picture_252366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252366.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ant Download Manager Pro 2.16.2  Build 91826 RePack (& Portable) by elchupacabra
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252367.jpgsave_picture_252367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_252367.jpg" />
 </div>
 
 

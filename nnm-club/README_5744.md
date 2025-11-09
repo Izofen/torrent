@@ -6,7 +6,7 @@ GOM Mix Pro 2.0.5.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177700.jpgsave_picture_177700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177700.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Brave Browser 1.45.133 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177704.jpgsave_picture_177704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177704.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3A4E4F8859ED61DA489C2B38B1B0DC238E22248F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177705.jpgsave_picture_177705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177705.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B79A2432C2A4CA0104B8A806024FD700F3736078
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177708.jpgsave_picture_177708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177708.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ October Tide - The Cancer Pledge (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177709.jpgsave_picture_177709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177709.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:99221D83D9790BD7D19BB052FCC890AB80A81F0E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177711.jpgsave_picture_177711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177711.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2911) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177712.jpgsave_picture_177712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177712.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:5072C9BB24C29905D7E4FD7020E7349936336EE0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177715.jpgsave_picture_177715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177715.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ One Commander Pro 3.25.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177717.jpgsave_picture_177717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177717.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Viber 19.0.0.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177718.jpgsave_picture_177718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177718.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ WizTree 4.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177721.jpgsave_picture_177721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177721.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Linus Klausenitzer - Tulpa (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177723.jpgsave_picture_177723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177723.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Opera 93.0.4585.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177725.jpgsave_picture_177725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177725.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Saltatio Mortis - Des Konigs Henker (2005) [FLAC|Lossless|image + .cue] <Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177726.jpgsave_picture_177726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177726.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ GOM Player Plus 2.3.81.5347 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177728.jpgsave_picture_177728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177728.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Saltatio Mortis - Das Zweite Gesicht (2002) [FLAC|Lossless|image + .cue] <Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177729.jpgsave_picture_177729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177729.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Quantum Void - Escaping Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177731.jpgsave_picture_177731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177731.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:CB9C35F24B62014A03C1DC0BD8C2E9349CEA25A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177732.jpgsave_picture_177732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177732.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Saltatio Mortis - Erwachen (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177734.jpgsave_picture_177734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177734.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Graveyard of Souls - Todos los caminos llevan a ninguna parte (2016) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177736.jpgsave_picture_177736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177736.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Graveyard of Souls - Infinitum Nihil (2015) [FLAC|Lossless|image + .cue] <Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177739.jpgsave_picture_177739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177739.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:20AE6A53F02F472DFA93E967BB63C2FB02BC75EE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177745.jpgsave_picture_177745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177745.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:1657C27C1630EAED69D9C7FDC601D878A081D785
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177749.jpgsave_picture_177749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177749.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:186C6914A2C58F8A50F70F079D4624759C613697
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177751.jpgsave_picture_177751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177751.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Giorgio Moroder - On The Groove Train Volume 1 - 1975 - 1993 - Best Of (201
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177756.jpgsave_picture_177756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177756.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:56E1EDABBC0C98BAFF7FF0C2DAA36B222A0F80D2
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177759.jpgsave_picture_177759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177759.jpg" />
 </div>
 
 

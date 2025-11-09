@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197784.jpgsave_picture_197784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197784.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:06C55AD5424C74BADA8B859ACE696A9D75C72DDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197785.jpgsave_picture_197785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197785.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1537F8264E8E41BF6179B2F711C912E6381DD66D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197786.jpgsave_picture_197786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197786.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:08DF688A07DEA60C4D126E1C3F4ACBE38D60B451
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197787.jpgsave_picture_197787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197787.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Gone Rogue (2023) [Ru/Multi] (1.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197788.jpgsave_picture_197788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197788.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:A8DE8A8A2195BEC16963C754B4838C51FD8B6C5E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197789.jpgsave_picture_197789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197789.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:1F16CEF8790053E9281029927FA3A8130E56554F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197790.jpgsave_picture_197790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197790.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ The Bat! Professional 10.4.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197791.jpgsave_picture_197791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197791.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ We. The Refugees: Ticket to Europe (2023) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197792.jpgsave_picture_197792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197792.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:62818A234B38A48D669EB027F2D9555EF5E4C4A7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197793.jpgsave_picture_197793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197793.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:AEB584DE1E3B6B5CBA0FE9C0C9730159C67527ED
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197794.jpgsave_picture_197794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197794.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ qBittorrent 4.5.3 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197795.jpgsave_picture_197795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197795.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ HAAK (2022) [Ru/Multi] (1.3.1.17223) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197796.jpgsave_picture_197796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197796.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:CCC0DB596D097DCAA99659E06AA466482A2E9EBC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197797.jpgsave_picture_197797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197797.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:363D91DDE5D2F2AABA253E8283B0D09429A93A3C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197799.jpgsave_picture_197799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197799.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:76AB149246584F4FC7B493B1D949A2CE5C98DA02
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197800.jpgsave_picture_197800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197800.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:0C9119E8CB055B0D01F594C8C5D0E68DE8117AD5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197801.jpgsave_picture_197801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197801.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:F4C7ED8D70CA33993939010DE29A4E0D7FC071B0
 >>Анатомия страсти / Grey's Anatomy
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197802.jpgsave_picture_197802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197802.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ ChrisPC Win Experience Index 7.17.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197803.jpgsave_picture_197803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197803.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v8 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197804.jpgsave_picture_197804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197804.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:C97130DF738DDA7A36A312591354924102EC74F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197805.jpgsave_picture_197805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197805.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Marcos Mateu-Mestre | Серия книг по рисованию Framed: Drawin
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197806.jpgsave_picture_197806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197806.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:B824747B1CF3330601286E04DE935D9B7EC5E0D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197807.jpgsave_picture_197807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197807.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:FB2AA603DA209177E8706705DBEDD7EA63B844B8
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197808.jpgsave_picture_197808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197808.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:72E848AAA0DB94F66748A1B93ED750AFF6937D39
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197809.jpgsave_picture_197809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197809.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:87448B2C0DA6E45CC27037BFA2612A7EA6C0CC06
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197810.jpgsave_picture_197810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197810.jpg" />
 </div>
 
 

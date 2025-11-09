@@ -6,7 +6,7 @@ Barabbas - La Mort Appelle Tous Les Vivants (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169981.jpgsave_picture_169981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169981.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F239456664C4F3DA242A26BF2DD2BF08C97078EF
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169982.jpgsave_picture_169982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169982.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169983.jpgsave_picture_169983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169983.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tsuyoshi Yamamoto Trio With Koji Moriyama - Hida-Takayama Jazz Session (XRCD24) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169984.jpgsave_picture_169984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169984.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:6B3BDE591AD204EA03C0EBAB0894F2B9B8382359
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169985.jpgsave_picture_169985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169985.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Brothers Till We Die - Reincarnation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169986.jpgsave_picture_169986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169986.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:9B8EA282122BDDC4616A84E2CE6A5F5697A0E62E
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169987.jpgsave_picture_169987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169987.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ PopClip 2020.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169988.jpgsave_picture_169988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169988.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ SILKYPIX Developer Studio Pro 11.0.11.0 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169989.jpgsave_picture_169989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169989.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ All the Fury - Layers (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169990.jpgsave_picture_169990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169990.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:BF1F7D4D820633C779E069E593C807B6A03E304F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169991.jpgsave_picture_169991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169991.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Detective Olivia: The Cult of Whisperers / Детектив Оливия: Кул
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169992.jpgsave_picture_169992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169992.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:9EA08ABD3089E3C8A8600F628545F389568F17A7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169993.jpgsave_picture_169993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169993.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Pado & Co - Pado & Co (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169994.jpgsave_picture_169994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169994.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Eufobia - Insemination (2010) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169995.jpgsave_picture_169995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169995.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:1CAE03E2F3D7BAA9A74C7F9D7532376613FEACB2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169996.jpgsave_picture_169996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169996.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Veladelyra - XXI (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169997.jpgsave_picture_169997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169997.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Charlie Parker - 3 Essential Albums (1948 - 1952) 3CD, 2017, Universal [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169998.jpgsave_picture_169998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169998.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:8BCEE2E7AD070301EE6AAD671E52A1393CB30261
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169999.jpgsave_picture_169999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169999.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Fuzzy Duck - Fuzzy Duck (1971) Reissue, 1993, Repertoire Records [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170000.jpgsave_picture_170000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170000.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:038A8FC8195DFCF21F5C99AC1B3CDFB834698AB7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170001.jpgsave_picture_170001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170001.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Airstrike - Power in Your Hand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170002.jpgsave_picture_170002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170002.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Templates for Keynote - DesiGN 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170003.jpgsave_picture_170003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170003.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:9EE456F9E9408698E00A797D6E742CFDF6CD235F
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170004.jpgsave_picture_170004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170004.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Topaz Photo AI 2.0.7 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170005.jpgsave_picture_170005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170005.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ DJ KUBA & NEITAN - Yearmix 2020 (2020-11-28) [MP3|320 Kbps] <Electro House, Big 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170006.jpgsave_picture_170006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170006.jpg" />
 </div>
 
 

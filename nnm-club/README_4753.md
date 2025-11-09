@@ -6,7 +6,7 @@ Opera One 105.0.4970.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148747.jpgsave_picture_148747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148747.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D9C6A0AD36819A313DA0BFB3E451A577172F287B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148749.jpgsave_picture_148749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148749.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148751.jpgsave_picture_148751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148751.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portrait
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148752.jpgsave_picture_148752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148752.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Battery Indicator for Mac 2.11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148753.jpgsave_picture_148753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148753.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Four On The Floor - Four On The Floor (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148754.jpgsave_picture_148754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148754.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148755.jpgsave_picture_148755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148755.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8E11890A77B8C026B4C9F79A748BE2F08E049171
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148757.jpgsave_picture_148757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148757.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:088F29A67E1FE4159A2B52A87AE2311FA9D2CD81
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148758.jpgsave_picture_148758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148758.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148759.jpgsave_picture_148759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148759.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:86C59B62E2734D3088D3B5F155616A0C012917D4
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148760.jpgsave_picture_148760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148760.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148761.jpgsave_picture_148761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148761.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Belore - Artefacts (2021) [Flac|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148762.jpgsave_picture_148762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148762.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Clean Space 2015.04 Portable by SoftsPortateis [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148763.jpgsave_picture_148763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148763.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Udemy, Андрей Сумин | Java с нуля до Junior + Подготов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148764.jpgsave_picture_148764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148764.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Vargas Blues Band - Vargas Blues Band & Company (2012) [MP3|320 кб/с]<Blues R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148766.jpgsave_picture_148766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148766.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Alphaville - Salvation (1997) Deluxe Version, Remaster, 2023, Warner Music Centr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148767.jpgsave_picture_148767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148767.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148768.jpgsave_picture_148768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148768.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:FEE6B41B5ABBF31CFC3536B6E5ACFEB4F5C30395
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148769.jpgsave_picture_148769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148769.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148770.jpgsave_picture_148770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148770.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:C9598868ABB1E737F73E814B46D9263DE9F4DC4F
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148771.jpgsave_picture_148771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148771.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:E9E6E6CEB5845A1AACE279150BB066F59E85F439
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148774.jpgsave_picture_148774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148774.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ BusyCal 2021.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148775.jpgsave_picture_148775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148775.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:C9E4D5DAD22C945F48126EEA77AF9EB1329E455B
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148776.jpgsave_picture_148776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148776.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:E19D04D0FF3F2E2377CE08CF07D010AE869A86EB
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148777.jpgsave_picture_148777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148777.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Vivaldi 2.10.1745.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148778.jpgsave_picture_148778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148778.jpg" />
 </div>
 
 

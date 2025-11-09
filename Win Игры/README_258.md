@@ -6,7 +6,7 @@ Hidden Cats in Paris (2022) [En] (11956959) Scene Tenoke
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176556.jpgsave_picture_176556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176556.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bilkins Folly (2023) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176568.jpgsave_picture_176568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176568.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (6.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177136.jpgsave_picture_177136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177136.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Resident Evil: Revelations (2013) [Ru/Multi] (1.0u5/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177174.jpgsave_picture_177174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177174.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru] (1.2.12) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177541.jpgsave_picture_177541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177541.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Skeleton Crew (2022) [En] (1.1.3) License FLT
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177561.jpgsave_picture_177561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177561.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Halloween Stories 7: Written in Blood (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178150.jpgsave_picture_178150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178150.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.2.0/dlc) Repack Decepticon [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178576.jpgsave_picture_178576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178576.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178885.jpgsave_picture_178885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178885.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179172.jpgsave_picture_179172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179172.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Amok Runner (2022) [Ru/Multi] (9865847) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179471.jpgsave_picture_179471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179471.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179523.jpgsave_picture_179523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179523.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Crossroads 2: Escaping the Dark / Перекресток 2: Побег из ть
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179626.jpgsave_picture_179626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179626.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Overpass 2 (2023) [Ru/Multi] (1.0.0-1892.84963) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179771.jpgsave_picture_179771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179771.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179789.jpgsave_picture_179789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179789.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Demonologist (2023) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179794.jpgsave_picture_179794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179794.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179834.jpgsave_picture_179834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179834.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179877.jpgsave_picture_179877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179877.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Unsolved Case 4: Above the Law / Нераскрытое дело 4: Вне за�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180017.jpgsave_picture_180017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180017.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (01.02 Build 9460237) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180164.jpgsave_picture_180164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180164.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ ZED (2019) [En] (1.3) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180507.jpgsave_picture_180507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180507.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181033.jpgsave_picture_181033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181033.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ No Sun To Worship (2023) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181037.jpgsave_picture_181037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181037.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AMID EVIL (2019) [En] (2614/dlc) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181078.jpgsave_picture_181078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181078.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tails Noir (2021) [Ru/Multi] (11857296/dlc) Scene Tenoke [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181113.jpgsave_picture_181113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181113.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181208.jpgsave_picture_181208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181208.jpg" />
 </div>
 
 

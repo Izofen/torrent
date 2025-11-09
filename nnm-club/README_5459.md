@@ -6,7 +6,7 @@ This Is the President (2021) [Ru/En] (1.0c) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168855.jpgsave_picture_168855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168855.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7C478D11785B5EDD53AD76B8EC1CDAED47C315B8
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168857.jpgsave_picture_168857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168857.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:24180D665C846A1F155498745D389070F6A7FB88
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168858.jpgsave_picture_168858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168858.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SmallFoto 7.1 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168859.jpgsave_picture_168859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168859.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:226E02CDAEF51ECD7D3751676580299F258C591F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168860.jpgsave_picture_168860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168860.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:25E72F65A6ECE33F18E117C5AAC824C5336627C8
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168861.jpgsave_picture_168861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168861.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168862.jpgsave_picture_168862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168862.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3E7EE6B7CBA5230C365C9B1706A299EAC36C9C2B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168863.jpgsave_picture_168863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168863.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:9C881EFDA9A4EC37BDB3390919D4FAC1C67EA6DC
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168864.jpgsave_picture_168864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168864.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:836BD9F280EE923F68866630E9F4C54FD972A217
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168865.jpgsave_picture_168865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168865.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:49BD10D37E9B59613FAD2F8B3756A053042C0C55
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168866.jpgsave_picture_168866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168866.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:8BD0D0F6EE1C115E0135E886AD15F562A66DBB15
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168867.jpgsave_picture_168867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168867.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Teorex Inpaint 10.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168868.jpgsave_picture_168868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168868.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Tarja (Nightwish) - Studio Albums (5 releases) (2007 - 2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168869.jpgsave_picture_168869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168869.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168870.jpgsave_picture_168870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168870.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:F211842C3A0A2540D0EB84FDA77C1C20D741D413
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168871.jpgsave_picture_168871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168871.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:58BECB2A2CE728BE9101359A388EBA8A739F9197
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168872.jpgsave_picture_168872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168872.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:09C49C3C5BEEE492CDE638BC035F8DFEA94472D1
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168873.jpgsave_picture_168873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168873.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Microsoft Visual Studio 2019 Community 16.3.9 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168874.jpgsave_picture_168874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168874.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ PortableApps.com Platform 23.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168875.jpgsave_picture_168875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168875.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:9F8BB1CFA44F7EA4CEAE476EF68FC9318E88B933
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168876.jpgsave_picture_168876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168876.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Advanced Installer 17.7 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168877.jpgsave_picture_168877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168877.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Новый Год вдвоём (2019) [MP3|320 Kbps] <Pop, Christmas, Other
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168878.jpgsave_picture_168878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168878.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168879.jpgsave_picture_168879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168879.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ PureSync 6.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168880.jpgsave_picture_168880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168880.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:3C665BD47DF121B978B556BF1B1BB04B07EE9F82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168881.jpgsave_picture_168881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168881.jpg" />
 </div>
 
 

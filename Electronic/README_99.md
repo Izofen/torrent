@@ -6,7 +6,7 @@ Classix Nouveaux - Battle Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Ne
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149257.jpgsave_picture_149257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149257.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Symphony of Unity - Live @ Atmosphere Stage, Tomorrowland, Belgium (2023-07-29) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149413.jpgsave_picture_149413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149413.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Nitrous Oxide Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149471.jpgsave_picture_149471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149471.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Kyau & Albert Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149488.jpgsave_picture_149488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149488.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Emma Hewitt - Emma Hewitt Remixed (Mini Mix) (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149771.jpgsave_picture_149771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149771.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ SYNTHEVER - Around The World Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesyn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150188.jpgsave_picture_150188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150188.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Christmas Dance Party 2018 (2018) [MP3|320 Kbps] <Big Room, Dance, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150333.jpgsave_picture_150333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150333.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Steyoyoke Gems Nocturnal 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150348.jpgsave_picture_150348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150348.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VA - The Soundplate 2016 Collection (2016) [MP3|320 Kbps] <Electronic, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150357.jpgsave_picture_150357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150357.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Steyoyoke Gems Solar 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150360.jpgsave_picture_150360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150360.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sebastien - Hands On Armada (2018) [MP3|320 Kbps] <Progressive House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150390.jpgsave_picture_150390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150390.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Winter Deep: Deep House For Colder Days (2018) [MP3|320 Kbps] <House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150394.jpgsave_picture_150394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150394.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Hotel, Bar & Restaurant Romantic Background Music (2023) [MP3|320 Kbps] <Lo
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150476.jpgsave_picture_150476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150476.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Mandarin Chill Out, Vol. 1 (2023) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150500.jpgsave_picture_150500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150500.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Mandarin Chill Out, Vol. 2 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downtem
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150501.jpgsave_picture_150501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150501.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Disco House Sounds 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Club House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150502.jpgsave_picture_150502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150502.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Ibiza Winter Island 2024 (The Deep-House Edition) (2023) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150522.jpgsave_picture_150522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150522.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Futuro (Mixed And Compiled By John Digweed) - 2023 [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150524.jpgsave_picture_150524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150524.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - The Best Of House 2023 Part 2 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150535.jpgsave_picture_150535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150535.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Black Hole Trance Music 11-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150536.jpgsave_picture_150536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150536.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Blank & Jones - Chilltronica EP 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150537.jpgsave_picture_150537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150537.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Black Hole House Music 11-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150547.jpgsave_picture_150547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150547.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Lucas & Steve - Live @ L&S and Friends, Escape, Amsterdam Dance Event (2023-10-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150560.jpgsave_picture_150560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150560.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Rising Sun Wonders (2025) [MP3|320 Kbps] <Progressive House, Melodic House 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150675.jpgsave_picture_150675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150675.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Vanessa Daou - Discography 40 Releases (1992-2020) [MP3|320 Kbps] <Nu Soul, Spok
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150797.jpgsave_picture_150797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150797.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Interplay Highlights 2022 (2022) [MP3|320 Kbps] <Trance, House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150923.jpgsave_picture_150923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150923.jpg" />
 </div>
 
 

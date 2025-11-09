@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198638.jpgsave_picture_198638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198638.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7FA9BE2C78F6EA1E741726F9E95F2ECE27C9E036
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198639.jpgsave_picture_198639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198639.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4AA2B7DA6E3D35D52EAE945A954B1BA2A3A3A6A9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198641.jpgsave_picture_198641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198641.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Exposure X7 7.1.7.2 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198642.jpgsave_picture_198642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198642.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:3FC5A8248C689759F9B331F47470B4B23B703BE4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198644.jpgsave_picture_198644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198644.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A1CB60D67FA7B2412993463C56F172A4F6708FB1
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198645.jpgsave_picture_198645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198645.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ DxO PureRAW 3.2.0 build 545 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198646.jpgsave_picture_198646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198646.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:AB421358C1E0BB16BFB3592A93B3AA7F32C378DA
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198647.jpgsave_picture_198647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198647.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ OCCT 11.0.22 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198648.jpgsave_picture_198648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198648.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:DD8BFB49FF6230D952F15AB9140756E4D839E812
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198649.jpgsave_picture_198649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198649.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:897CC4CA06B1119F34510001B62C6B16FCEB5899
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198650.jpgsave_picture_198650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198650.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Silent Circle - ZEITLOS - Silent Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198651.jpgsave_picture_198651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198651.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:9284C5EA79D94D9E31AB2BB28411C07F0853BA4D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198652.jpgsave_picture_198652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198652.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ SHAMAN – «Я русский» (2023) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198653.jpgsave_picture_198653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198653.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ FastStone Capture 10.0 Final + Portable (DC 10.05.2023) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198654.jpgsave_picture_198654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198654.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ OCCT 11.0.21 Patreon Edition RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198655.jpgsave_picture_198655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198655.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Comodo Dragon 111.0.5563.148 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198656.jpgsave_picture_198656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198656.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:C84FAA45D8497E8FAC2A068CB85C11DEC61313D8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198657.jpgsave_picture_198657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198657.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:D3AF57A3655F848B398A3677E2499AFCA52FDF02
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198658.jpgsave_picture_198658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198658.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ WhatsApp (outdated) 2.2319.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198659.jpgsave_picture_198659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198659.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Optimizer 15.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198660.jpgsave_picture_198660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198660.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:C6AB495EBD97850020F74CC9F20D8B498076C230
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198661.jpgsave_picture_198661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198661.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:BEA28A69782222F2B7FA645AB817D92D605F2A69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198662.jpgsave_picture_198662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198662.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Speedtest by Ookla 1.11.165.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198663.jpgsave_picture_198663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198663.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:113CFEBCB2914BC657CEC7BD5D08A01EA2E18622
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198664.jpgsave_picture_198664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198664.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:610BF7C471CBEB81E3743BAA1F05965CCFCFFB58
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198665.jpgsave_picture_198665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198665.jpg" />
 </div>
 
 

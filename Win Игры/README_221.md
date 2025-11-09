@@ -6,7 +6,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608/dlc) Repack Other s [Par
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116944.jpgsave_picture_116944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116944.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7.2369) Repack Other s [Part 2]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116949.jpgsave_picture_116949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116949.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Siberian Village (2024) [Ru/Multi] (0.97) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116955.jpgsave_picture_116955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116955.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116959.jpgsave_picture_116959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116959.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116968.jpgsave_picture_116968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116968.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Hearts of Iron / День Победы (2002-2009) [Ru] (1.06c/1.3b/1.3a/1.2/1.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116975.jpgsave_picture_116975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116975.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116989.jpgsave_picture_116989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116989.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117097.jpgsave_picture_117097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117097.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117125.jpgsave_picture_117125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117125.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117254.jpgsave_picture_117254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117254.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117321.jpgsave_picture_117321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117321.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117482.jpgsave_picture_117482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117482.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ HAYDEE II (2020) [Ru/Multi] (1.0.18.11/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117518.jpgsave_picture_117518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117518.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Little Nightmares III (3) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117527.jpgsave_picture_117527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117527.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Spectra: Beneath the Stain (2025) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117531.jpgsave_picture_117531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117531.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dreams of Another (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117533.jpgsave_picture_117533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117533.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Little Nightmares III (2025) [Ru/Multi] (1.0.0/dlc) Repack Let'sРlay [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117535.jpgsave_picture_117535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117535.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Edge of Reality 10: Island of Shadows (2025) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117619.jpgsave_picture_117619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117619.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Yooka-Replaylee (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117623.jpgsave_picture_117623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117623.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117657.jpgsave_picture_117657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117657.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.36.2/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117731.jpgsave_picture_117731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117731.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:82371F00E93C908591A0E1A750C04F3DCE0F6D4B
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117763.jpgsave_picture_117763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117763.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Slot Shots Pinball (2024) [En] (1.0) Repack FitGirl [Ultimate Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117858.jpgsave_picture_117858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117858.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Paquerette Down the Bunburrows (2023) [Multi] (1.0.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117879.jpgsave_picture_117879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117879.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Terror Mansion (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117882.jpgsave_picture_117882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117882.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Backrooms Deluxe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117886.jpgsave_picture_117886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117886.jpg" />
 </div>
 
 

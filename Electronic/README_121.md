@@ -6,7 +6,7 @@ about : river - 24 Years Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192669.jpgsave_picture_192669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192669.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Wonderful Days - Best of 90s Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192811.jpgsave_picture_192811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192811.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Future Trance Vol.100 (2022) 3CD, Compilation, Mixed, Digipack [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192842.jpgsave_picture_192842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192842.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Sweet September: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193043.jpgsave_picture_193043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193043.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193074.jpgsave_picture_193074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193074.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Keep It Trance Vol. 15 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193078.jpgsave_picture_193078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193078.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Ori Uplift - Uplifting Only Episode 663 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193405.jpgsave_picture_193405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193405.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Interplay Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Melodi
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193406.jpgsave_picture_193406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193406.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Lounge Pool (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193457.jpgsave_picture_193457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193457.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Orientalia 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193591.jpgsave_picture_193591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193591.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Future Sound of Egypt ADE 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193692.jpgsave_picture_193692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193692.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Trance Fusion, Vol. 14 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193695.jpgsave_picture_193695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193695.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jean-Michel Jarre & Nina Kraviz - Sex In The Machine Take 2 (2023) Single [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193887.jpgsave_picture_193887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193887.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - Black Hole Trance Music 06-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194767.jpgsave_picture_194767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194767.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Stim Axel - Тишина (2006) [MP3|320 Kbps] <Drum & Bass, Vocal>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197015.jpgsave_picture_197015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197015.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Aphrodite - Break In Reality (2007)
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197019.jpgsave_picture_197019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197019.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Stim Axel - AcousticA (2010) [MP3|320 kbps]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197023.jpgsave_picture_197023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197023.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Pirate Station X [Mixed by DJ Gvozd] (26.02.2010) [MP3|320 kbps]<Drum'n'Bas
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197025.jpgsave_picture_197025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197025.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Stim Axel - На Радиоволнах... (2008) [MP3|320 Kbps] <Drum & Bass, V
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197031.jpgsave_picture_197031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197031.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:794FE22CA8292907AE1B411F8050836764EB2C0D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197033.jpgsave_picture_197033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197033.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ DJ Грув - ЯД (2007) [FLAC|1072 kbps]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197044.jpgsave_picture_197044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197044.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ John B - To Russia With Love (2008) [MP3|320 kbps]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197191.jpgsave_picture_197191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197191.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ DJ Грув - Белый альбом (2007) [FLAC|946 kbps]<Electronic, Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197197.jpgsave_picture_197197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197197.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Gunsta Sessions - Vol. 2 (2008) [MP3|320 kbps]<Drum&Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197220.jpgsave_picture_197220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197220.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197265.jpgsave_picture_197265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197265.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Sandra - Stop For A Minute (Maxi-Singles Collection) (2023) [FLAC|Lossless|image
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198673.jpgsave_picture_198673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198673.jpg" />
 </div>
 
 

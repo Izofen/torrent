@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179019.jpgsave_picture_179019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179019.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hanged Ghost - The Attraction of Oblivion (2013) [FLAC|Lossless|image + .cue] <F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179024.jpgsave_picture_179024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179024.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B542A8CAB9B1A3B542AAC289F5B3FA660546137D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179026.jpgsave_picture_179026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179026.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:798CE848BB05D3EE6D99FBD125A61DAF884A5FED
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179029.jpgsave_picture_179029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179029.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Nocturnal Abbey - The great blackened swan (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179032.jpgsave_picture_179032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179032.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Steeler - Rulin' The Earth (1985) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179036.jpgsave_picture_179036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179036.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ CPU-Z 2.03.1 Portable by Visit [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179037.jpgsave_picture_179037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179037.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Mob Rules - Cannibal Nation (2012) [FLAC|Lossless|image + .cue] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179039.jpgsave_picture_179039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179039.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:BC1ECB69E2428221D1155A2F685B1FE444DA886E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179041.jpgsave_picture_179041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179041.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:76D005716EEACEAE7EAC9663C667238F754DF3D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179043.jpgsave_picture_179043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179043.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ L' impero delle ombre - I compagni di Baal (2011) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179044.jpgsave_picture_179044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179044.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Total Commander 3.40b2d-BETA [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179048.jpgsave_picture_179048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179048.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Mob Rules - Savage Land (1999) [FLAC|Lossless|image + .cue] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179049.jpgsave_picture_179049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179049.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Iron Savior - Firestar (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal / Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179051.jpgsave_picture_179051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179051.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ OnionFruit Connect 2022.1123 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179053.jpgsave_picture_179053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179053.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ tinyCam Monitor PRO 15.3.10 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179056.jpgsave_picture_179056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179056.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Restless Spirit - Afterimage (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179057.jpgsave_picture_179057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179057.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Steeler - Undercover Animal (1988) [WavPack|24/192|image + .cue|Vinyl-Rip] <Heav
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179060.jpgsave_picture_179060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179060.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ StopUpdates10 3.8.2022.1129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179061.jpgsave_picture_179061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179061.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:BD978B3A380758345B9680AFDB94EF0A2494E52B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179063.jpgsave_picture_179063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179063.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:1DE44ED82CD21913A369962BE049207F11B6FDDA
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179064.jpgsave_picture_179064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179064.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Steeler - Strike Back (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpgsave_picture_179068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179068.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179069.jpgsave_picture_179069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179069.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:8A564D7D35EB9F2C2EDB030C64E5DC0E083427E9
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179070.jpgsave_picture_179070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179070.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Hanged Ghost - Knowledge of the Occult (2011) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179073.jpgsave_picture_179073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179073.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Prong - State Of Emergency (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179075.jpgsave_picture_179075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179075.jpg" />
 </div>
 
 

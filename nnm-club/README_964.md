@@ -6,7 +6,7 @@
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25413.jpgsave_picture_25413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25413.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lacrimosa - Lament (2025) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25414.jpgsave_picture_25414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25414.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0B14A480EBCDD998A6BCC92816530F594AC24475
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25415.jpgsave_picture_25415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25415.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:394366F940DC2BAB6AA69C4A185B6AE678BF0580
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25416.jpgsave_picture_25416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25416.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:24D89E7A144540E76508296ECE8397E04E565440
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25417.jpgsave_picture_25417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25417.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Wise Disk Cleaner 11.2.1.838 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25418.jpgsave_picture_25418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25418.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ PotPlayer 250226 (1.7.22497) Stable RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25419.jpgsave_picture_25419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25419.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ KORG - multi/poly native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25420.jpgsave_picture_25420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25420.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ United Plugins & JMG Sound - WideFire 1.0 VST, VST 3, AAX (x64) RePack by BUBBiX
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25421.jpgsave_picture_25421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25421.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:0336C3319955C95E9EDF546904344C99C020661B
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25422.jpgsave_picture_25422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25422.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:0336C3319955C95E9EDF546904344C99C020661B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25423.jpgsave_picture_25423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25423.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:0136BEE631AB07C40A29D950D558037054DB1900
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25424.jpgsave_picture_25424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25424.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:17252F73E4932AC94E72FC561EAAAF085046973E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25425.jpgsave_picture_25425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25425.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Foobar2000 2.24.3 include Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25426.jpgsave_picture_25426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25426.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Far Cry Compilation (2014) [PS3] [USA] 4.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25427.jpgsave_picture_25427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25427.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:70F2B5D0E679C98E6D9E0B9C5350410E3B66C7AF
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25428.jpgsave_picture_25428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25428.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:571960FD28E98D9D3BFF6AAC8CCB673D9F6E1966
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25429.jpgsave_picture_25429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25429.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Ant Download Manager Pro 2.15.1 Build 89455 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25430.jpgsave_picture_25430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25430.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Capture One 23 Enterprise 16.5.8.2763 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25431.jpgsave_picture_25431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25431.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:5DFF03BDC657C346C88355BB90F6DDB01610B0B0
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25432.jpgsave_picture_25432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25432.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:A50B02819CE5532C9DA18E3E5146FA76F9E118E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25433.jpgsave_picture_25433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25433.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Driver Store Explorer 0.12.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25434.jpgsave_picture_25434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25434.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ USB Device Tree Viewer 4.5.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25435.jpgsave_picture_25435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25435.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:970BE3ECFD0E4EE076772ED822D386B5634EF95A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25436.jpgsave_picture_25436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25436.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Brave Browser 1.76.73 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25437.jpgsave_picture_25437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25437.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ RAM Saver Professional 25.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25438.jpgsave_picture_25438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25438.jpg" />
 </div>
 
 

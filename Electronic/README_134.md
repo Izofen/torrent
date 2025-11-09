@@ -6,7 +6,7 @@ VA - Clubbers Culture: Car Audio Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240072.jpgsave_picture_240072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240072.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Ibiza Deep House Megamix (2023) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240087.jpgsave_picture_240087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240087.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Sirup Miami 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240101.jpgsave_picture_240101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240101.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - The Best Of Scorchin' Vol. 1 (Mixed By Super8 & Tab) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240109.jpgsave_picture_240109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240109.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Midnight Fury - Metamorph (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240184.jpgsave_picture_240184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240184.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240291.jpgsave_picture_240291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240291.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Locust Toybox - When We Implode (2021) [FLAC|Lossless|WEB-DL|tracks] <Leftfield,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240334.jpgsave_picture_240334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240334.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Artist Showcase 2020/21 (2020) Point Source Electronic Arts [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240450.jpgsave_picture_240450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240450.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ RÜFÜS DU SOL (RUFUS DU SOL) - Collection 7 Releases (2014-2022) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240581.jpgsave_picture_240581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240581.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Smouldering Embers of Aggression - Ghosted (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240651.jpgsave_picture_240651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240651.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Future Vocal Trance Vol. 1 (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240773.jpgsave_picture_240773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240773.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Black Hole Trance Music 04-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240789.jpgsave_picture_240789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240789.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Daniel Avery - More Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electron
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240813.jpgsave_picture_240813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240813.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Armin van Buuren - A State Of Trance 1116 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240844.jpgsave_picture_240844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240844.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Kryder & DEADLINE - Kryteria Radio 286 (2021-04-14) [MP3|192 Kbps] <House, Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240850.jpgsave_picture_240850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240850.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - 6 Years Label Anniversary, Pt. 2 (2023) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240871.jpgsave_picture_240871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240871.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Spirit of Trance, Vol. 1 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240936.jpgsave_picture_240936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240936.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Trance On The Beach 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240961.jpgsave_picture_240961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240961.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Primer - Incubator (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Technopop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240994.jpgsave_picture_240994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240994.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Keep It Trance Vol. 11 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241015.jpgsave_picture_241015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241015.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Lyrus - Found In (2019) Touched Music [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241052.jpgsave_picture_241052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241052.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ RAC - RAC_UNRELEASED (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Brea
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241056.jpgsave_picture_241056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241056.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ O-Wells - Subfriction (2021) a.r.t.less [FLAC|Lossless|WEB-DL|tracks] <Detroit T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241087.jpgsave_picture_241087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241087.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Summer Dance Vibes, Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241101.jpgsave_picture_241101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241101.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Rencontre Nocturne - Journey to Paradise Again (2022) [MP3|320 Kbps] <Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241226.jpgsave_picture_241226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241226.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Summer Beach Party (2017) [MP3|320 Kbps] <House, Electro House, Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241272.jpgsave_picture_241272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241272.jpg" />
 </div>
 
 

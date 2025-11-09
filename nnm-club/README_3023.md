@@ -6,7 +6,7 @@ VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93782.jpgsave_picture_93782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93782.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Minimal Art v.5 (13.02.2012) [MP3|320 kbps]<Minimal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93784.jpgsave_picture_93784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93784.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - The Dance Cube XXXI (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93793.jpgsave_picture_93793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93793.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ IntroWert - Progressive Reason Episode 070 [06.02.2012] (2012) [MP3|192 kbps]<Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93794.jpgsave_picture_93794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93794.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Goa 2012 Vol. 1 (2CD) (2012) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Ful
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93797.jpgsave_picture_93797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93797.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Stay Alive (Compiled by Wega) (2012) [MP3|192-320 kbps]<Psychedelic / Full 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93810.jpgsave_picture_93810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93810.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93815.jpgsave_picture_93815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93815.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93817.jpgsave_picture_93817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93817.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93826.jpgsave_picture_93826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93826.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electr
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93829.jpgsave_picture_93829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93829.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93832.jpgsave_picture_93832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93832.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:451CEEC97E1E446D6402B26E5AB99EE70329FDA9
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93842.jpgsave_picture_93842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93842.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93843.jpgsave_picture_93843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93843.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93845.jpgsave_picture_93845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93845.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Voices From The Lake Feat. Donato Dozzy & Neel - Voices from the Lake (Album) (2
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93848.jpgsave_picture_93848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93848.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93853.jpgsave_picture_93853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93853.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93859.jpgsave_picture_93859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93859.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:7D2FB02F09F02D864A302E04FD7FB4498750E6B7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93872.jpgsave_picture_93872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93872.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:500F2206BBF3D732E947B4ADBE5305DCF8E6C817
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93873.jpgsave_picture_93873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93873.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:AB3E83ACCEF25489CF75622E8C4F017319D36E51
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93880.jpgsave_picture_93880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93880.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:E4B8484A705827BDD2E424FEE5B0F464BB0B04D5
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93904.jpgsave_picture_93904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93904.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:5E69C0F3B084692D2662972628F6B42F752E9AE0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93906.jpgsave_picture_93906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93906.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:8AF745C52D4B54649133B4959743B3F7023A2FC0
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93913.jpgsave_picture_93913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93913.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:E8F596399D1A053B831DD513D0E8EB1ADEB52DAB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93919.jpgsave_picture_93919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93919.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - Metal Violin (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93925.jpgsave_picture_93925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93925.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ VA - Paul Oakenfold: DJ Box - February 2012 (2012) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93930.jpgsave_picture_93930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93930.jpg" />
 </div>
 
 

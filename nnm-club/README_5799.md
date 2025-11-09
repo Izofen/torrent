@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180852.jpgsave_picture_180852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180852.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Abelssoft Win11PrivacyFix 2023 2.01.42898 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180854.jpgsave_picture_180854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180854.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Q-Dir 11.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180856.jpgsave_picture_180856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180856.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F6D5C4C256A56A6B3D924177C9DB9839EFDECEE7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180858.jpgsave_picture_180858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180858.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180860.jpgsave_picture_180860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180860.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Coyote Kings - Hot Mess (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180863.jpgsave_picture_180863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180863.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:F8B74881BE0470F75D2FF0344CE844D05690DBB4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180864.jpgsave_picture_180864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180864.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:339DC9E8A0CFB72C0339817C8C6AE34123E6A8F8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180867.jpgsave_picture_180867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180867.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Disco Coco Bongo Compilation (2022) [MP3|320 Kbps] <Italo Dance, Club, Euro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180868.jpgsave_picture_180868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180868.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:B2ECF61D235D89463DBC4D3CBA25DDA49BAAD97B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180870.jpgsave_picture_180870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180870.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Moises: приложение-музыкант 2.5.3 Mod by GoldenBoot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180872.jpgsave_picture_180872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180872.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Shy - Sunset And Vine (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180874.jpgsave_picture_180874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180874.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:8D4AECD71272CEC15994B3B08E8ECE92E4B1BC55
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180875.jpgsave_picture_180875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180875.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Quick CPU 4.5.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180877.jpgsave_picture_180877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180877.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:A6C602FFC680E6E863F41EC46BF93555D4831BBF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180880.jpgsave_picture_180880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180880.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:7265CB3546CCDF53A18081E00C9A76F14544A510
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180883.jpgsave_picture_180883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180883.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Colorize - Color to Old Photos v3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180884.jpgsave_picture_180884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180884.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:D98FFC132E6A92F25FB9D533AF57C001B42B3B42
 >>Ноты и обучение музыке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180885.jpgsave_picture_180885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180885.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:CB87191406F937FF10699159F1C66D2FD54B951A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180886.jpgsave_picture_180886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180886.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ One Commander Pro 3.24.0.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180888.jpgsave_picture_180888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180888.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Memento Database Pro 4.13.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180889.jpgsave_picture_180889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180889.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:95006119180289119964EA8899C79671134F966A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180890.jpgsave_picture_180890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180890.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Soul Exchange - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180893.jpgsave_picture_180893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180893.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ritual Fire - Lost In A Nightmare (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180895.jpgsave_picture_180895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180895.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:BBB01D2AA18A201F236C6A8C926031EBB804B42B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180898.jpgsave_picture_180898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180898.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:F8ED00D88ED8A22857F9C2FC4878405F67807E1E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180901.jpgsave_picture_180901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180901.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Sc
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241850.jpgsave_picture_241850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241850.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C0CE7A85128779B47C100A57B74336E0072CDEF6
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241851.jpgsave_picture_241851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241851.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Gumroad, Nika Zautashvili | Blender Video - WHALE-1 (2022) Blu-ray [Realtime pro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241852.jpgsave_picture_241852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241852.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Phoenix Rising - Fire & Ashes - Acta Est Fabula (2021) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241853.jpgsave_picture_241853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241853.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Graveyhard - 2 Albums (2018-2020) [MP3|320 Kbps] <Stoner, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241854.jpgsave_picture_241854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241854.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ CheckBook Pro 2.7.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241855.jpgsave_picture_241855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241855.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:9CD968D31BC0E2A5DFE1235165061714FF8871C3
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241856.jpgsave_picture_241856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241856.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:AD58FDC2316725EA945119F75EA1B4CD1B65FA8E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241857.jpgsave_picture_241857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241857.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B22C4D5475C42CBA2075D845E1B8F7DB34A49285
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241858.jpgsave_picture_241858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241858.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:46073A8F042F646968DD269DA9A900B50843BCAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241859.jpgsave_picture_241859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241859.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - German Top 100 Single Charts 24.02. (2017) [MP3|320 Kbps] <Pop , Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241860.jpgsave_picture_241860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241860.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Gumroad, Daniel Thiger | Rock Creation Techniques Part 1-2: Shapes, Surface Deta
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241862.jpgsave_picture_241862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241862.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Soliton - Cyclical Denial (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241863.jpgsave_picture_241863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241863.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Primitai - The Line Of Fire (2010) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241864.jpgsave_picture_241864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241864.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ WSCC (Windows System Control Center) 7.0.6.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241865.jpgsave_picture_241865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241865.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:67D18655EEFD4130FBA58E5AA7662074483E0823
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241866.jpgsave_picture_241866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241866.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Burito - Псевдопанк (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241867.jpgsave_picture_241867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241867.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Short Menu 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241868.jpgsave_picture_241868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241868.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:0BC8CC53C59E32BEE5A0008BABEE051CDE30621E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241870.jpgsave_picture_241870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241870.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:7A91E66FA0109868C56E675C2027C8AA7095FDA3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241871.jpgsave_picture_241871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241871.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:F5F89F6316E7CD932BEF59EA3BFCB963FE0BF4BA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241872.jpgsave_picture_241872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241872.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:BC02061C904C42EEEEBD3E618081E75F59AF280C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241873.jpgsave_picture_241873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241873.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:ADA73D77CF077786C55A916272ACD48FC93B66E8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241874.jpgsave_picture_241874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241874.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ All Wasted - Burn With Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241875.jpgsave_picture_241875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241875.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:AFC7C92DCBA4F4BCCA82168E45927881D8AD27F4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241876.jpgsave_picture_241876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241876.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:3952A5F20B94FE7077002F60FA6893A68491780E
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241877.jpgsave_picture_241877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241877.jpg" />
 </div>
 
 

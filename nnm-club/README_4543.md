@@ -6,7 +6,7 @@ Ushio to Tora / Усио и Тора [ТВ-1] [2015, TV, 26 из 26] HDTV 720p R
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142151.jpgsave_picture_142151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142151.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FED9AFC610D1C23D5240B1243CB9EF1C1CFB5691
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142152.jpgsave_picture_142152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142152.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VivaVideo 9.12.6 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142155.jpgsave_picture_142155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142155.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D9E26FBCC9A096D8185098DB6D5E5216DA3AAE78
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142157.jpgsave_picture_142157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142157.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ NotGTAV (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142159.jpgsave_picture_142159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142159.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:611548D639A38B0A161DDE7B97FA1530238C4570
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142160.jpgsave_picture_142160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142160.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:639EA164C05AD17C86876685EBEAB87127866C55
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142162.jpgsave_picture_142162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142162.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D334A1077FE527D556785FAF370751EF0C428C18
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142163.jpgsave_picture_142163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142163.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Wondershare Recoverit for Mac 12.0.19.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142165.jpgsave_picture_142165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142165.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:82DE92308372DFDC78B256ADA02E13D3BBB67BB9
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142166.jpgsave_picture_142166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142166.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:761DA796D4A36C81F6FD5EF2E3C53132935A5ED7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142167.jpgsave_picture_142167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142167.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:23D995CA4D4A1E2A73CB269095EF3D2EFE8BDFEC
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142168.jpgsave_picture_142168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142168.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Promt 11 Dictionaries Collection DC 20.11.2015 RePack by MKN [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142169.jpgsave_picture_142169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142169.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:2DAC77DCB0136EC0BAB774FE2F7CD13AF883CF20
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142172.jpgsave_picture_142172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142172.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ iPhone X вошёл в историю как первый смартфон с ш
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142174.jpgsave_picture_142174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142174.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ MacCleaner 2 PRO 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142175.jpgsave_picture_142175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142175.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:11C437F10D67B9F69CDE37BD4708744A85E5BF33
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142176.jpgsave_picture_142176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142176.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Prostoband - Гештальт (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142177.jpgsave_picture_142177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142177.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:895D7459731F8E8773B68FB883EA58E4062EE5F4
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142178.jpgsave_picture_142178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142178.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:C55C816D290988EDB4E75D8F9363F0C0D15A0E08
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142179.jpgsave_picture_142179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142179.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:56D48C0EEF40257EC0E2A85B99AB9DFFCA5EFFA7
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142180.jpgsave_picture_142180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142180.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Deep Blue Sea, Vol. 3: Deep Chill Mood (2019) [AAC|~331 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142181.jpgsave_picture_142181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142181.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:3EFD14FD221469E30FD3994E7D7D50826A2911AC
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142182.jpgsave_picture_142182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142182.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:A1CE0DBEF887B540725F410655CAFE421F99FD42
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142184.jpgsave_picture_142184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142184.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:7186EAE2988CA812942BBCFB6C1731909727A0DA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142185.jpgsave_picture_142185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142185.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ HITMAN 2 (2018) [Ru/Multi] (2.72.0/dlc) Repack Other s [Gold Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142186.jpgsave_picture_142186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142186.jpg" />
 </div>
 
 

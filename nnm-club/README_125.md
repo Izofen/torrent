@@ -6,7 +6,7 @@ Hypocrisy - Virus (Remaster 2025) (2005) Remastered, 2025, Nuclear Blast [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3300.jpgsave_picture_3300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3300.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hearts on Fire - Signs & Wonders (2025) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3301.jpgsave_picture_3301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3301.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:03EF58B73572A3EA42B49A10052B49CDC5D85558
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3302.jpgsave_picture_3302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3302.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ J.R. Richards - My Darkest Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3303.jpgsave_picture_3303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3303.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:F5AC103E79882A687A32FBD72648F58324EDDB45
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3304.jpgsave_picture_3304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3304.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:785F84BED603816615533A8B2267648BBD9DDDA8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3305.jpgsave_picture_3305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3305.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:5A8DDD909685DF26FB559EBEC5ACC758D6642DAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3306.jpgsave_picture_3306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3306.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:9D339E25C697837A4C3B8FD6963EDF0AA5635AE4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3307.jpgsave_picture_3307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3307.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Ashen - Chimera (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Metal, Modern 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3308.jpgsave_picture_3308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3308.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3309.jpgsave_picture_3309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3309.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3310.jpgsave_picture_3310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3310.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:BFB3DBEA292A84A3D5298B791B8FEF4ECD903439
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3311.jpgsave_picture_3311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3311.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:2ADFD462DF0E604EB7A8302A6063DA36FD966280
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3312.jpgsave_picture_3312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3312.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - A State Of Trance, Ibiza 2025 (Mixed by Armin van Buuren) (2025) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3313.jpgsave_picture_3313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3313.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:1D7ECE678A5A52AD6306C1ECC0FA399C8AB106C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3314.jpgsave_picture_3314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3314.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:8054CF3478DB356FAEB19F7272818B318314773D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3315.jpgsave_picture_3315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3315.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:EB06AC8685FA09253946A29341806050EC1C10F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3316.jpgsave_picture_3316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3316.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:7645C6218EB645791CB07EC5B9AEFD858D18B9A2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3317.jpgsave_picture_3317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3317.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Sequence Vogue - Perspectives (2025) [MP3|320 Kbps] <Synthpop, Futurepop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3318.jpgsave_picture_3318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3318.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:0040A994D328497F0278D4050DA47A9164D62384
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3319.jpgsave_picture_3319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3319.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:39F645D1CC69192680CA8C0D85FF12666550865C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3320.jpgsave_picture_3320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3320.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:C66A2FA1B82BFEEA192537DB4B102C00437E5C1B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3321.jpgsave_picture_3321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3321.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Teddy Swims - I've Tried Everything But Therapy (Part 2) (2025) [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3322.jpgsave_picture_3322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3322.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:503F0587286529F052D8D0C5D60D7B92700F9544
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3323.jpgsave_picture_3323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3323.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:96BD4B5EBFB8DBDA8C00EE8C75AC5D04AE3340C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3324.jpgsave_picture_3324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3324.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:37999186DCC9C01906BAADCF82036F42195796B4
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3325.jpgsave_picture_3325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3325.jpg" />
 </div>
 
 

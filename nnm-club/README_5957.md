@@ -6,7 +6,7 @@ Mantric Momentum - Trial by Fire (2022) [Mp3|320 kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187549.jpgsave_picture_187549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187549.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Groove Master Juno - The Last Prism (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187550.jpgsave_picture_187550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187550.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:23833DF01C5248AC421C25E547985BE47C098A93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187551.jpgsave_picture_187551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187551.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:E66E54391B34642C55A3F4C50C8BB1E0016BEECE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187553.jpgsave_picture_187553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187553.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:4536651BF9F7709CE7828F996B4676207FDE45B5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187554.jpgsave_picture_187554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187554.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Abbsynth - Back To The Sun (2008) [MP3|256 Kbps] <Electronic, Synth-pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187555.jpgsave_picture_187555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187555.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Ugly (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187556.jpgsave_picture_187556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187556.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Nancy Lee Sings - Catch You On The Other Side (2022) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187557.jpgsave_picture_187557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187557.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:6504AFB33F31281DB6B7F46552B1092A8F81FAB5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187558.jpgsave_picture_187558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187558.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:653A0B9F704AA53EA555C3C4681EA13F05FF8526
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187559.jpgsave_picture_187559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187559.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:CF739BE1974C2FC82F735A17E081C89A2A245046
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187560.jpgsave_picture_187560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187560.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:049248CF44A38F3CCBA1990CCCE653FD6B7BF644
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187562.jpgsave_picture_187562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187562.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Phil Woods & The Little Big Band - Real Life (1991) Chesky Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187564.jpgsave_picture_187564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187564.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.92.6600 RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187565.jpgsave_picture_187565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187565.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:552BC66A162C05361BEA38733618E468F83E62ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187566.jpgsave_picture_187566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187566.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ The Hill Frequencies - Routine Break (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187567.jpgsave_picture_187567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187567.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wielderfight - Black Coal/Black Smoke (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187568.jpgsave_picture_187568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187568.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Shamanic Ritual - 4 Albums (2019-2022) [MP3|320 Kbps] <Doom, Stoner, Sludge Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187570.jpgsave_picture_187570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187570.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:31FD74B7B12B6561B62477261456C3004DF7380B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187571.jpgsave_picture_187571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187571.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:B5218C25A29BA0B90F02695C3A2A97370F673942
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187572.jpgsave_picture_187572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187572.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Timothee Robert - Quarks (2021) La Pluie Chante [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187573.jpgsave_picture_187573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187573.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Total Commander 11.01 Final - Titan v30 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187574.jpgsave_picture_187574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187574.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Karthago - A Rock Tribute to Mate Peter (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187575.jpgsave_picture_187575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187575.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ The Duchess Jureesa McBride - My Time to Shine (2022) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187576.jpgsave_picture_187576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187576.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:E5F67A1721EE1A634436CC276E3243B5CC7E34EB
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187577.jpgsave_picture_187577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187577.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Daryl Coutts - Just in time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187578.jpgsave_picture_187578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187578.jpg" />
 </div>
 
 

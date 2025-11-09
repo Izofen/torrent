@@ -6,7 +6,7 @@ VA - ЕвроХит Топ 40 Europa Plus 10.01.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31295.jpgsave_picture_31295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31295.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3AEDE70C63FE5A37696DB3F265F9869894785F3D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31296.jpgsave_picture_31296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31296.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31297.jpgsave_picture_31297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31297.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ NetLimiter 5.3.19.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31298.jpgsave_picture_31298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31298.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ eWeather HD - weather app v8.9.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31299.jpgsave_picture_31299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31299.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Digiarty AIArty Image Matting 2.1 Portable by FC Portables [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31300.jpgsave_picture_31300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31300.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:23AB488188AA6B565E5E834DDC82F2B765613FF2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31301.jpgsave_picture_31301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31301.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Warden's Will (2025) [Ru/Multi] (1.0.0c) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31302.jpgsave_picture_31302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31302.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31303.jpgsave_picture_31303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31303.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F177F079281DBD0C85D2422D4B4E98BB1A06CBA5
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31304.jpgsave_picture_31304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31304.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:D7E6A4AA69A2B3E15A653C1666994A2B0B61EB1F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31305.jpgsave_picture_31305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31305.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31306.jpgsave_picture_31306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31306.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:8FE1121A3B4748C7AE6AC0E1CA1EBE8E66FBE63F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31307.jpgsave_picture_31307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31307.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7368CE263A8484EEE5D7BC49A016B761C1417F7F
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31308.jpgsave_picture_31308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31308.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Лучшие песни Наше радио за 2024 год (2025) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31309.jpgsave_picture_31309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31309.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:7CE75B5CFCE6953904B4AA27547F906E4B0E5715
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31310.jpgsave_picture_31310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31310.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:D6CE5E019836C55E449892493287B5A16C448D60
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31311.jpgsave_picture_31311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31311.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:DBC4DA4F20545A6CFE48EF72AA9D4D66D297DDF8
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31312.jpgsave_picture_31312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31312.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VMware Workstation Pro for Personal Use 17.6.2 Build 24409262 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31313.jpgsave_picture_31313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31313.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:C66CCCCE483B277BBB48557BC8775E51351B1ABC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31314.jpgsave_picture_31314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31314.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:5DEB0AD028950E423E2123E1092A4CD38ADE8B30
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31315.jpgsave_picture_31315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31315.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31316.jpgsave_picture_31316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31316.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Open Shell (Classic Shell) 4.4.195 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31317.jpgsave_picture_31317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31317.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:50BFC7BC691A35FC4A13AA2F278E3204A8EAA34F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31318.jpgsave_picture_31318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31318.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Ad Vitam: За жизнь / Ad Vitam (2025) WEB-DLRip [H.264/1080p] [MVO] [AD]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31319.jpgsave_picture_31319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31319.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Ad Vitam: За жизнь / Ad Vitam (2025) WEB-DLRip [MVO] [AD]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31320.jpgsave_picture_31320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31320.jpg" />
 </div>
 
 

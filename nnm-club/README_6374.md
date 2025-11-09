@@ -6,7 +6,7 @@ MAGIX Sound Forge Pro 18.0.0 Build 21 Portable by conservator [Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202376.jpgsave_picture_202376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202376.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:76ECF701DBAA736816DD7E0DCE0A53EA43ABAAC6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202377.jpgsave_picture_202377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202377.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Paul Mauriat - Le grand orchestre de Paul Mauriat - Volume 5 (1967) [FLAC 24/96|
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202378.jpgsave_picture_202378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202378.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:688D9021DD3B4048384F59AD8A57A585009307B1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202379.jpgsave_picture_202379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202379.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 3-4 (1966) [FLAC 24/96, 
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202380.jpgsave_picture_202380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202380.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:23D8F8BAA5F3B828FD06B326D2EEEBC01DA4B4C1
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202381.jpgsave_picture_202381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202381.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Ronnie James Dio - Voice Of Rock - Compilation (1960-2011) [MP3|320 Kbps] <Heavy
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202382.jpgsave_picture_202382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202382.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:06E21F92122C44F0A28C80721DC7B505CD7E9BA6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202383.jpgsave_picture_202383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202383.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Midnight Scenes: The Highway (2020) [Ru/Multi] (1.27a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202384.jpgsave_picture_202384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202384.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Windows 11 25H2 Pro by KDFX (Clear) X64 26200.6901 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202385.jpgsave_picture_202385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202385.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Deep Purple - Made In Japan (1972) BOX Set, 5 x CD, Reissue, 2025, Warner Record
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202386.jpgsave_picture_202386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202386.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ MotoGP. Этап 20 из 22. Гран-при Малайзии. Гонка (26.10
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202387.jpgsave_picture_202387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202387.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:2A32492D39BDB5CFFFECD5D6A65FB07AB9274334
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202388.jpgsave_picture_202388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202388.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:8A77D9BD8069BB38BA94DF4377C9622A62F5832D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202389.jpgsave_picture_202389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202389.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:9DC874176BAFD684748B7035A1DC1B7219B388AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202390.jpgsave_picture_202390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202390.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:3E79DFABEBF9FC7649EE543C46C1F59EB4D52EEE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202391.jpgsave_picture_202391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202391.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:3220226B2A2F4D9EAEDCEAD947A7BE98BCC4AB1E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202392.jpgsave_picture_202392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202392.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:A4F8A2339616987F56B7091C3FFADA55A26E2216
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202393.jpgsave_picture_202393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202393.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Hordelord (2025) [Ru/Multi] (16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202394.jpgsave_picture_202394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202394.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Prototype 2 (2012) [Ru] (Build 19788008/dlc) Repack Yaroslav98 [Radnet Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202395.jpgsave_picture_202395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202395.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202396.jpgsave_picture_202396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202396.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Mushroom Hunter World (2025) [Ru/Multi] (1.0.2) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202397.jpgsave_picture_202397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202397.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ EMOTIONLESS: The Last Ticket (2025) [Ru/Multi] (1.071025) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202398.jpgsave_picture_202398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202398.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ EMOTIONLESS: The Last Ticket (2025) [Ru/Multi] (1.071025) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202399.jpgsave_picture_202399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202399.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ PicWish: AI Photo Editor v2.2.1 Mod by NURIK kz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202400.jpgsave_picture_202400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202400.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A651F8B6B7E021D34257EE4552AE3A064EAE65EA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202401.jpgsave_picture_202401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202401.jpg" />
 </div>
 
 

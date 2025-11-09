@@ -6,7 +6,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234461.jpgsave_picture_234461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234461.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DE073946B9CF7DEEF86788D7098065C241526F1A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234462.jpgsave_picture_234462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234462.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Funky House Summer Anthems (2023) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234463.jpgsave_picture_234463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234463.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:80AF8A9C2841A575F31D6509288842C9FA9A7E8C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234464.jpgsave_picture_234464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234464.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Rave In Fire - Sons Of A Lie (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234465.jpgsave_picture_234465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234465.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ LiteManager 5.1 Free/Pro [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234466.jpgsave_picture_234466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234466.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ iA Writer 6.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234467.jpgsave_picture_234467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234467.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:AE037B080F350F26826E0FD8C44961367E842A05
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234468.jpgsave_picture_234468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234468.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:4AAF9F90F8C9333E707FAB5A8FFAA1F3C8AFA1E4
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234469.jpgsave_picture_234469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234469.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ New Rocket Union - Twin Cities Breakdown (2022) [FLAC|Lossless|WEB-DL|tracks] <G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234470.jpgsave_picture_234470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234470.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:471C41ED4DFD1D7FD072827F87A629B7B3DCAD53
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234471.jpgsave_picture_234471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234471.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:4D5F683D5D626DF7E1C74C46DE8EC0AD56749909
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234472.jpgsave_picture_234472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234472.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Magic Sword - Badlands (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234473.jpgsave_picture_234473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234473.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1106) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234474.jpgsave_picture_234474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234474.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ WinCatalog 2023.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234475.jpgsave_picture_234475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234475.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:85AAD70607B4485B319A667F2C91431C2B125D6A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234476.jpgsave_picture_234476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234476.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Suckerpunch - Redneck Gasoline (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234477.jpgsave_picture_234477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234477.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:DC0E37E9BFBB2AEDED0CEC956C6A142AA8E053EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234478.jpgsave_picture_234478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234478.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Steinberg Dorico Pro for Mac 5 v.5.0.10 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234479.jpgsave_picture_234479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234479.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:D56DABF7E80652EC799F88F29777A1AB1070C7B2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234480.jpgsave_picture_234480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234480.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ RTG. Мансарды Петербурга (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234481.jpgsave_picture_234481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234481.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:9960F326749F23CCB90BC8DE9E5FD0692287D35F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234482.jpgsave_picture_234482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234482.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:4452D0AA9D7C5D01C840495752616C3445A8C061
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234483.jpgsave_picture_234483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234483.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Day/Four - Recycled Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234484.jpgsave_picture_234484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234484.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:75CF4F1D4ED02ECEEA1D1305F6C5406473522F1E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234485.jpgsave_picture_234485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234485.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:1F89DB32F66645BF19B874C93F57357F43319204
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234486.jpgsave_picture_234486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234486.jpg" />
 </div>
 
 

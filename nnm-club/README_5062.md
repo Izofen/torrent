@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158302.jpgsave_picture_158302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158302.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:A5CE384C5AE41BC4E64845916532E136759582B9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158303.jpgsave_picture_158303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158303.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Ninja Slayer from Animation / Охотник на ниндзя [2015, ONA, 14 и
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158304.jpgsave_picture_158304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158304.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:1C02ECF8790ACA6DF51AE1170038742E3B5CE27E
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158305.jpgsave_picture_158305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158305.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:438BF58E7D6418C6B7F233F69F8881896CCF155D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158306.jpgsave_picture_158306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158306.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1B1F8D8BE489F89D4DC76B36045939282B686076
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158308.jpgsave_picture_158308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158308.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:BB1AA43773C52FBAB3E7DEC92FA6434F52C57CF4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158309.jpgsave_picture_158309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158309.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:89FAF13456D9AA9FB0A14C9D56F545F86993E47F
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158310.jpgsave_picture_158310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158310.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Drakan: Order of the Flame (1999) [En] (2.10) Repack/Mod nikerossxp
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158311.jpgsave_picture_158311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158311.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:52AEC41D964DDECD506B5DAC284954C9AAD9217F
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158312.jpgsave_picture_158312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158312.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:374FD164531E04E218BE7D2A12B4DF1392CA0945
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158313.jpgsave_picture_158313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158313.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:277D2203238A6CBBB3EEA3694B67B37B26531E4C
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158314.jpgsave_picture_158314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158314.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Double Dragon Neon (2012) [Xbox360] [RegionFree] FreeBoot [XBLA] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158315.jpgsave_picture_158315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158315.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:98DCF5518ACC85327C4FC137154201ED80A7E5A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158316.jpgsave_picture_158316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158316.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ The Bat! Professional Edition 7.1.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158317.jpgsave_picture_158317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158317.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Bandicam 3.0.1.1003 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158318.jpgsave_picture_158318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158318.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A67E179F8F83815B9C8E15B09787B6020B11C846
 >>Игровое видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158319.jpgsave_picture_158319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158319.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Camel - 5 Albums (1974 - 2002) [DTS 5.1|tracks (Upmix)]<Progressive rock, sympho
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158320.jpgsave_picture_158320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158320.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:80AFEB5A0666EBCCADA4B06E14601EFB7E90608C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158321.jpgsave_picture_158321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158321.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Cyborg Hawk 1.1 (хакинг и анализ безопасности) [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158322.jpgsave_picture_158322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158322.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Acronis BootDVD 2015 Grub4Dos Edition v.35 (12/21/2015) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158323.jpgsave_picture_158323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158323.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:2C9836B3ABD370BBB9EA179B064E621D96279A87
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158324.jpgsave_picture_158324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158324.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:B7AEC9C771AAD76349E5C0F96672B5EEC4915658
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158325.jpgsave_picture_158325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158325.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ StartIsBack++ 1.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158326.jpgsave_picture_158326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158326.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ PaperScan Scanner Professional Edition 3.0.11 [En/Fr]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158327.jpgsave_picture_158327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158327.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DAE51EF0C2423BE9E940FA4A6659A906864405EE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158328.jpgsave_picture_158328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158328.jpg" />
 </div>
 
 

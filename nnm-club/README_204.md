@@ -6,7 +6,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5369.jpgsave_picture_5369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5369.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Bryan Adams - Roll With The Punches (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5370.jpgsave_picture_5370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5370.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:714CD4598CB19DC4065730E38A3E1964C4E70086
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5371.jpgsave_picture_5371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5371.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ PilotEdit Lite & Pro 20.2.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5372.jpgsave_picture_5372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5372.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Vicious Rumors - Studio Albums (10 releases) (1994-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5373.jpgsave_picture_5373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5373.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:913192E0AFA562CF7F783EC968C28A2F266DDC0A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5374.jpgsave_picture_5374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5374.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ iDownerGo Video Downloader 10.7.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5375.jpgsave_picture_5375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5375.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:51EDE70249010AEAE5EBB10BC9E13AE897F95875
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5376.jpgsave_picture_5376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5376.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Helloween - Giants & Monsters (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5377.jpgsave_picture_5377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5377.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E35F46A9FA192F4450E22C6427311BF2055ABD82
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5378.jpgsave_picture_5378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5378.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:AB9CC3339E1BFC3D4BDE9533A57783BCA2CAF2CC
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5379.jpgsave_picture_5379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5379.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:1FE704ED10C276736AC53364B8EAF44F8ECC8F89
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5380.jpgsave_picture_5380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5380.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Countryballs: Power Protocol (2025) [Ru/Multi] (build 19413235) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5381.jpgsave_picture_5381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5381.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Kalmuri 4.0.9 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5382.jpgsave_picture_5382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5382.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:57B2BDB9C302D2BF104241BFE83B1AAA5175930C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5383.jpgsave_picture_5383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5383.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ StartAllBack 3.9.14 build 5303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5384.jpgsave_picture_5384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5384.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Light Image Resizer 7.3.0.120 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5385.jpgsave_picture_5385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5385.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:7F8A30E4C56F238F0526D40906C0EF772905F82A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5386.jpgsave_picture_5386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5386.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:168B9532F78623928997457B06F6CF40DA867265
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5387.jpgsave_picture_5387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5387.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:7294D14A9727FA8CF4E855237CF9FD0F29B1CA70
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5388.jpgsave_picture_5388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5388.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:281EE7F731B5B6F3E3A68D3A1B1410B193D98D3F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5389.jpgsave_picture_5389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5389.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ MyLanViewer 6.5.6 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5390.jpgsave_picture_5390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5390.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Allavsoft Video Downloader Converter 3.28.3.9369 RePack (& Portable) by elchupac
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5391.jpgsave_picture_5391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5391.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:D08DC452C39365041C0E1EB9DEB60364E42D863E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5392.jpgsave_picture_5392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5392.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:066A337370849C78B705A0E7110CBCEBB8D5F49D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5393.jpgsave_picture_5393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5393.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:FD07C69995D24A2C28407F885335387C544B45F8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5394.jpgsave_picture_5394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5394.jpg" />
 </div>
 
 

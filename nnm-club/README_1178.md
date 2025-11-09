@@ -6,7 +6,7 @@ AIMP 5.40 Build 2655 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30983.jpgsave_picture_30983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30983.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:063069C3D3C9BC33401C0E8FA7E37BBA69C92012
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30984.jpgsave_picture_30984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30984.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Qalculate! 5.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30985.jpgsave_picture_30985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30985.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ qBittorrent 5.0.3 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30986.jpgsave_picture_30986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30986.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:6FCA48E19C2E1C8BCC5C47C226B9778F767F33AA
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30987.jpgsave_picture_30987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30987.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Any Video Downloader Pro 9.1.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30988.jpgsave_picture_30988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30988.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:59FC637A33A8D6FDCB15D61EAA25703F2A527D13
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30989.jpgsave_picture_30989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30989.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:CFE313DE23EEF3209B3E4AF05C90694F3A39B0C7
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30990.jpgsave_picture_30990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30990.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Opera One 116.0.5366.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30991.jpgsave_picture_30991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30991.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30992.jpgsave_picture_30992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30992.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:AE78891696DFF776329E58CD0CFF2D54C16D6DCB
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30993.jpgsave_picture_30993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30993.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30994.jpgsave_picture_30994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30994.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ NIUBI Partition Editor 10.2.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30995.jpgsave_picture_30995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30995.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:D93C877E2559422F6DBCAD7A49F6390417AA8503
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30996.jpgsave_picture_30996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30996.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:D759061C711EFFC18EC85F7C2E065BAFBC4E4BD9
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30997.jpgsave_picture_30997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30997.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30998.jpgsave_picture_30998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30998.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8B447165721B8594FA9202F97C2BF87D4EEE092C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30999.jpgsave_picture_30999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30999.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Advanced SystemCare Pro 18.1.0.201 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31000.jpgsave_picture_31000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31000.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:CE12C539AD595B9B199BB72C0F76A43EF02A1306
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31001.jpgsave_picture_31001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31001.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Auslogics BoostSpeed 14.0.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31002.jpgsave_picture_31002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31002.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:D41EA16969D80B8E734DF1DA66E04AE3B442B7CF
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31003.jpgsave_picture_31003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31003.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Future Fragments (2024) [En] (1.0.4) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31004.jpgsave_picture_31004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31004.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Luxury Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, R&B>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31005.jpgsave_picture_31005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31005.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:FAEBA1006E2B5809A2F585E34E71A6010CE119DD
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31006.jpgsave_picture_31006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31006.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Bugs Bunny & Taz: Time Busters (2000) [Ru/Multi] (1.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31007.jpgsave_picture_31007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31007.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31008.jpgsave_picture_31008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31008.jpg" />
 </div>
 
 

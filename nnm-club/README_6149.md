@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193256.jpgsave_picture_193256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193256.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193257.jpgsave_picture_193257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193257.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Now That's What I Call 12 70s (2022) MP3[320 Kbps] <Hip-Hop, Rock, Funk, So
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193258.jpgsave_picture_193258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193258.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:EE215C70F8B6E890F5B5F24AFA26B273E1CB1155
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193259.jpgsave_picture_193259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193259.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:EE215C70F8B6E890F5B5F24AFA26B273E1CB1155
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193260.jpgsave_picture_193260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193260.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:6B4BB4966DCC7F1A43F0B4D8046D8ECFE95F4C5C
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193261.jpgsave_picture_193261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193261.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Ins
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193262.jpgsave_picture_193262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193262.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Panic! At The Disco - Live In Denver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193263.jpgsave_picture_193263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193263.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:C36AD3E2E7BE647A80DE6CB8CF33072F96C8B5EF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193264.jpgsave_picture_193264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193264.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Othe
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193265.jpgsave_picture_193265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193265.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193266.jpgsave_picture_193266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193266.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:58AA201D14E71618993E4E6E7AF518EC141F051D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193267.jpgsave_picture_193267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193267.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:651CD58B60A67421290F85F74E454FEA2FF7AEBC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193268.jpgsave_picture_193268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193268.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Novembers Doom - Major Arcana (2025) [FLAC|Lossless|image + .cue] <Doom Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193269.jpgsave_picture_193269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193269.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:683B91EE7C0EFE70F4DB72BCF625F3F18E309004
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193270.jpgsave_picture_193270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193270.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:3730D52EBFE78FDEB05468943D12292F814D2EAB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193271.jpgsave_picture_193271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193271.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:B003F8D037C73D1EADA2785A945D00F0EF0F1DAE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193272.jpgsave_picture_193272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193272.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Anything and everything assorted part 4 (2025) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193273.jpgsave_picture_193273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193273.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:202E5AF84E477CD6A12D2CF482C81C46D8FFDB95
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193274.jpgsave_picture_193274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193274.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:0E0893D78E88249B1741D1302ED90AAFE42F2081
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193275.jpgsave_picture_193275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193275.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:1E81BFD6BE0E9EC4CDE4E417C68550B4C0891E0E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193276.jpgsave_picture_193276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193276.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:E1D23DDABA6575F08AC3B40E4F247A0D613EB022
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193277.jpgsave_picture_193277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193277.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:3A5673E402414A709B2A3AD04771B61D0073B73B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193278.jpgsave_picture_193278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193278.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:927D3334838ECCD9101C2852B6446F603E9B061B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193279.jpgsave_picture_193279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193279.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:F06ACAA57C87AB95CA2267BBF7AAC255B527463B
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193280.jpgsave_picture_193280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193280.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:953908576EE98355324231727960C3E55E37CED0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193281.jpgsave_picture_193281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193281.jpg" />
 </div>
 
 

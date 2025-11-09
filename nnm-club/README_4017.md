@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125001.jpgsave_picture_125001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125001.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Jayson Tipp - Table For One (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125002.jpgsave_picture_125002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125002.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Demon - Taking The World By Storm (1989) Japanese Edition, Reissue, Remastered, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125003.jpgsave_picture_125003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125003.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:DD667AA9405FB3BB61703EAC0173884B78B6263C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125004.jpgsave_picture_125004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125004.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Wayne Pretorius - Introduction to Wayne P (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125005.jpgsave_picture_125005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125005.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:01C0499B732B733F1519F4487D55B9B6DE776AFB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125006.jpgsave_picture_125006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125006.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:ED9C06001657F5B1FE7ACBA9B109E7F311259397
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125007.jpgsave_picture_125007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125007.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:454FE3D532C0516EDE6D9BD040E765AEA5D10674
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125008.jpgsave_picture_125008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125008.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) [MP3|320 Kbps] <Neue deutsch
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125009.jpgsave_picture_125009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125009.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:4CCF1743E80C3509FA991844097D8BD66C8A4026
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125010.jpgsave_picture_125010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125010.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:F52CEC9911AD78941E35DF1D3F50B8C1B080B95A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125011.jpgsave_picture_125011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125011.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:A7B107FA823F188FD420F6C02B22846131A59DB3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125012.jpgsave_picture_125012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125012.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:32E5908B3F4D2E1CC884566D0E1460223FBD267A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125013.jpgsave_picture_125013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125013.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Cover Version [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125014.jpgsave_picture_125014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125014.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:7C31CD1F3E61531B2A3AE33C93C0B489ECB07FD8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125015.jpgsave_picture_125015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125015.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:9C8BA9F3B995A7DDED88FCE15640FF6DF8126D2B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125016.jpgsave_picture_125016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125016.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5F040E594C0511FDCA09D59E81DD941F7BEA877E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125017.jpgsave_picture_125017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125017.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Santa Swings... The Windup: 27 Christmas Stockings Full Of Shellac Dust (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125018.jpgsave_picture_125018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125018.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:5E6F7A3B0DA1854B2416B71ACEC2D73FEAFC957C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125019.jpgsave_picture_125019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125019.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Saxtribution - A Very Special Jazzy Christmas (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125020.jpgsave_picture_125020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125020.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Saxtribution - Magical Christmas Saxophone (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125021.jpgsave_picture_125021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125021.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:09B081B5ED7FCECA9244137BB3D600E386A59092
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125022.jpgsave_picture_125022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125022.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Soft Jazz Mood - Smooth Jazz Music Ensemble - Coffee in The Garden Smooth Jazz B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125023.jpgsave_picture_125023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125023.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:A3093C2C008C5EF4AEBB3485CC56D197EB64BE4F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125024.jpgsave_picture_125024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125024.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:C8A7B97807803799DB930E7BDB65C7C105720F04
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125025.jpgsave_picture_125025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125025.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:468759F1299F0F7AF0753E3B8B83CA57B7753893
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125026.jpgsave_picture_125026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125026.jpg" />
 </div>
 
 

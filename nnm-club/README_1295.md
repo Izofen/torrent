@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34025.jpgsave_picture_34025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34025.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9E468AB86F2FB930471AC11F4096D607F1372510
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34026.jpgsave_picture_34026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34026.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34027.jpgsave_picture_34027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34027.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E5DADE2E10265FFA2F7CFD1E20A0524FD208B8A4
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34028.jpgsave_picture_34028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34028.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:15CCA799C93B153B96A064654BBA48C31A510C62
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34029.jpgsave_picture_34029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34029.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Movavi Photo Editor 24.3.0 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34030.jpgsave_picture_34030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34030.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:CE66B6908AA4C5CFF69362C2870EC3E942D29090
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34031.jpgsave_picture_34031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34031.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ DxO PhotoLab Elite 8.2.1 build 487 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34032.jpgsave_picture_34032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34032.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Battle Shapers (2023) [Ru/Multi] (1.0.0.9952) Repack FitGirl [Original Soundtrac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34033.jpgsave_picture_34033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34033.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:035EFE2F34D32F3A7A7B1941A89CFD0102F5D26D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34034.jpgsave_picture_34034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34034.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2484/dlc) Repack Let'sРlay [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34035.jpgsave_picture_34035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34035.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34036.jpgsave_picture_34036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34036.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Bridge 2025 15.0.1.412 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34037.jpgsave_picture_34037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34037.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:9DC1097021B8551F55FDA6084A9EDF16FF667231
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34038.jpgsave_picture_34038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34038.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:35C7FBF7D3076AD3732167FCC859F42ADE077865
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34039.jpgsave_picture_34039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34039.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:137FB2FC42F2B32DC0C87DA4C578223B3671786A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34040.jpgsave_picture_34040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34040.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Alawar & Nevosoft: Коллекция игр (2003-2012) [Ru/En] License
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34041.jpgsave_picture_34041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34041.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34042.jpgsave_picture_34042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34042.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:D57798D1D266E70124A5E2A84987EEB409334DFD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34043.jpgsave_picture_34043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34043.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Adobe Acrobat Pro 2024.005.20320 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34044.jpgsave_picture_34044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34044.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34045.jpgsave_picture_34045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34045.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:6D7EE3860C4044D654630355B870C8B432496FEF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34046.jpgsave_picture_34046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34046.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:69453AC87F1C33F37F517899F8418902051752AE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34047.jpgsave_picture_34047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34047.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:7FE1A7FD931A40787B1A110827E40EA5FDE4BCB5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34048.jpgsave_picture_34048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34048.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.50.7200 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34049.jpgsave_picture_34049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34049.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Linux Mint Debian Edition 6 Faye (LMDE 6) [32-bit, 64-bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34050.jpgsave_picture_34050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34050.jpg" />
 </div>
 
 

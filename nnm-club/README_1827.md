@@ -6,7 +6,7 @@ Kazrog - True Iron 1.4.2 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47859.jpgsave_picture_47859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47859.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CareUEyes 2.4.0.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47860.jpgsave_picture_47860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47860.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6FBC87AAE437E24E59A95A0DA5AAAD8B4FBFA9CA
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47861.jpgsave_picture_47861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47861.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4908E0E561B93032555BF1C498E60C7D8983A197
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47862.jpgsave_picture_47862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47862.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DCACB3C1310231BB37DB5E7EB6BB6FC50DA29C8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47863.jpgsave_picture_47863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47863.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DCACB3C1310231BB37DB5E7EB6BB6FC50DA29C8D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47864.jpgsave_picture_47864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47864.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:1E6F24F3DC41D8DE3B2F7806CABBD07B4B2DC405
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47865.jpgsave_picture_47865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47865.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:81FA46B9D21E1D8B8EBB3B53AB61F1DB391CE3BC
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47866.jpgsave_picture_47866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47866.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Ms. Holmes 6: Letter M / Мисс Холмс 6: Буква М (2024) [Ru] (1.0) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47867.jpgsave_picture_47867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47867.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:92A2E00F0A63BB312E79AC9C0D5D4C4515716F68
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47868.jpgsave_picture_47868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47868.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:11906364D0457046CC8BAFBABF3AFCA4A966D34F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47869.jpgsave_picture_47869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47869.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:2CBB5B3F6C949EE225A4C42C19CC4887F0017E69
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47870.jpgsave_picture_47870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47870.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:69EAE6A66B842C18AAF222933A60672AAA4595E6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47871.jpgsave_picture_47871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47871.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ realMyst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47872.jpgsave_picture_47872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47872.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2ED9BBB88A6DA080D6EBA9F119B6DDB92EFEC688
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47873.jpgsave_picture_47873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47873.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2E8D76F3CAD34AB981EA78417C753CA80D68EB12
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47874.jpgsave_picture_47874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47874.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Music News For Forum vol.008 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47875.jpgsave_picture_47875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47875.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:A2125D2760A503F539E5A970BD956D8953E39834
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47876.jpgsave_picture_47876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47876.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:690A064DE9D74F510751864356EFB0BE66296F86
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47877.jpgsave_picture_47877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47877.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:0C96D47E334E32DD9C3617BDEC071B8E81C51A82
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47878.jpgsave_picture_47878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47878.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Fallen Leaf (2024) [En] (1.0.0.14) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47879.jpgsave_picture_47879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47879.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:6176E6DEABB8FC3BFC38FA362B42AE02D080AF87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47880.jpgsave_picture_47880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47880.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:F875FA073039A267318D2EC734E628DD79DA5003
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47881.jpgsave_picture_47881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47881.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:9FE36CDCC3B7F8FE440F6D08172B79E0A3371E0D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47882.jpgsave_picture_47882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47882.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ ES File Explorer File Manager v4.4.2.12 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47883.jpgsave_picture_47883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47883.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Shift 87 (2024) [Ru/Multi] (1.0f9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47884.jpgsave_picture_47884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47884.jpg" />
 </div>
 
 

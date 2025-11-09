@@ -6,7 +6,7 @@ VA - Весенний шквал новинок (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98687.jpgsave_picture_98687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98687.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:92CF31744645A4B3F0A97C8D530B708BBAC28951
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98688.jpgsave_picture_98688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98688.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Энергия ночных дискотек 50/50 (2012) [MP3|256 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98690.jpgsave_picture_98690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98690.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:890F14E1BCF5EDF5E28E6BC8C682BB224AD87EE8
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98693.jpgsave_picture_98693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98693.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ magnet:?xt=urn:btih:62882D5BD883D92D1550A05CECEE6E91D14DF945
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98694.jpgsave_picture_98694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98694.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Танцевальный клубный поп хит vol.5 (2012) [MP3|256
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98697.jpgsave_picture_98697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98697.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Топ 100 3айцев.нет (04.04.2012) [MP3|128-320 кб/с]<Alternativ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98699.jpgsave_picture_98699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98699.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98700.jpgsave_picture_98700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98700.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:DCC42BF0138D6BC755162F0B749BA971EBA590CD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98702.jpgsave_picture_98702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98702.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Tetuna - Crazy Trips (2012) [MP3|320 кб/с]<Psy Trance,  Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98703.jpgsave_picture_98703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98703.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:AB8CE0831575645A2EB32A20C765072E33C79573
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98704.jpgsave_picture_98704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98704.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:DB52E88ED8A32983BF5449BA8D9E540E113BBB5A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98706.jpgsave_picture_98706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98706.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Made In The 90s (2012) [MP3|224-283 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98707.jpgsave_picture_98707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98707.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98711.jpgsave_picture_98711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98711.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Русский Best от DFM (2012) [MP3|256 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98716.jpgsave_picture_98716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98716.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:B26F91EE15CBAACF4B47D5FEF0D423BA0108369D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98717.jpgsave_picture_98717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98717.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Танцевальный клубный поп хит vol.6 (2012) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98722.jpgsave_picture_98722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98722.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:DCCEF4EC092ADFCF626E1159AC1C24EBCDE8AE61
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98723.jpgsave_picture_98723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98723.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Лучшие сливки муз-весны (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98724.jpgsave_picture_98724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98724.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:08303A9E7A3262BE89642649826F72297147F124
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98725.jpgsave_picture_98725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98725.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:9837A0A62FF6F8CC5DC7EFDBF2B0E7EB78ECF9F1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98726.jpgsave_picture_98726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98726.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:8C3E95AD62C9EF63DBDE59A8F1233B598F324464
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98728.jpgsave_picture_98728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98728.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - MAXI. Русские ДиДжеи Зажигают (2012) [MP3|224 kbps]<Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98730.jpgsave_picture_98730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98730.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Bottleneck Blues Anthology (2011) 2CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98731.jpgsave_picture_98731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98731.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - Русская Дискотека Best-of-ka (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98732.jpgsave_picture_98732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98732.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ magnet:?xt=urn:btih:75C21E0D5D26C27C9CF004498935B802F19AD9CC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98733.jpgsave_picture_98733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98733.jpg" />
 </div>
 
 

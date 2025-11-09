@@ -6,7 +6,7 @@ JetBrains PyCharm Professional 2025.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7364.jpgsave_picture_7364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7364.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7A53553F90C2D5D970F06D5D4BE425B2B14E43FE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7365.jpgsave_picture_7365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7365.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:11B5992596F794373696C3C0BC557F28D34D2DF7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7366.jpgsave_picture_7366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7366.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AF7C52B47168775C16D94E39B14757C53C2EA2BB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7367.jpgsave_picture_7367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7367.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ORDER 13 (2025) [Ru/Multi] (1.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7368.jpgsave_picture_7368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7368.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Repack FitGirl [Premiu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7369.jpgsave_picture_7369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7369.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ChameleonLab 1.2.0.2 [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7370.jpgsave_picture_7370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7370.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cent Browser 5.2.1168.75 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7371.jpgsave_picture_7371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7371.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F37DC4E8C9B7DBD6BE86AFCE095DAFF7CCCAA46D
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7372.jpgsave_picture_7372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7372.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F37DC4E8C9B7DBD6BE86AFCE095DAFF7CCCAA46D
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7373.jpgsave_picture_7373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7373.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:673A90F10264FF3429CBF25F249F37DAF006A07C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7374.jpgsave_picture_7374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7374.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Call of Duty Modern Warfare III (2023) [Ru/Multi] (10.4/10.24) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7375.jpgsave_picture_7375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7375.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.42553.0/dlc) Repack Wanterlud
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7376.jpgsave_picture_7376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7376.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7377.jpgsave_picture_7377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7377.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:F73D47797C23E4AFA04241757C03E5FF29F84E0E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7378.jpgsave_picture_7378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7378.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7379.jpgsave_picture_7379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7379.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:0F9848E731B92B582A3B3FB594E134A641F9B6C8
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7380.jpgsave_picture_7380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7380.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7381.jpgsave_picture_7381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7381.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:9013AD79F43835888685C7D298D187F62406D31A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7382.jpgsave_picture_7382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7382.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B3F0DD4241944920D7E696DED7EAB2697C0BD28F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7383.jpgsave_picture_7383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7383.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:757194130FD2726EBDE4B340E9BB3E1EE09631F6
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7384.jpgsave_picture_7384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7384.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:F0D138A1ABFD009AA383692674A0B0871EE84250
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7385.jpgsave_picture_7385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7385.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:90EF5A4447BFF663A08088436274063C5855818C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7386.jpgsave_picture_7386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7386.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:25B542D2ED2E9DB4C94E2B3557F7168F3A9FD401
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7387.jpgsave_picture_7387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7387.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Boxville 2 (2025) [Ru/Multi] (2.17.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7388.jpgsave_picture_7388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7388.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:AABF980F65B9A0AF6BC8F1B63D1384734619ED6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7389.jpgsave_picture_7389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7389.jpg" />
 </div>
 
 

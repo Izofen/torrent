@@ -6,7 +6,7 @@ Blind Ego - Mirror (2007) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239177.jpgsave_picture_239177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239177.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:373EF64390E561B74FDF867A3F2196BA08D94A2B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239178.jpgsave_picture_239178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239178.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:FB48C9E55D080E1EF316AA8F94440C080DC13507
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239180.jpgsave_picture_239180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239180.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Extreme - Six (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rock, Heavy Metal, Fun
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239181.jpgsave_picture_239181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239181.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E596F0E1D1A82DBA012B29ADCF174FA62AA9E445
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239182.jpgsave_picture_239182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239182.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:821A19B4FCECB3B38B9DE34DDC4586EEE932958C
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239183.jpgsave_picture_239183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239183.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:8A5B3E0CFF46EBF9D78FC7725AB8CC598EA985A0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239184.jpgsave_picture_239184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239184.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Mahr - Maelstrom (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239188.jpgsave_picture_239188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239188.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Eydis Evensen - The Light (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239189.jpgsave_picture_239189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239189.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VideoProc Converter 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239190.jpgsave_picture_239190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239190.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:610CC8606DF2012478539FCFFDCCD58B8458C8AB
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239191.jpgsave_picture_239191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239191.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:AB58F5CE6E9DB5027C60EC0E0040CBE4C853C241
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239192.jpgsave_picture_239192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239192.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Red Button 5.93 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239195.jpgsave_picture_239195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239195.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Soulver 3 v.3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239196.jpgsave_picture_239196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239196.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Yate 6.2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239197.jpgsave_picture_239197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239197.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E4759D960B1EE150ABBE2D5C61476408C95241D1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239198.jpgsave_picture_239198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239198.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Total Commander 10.00 (26.04.2022) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239199.jpgsave_picture_239199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239199.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Beatport Funky House: Sound Pack #296 (2021) [MP3|320 Kbps] <Funky, Disco H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239200.jpgsave_picture_239200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239200.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ ProPresenter 7.13.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239203.jpgsave_picture_239203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239203.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ GoodNotes 5.6.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239204.jpgsave_picture_239204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239204.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:C915E4D13F6401C595DC52FF705FA1647E1F322A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239206.jpgsave_picture_239206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239206.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:931FF9893467C89F8B2CBB7952CDB95A11538E27
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239207.jpgsave_picture_239207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239207.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Cowboy Junkies - Such Ferocious Beauty (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239210.jpgsave_picture_239210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239210.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239211.jpgsave_picture_239211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239211.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:0A4AE31A7EC1ACDD9BD2D5CB63A16D288FEF5128
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239213.jpgsave_picture_239213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239213.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Beatport Electro House: Sound Pack #295 (2021) [MP3|320 Kbps] <Club, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239214.jpgsave_picture_239214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239214.jpg" />
 </div>
 
 

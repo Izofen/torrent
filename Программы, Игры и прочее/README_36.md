@@ -6,7 +6,7 @@ FBReader Premium v3.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54458.jpgsave_picture_54458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54458.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TapScanner v3.0.24 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54549.jpgsave_picture_54549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54549.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ OfficeSuite Pro + PDF v14.5.52368 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54658.jpgsave_picture_54658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54658.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:75F7F2739B5A03091E26AA69DCBBFE2E97E0DFC7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54661.jpgsave_picture_54661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54661.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ AndroPods v1.5.26 Mod by adidas [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54976.jpgsave_picture_54976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54976.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Weather app - eWeather HDF v8.8.7 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55027.jpgsave_picture_55027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55027.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Windy.app: погода и ветер 50.1.0 Lite-Mod by GIP-79 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55111.jpgsave_picture_55111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55111.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3A6C98F56C6B8818171A1A43431A7BF0BC6BBBF2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55117.jpgsave_picture_55117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55117.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Windy.app: погода и ветер 50.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55118.jpgsave_picture_55118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55118.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Picturize it v1.1.9.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55299.jpgsave_picture_55299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55299.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Wood Block Puzzle (QBlock)  v3.6.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55316.jpgsave_picture_55316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55316.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55318.jpgsave_picture_55318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55318.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55324.jpgsave_picture_55324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55324.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55337.jpgsave_picture_55337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55337.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55362.jpgsave_picture_55362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55362.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ n7player Music Player 3.2.10-3002010 Lite-Mod by CMAPTOC [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55394.jpgsave_picture_55394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55394.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Foreca Погода / Foreca Weather 4.55.6 Mod by funnysith [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55403.jpgsave_picture_55403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55403.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Navier HUD 3.4.22 Mod by youarefinished [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55429.jpgsave_picture_55429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55429.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Foreca Погода / Foreca Weather 4.55.6 (ARM64) Lite-Mod by alenka_persikova
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55430.jpgsave_picture_55430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55430.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Navier HUD 3.4.22 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55433.jpgsave_picture_55433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55433.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Navier HUD 3.4.22 Lite-Mod by NURIK [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55448.jpgsave_picture_55448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55448.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:DB6A37ADDBF41783E522C3195AD485FFC5DE632A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55535.jpgsave_picture_55535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55535.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Garmin: TopoActive Europe 2024.10 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55556.jpgsave_picture_55556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55556.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ MiX Camera 8.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55626.jpgsave_picture_55626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55626.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Transparent clock & weather / Прозрачные часы и погода 7.01
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55634.jpgsave_picture_55634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55634.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55725.jpgsave_picture_55725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55725.jpg" />
 </div>
 
 

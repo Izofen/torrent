@@ -6,7 +6,7 @@ Defects - Modern Error (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108850.jpgsave_picture_108850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108850.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Paul Weller - 66 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Britpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108852.jpgsave_picture_108852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108852.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ De Halsband - Wat Let Oe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108854.jpgsave_picture_108854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108854.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Maggie Lindemann - Headsplit (2024) Deluxe Edition, 2024, EMI [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108857.jpgsave_picture_108857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108857.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Suck Brick Kid - The End Is What I Want (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108888.jpgsave_picture_108888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108888.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Korea - Мёд (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108890.jpgsave_picture_108890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108890.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mad Hatter - Oneironautics (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108891.jpgsave_picture_108891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108891.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Killus - XXV Years Feeding the Monster (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108894.jpgsave_picture_108894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108894.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rotting Christ - Pro Xristou (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108896.jpgsave_picture_108896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108896.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Eregion - Non Omnis Moriar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108897.jpgsave_picture_108897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108897.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bloodorn - Let the Fury Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108898.jpgsave_picture_108898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108898.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Devil Wears Prada - 2 Singles (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108900.jpgsave_picture_108900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108900.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Night Laser - Call Me What You Want (2024) [FLAC 24/48,44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108903.jpgsave_picture_108903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108903.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Jazz Defenders - Memory in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108906.jpgsave_picture_108906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108906.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Vasilis Xenopoulos & Paul Edis - Feels Like Home (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108908.jpgsave_picture_108908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108908.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Wake Up Music Paradise - Contemplative Jazz Train Ride (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108910.jpgsave_picture_108910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108910.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Romantic Love Songs Academy - Romantic Drift Away: Love Sensations with Intimate
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108911.jpgsave_picture_108911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108911.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Romantic Music Center, Instrumental Jazz Music Ambient - Late Night Kisses: Roma
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108913.jpgsave_picture_108913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108913.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Municipal Waste - Studio Albums (9 releases) (2003-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108917.jpgsave_picture_108917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108917.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Exilia - Unleashed XX (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Alt.Metal, Fem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108919.jpgsave_picture_108919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108919.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Romantic Sax Instrumentals - Romantic Sentiments (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108927.jpgsave_picture_108927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108927.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Smooth Jazz Music Academy - Old Fashioned Jazz: Vintage Sounds for Relax, Restau
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108931.jpgsave_picture_108931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108931.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Pet Shop Boys - Furthermore (New version) (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108943.jpgsave_picture_108943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108943.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sensual Lounge Music Universe - Jazz Saxophone for Sex (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108954.jpgsave_picture_108954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108954.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Hit Hits - 12 Top Hits Superbly Recorded. Anonymous cover versions of current hi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108990.jpgsave_picture_108990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108990.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Black Sabbath - Evil Eye, Get a Grip (2024) Single [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109025.jpgsave_picture_109025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109025.jpg" />
 </div>
 
 

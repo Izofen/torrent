@@ -6,7 +6,7 @@ Believer - Dimensions (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66858.jpgsave_picture_66858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66858.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Raise Hell - Studio Albums (5 releases) (1998-2015) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66924.jpgsave_picture_66924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66924.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Believer - Sanity Obscure (1990) Released 1991, R/C Records [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66944.jpgsave_picture_66944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66944.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Carrion - Evil Is There (1986) [FLAC|24/96|image + .cue|Vinyl-Rip] <Speed, Thras
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66950.jpgsave_picture_66950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66950.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Manowar - Fighting the World (1987) [DSD128|Lossless|image + .cue|Vinyl-Rip] <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66962.jpgsave_picture_66962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66962.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Blood Incantation - Hidden History of the Human Race (2019) [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66973.jpgsave_picture_66973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66973.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67018.jpgsave_picture_67018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67018.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67019.jpgsave_picture_67019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67019.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67032.jpgsave_picture_67032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67032.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67039.jpgsave_picture_67039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67039.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67048.jpgsave_picture_67048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67048.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67049.jpgsave_picture_67049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67049.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67080.jpgsave_picture_67080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67080.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67089.jpgsave_picture_67089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67089.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67091.jpgsave_picture_67091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67091.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Circle Of Chaos - Studio Albums (4 releases) (2010-2022) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67110.jpgsave_picture_67110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67110.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ancient Wisdom - For Snow Covered the Northland (1996) Released, 2022, Peacevill
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67112.jpgsave_picture_67112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67112.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67140.jpgsave_picture_67140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67140.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ghost Brigade - Studio Albums (4 releases) (2007-2014) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67172.jpgsave_picture_67172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67172.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ The Defaced - Studio Albums (4 releases) (2001-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67194.jpgsave_picture_67194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67194.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Soulfly - Dark Ages (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67195.jpgsave_picture_67195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67195.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ladislav Staidl Orchestra - Music Therapy (1979) Compilation, Repress 1981 [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67199.jpgsave_picture_67199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67199.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - He, Kleine Linda (1977) Compilation, Russian Labels [FLAC 2.0|96/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67205.jpgsave_picture_67205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67205.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67232.jpgsave_picture_67232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67232.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67239.jpgsave_picture_67239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67239.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumeria
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67242.jpgsave_picture_67242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67242.jpg" />
 </div>
 
 

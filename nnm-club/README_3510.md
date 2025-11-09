@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.6.0.2653 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111621.jpgsave_picture_111621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111621.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ PortableApps.com Platform 29.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111622.jpgsave_picture_111622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111622.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Erasure - The Innocents (1988) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111623.jpgsave_picture_111623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111623.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:B13214536015F388EE0A08DC28B12AE62C7C4941
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111624.jpgsave_picture_111624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111624.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:074B79B1F93A97AB9052A594E8221748805BD770
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111625.jpgsave_picture_111625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111625.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ HWiNFO 8.01 Build 5415 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111626.jpgsave_picture_111626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111626.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:9911B68ADA409403F04205BFD8B7D35FD2280AEE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111627.jpgsave_picture_111627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111627.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:AF1D0EA8F2BD23513F11AF4B1FBBA9E085AAB948
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111628.jpgsave_picture_111628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111628.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ QOwnNotes 24.4.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111629.jpgsave_picture_111629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111629.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8BC5708A752505A8AFE9AAB220090E0AC72A3235
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111630.jpgsave_picture_111630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111630.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Electric Blues - Time Passed Me By (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111631.jpgsave_picture_111631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111631.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Photo Lab PRO v3.13.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111632.jpgsave_picture_111632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111632.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ DailyArt - Daily Dose of Art v3.2.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111633.jpgsave_picture_111633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111633.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:B0DBE6DC39143AD78950CA4D357F753B5B413B60
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111634.jpgsave_picture_111634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111634.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ O&O DiskImage Professional 19.1 Build 132 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111635.jpgsave_picture_111635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111635.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:A965A0909ADCD20F1D5BD2E4D6862D7848DBAF2B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111636.jpgsave_picture_111636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111636.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Microsoft PowerToys 0.80.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111637.jpgsave_picture_111637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111637.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:35B18FDB2B32E2B3864B7B10AC5840CF5026D38A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111638.jpgsave_picture_111638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111638.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:99DB8B0AE39FA774F2B6A1CC0672421BDCD48CC1
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111639.jpgsave_picture_111639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111639.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111640.jpgsave_picture_111640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111640.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ OneCommander Pro 3.74.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111641.jpgsave_picture_111641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111641.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:8C0CE0450531AA6933883B63525BBD2B14BCBC06
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111642.jpgsave_picture_111642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111642.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:DB598D7DC1EA134D980CB9049C5F15E3BCC76E9D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111643.jpgsave_picture_111643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111643.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:4B8E427892B6953164EEC1A8E6CA685AD59465DA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111644.jpgsave_picture_111644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111644.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:CA57A30A23D77A141A7EB81E4028045CA03E3575
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111645.jpgsave_picture_111645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111645.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:F991D318DC1CAB91B4D99182FBF23C9D632D2976
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111646.jpgsave_picture_111646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111646.jpg" />
 </div>
 
 

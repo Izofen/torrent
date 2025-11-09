@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53277.jpgsave_picture_53277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53277.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53278.jpgsave_picture_53278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53278.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9BB43724E2B80E3292873DF143D3141EE3342DA4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53279.jpgsave_picture_53279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53279.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - То, что доктор прописал Remix NNM (2024) [MP3|320 Kbps] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53280.jpgsave_picture_53280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53280.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A884571B8D16D9A81B09693F33704EB459B9D19E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53281.jpgsave_picture_53281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53281.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6E8E2331E5EEAE47F6F4629367EF0478DF18D1F6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53282.jpgsave_picture_53282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53282.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:A2F0E57E77370D0BBBC79C677B5D73BCA576E94B
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53283.jpgsave_picture_53283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53283.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:AF533FE3E68075A383FFAF08D4F4212A4E9A8991
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53284.jpgsave_picture_53284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53284.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ DoubleJump Academy, Post Processed | Unreal Engine Complete Automotive Mastercla
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53285.jpgsave_picture_53285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53285.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:65B94A0B9F2F134DE24F782A18ABE4246C1633BC
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53286.jpgsave_picture_53286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53286.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53287.jpgsave_picture_53287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53287.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:C2DC0B9676F5FDC29AE748C44397D8BFB41C500C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53288.jpgsave_picture_53288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53288.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:C3A4D9E2561E55C15F0E4EF0B0F6AEB0ACE8507B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53289.jpgsave_picture_53289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53289.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mozilla восстановила доступ к дополнениям, заб�
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53290.jpgsave_picture_53290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53290.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Shadow Hush (2024) [En] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53291.jpgsave_picture_53291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53291.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:4949E1A70744E0BBB3210414321B8C59CAEE839D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53292.jpgsave_picture_53292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53292.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:AB0D56D9EA9C4AF8F85ADCEE8E7926E533AB408F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53293.jpgsave_picture_53293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53293.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Duolingo: изучай языки 5.155.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53294.jpgsave_picture_53294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53294.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ OneCommander Pro 3.84.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53295.jpgsave_picture_53295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53295.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:60286BD877920C94BD2ABB1F069594154FD59948
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53296.jpgsave_picture_53296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53296.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Lindsey Stirling - Duality (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53297.jpgsave_picture_53297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53297.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:5ABCCFD96A39D9E16BF44BA267423EDF830C68DC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53298.jpgsave_picture_53298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53298.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:7F40D71883F68F7DACC014C0E249EF65D6A3B37F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53299.jpgsave_picture_53299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53299.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53300.jpgsave_picture_53300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53300.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ David Bowie - Rock 'n' Roll Star! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53301.jpgsave_picture_53301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53301.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Viber 22.9.0.2 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53302.jpgsave_picture_53302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53302.jpg" />
 </div>
 
 

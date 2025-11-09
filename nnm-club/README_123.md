@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3242.jpgsave_picture_3242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3242.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3243.jpgsave_picture_3243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3243.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:BEAD328F0D60675C009DD9AF86DA7E7B32902D00
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3244.jpgsave_picture_3244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3244.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ MobiKin Backup Manager for Android 2.0.24 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3245.jpgsave_picture_3245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3245.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D52B980DE26BF5D2F245F28161A68E19219C7513
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3246.jpgsave_picture_3246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3246.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Microsoft Activation Scripts (MAS) 3.7 portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3247.jpgsave_picture_3247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3247.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:823B14FD517A1E0819179F3E5A272A5008532D0C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3248.jpgsave_picture_3248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3248.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:CF338EE3ED12D5D4604F99BC908A144996B5894C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3249.jpgsave_picture_3249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3249.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C9B63747C59C4D7DD9142E5D2CBE08991AC4171C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3250.jpgsave_picture_3250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3250.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:22128EFD4BA0880D930FC60F92425A2D6595FB04
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3251.jpgsave_picture_3251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3251.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Adventure of Samsara (2025) [Multi] (1.0.10) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3252.jpgsave_picture_3252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3252.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:7CD98B93C5CAA066EA9A695C64326CC078AAE039
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3253.jpgsave_picture_3253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3253.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7CD98B93C5CAA066EA9A695C64326CC078AAE039
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3255.jpgsave_picture_3255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3255.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:CE52E54D7FE63E81EE6727430F89B03A6EE819E3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3257.jpgsave_picture_3257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3257.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:54BE4ADAD447253437E66D10CC48BB80DE01726F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3258.jpgsave_picture_3258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3258.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.1.8/dlc) Repack Let'sРlay [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3259.jpgsave_picture_3259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3259.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Shrink Rooms (2025) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3260.jpgsave_picture_3260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3260.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:7B6C8689B890EC91B16E1AF91ED79604931F9090
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3261.jpgsave_picture_3261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3261.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:EB763973B3A45608004E3CE6C2F3A3B34D812384
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3262.jpgsave_picture_3262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3262.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Adobe Premiere Pro 2025 25.5.0.13 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3263.jpgsave_picture_3263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3263.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Topaz Video AI 7.1.4 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3264.jpgsave_picture_3264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3264.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3265.jpgsave_picture_3265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3265.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:17A9624B07174614DD7A49BAF8582796DE23A35B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3266.jpgsave_picture_3266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3266.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.31/dlc) Repack SE7EN
 >>29
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3267.jpgsave_picture_3267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3267.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ XMedia Recode 3.6.1.8 + Portable [Multi/Ru] (обновляемая раздач
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3268.jpgsave_picture_3268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3268.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.13.07) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3270.jpgsave_picture_3270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3270.jpg" />
 </div>
 
 

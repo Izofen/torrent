@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80966.jpgsave_picture_80966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80966.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3F26A9AE2AD093923FFC2CCC95F84243F92FFA7E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80968.jpgsave_picture_80968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80968.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80970.jpgsave_picture_80970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80970.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:CBB49B563E52B71EF620BEDB692B7D41BA2315F2
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80971.jpgsave_picture_80971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80971.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:2E89F1C1E41CB73DD8361F80F6889063665306F2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80974.jpgsave_picture_80974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80974.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Whitney Houston - The Ballads Collection (2009) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80975.jpgsave_picture_80975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80975.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:4A6B39C71EF6703CCD387E29FC03B0757400D8FA
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80977.jpgsave_picture_80977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80977.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80980.jpgsave_picture_80980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80980.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:BC33053F836F39B4773AFB688509ADC49CC2CE2D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80981.jpgsave_picture_80981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80981.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6519B71D1C3D9167E02E5276ED35FA8A7A451764
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80983.jpgsave_picture_80983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80983.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:6519B71D1C3D9167E02E5276ED35FA8A7A451764
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80984.jpgsave_picture_80984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80984.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ I Was an Atomic Mutant! / I was an Atomic Mutant: Убойные будни [Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80985.jpgsave_picture_80985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80985.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:8451DD7C9488F4CDF8B551A17C3E42F5716C4F65
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80986.jpgsave_picture_80986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80986.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Madness - Total Madness (2009) [FLAC|Lossless]<new wave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80987.jpgsave_picture_80987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80987.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:2B7A32A6E2816738375362FA7AAC2F15F006CD27
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80988.jpgsave_picture_80988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80988.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:F59402CE8381E70C283C2BCA3671D51A3D779117
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80990.jpgsave_picture_80990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80990.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:F7F63283D66B0BC62E007D8984B72B4CE13DA176
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80991.jpgsave_picture_80991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80991.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:AB977958BE5E5027CD8D50EC6BCBFDF7B49BC947
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80993.jpgsave_picture_80993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80993.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80994.jpgsave_picture_80994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80994.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Savage - Gold (1994) [MP3|320 кб/с]<Pop, Italo Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80997.jpgsave_picture_80997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80997.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Paul Oakenfold - Never Mind The Bollocks (2011) [FLAC|Lossless]<Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80998.jpgsave_picture_80998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80998.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Disc one:
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81000.jpgsave_picture_81000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81000.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Disc one:
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81001.jpgsave_picture_81001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81001.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Wlodzimierz Grabowski - Extreme Sample Converter 3.6.0.1594 by ASSiGN [англ�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81006.jpgsave_picture_81006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81006.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Lacuna Coil - Dark Adrenaline (2012) [MP3|320 кб/с]<Gothic Metal, Alternative
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81007.jpgsave_picture_81007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81007.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:B49D433BD7DDB66FE331BF6F5DEC5D32FF6036A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81009.jpgsave_picture_81009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81009.jpg" />
 </div>
 
 

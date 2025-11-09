@@ -6,7 +6,7 @@ Zombieville USA 3D (2025) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23468.jpgsave_picture_23468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23468.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.29/dlc) Repack FitGirl [Ultimate Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23478.jpgsave_picture_23478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23478.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cities: Skylines - Collection (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23483.jpgsave_picture_23483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23483.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (3781/dlc) Repack FitGirl [S
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23486.jpgsave_picture_23486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23486.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ WARNO (2024) [Ru/Multi] (150731/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23493.jpgsave_picture_23493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23493.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23506.jpgsave_picture_23506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23506.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.28/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23508.jpgsave_picture_23508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23508.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lucky Season 2: End of the Rainbow / Сезон удачи 2: Конец рад�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23509.jpgsave_picture_23509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23509.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cities: Skylines - Collection (2015) [Ru/Multi] (1.19.2-f3/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23525.jpgsave_picture_23525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23525.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.0.13/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23554.jpgsave_picture_23554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23554.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Them and Us (2021) [Ru/Multi] (1.1.2/dlc) Repack seleZen [Ultimate Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23561.jpgsave_picture_23561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23561.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Nobody Saves the World (2022) [Ru/Multi] (18.01.2023/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23563.jpgsave_picture_23563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23563.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack dixen18 [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23569.jpgsave_picture_23569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23569.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23572.jpgsave_picture_23572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23572.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23576.jpgsave_picture_23576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23576.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Rogue: Genesia (2022) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23578.jpgsave_picture_23578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23578.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Blackthorn Arena: Reforged (2024) [Ru/Multi] (2.01g/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23582.jpgsave_picture_23582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23582.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Urban Jungle (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23583.jpgsave_picture_23583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23583.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Armored Core VI Fires of Rubicon (2023) [Ru/Multi] (1.08.1/dlc) Repack Wanterlud
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23584.jpgsave_picture_23584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23584.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23593.jpgsave_picture_23593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23593.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ ROBOBEAT (2024) [Ru/Multi] (1.3.10) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23603.jpgsave_picture_23603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23603.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ House Builder (2021) [Ru/Multi] (Build 20-03-2025/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23622.jpgsave_picture_23622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23622.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Human: Fall Flat (2016) [Ru/Multi] (1092002) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23626.jpgsave_picture_23626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23626.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23639.jpgsave_picture_23639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23639.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23648.jpgsave_picture_23648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23648.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Invincible (2023) [Ru/Multi] (1.6) Repack Other s [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23657.jpgsave_picture_23657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23657.jpg" />
 </div>
 
 

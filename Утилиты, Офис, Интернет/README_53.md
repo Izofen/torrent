@@ -6,7 +6,7 @@ Alfa eBooks Manager 9.4.5.1 Pro & Web [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193391.jpgsave_picture_193391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193391.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KMS Tools Lite Portable by Ratiborus 24.10.2025 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193398.jpgsave_picture_193398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193398.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MAX Desktop 25.14.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193413.jpgsave_picture_193413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193413.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Far Manager 3.0.6575 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193414.jpgsave_picture_193414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193414.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EEF709ABBEF0901DDAE5A0B5093FCFC65717DA29
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193447.jpgsave_picture_193447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193447.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Magic Partition Recovery Home / Office / Unlimited Edition 4.9 RePack (& Portabl
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193450.jpgsave_picture_193450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193450.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:143B279AA41526C51094F5FB6B4F9A86AFEE272F
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193451.jpgsave_picture_193451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193451.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Internet Download Manager 6.42 Build 52 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193459.jpgsave_picture_193459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193459.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ MassTube Ultra 21.0.4.171 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193506.jpgsave_picture_193506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193506.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Textify 1.10.4 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193507.jpgsave_picture_193507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193507.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:643BC3976B1786D52B9DCA1471F0D5DD53A47951
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193514.jpgsave_picture_193514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193514.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Internet Download Manager 6.42 Build 52 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193518.jpgsave_picture_193518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193518.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ OCCT 15.0.4 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193521.jpgsave_picture_193521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193521.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Magic Recovery Software 2023.08 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193534.jpgsave_picture_193534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193534.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ MassTube Ultra 21.0.4.171 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193579.jpgsave_picture_193579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193579.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Hetman Uneraser Unlimited Edition 6.9 RePack (& Portable) by elchupacabra [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193620.jpgsave_picture_193620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193620.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Hetman Internet Spy 3.8 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193693.jpgsave_picture_193693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193693.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Advanced SystemCare Pro 19.0.1.158 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193704.jpgsave_picture_193704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193704.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Vovsoft Hide Files 8.2 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193889.jpgsave_picture_193889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193889.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Streamlabs OBS 1.13.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193939.jpgsave_picture_193939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193939.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Caramba Switcher 2023.08.15 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194071.jpgsave_picture_194071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194071.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ TraceRouteOK 3.33 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194101.jpgsave_picture_194101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194101.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:D34E37914612667C88BE42549DABBFE818B937B9
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194146.jpgsave_picture_194146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194146.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Blue Iris 5.7.9.4 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194216.jpgsave_picture_194216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194216.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ DirLister v2 beta 4 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194324.jpgsave_picture_194324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194324.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Keyman 16.0.141 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194326.jpgsave_picture_194326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194326.jpg" />
 </div>
 
 

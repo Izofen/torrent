@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87543.jpgsave_picture_87543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87543.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Armin van Buuren / Live at Armada Night in Escape Amsterdam -21.10.2009 [1080i] 
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87544.jpgsave_picture_87544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87544.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Total Commander Extended & Lite 5.4.0 Portable by BurSoft [RUS/ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87546.jpgsave_picture_87546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87546.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Total Commander Extended & Lite 5.4.0 Portable by BurSoft [RUS/ENG]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87547.jpgsave_picture_87547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87547.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Tumble Jumble (P) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87548.jpgsave_picture_87548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87548.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:F9341741E03CC377DFAC545878CD1FFA66BA667C
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87549.jpgsave_picture_87549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87549.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:F9341741E03CC377DFAC545878CD1FFA66BA667C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87553.jpgsave_picture_87553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87553.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:643C02B3F603A8F79A019F4DC2426C4FEEA2B664
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87555.jpgsave_picture_87555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87555.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:FC4FADD3DE77720717E1B6F6FABF9134984120E0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87556.jpgsave_picture_87556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87556.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Slizz (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87557.jpgsave_picture_87557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87557.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:DCC6BCF87E27983B4FE4B2B352F4CBAD9AAF88DE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87560.jpgsave_picture_87560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87560.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:DCC6BCF87E27983B4FE4B2B352F4CBAD9AAF88DE
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87561.jpgsave_picture_87561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87561.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:DCC6BCF87E27983B4FE4B2B352F4CBAD9AAF88DE
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87563.jpgsave_picture_87563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87563.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:6B8197F3D2D9A19EA6CD38AA9CA09F570D437B65
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87566.jpgsave_picture_87566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87566.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dragonforce - The Power Within (2012) [MP3|320 кб/с]<Extreme Power Metal/Spee
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87567.jpgsave_picture_87567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87567.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:39F6F0F14BA25678E2A4ABC0B9826476CC17B9E5
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87575.jpgsave_picture_87575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87575.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:BD87B8EE38D8D6F5DEA0DE738FC3B238418947E1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87576.jpgsave_picture_87576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87576.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:BD87B8EE38D8D6F5DEA0DE738FC3B238418947E1
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87577.jpgsave_picture_87577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87577.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:BD87B8EE38D8D6F5DEA0DE738FC3B238418947E1
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87583.jpgsave_picture_87583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87583.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:3826B7C2B06A926B5D4D2D05D8E024FC96CD5BE3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87584.jpgsave_picture_87584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87584.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:6789DA48AF68064AD0EF7C24327ABED6027B9FA5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87586.jpgsave_picture_87586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87586.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:6789DA48AF68064AD0EF7C24327ABED6027B9FA5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87587.jpgsave_picture_87587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87587.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:6789DA48AF68064AD0EF7C24327ABED6027B9FA5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87589.jpgsave_picture_87589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87589.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:6789DA48AF68064AD0EF7C24327ABED6027B9FA5
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87591.jpgsave_picture_87591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87591.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Organic Loops - Live Dubstep Strings (Wav|Rex2) by KRock-Studio[английск
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87593.jpgsave_picture_87593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87593.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Organic Loops Live Dubstep Strings - лупы струнных инструме�
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87596.jpgsave_picture_87596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87596.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84950.jpgsave_picture_84950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84950.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - XXXL Золотые 80-е Русский (2012) [MP3|224-256 kbps]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84951.jpgsave_picture_84951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84951.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Iron Maiden: En Vivo! (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84954.jpgsave_picture_84954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84954.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:8EC4D15511F2ADD3DE37A4C8F5842FCAAC972521
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84955.jpgsave_picture_84955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84955.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:9B8A535D38BC2160AA7091B30E46AEA5F03B13CC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84957.jpgsave_picture_84957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84957.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:DCDC766C932FC274657104E7B6E8F3D600EC0093
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84958.jpgsave_picture_84958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84958.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Abbeyroadplugins EMI - RS 124 Compressor VST.RTAS v1.0.1 x86 by AiR [англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84960.jpgsave_picture_84960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84960.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The RS124 Compressor Plug-In разработанный инженерами л�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84962.jpgsave_picture_84962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84962.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ AVG Anti-Virus Free 2012 12.0.2126 Build 4890 Final [Мульти, Русски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84963.jpgsave_picture_84963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84963.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ AVG Anti-Virus Free Edition — популярный антивирус, бес�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84966.jpgsave_picture_84966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84966.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:6E7F5846E1EDD9DA86F7464E3C4496C86B60DD4A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84967.jpgsave_picture_84967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84967.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:E93B8A22AFE2FBEB4C8FBAABD270DB1B90555C55
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84968.jpgsave_picture_84968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84968.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Accept - Stalingrad (2012) [MP3|320 кб/с]<Heavy Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84969.jpgsave_picture_84969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84969.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:8630BEE89F23234A665E8B8CCE599C957D0B7DB0
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84971.jpgsave_picture_84971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84971.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:719FF575B9D67850B7BA093B1163B0A8889A5B3B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84972.jpgsave_picture_84972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84972.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Solitaire Mystery: Stolen Power / Магия пасьянса (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84973.jpgsave_picture_84973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84973.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:6D60C8EBCA0A7AD16E328F4A2AA4BB12ACE32D83
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84975.jpgsave_picture_84975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84975.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Accept - Stalingrad (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84976.jpgsave_picture_84976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84976.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Accept - Stalingrad (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84978.jpgsave_picture_84978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84978.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Accept - Stalingrad (2012) [FLAC|Lossless]<Heavy Metal>
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84980.jpgsave_picture_84980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84980.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:D8CCF0956948DCDC92FE929A0ECA15F2B19A9284
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84981.jpgsave_picture_84981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84981.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Platinum Hide IP 3.1.7.6 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84983.jpgsave_picture_84983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84983.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Platinum Hide IP 3.1.7.6 [Мульти/Русский]
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84984.jpgsave_picture_84984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84984.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Adobe Flash Player 11.2.202.228 Final [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84985.jpgsave_picture_84985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84985.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Firefox перестанет работать на старых версиях W
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84987.jpgsave_picture_84987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84987.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Firefox перестанет работать на старых версиях W
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84989.jpgsave_picture_84989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84989.jpg" />
 </div>
 
 

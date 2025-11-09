@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236208.jpgsave_picture_236208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236208.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lilies of Megiddo - Leeches (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236209.jpgsave_picture_236209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236209.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Total Commander 10.51 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236210.jpgsave_picture_236210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236210.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DD74726D8D1296365117AA7C02D2CCAD7FD7354A
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236211.jpgsave_picture_236211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236211.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Lasso 1.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236213.jpgsave_picture_236213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236213.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E4ED8085B26587721DFA4E8EC07305215ACDA2D4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236215.jpgsave_picture_236215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236215.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Movist 2.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236216.jpgsave_picture_236216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236216.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Nick Sax - KPSS PUNK (2023) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236217.jpgsave_picture_236217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236217.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:FF4C0641CDB8A590CCF29FB46418C796AF0293C4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236218.jpgsave_picture_236218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236218.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 3 (2021) [AAC|~293 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236219.jpgsave_picture_236219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236219.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.8 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236220.jpgsave_picture_236220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236220.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Miles Davis & Gil Evans - Concierto de Aranjuez (1961) 1990, Giants Of Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236221.jpgsave_picture_236221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236221.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ caleb chronic - Neurodeviant (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Mo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236222.jpgsave_picture_236222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236222.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Kaspersky Virus Removal Tool (KVRT) 20.0.10.0 (09.05.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236223.jpgsave_picture_236223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236223.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ iShowU Studio 2 v2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236225.jpgsave_picture_236225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236225.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Degrees Of Truth - Alchemists (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236226.jpgsave_picture_236226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236226.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Yate 6.6.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236227.jpgsave_picture_236227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236227.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Artie Shaw - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236228.jpgsave_picture_236228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236228.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:0DB4952EBF64C636492D9052A3F1EBB843F14FF6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236229.jpgsave_picture_236229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236229.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ SIGERSHADERS XS Material Presets Studio 4.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236230.jpgsave_picture_236230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236230.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ R-Wipe & Clean 20.0.2403 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236231.jpgsave_picture_236231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236231.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Fork 2.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236232.jpgsave_picture_236232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236232.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Fix My iPhone 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236235.jpgsave_picture_236235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236235.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:43CCEE81B18C310ACB0231BAFD62D3BE0E44EB76
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236236.jpgsave_picture_236236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236236.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ NanoBrowser 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236237.jpgsave_picture_236237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236237.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Better Trash 1.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236238.jpgsave_picture_236238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236238.jpg" />
 </div>
 
 

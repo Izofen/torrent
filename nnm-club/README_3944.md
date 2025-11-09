@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123032.jpgsave_picture_123032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123032.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4E75BE5AE8E9478A2ECE9F2FACBBCCC86F9F2D33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123033.jpgsave_picture_123033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123033.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123034.jpgsave_picture_123034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123034.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6EE1F00A8428FCC8DDBF45C8F08401D36FAD353A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123035.jpgsave_picture_123035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123035.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D28707B300D03C51A1D0B1F06EE0190CAE69E2D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123036.jpgsave_picture_123036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123036.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D28707B300D03C51A1D0B1F06EE0190CAE69E2D8
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123037.jpgsave_picture_123037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123037.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Stellar Tactics (2016) [Ru/Multi] (0.724) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123038.jpgsave_picture_123038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123038.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:294F52AF5C406344DD41CDD07F653C0657199205
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123039.jpgsave_picture_123039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123039.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:EB91FA5CD225BAA403FB4998C68704AE85798235
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123040.jpgsave_picture_123040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123040.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ The Clamps - Megamouth (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123041.jpgsave_picture_123041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123041.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:A0B2429A10B3A62B04C0A7CAA2F4072858B53640
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123042.jpgsave_picture_123042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123042.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Depraved Entity - Angels of Sin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123043.jpgsave_picture_123043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123043.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123044.jpgsave_picture_123044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123044.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Serocs - Vore (2020) EP [FLAC|Lossless|image + .cue] <Brutal Technical Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123045.jpgsave_picture_123045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123045.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Serocs - The Phobos / Deimos Suite (2018) [FLAC|Lossless|image + .cue] <Brutal T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123046.jpgsave_picture_123046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123046.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ MarsEdit 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123047.jpgsave_picture_123047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123047.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Noir – Dark Mode for Safari 2024.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123048.jpgsave_picture_123048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123048.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123049.jpgsave_picture_123049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123049.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Alluvial - Death Is But A Door (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123050.jpgsave_picture_123050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123050.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ SiteSucker 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123051.jpgsave_picture_123051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123051.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Boxy SVG 4.21.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123052.jpgsave_picture_123052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123052.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Serocs - The Next (2013) [FLAC|Lossless|image + .cue] <Brutal Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123053.jpgsave_picture_123053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123053.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Serocs - Oneirology (2012) Demo [FLAC|Lossless|tracks] <Brutal Technical Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123054.jpgsave_picture_123054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123054.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Serocs - And When the Sky Was Opened (2015) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123055.jpgsave_picture_123055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123055.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Triple Kill - Studio Albums (3 releases) (2017-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123056.jpgsave_picture_123056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123056.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Alan Zimmerman - Standards - Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123057.jpgsave_picture_123057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123057.jpg" />
 </div>
 
 

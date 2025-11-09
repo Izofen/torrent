@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140933.jpgsave_picture_140933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140933.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:FA688051EF2B57443AC161A76262D369FCE87C05
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140934.jpgsave_picture_140934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140934.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ GreenBrowser 6.8.1228 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140936.jpgsave_picture_140936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140936.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Bulk Image Downloader Lite 5.86.0.0 repack by Wadimus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140937.jpgsave_picture_140937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140937.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D3E5ED5B0F3F54606E39F686088DF851B7C8A85E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140939.jpgsave_picture_140939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140939.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Hardcore Bodybuilding Music 2016 (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140940.jpgsave_picture_140940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140940.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E25EC2B9DA72EC722AC16CC63E76C92D8C6AA5E5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140941.jpgsave_picture_140941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140941.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Utsuro no Hako to Zero no Maria / The Empty Box and The Zeroth Maria / Пуст�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140942.jpgsave_picture_140942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140942.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ PDF Expert 2.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140943.jpgsave_picture_140943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140943.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140944.jpgsave_picture_140944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140944.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:73ACD3A2DA01D012863AAEE18BEEDCBF58353171
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140945.jpgsave_picture_140945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140945.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:39E1D79F3700FFFCD7465B159E67A6CD2501FD49
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140946.jpgsave_picture_140946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140946.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:FAD1AF112B9FCD1472D587995655DE37FD057CA4
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140947.jpgsave_picture_140947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140947.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Hitman: Absolution - Professional Edition [Ru/En/Multi8] (L/1.0.444.0/DLC) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140948.jpgsave_picture_140948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140948.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Cradle Orchestra - Transcended Elements (2010) [FLAC|Lossless|tracks + .cue] <Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140950.jpgsave_picture_140950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140950.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Udemy, Dmytro Mezhenskyi | Производительный бэкэнд GraphQL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140951.jpgsave_picture_140951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140951.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:23858B6B7C88EAEB3AA51911826B9BADC5CFD542
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140952.jpgsave_picture_140952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140952.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:A5EF4A58C0E9A8E4D2305A9997D66FB80F528F8E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140953.jpgsave_picture_140953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140953.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Metadata Converter Pro for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140955.jpgsave_picture_140955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140955.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:664A0A0411DED916FB841D523B50B2A9079C1647
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140956.jpgsave_picture_140956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140956.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Agnitum Outpost Security Suite PRO 8.0.4164.639.1856.489 Final [MULTi / Русс
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140958.jpgsave_picture_140958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140958.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Outpost Security Suite Pro - это новейшие технологии для
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140959.jpgsave_picture_140959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140959.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Performance Index 64 Pro 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140960.jpgsave_picture_140960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140960.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:9F355C95AB4218FAF4483C4028DA75DD9E17B79F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140961.jpgsave_picture_140961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140961.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:98F4550BDA805DA3BEBC02C6290307A3599D0D9B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140962.jpgsave_picture_140962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140962.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:ED83977B5DB3D58486231FB875B73936F8226EBB
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140963.jpgsave_picture_140963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140963.jpg" />
 </div>
 
 

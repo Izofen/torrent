@@ -6,7 +6,7 @@ Noctem - Haeresis (2016) [MP3|320 Kbps] <Black Metal, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245607.jpgsave_picture_245607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245607.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:42124E473267CB1C33ED43ACDD12D071A69FF656
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245608.jpgsave_picture_245608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245608.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:F9B1F222A199858E6E9B5B34EA844CDB5FCB7B63
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245609.jpgsave_picture_245609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245609.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:F294C85B40A0EBEC2B7BB38CA78BAB4D48D488B4
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245610.jpgsave_picture_245610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245610.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Lil Revive - Grim Peaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245611.jpgsave_picture_245611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245611.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ BlueHarvest 8 v8.0.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245612.jpgsave_picture_245612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245612.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:BCAAFB730C3B20C6249C67BC8A45ECB50B49FE3B
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245613.jpgsave_picture_245613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245613.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:DC11073C8E8ED147396C2CAB03FFFDAD5706D398
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245614.jpgsave_picture_245614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245614.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Seer of the Void - Doom Metal (2020-2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245615.jpgsave_picture_245615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245615.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Trance Traveling 81 (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245616.jpgsave_picture_245616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245616.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Format Factory 5.12.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245617.jpgsave_picture_245617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245617.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ WinSnap 6.0.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245618.jpgsave_picture_245618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245618.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:E62218174DF00044FF8536ED3489AED1D34AC542
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245619.jpgsave_picture_245619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245619.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:95E56FCA256EDD1E6BBD574E14013CA64469E516
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245620.jpgsave_picture_245620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245620.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ John Di Martino's Romantic Jazz Trio - Moliendo Cafe (2011) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245621.jpgsave_picture_245621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245621.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Opera Crypto Browser 97.0.4719.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245622.jpgsave_picture_245622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245622.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Whisk 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245623.jpgsave_picture_245623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245623.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:2D321B1F616D19FDBF7A5D8543539A18F3F8C544
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245624.jpgsave_picture_245624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245624.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:77BA38B5384B550E4C439B370EA9107731B5E437
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245625.jpgsave_picture_245625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245625.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:F728E602F1E468D1E7092DB9C1F47D060C206178
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245626.jpgsave_picture_245626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245626.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:5D6EC10D8ACC068D9219F0774E8B12CD31BF17B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245627.jpgsave_picture_245627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245627.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:6AAB2BC044B5165CAC14C7A38DB06A5577E17985
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245628.jpgsave_picture_245628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245628.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Nisus Writer Pro 3.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245629.jpgsave_picture_245629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245629.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BrowsingHistoryView 2.55 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245630.jpgsave_picture_245630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245630.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Harry Manx - Road Ragas (2005) Live [WavPack|Lossless|image + .cue] <Blues, Folk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245631.jpgsave_picture_245631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245631.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:284C52A8F46D08759F49761DF290EB8DC105FE0E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245632.jpgsave_picture_245632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245632.jpg" />
 </div>
 
 

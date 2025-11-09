@@ -6,7 +6,7 @@ Google Earth Pro 7.3.4.8642 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234513.jpgsave_picture_234513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234513.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RTG. Малые музеи Петербурга. Микроминиатюра (2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234514.jpgsave_picture_234514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234514.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F544D9E50FEDC617A8BC1322DA28BB7A01E5E670
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234515.jpgsave_picture_234515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234515.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Benvista PhotoZoom Pro 8.1.0 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234516.jpgsave_picture_234516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234516.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E31C6A820F81F9DC16791FBB2E72CE610A3F2798
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234517.jpgsave_picture_234517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234517.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mother Misery - From Shadow To Ghost (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234518.jpgsave_picture_234518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234518.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ iCompta 6.0.65 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234519.jpgsave_picture_234519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234519.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:4C5E5B9BB13B2C7B0FD28D3BA2CA1D69B19E1FBE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234520.jpgsave_picture_234520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234520.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Royal Thunder - Rebuilding The Mountain (2023) [MP3|320 Kbps] <Heavy Rock, Psych
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234521.jpgsave_picture_234521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234521.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7EBD0A1B09754C84C68E42B192A37DB509F2C3A8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234522.jpgsave_picture_234522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234522.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:3B81F7EFF773F2BC2D8F6E8FACFA0292E2501494
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234523.jpgsave_picture_234523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234523.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Benny Golson - Gettin' With It (1959) 1995, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234524.jpgsave_picture_234524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234524.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Thermae Romae Novae | Новые римские бани [2022, Web, 11 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234525.jpgsave_picture_234525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234525.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ YouCut - Video Editor / YouCut 1.583.1172 Mod by Mixroot, maxi123444, 0x7d [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234526.jpgsave_picture_234526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234526.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:9E17A8C51CEDE41E910F58C95EFDEB90F1369CDE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234527.jpgsave_picture_234527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234527.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Strayin' Anchors - Funk, Blues, and Green (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234528.jpgsave_picture_234528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234528.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ RTG. Малые музеи Петербурга. История трамвая (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234529.jpgsave_picture_234529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234529.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Darren James Harkness | Apache Essentials: Install, Configure, Maintain, 2nd Edi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234530.jpgsave_picture_234530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234530.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Deadly Sinners - Murdered By Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234531.jpgsave_picture_234531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234531.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:9113661564B3C13959BC84963DB7D3F81DC344B5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234532.jpgsave_picture_234532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234532.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:E91D304393BA478F3B5D1F9323B5E24C8AAEA732
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234533.jpgsave_picture_234533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234533.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:7055CD8C7598E7227885734A61C572747E0204DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234534.jpgsave_picture_234534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234534.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Adobe Acrobat Reader для PDF 22.4.0.22039 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234535.jpgsave_picture_234535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234535.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:74E28F72F3D7D3EE225E24DEC9E3650FA585C8AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234536.jpgsave_picture_234536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234536.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ WinSnap 6.0.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234537.jpgsave_picture_234537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234537.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Earthmark - Megafauna (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234538.jpgsave_picture_234538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234538.jpg" />
 </div>
 
 

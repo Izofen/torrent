@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54220.jpgsave_picture_54220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54220.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Brendan Gregg | Systems Performance. Enterprise and the Cloud (2013) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54290.jpgsave_picture_54290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54290.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54368.jpgsave_picture_54368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54368.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54447.jpgsave_picture_54447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54447.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54471.jpgsave_picture_54471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54471.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54597.jpgsave_picture_54597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54597.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:D9E2E155E78654753B05263A637F4A91509773BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54645.jpgsave_picture_54645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54645.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:D4026CEAAC38360681671BA305371E71F9101662
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54649.jpgsave_picture_54649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54649.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Kyran Dale | Data Visualization with Python and JavaScript (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54714.jpgsave_picture_54714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54714.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:C78DD0A4275FE46BBCB287FA2449EA1F99B1702B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54719.jpgsave_picture_54719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54719.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:63BB62574811E3404624994E2EC77821543D502E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54723.jpgsave_picture_54723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54723.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:2D5EFE6B28E48227482736A593512A0F30044151
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54741.jpgsave_picture_54741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54741.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Zed A. Shaw | Learn More Python 3 the Hard Way: The Next Step for New Python Pro
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54903.jpgsave_picture_54903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54903.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:030A5A827153BB56969C51D3A6347B8C42D4E4DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54936.jpgsave_picture_54936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54936.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Robert C. Martin | Clean Code Collection (2012) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55450.jpgsave_picture_55450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55450.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:F808F7F695047D98D3B72F0AEC027FBAAD717447
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56992.jpgsave_picture_56992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56992.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:7CEFA0D3251FAC0A84CFE222AD9BCAA32142A0EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58196.jpgsave_picture_58196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58196.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:679C9F085F96F9D527F39C0A7661A83FB763C235
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60497.jpgsave_picture_60497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60497.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:C74B7388215F3A482B555F31190049F90A369F43
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60511.jpgsave_picture_60511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60511.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:4332B3BA356FE917CE59771EB81B6791BCFECC15
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60696.jpgsave_picture_60696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60696.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:AF949826F7A187E50045D61EDCE3792B3991E228
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60741.jpgsave_picture_60741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60741.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61619.jpgsave_picture_61619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61619.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:B1E78513FE93BF7459A1DE58CD0B17052C5633AF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61657.jpgsave_picture_61657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61657.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:9E115C2B8F47165B3B347FE192E41EA1AB834B6B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61685.jpgsave_picture_61685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61685.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:0EB298928B9F73883DDF56154FF35A0D53EE0255
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61748.jpgsave_picture_61748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61748.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:0CCFFAFC33C3B58514F0FC8AECA0EAC3D6FEE787
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61761.jpgsave_picture_61761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61761.jpg" />
 </div>
 
 

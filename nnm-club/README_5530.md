@@ -6,7 +6,7 @@ profileschool, Дмитрий Ларионов | Монтаж в Davinci Resolve
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170759.jpgsave_picture_170759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170759.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D9D9D95B25966F15DD1A098F2887E9AF9E537BC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170760.jpgsave_picture_170760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170760.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JUG Ru Group | Joker 2021. Международная Java-конференци�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170761.jpgsave_picture_170761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170761.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:6691816804DA636054EC822833EAC26309AA829B
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170762.jpgsave_picture_170762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170762.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D73806228BC325196218FFC0C1898AD121D7F93E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170763.jpgsave_picture_170763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170763.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:30245B425A14C09A954DD8BE2280134099C4D0DF
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170764.jpgsave_picture_170764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170764.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:CB8E05DC6DDBEAE93D711AABA57D616F83DA1AAF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170765.jpgsave_picture_170765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170765.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:B42E19DD9E46814165E67798E56BD03D42A9AB85
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170766.jpgsave_picture_170766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170766.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Avishai Cohen - The 50 Gold Selection (2020) [MP3|320 Kbps] <Conterporary Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170767.jpgsave_picture_170767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170767.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5570DBDE2C98FC82CDB1DA26EEAF2715C5D1AA40
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170768.jpgsave_picture_170768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170768.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:B1FF36A2124D319BA57FB547F99863755B5E7899
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170769.jpgsave_picture_170769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170769.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ AOMEI Partition Assistant Pro 9.13.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170770.jpgsave_picture_170770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170770.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Skype 8.67.0.87 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170771.jpgsave_picture_170771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170771.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:667C797CB88B865E1EFC8185FC4DB2FC5941674E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170773.jpgsave_picture_170773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170773.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:997B0EC81FCF495CCF21DEF81A3888C18D506206
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170774.jpgsave_picture_170774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170774.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - The Forest Chill Lounge, Vol. 1 (2012) [AAC|~315 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170775.jpgsave_picture_170775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170775.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ PDF-XChange Editor Plus 10.1.2.382 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170776.jpgsave_picture_170776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170776.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:F4BF32B6C6743AAD8D97B7FE35A45B017B1E7BEC
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170777.jpgsave_picture_170777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170777.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E87C1D4CDDB138CA31B1BDA65B63EE72B92C5468
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170778.jpgsave_picture_170778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170778.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:9089CFFAC798ACCE1C154F81798A4612685A5250
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170779.jpgsave_picture_170779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170779.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:4935FA74E642200AAF9922F86072EF200EB67265
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170780.jpgsave_picture_170780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170780.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:00FB64528295A6046CFEDF36739AE9B1182CA1FD
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170781.jpgsave_picture_170781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170781.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Counter Terrorist Agency (2019) [Ru/Multi] (1.0.1) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170782.jpgsave_picture_170782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170782.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:AECBF766D8593A96ADC1F6C2E7B0560B434C07DB
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170783.jpgsave_picture_170783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170783.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ NVIDIA GeForce Desktop Game Ready 527.56 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170784.jpgsave_picture_170784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170784.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:867ECC2245F462DB134A3DCB85534F37C745234A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170785.jpgsave_picture_170785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170785.jpg" />
 </div>
 
 

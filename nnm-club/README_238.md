@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6266.jpgsave_picture_6266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6266.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Myrath - Reflections: Best Of (2025) [MP3|320 Kbps] <Oriental Progressive Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6267.jpgsave_picture_6267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6267.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:74EC6B06A4CBC1B543F29CF430427DAECEDC8F9F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6268.jpgsave_picture_6268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6268.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:49904DE372811F7785A285D38B112F9969A29358
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6269.jpgsave_picture_6269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6269.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:7F6C9011D970E0A97CE3F791FAC4240ED0B865B4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6270.jpgsave_picture_6270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6270.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:FFC87BDE72F2152906ACD8E387DCDEFE8D52B801
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6271.jpgsave_picture_6271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6271.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:522A575E2A5E8D851E06DFEAB3C7C1F842369940
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6272.jpgsave_picture_6272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6272.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4C823C84DF3F72BC1459F102D9EEA1904700F07E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6273.jpgsave_picture_6273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6273.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Pulsar Modular Complete Effects Bundle 2025.8.22 VST 3, AAX (x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6274.jpgsave_picture_6274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6274.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ kiloHearts Subscription 2.4.2 VST/VSTi, VST 3/VSTi 3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6275.jpgsave_picture_6275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6275.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D0AB7240E68C870157FE80062D5DEE904A8E12CD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6276.jpgsave_picture_6276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6276.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Three Days Grace - Alienation (2025) [MP3|320 Kbps] <Alternative Rock, Post-Grun
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6277.jpgsave_picture_6277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6277.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Three Days Grace - Alienation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6278.jpgsave_picture_6278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6278.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:F8338FF32392F73FED2FD3EDFFE22BA886BCD1EB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6279.jpgsave_picture_6279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6279.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Bikini Machines, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6280.jpgsave_picture_6280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6280.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Strava: бег, велоезда, хайкинг v425.11 Mod by PieMods [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6281.jpgsave_picture_6281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6281.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Laibach feat Bijelo Dugme - Die Kanone (2025) WEB-DL [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6282.jpgsave_picture_6282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6282.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:AE58F2695AA1FFD8E58A835182BD93AE6FC992D1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6283.jpgsave_picture_6283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6283.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:7ABD316185DF7ED596E949B3C4A71242F38233B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6284.jpgsave_picture_6284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6284.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:F1EF512B855FCE7361AA5352CC30B0EA84BFA751
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6285.jpgsave_picture_6285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6285.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:4180DFB46089F1ADFF188E2B4D4999FC441180CB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6286.jpgsave_picture_6286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6286.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:44063E65EF70CFA65068F60CEF7E834A73B122AD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6287.jpgsave_picture_6287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6287.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:02E5BA6A94602D1271AFFD96DEDEF42563E91C05
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6288.jpgsave_picture_6288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6288.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:DC7D90FD6F23C88FF0A66D72F6BB3F842E892FD9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6289.jpgsave_picture_6289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6289.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:4A751F3857D3A4C0A0BB7CBCBE736C9257D2ED3B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6290.jpgsave_picture_6290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6290.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:E16C6D8B70F0A7A65B79346C042A08523CE22545
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6291.jpgsave_picture_6291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6291.jpg" />
 </div>
 
 

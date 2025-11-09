@@ -6,7 +6,7 @@ Made - Редактор и коллаж 1.2.14 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231146.jpgsave_picture_231146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231146.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Critical Defiance - No Life Forms (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231148.jpgsave_picture_231148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231148.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Data Guardian 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231149.jpgsave_picture_231149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231149.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Node Video - Pro Video Editor 6.3.5 Mod by ImanAlien [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231150.jpgsave_picture_231150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231150.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:38BB2310B4E432F2B858219E95FEB29B8C21EF4B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231152.jpgsave_picture_231152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231152.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ DuplicateViewer Pro 4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231153.jpgsave_picture_231153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231153.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:23420FDE379456F39B4B1607F6ECA03423166519
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231154.jpgsave_picture_231154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231154.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Foo Fighters - But Here We Are (2023) [FLAC|Lossless|tracks + .cue] <Alt. Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231156.jpgsave_picture_231156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231156.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Lachaise - Silent Cries for Help (2009) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231157.jpgsave_picture_231157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231157.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:6EF8EC1092AF684938746A0A911DD65E87C1EABC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231158.jpgsave_picture_231158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231158.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Levitated Trance - Summer (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231159.jpgsave_picture_231159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231159.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Wondershare UniConverter for Mac 15.0.0 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231160.jpgsave_picture_231160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231160.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Dawnlight - Eternity (2017) EP [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231162.jpgsave_picture_231162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231162.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Graywolf - Graywolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231163.jpgsave_picture_231163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231163.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:5539B6D7E08900F64F2FF6F2339A3975BA0BB39D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231164.jpgsave_picture_231164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231164.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Zorormr - The Monolith (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231165.jpgsave_picture_231165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231165.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Speedtest от Ookla 5.0.7 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231167.jpgsave_picture_231167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231167.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [MP3|320 Kbps] <Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231168.jpgsave_picture_231168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231168.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Photo Image Editor Pixelstyle 4.1.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231169.jpgsave_picture_231169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231169.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VN - Video Editor / VN - Видеоредактор 2.1.3 Mod by PieMods [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231170.jpgsave_picture_231170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231170.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:B22EE7EFBDFE43FEFCD2ACE1A1B7D4E809E1D276
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231173.jpgsave_picture_231173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231173.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ MacMagic 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231174.jpgsave_picture_231174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231174.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:51B71324E5B33FCB724D39535D74E6EC70265293
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231175.jpgsave_picture_231175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231175.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:2D8C77574E43A1E3A8CD18733A2D448D025EEA32
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231176.jpgsave_picture_231176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231176.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Wanted - Late Attraction (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231177.jpgsave_picture_231177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231177.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:3ED8E973656217F637EA4D1E1A4EBC504E35BF7B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231179.jpgsave_picture_231179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231179.jpg" />
 </div>
 
 

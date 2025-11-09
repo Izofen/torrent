@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204052.jpgsave_picture_204052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204052.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:39D2DB92E0AB13F984BDF6FBCF0D71A14F3A78B7
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204053.jpgsave_picture_204053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204053.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cookie 6.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204054.jpgsave_picture_204054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204054.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:AFFD3F023866B5684C4D8197C5B4AA34C1C9E323
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204055.jpgsave_picture_204055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204055.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Cam Cole - Unleash (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Delta Blues,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204057.jpgsave_picture_204057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204057.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Siniestro - Vortexx (2021) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204058.jpgsave_picture_204058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204058.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Avid Sibelius Ultimate 2019.5.0 Build 1469 RePack by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204059.jpgsave_picture_204059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204059.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:D958B866D82999788F06082DCF3A2BAC9AAEE705
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204060.jpgsave_picture_204060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204060.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nine Pound Hammer - Rock 'n' Roll Radio (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204061.jpgsave_picture_204061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204061.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204062.jpgsave_picture_204062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204062.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Comedy of Errors - Threnody for a Dead Queen (2023) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204063.jpgsave_picture_204063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204063.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:50C04B963D7E2BFAAB14C68B7030FCB690AC4047
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204064.jpgsave_picture_204064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204064.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:6E4D9C25915565BF9972499CF1881EE96345CF31
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204065.jpgsave_picture_204065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204065.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Navier HUD 3 v3.4.16 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204066.jpgsave_picture_204066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204066.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ LDPlayer 9.0.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204067.jpgsave_picture_204067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204067.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Phrasebook - Learn Languages / Разговорник v17.0.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204068.jpgsave_picture_204068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204068.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Vanessa-Mae - The Violin Player (1995) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SA
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204069.jpgsave_picture_204069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204069.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:B917221CB8D3F53DB9C9F702F9CC7F39289A37D5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204070.jpgsave_picture_204070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204070.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Driver Easy Pro 5.7.4.11854 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204071.jpgsave_picture_204071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204071.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:1A4CBF3C85E6894EF55C96CC71CCAB7089BB2EA9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204072.jpgsave_picture_204072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204072.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:BF147AA22C50CDF20D5C94C3A13E8483B0FB48D3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204073.jpgsave_picture_204073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204073.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:D087D4E68BAC5BD1951C6AE390E0E2BB88D54DE8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204074.jpgsave_picture_204074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204074.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ AB/CD - Back 'n' Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204075.jpgsave_picture_204075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204075.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Ventoy 1.0.88 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204076.jpgsave_picture_204076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204076.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:B3B53D01F4B9A4C2AD8FDFF7E4CC92AC7780E5F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204077.jpgsave_picture_204077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204077.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:A75DDCBBDC48CCAED628AE81E3E003C07ED16161
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204078.jpgsave_picture_204078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204078.jpg" />
 </div>
 
 

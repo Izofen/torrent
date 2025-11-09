@@ -6,7 +6,7 @@ Free Download Manager 6.22.0.5712 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110685.jpgsave_picture_110685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110685.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8B3AA96E3CAF830609B5647E10EE6B4D9A158622
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110686.jpgsave_picture_110686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110686.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3C41EC918D481634C702EF6706C1E73404E9C05B
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110687.jpgsave_picture_110687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110687.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:6E9B171533DB21000D37E4D1AD2E880064191DC8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110688.jpgsave_picture_110688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110688.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:EDFB1118283DF6181B517AF8E38EC3275F934238
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110689.jpgsave_picture_110689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110689.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:EDFB1118283DF6181B517AF8E38EC3275F934238
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110690.jpgsave_picture_110690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110690.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:05279FDACE7DED7FE2695492F208325EFE5352AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110691.jpgsave_picture_110691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110691.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Judy Wexler - Easy on the Heart (2005) Jazzopolis [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110692.jpgsave_picture_110692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110692.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Aggressor - Procreate the Petrifactions (1993) Reissue, 2012, Roundsound [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110693.jpgsave_picture_110693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110693.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:3EB1CABCC5FC982D284CA5AB003F7BEB16FDFDA3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110694.jpgsave_picture_110694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110694.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Judy Wexler - Dreams & Shadows (2008) Jazzed Media [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110695.jpgsave_picture_110695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110695.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:BA3B7B10C348EEE90FF59A5554ADF7FE025FDD6F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110696.jpgsave_picture_110696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110696.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:60C608630759D5C0EEC6AB314388759AC48EA17C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110697.jpgsave_picture_110697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110697.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Creeper - Sanguivore (2023) Special Edition, 2024, Tom Dalgety [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110698.jpgsave_picture_110698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110698.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:FBF214691F13BA4A8CF84245DFC917A21C21DD7A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110699.jpgsave_picture_110699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110699.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:FB6F3B21EC4C93814105F6BCDC00503672B22742
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110700.jpgsave_picture_110700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110700.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:6F79FC115061176D52579FA45700635BC7798C06
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110701.jpgsave_picture_110701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110701.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Barbara Morrison featuring Houston Person - I Wanna Be Loved (2017) Savant [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110702.jpgsave_picture_110702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110702.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Abhorration - Despondent (2018) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110703.jpgsave_picture_110703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110703.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Aggressor - Of Long Duration Anguish (1994) [APE|Lossless|image + .cue] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110704.jpgsave_picture_110704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110704.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:85DCFD082C795515762A806AAC6708C9192C2B37
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110705.jpgsave_picture_110705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110705.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ KineMaster - Video Editor & Maker v7.4.9.32405.GP Mod by youarefinished [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110706.jpgsave_picture_110706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110706.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Zoner Photo Studio X 19.2403.2.538 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110707.jpgsave_picture_110707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110707.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Miles Davis - Four Classic Albums (1957 - 1960) 2CD, 2013, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110708.jpgsave_picture_110708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110708.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Italian Soft Jazzy Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110709.jpgsave_picture_110709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110709.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:167FE2683BBF3E048C1C6B8BF6F8B8107D8F60F7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110710.jpgsave_picture_110710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110710.jpg" />
 </div>
 
 

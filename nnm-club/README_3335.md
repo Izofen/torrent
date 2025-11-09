@@ -6,7 +6,7 @@ Soft Organizer Pro 9.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107071.jpgsave_picture_107071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107071.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kasabian - Happenings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107072.jpgsave_picture_107072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107072.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FolderSizes 9.6.490 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107073.jpgsave_picture_107073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107073.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Skype 8.123.0.203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107074.jpgsave_picture_107074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107074.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Velvet Cacoon - Genevieve (2004) Released, 2007, Southern Lord [FLAC|24/192|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107075.jpgsave_picture_107075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107075.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:691436E439CC7E288A84F332F0AC60B99F8C69BD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107076.jpgsave_picture_107076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107076.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:CBDBCFCDD11CB40F8C924B462B8DFEB778BB98B6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107077.jpgsave_picture_107077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107077.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:12343E20FE3B1253C7A8CD8D7A4C60CD3DAD1F9E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107078.jpgsave_picture_107078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107078.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Shade Of Sorrow - Upon The Fields Of Grief (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107079.jpgsave_picture_107079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107079.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Marsha Ambrosius - Casablanco (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107080.jpgsave_picture_107080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107080.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Nothing More - Carnal (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107081.jpgsave_picture_107081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107081.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Roberto Ottaviano, Danilo Gallo & Ferdinando Farao - Lacy in the Sky With Diamon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107082.jpgsave_picture_107082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107082.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Inner City - We All Move Together (2020) Remixes, 2024, Armada Music Albums [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107083.jpgsave_picture_107083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107083.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ amaarae — roses are red, tears are blue - A Fountain Baby Extended Play (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107084.jpgsave_picture_107084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107084.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Mike Boguski - Here's To Tomorrow / Goodbye To Yeste (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107085.jpgsave_picture_107085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107085.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Mt. Joy - Live at The Salt Shed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107086.jpgsave_picture_107086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107086.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:89555167F8A322274BB09E2D6459A414444D355C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107087.jpgsave_picture_107087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107087.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ jxdn - When The Music Stops (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107088.jpgsave_picture_107088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107088.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Rachel Eckroth - Humanoid (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107089.jpgsave_picture_107089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107089.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ R-Wipe & Clean 20.0.2463 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107090.jpgsave_picture_107090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107090.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sensual Lounge Music Universe - Erotic Summer Moments (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107091.jpgsave_picture_107091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107091.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Fort Firewall 3.13.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107092.jpgsave_picture_107092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107092.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:FCDAE22547D8DB800301FBD86F2DA75DD5E53505
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107093.jpgsave_picture_107093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107093.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Auslogics Disk Defrag Pro 11.0.0.6 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107094.jpgsave_picture_107094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107094.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Friends - Trans Am Dancing (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107095.jpgsave_picture_107095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107095.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107096.jpgsave_picture_107096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107096.jpg" />
 </div>
 
 

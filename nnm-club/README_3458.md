@@ -6,7 +6,7 @@ Ozzy Osbourne - Live at Budokan (2002) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110269.jpgsave_picture_110269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110269.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F1A7188B7B2594E5EAFB3626C40C60F21132F078
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110270.jpgsave_picture_110270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110270.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Plugin Alliance & ADPTR Audio - Hype 1.0.0 VST, VST 3, AAX (x64) RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110271.jpgsave_picture_110271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110271.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FileMenu Tools 8.4.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110272.jpgsave_picture_110272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110272.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Gothminister - Pandemonium I-II (2022-2024) [MP3|320 Kbps] <Industrial Metal, Go
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110273.jpgsave_picture_110273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110273.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ FigrCollage Professional 3.3.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110274.jpgsave_picture_110274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110274.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:5F9703D23BB79D12592DA350E3073653233A6C95
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110275.jpgsave_picture_110275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110275.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Kovacs - Compilation (2024) [MP3|320 Kbps] <Pop, R&B>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110276.jpgsave_picture_110276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110276.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.13 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110277.jpgsave_picture_110277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110277.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Extreme Picture Finder 3.66.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110278.jpgsave_picture_110278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110278.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:EA96F42CBB679FCBEFEB3E45FA19F540D2918CA2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110279.jpgsave_picture_110279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110279.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Fast Video Cutter Joiner 4.7.0 Portable by 7997 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110280.jpgsave_picture_110280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110280.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:D9BFF89493A3408194642A3B57E193865CFE3C4A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110281.jpgsave_picture_110281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110281.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Шансон премьера 2024 апрель (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110282.jpgsave_picture_110282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110282.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:2497BF204E395818DB00842AB3DCD8BE2C54822B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110283.jpgsave_picture_110283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110283.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:8BBA431DDB8F47D338C7358ED8F2DD33890EF44E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110284.jpgsave_picture_110284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110284.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ ProShot v8.25.0.1 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110285.jpgsave_picture_110285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110285.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:0232CCEEE96AFA22C411DA3A65FA0AB11B1F2363
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110286.jpgsave_picture_110286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110286.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Belore - Eastern Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic, Atmospheric B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110287.jpgsave_picture_110287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110287.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Exhorder - Defectum Omnium (2024) [FLAC|Lossless|image + .cue] <Thrash, Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110288.jpgsave_picture_110288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110288.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Raphael Imbert, Johan Farjot & Guests - Les 1001 Nuits du Jazz: Live au Bal Blom
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110289.jpgsave_picture_110289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110289.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:625EED25021BB53EC501B0A707687BAD6230FAD6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110290.jpgsave_picture_110290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110290.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:1E406C5C47F2A956DDE7CED6DE2D8755223ABD79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110291.jpgsave_picture_110291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110291.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:1E406C5C47F2A956DDE7CED6DE2D8755223ABD79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110292.jpgsave_picture_110292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110292.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:1E406C5C47F2A956DDE7CED6DE2D8755223ABD79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110293.jpgsave_picture_110293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110293.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:1E406C5C47F2A956DDE7CED6DE2D8755223ABD79
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110294.jpgsave_picture_110294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110294.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Age of Defense (2019) [Ru/Multi] (1.19) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25811.jpgsave_picture_25811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25811.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Del
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25818.jpgsave_picture_25818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25818.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ My Hotel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25820.jpgsave_picture_25820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25820.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dream Tactics (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25839.jpgsave_picture_25839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25839.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ METRO QUESTER (2023) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25871.jpgsave_picture_25871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25871.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25885.jpgsave_picture_25885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25885.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Outward (2022) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25890.jpgsave_picture_25890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25890.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mycelium Heaven (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25901.jpgsave_picture_25901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25901.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25912.jpgsave_picture_25912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25912.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25919.jpgsave_picture_25919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25919.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Overcooked! 2 (2018) [Ru/Multi] (#1034.799570/dlc) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25924.jpgsave_picture_25924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25924.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Terra Memoria (2024) [Multi] (2024.6.10a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25932.jpgsave_picture_25932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25932.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25933.jpgsave_picture_25933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25933.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Secrets of Salem: Shadow of the Witch / Секреты Салема: Тень в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25939.jpgsave_picture_25939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25939.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25958.jpgsave_picture_25958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25958.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Imperiums: Greek Wars (2020) [Ru/Multi] (1.422/dlc) Repack Let'sРlay [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25976.jpgsave_picture_25976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25976.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25978.jpgsave_picture_25978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25978.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Might and Magic: Heroes VI / Might & Magic: Heroes VI / Герои меча и �
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25988.jpgsave_picture_25988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25988.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25992.jpgsave_picture_25992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25992.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Nunholy (2025) [Ru/Multi] (1.0.01) Repack Let'sРlay [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26010.jpgsave_picture_26010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26010.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26011.jpgsave_picture_26011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26011.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26019.jpgsave_picture_26019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26019.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Trinity Fusion (2023) [Multi] (2.5.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26100.jpgsave_picture_26100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26100.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru] (08.12.2024) Unofficial SynthVo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26113.jpgsave_picture_26113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26113.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (1.0.0) License GOG [Darkness Tri
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26130.jpgsave_picture_26130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26130.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26136.jpgsave_picture_26136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26136.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160507.jpgsave_picture_160507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160507.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B11C84E74DEFF224E6218FA8F047FD7A5D79369B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160508.jpgsave_picture_160508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160508.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:54472E60B07C306BD444812D1F0C2C3A66C15E64
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160509.jpgsave_picture_160509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160509.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7C4D845AF40CBB223DB97D84017B4AA9DC245F61
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160510.jpgsave_picture_160510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160510.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ StartAllBack 3.6.16 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160511.jpgsave_picture_160511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160511.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ AOMEI Backupper Pro 7.3.3 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160512.jpgsave_picture_160512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160512.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C3AADB2BE87AF10A447B212B63DEDE0ADB982FE1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160513.jpgsave_picture_160513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160513.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:9D7A5B3DC5AD35AAFC9B6DE2E9C5705EF52ED0A1
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160514.jpgsave_picture_160514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160514.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:1B4C1A5AA2ABC901C9CB0C047FF6621ED722403F
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160515.jpgsave_picture_160515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160515.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F9E0BBA65EB21B2F413F6BBA9BA89EEF0C7607EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160516.jpgsave_picture_160516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160516.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Medvedev Photo, Александр Медведев | Бестселлер. От
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160518.jpgsave_picture_160518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160518.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Win10 All Settings 2.0.4.35 (x64) Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160519.jpgsave_picture_160519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160519.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tilda school, Антон Командин | Резиновая верстка в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160520.jpgsave_picture_160520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160520.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:D180FF7FC22D6EFB68ECDB7A8DD296AE8980F087
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160521.jpgsave_picture_160521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160521.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:4B9874A5B3CA062FFC41793758761A7C483C9033
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160522.jpgsave_picture_160522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160522.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Кавказ Бомба Hits (2011) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160523.jpgsave_picture_160523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160523.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VSDC Video Editor Pro 8.3.6.500 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160524.jpgsave_picture_160524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160524.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:232A3E81ADF3EDC61719F3DCA9497950D9DE8926
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160525.jpgsave_picture_160525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160525.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ XviD4PSP 8.1.56 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160526.jpgsave_picture_160526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160526.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:982AC0D210FB58DDDF6DC6B5C3165E47ECED9D4F
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160527.jpgsave_picture_160527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160527.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Office Tool Plus 10.4.1.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160528.jpgsave_picture_160528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160528.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Incredible Dracula 10: Dark Carnival / Невероятный Дракула 10:
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160529.jpgsave_picture_160529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160529.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:67F47608DFCC536AB1824A7A24E8234DB650FD7A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160530.jpgsave_picture_160530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160530.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ FonePaw Android Data Recovery 5.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160531.jpgsave_picture_160531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160531.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Epic Pen Pro 3.12.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160532.jpgsave_picture_160532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160532.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Bartender 5 v.5.0.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160533.jpgsave_picture_160533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160533.jpg" />
 </div>
 
 

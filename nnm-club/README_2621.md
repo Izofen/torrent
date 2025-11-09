@@ -6,7 +6,7 @@ Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68896.jpgsave_picture_68896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68896.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Forsaken - Tales of Doom and Woe (2010) (Split) [FLAC|24/96|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68897.jpgsave_picture_68897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68897.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4ADA5D9761A6F576F8F4F4ED01D46333FC8D679F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68898.jpgsave_picture_68898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68898.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Flor de Loto - Cosmos (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68899.jpgsave_picture_68899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68899.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:F56581C3E31EB4EC3ACB9235DB135788528BF5A2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68900.jpgsave_picture_68900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68900.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D18456E73F725047B01C3B92D35F24587BB3E2D8
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68901.jpgsave_picture_68901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68901.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ The Cat Empire - Bird in Paradise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68902.jpgsave_picture_68902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68902.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D8A035E589548B5BF3202E794ED5CF2039AC6CE3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68903.jpgsave_picture_68903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68903.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:811CDA7250C9BC19D2AEA56AC80C54B0B0531D30
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68904.jpgsave_picture_68904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68904.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:53C581FE316061FC7EA19631A6003131D4B5D2AF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68905.jpgsave_picture_68905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68905.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Sculforge - Cosmic Crusade Chronicles (2025) [MP3|320 Kbps] <Heavy, Power, Speed
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68906.jpgsave_picture_68906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68906.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:F679676754B9E74655C3AAECC31B57950FAC9C66
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68907.jpgsave_picture_68907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68907.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:5D8F203C43514EA2E528E3E28919CFD732A3A9D9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68908.jpgsave_picture_68908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68908.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:0CB81B0B75F36FCDEAA0E09A3EC93295006957DD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68909.jpgsave_picture_68909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68909.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:2FFDD730EFF3D217642FD62C9AD3A4579AAD781C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68910.jpgsave_picture_68910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68910.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Greer - Big Smile (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68911.jpgsave_picture_68911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68911.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:A2EFA5B68A95AA0335FD38CDEBDCD113FEEFCC5F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68912.jpgsave_picture_68912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68912.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ A Day To Remember - Big Ole Album Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68913.jpgsave_picture_68913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68913.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Randy Johnston - Jubilation (1994) Muse Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68914.jpgsave_picture_68914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68914.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Hidden Intent - Studio Albums (4 releases) (2014-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68915.jpgsave_picture_68915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68915.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Nephylim - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68916.jpgsave_picture_68916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68916.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Vortex - Drink Bat Blood (2010) Released, 2012, Metalizer Records [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68917.jpgsave_picture_68917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68917.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Jay Hoggard - The Fountain (1992) Muse Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68918.jpgsave_picture_68918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68918.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:8E6D69D927F9C9A4AE597A30AF0C89A09960F7EC
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68919.jpgsave_picture_68919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68919.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:B2F8D4EC8D4702A4FF4A4223F1E9BF06A1B7B6F2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68920.jpgsave_picture_68920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68920.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Milk & Sugar Miami Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68921.jpgsave_picture_68921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68921.jpg" />
 </div>
 
 

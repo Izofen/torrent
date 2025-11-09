@@ -6,7 +6,7 @@ Depeche Mode - A Broken Frame (1982) 1st German Press [APE|Lossless|image + .cue
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107565.jpgsave_picture_107565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107565.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Darktable 4.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107566.jpgsave_picture_107566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107566.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:7319B79B674A84FA5FB7F80C7D7894E62CC21567
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107567.jpgsave_picture_107567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107567.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:8E6EC597507A6A8C582BDC8A3BC45CD1F788B16F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107568.jpgsave_picture_107568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107568.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:07E72557700981B153A42D8F0EDB9FCC2DC6A1E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107569.jpgsave_picture_107569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107569.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Sexy Lovers Music Collection - Good Morning Sex (2024) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107570.jpgsave_picture_107570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107570.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:CBFF2FCA110679832D8462879BCBC19371FB9662
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107571.jpgsave_picture_107571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107571.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:C302A50C82C9EDC1606E045851731D8CE3639425
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107572.jpgsave_picture_107572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107572.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Celine Dion (Céline Dion) - JE SUIS : CELINE DION (Bande originale du film) (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107573.jpgsave_picture_107573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107573.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:37DC9416BE2F12B8713B1F9F34B25860BD0C152B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107574.jpgsave_picture_107574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107574.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [MP3|320 Kbps] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107575.jpgsave_picture_107575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107575.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Eynomia - Sea of Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107576.jpgsave_picture_107576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107576.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Maverick - Silver Tongue (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107577.jpgsave_picture_107577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107577.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:AA61B3EEF6E5472BF7AC6671424169AC0948060A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107578.jpgsave_picture_107578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107578.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Deiv Id Fuzz - The Witch and the Moonset (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107579.jpgsave_picture_107579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107579.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Stoned Circus - The Stoned Circus (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107580.jpgsave_picture_107580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107580.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Danava - Live (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner Rock, Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107581.jpgsave_picture_107581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107581.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:0E8CD2A0DFD1030884992FFB0BE6FC4ADBE5EDB3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107582.jpgsave_picture_107582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107582.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:0E9AAA6897A2927CD046C27375D52C71449A20D9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107583.jpgsave_picture_107583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107583.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:D37C3929B663C8497F5EBA1C941775DC05028B14
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107584.jpgsave_picture_107584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107584.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:683AA3141C52720CF0BFC5C9864C930881CF7809
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107585.jpgsave_picture_107585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107585.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Fervent Hate - In Rot We Trust (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107586.jpgsave_picture_107586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107586.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Cainites - Revenant (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107587.jpgsave_picture_107587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107587.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Antonio Sanchez - Channels Of Energy (2016) 2CD, 2018, CAM Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107588.jpgsave_picture_107588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107588.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107589.jpgsave_picture_107589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107589.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:CE453ECED57EB0AD3DA688220556818DAB701708
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107590.jpgsave_picture_107590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107590.jpg" />
 </div>
 
 

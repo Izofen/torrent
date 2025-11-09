@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147511.jpgsave_picture_147511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147511.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Next: тренировки дома v0.0.77 Mod by sserratty [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147512.jpgsave_picture_147512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147512.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mac FoneLab FoneEraser for iOS 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147513.jpgsave_picture_147513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147513.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:17C42B64C92C1BF5C353A440CC3E2E6826070FA9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147515.jpgsave_picture_147515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147515.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1AB97D81CBAAB846FDCD3AAC382D662EF1B129B7
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147516.jpgsave_picture_147516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147516.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1AB97D81CBAAB846FDCD3AAC382D662EF1B129B7
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147517.jpgsave_picture_147517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147517.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Energiza Pro for Mac 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147518.jpgsave_picture_147518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147518.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:ADCE55CDA3F427D42ADD3152615A4BEA34C0FC1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147519.jpgsave_picture_147519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147519.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ GoodSync Enterprise 10.10.17.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147522.jpgsave_picture_147522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147522.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B2C6D2EBB2BA4FDD1A2B09E916FD7BEFD5747C7D
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147523.jpgsave_picture_147523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147523.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:A44ED582AABF1DDA5844D35CF69A803A14C5D4FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147524.jpgsave_picture_147524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147524.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4463E2AD748BABC504BBBF0F248F3A3FBE53CE4E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147525.jpgsave_picture_147525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147525.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Olivia Newton-John - Totally Hot (1978) 45th Anniversary, Remastered, Reissue, 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147527.jpgsave_picture_147527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147527.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:304DAFE2FDACFA4926DC284230E04122725C5431
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147528.jpgsave_picture_147528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147528.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita. / YuShibu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147529.jpgsave_picture_147529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147529.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:09F97AC04BA28F65DAA259FD364402E2FBC8D885
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147530.jpgsave_picture_147530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147530.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:F97FE7D24FDFFD5975A76FDFD12C12A32308D3D4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147531.jpgsave_picture_147531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147531.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ SYNTHEVER - 3 Releases (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147532.jpgsave_picture_147532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147532.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Boilsoft Video Joiner / Video Splitter 7.01.4 [Eng+Rus] + Portable [Rus] by Soft
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147533.jpgsave_picture_147533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147533.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Focus Matrix Pro 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147534.jpgsave_picture_147534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147534.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Mirror for Samsung TV 3.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147535.jpgsave_picture_147535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147535.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D1D34C46EB53D441A7EEF05340C2D2AADD6AA570
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147536.jpgsave_picture_147536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147536.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.04/2dlc) SteamRip @nonymous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147537.jpgsave_picture_147537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147537.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:77F8522EEA3184FF94675CBD4C579E8DF645C9B0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147538.jpgsave_picture_147538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147538.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:911813B1A7407B31E068BF3B515007AE65C86857
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147539.jpgsave_picture_147539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147539.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:91FB496209603328E7CBE57780E74A0889FECC57
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147540.jpgsave_picture_147540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147540.jpg" />
 </div>
 
 

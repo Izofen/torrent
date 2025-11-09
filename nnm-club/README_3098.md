@@ -6,7 +6,7 @@ VA - Record Trancemission vol.1 (Mixed by DJ Feel) (29.03.2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99406.jpgsave_picture_99406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99406.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Mindwave - Concept Of Freedom (2012) [MP3|320 кб/с]<Psychedelic / Progressive
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99410.jpgsave_picture_99410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99410.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:234497A2A5F2D62B3F0D2F4F5C5D92A6C0053C4F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99413.jpgsave_picture_99413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99413.jpg" />
 </div>
 
 
@@ -100,7 +100,7 @@ magnet:?xt=urn:btih:CC797D37FE2FC8AEEDE784D00542F405F309F66E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99414.jpgsave_picture_99414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99414.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:C7E3D404B0FAF72E078780687009945B15645AB1
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99419.jpgsave_picture_99419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99419.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Deeper Lounge Line (2012) [MP3|320 kbps]<Chillout | Lounge>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99420.jpgsave_picture_99420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99420.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:56B19B573EF16512B8164418E9556F09CB23A189
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99427.jpgsave_picture_99427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99427.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:CE88649CB98C0A450BE55BFBA0446680EBB9D601
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99429.jpgsave_picture_99429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99429.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:74C7123F3A89AAF9942C134D7DCC8FD6C7C36539
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99431.jpgsave_picture_99431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99431.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Mojo Presents - Sticky Soul Fingers - A Rolling Stones Tribute (2012) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99433.jpgsave_picture_99433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99433.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Carmen Maria Vega - Du Chaos Naissent Les Etoiles (2012) [MP3|320 кб/с]<Frenc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99436.jpgsave_picture_99436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99436.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99444.jpgsave_picture_99444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99444.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:9C35ACF7C228D1EA497EB84E8F9C0B40B04F6690
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99446.jpgsave_picture_99446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99446.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Brainville (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99448.jpgsave_picture_99448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99448.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:6E8C79B25FD335BD5ED18E0191E61F076972475F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99449.jpgsave_picture_99449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99449.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ VA - Milchbar Seaside Season 4 Compiled by Blank & Jones (2012) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99451.jpgsave_picture_99451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99451.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Dj VoJo - STYLE vol.2: В Ж...ПУ ПАФОС (07.04.2012) [MP3|320 кб/с]<El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99455.jpgsave_picture_99455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99455.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Inspector Magnusson: Murder on the Titanic (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99456.jpgsave_picture_99456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99456.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:4EBCDDF434D27F16DDACABB9352FDBCC9746E17A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99459.jpgsave_picture_99459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99459.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99460.jpgsave_picture_99460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99460.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ A Million Dead Birds Laughing - Force Fed Enlightenment (2011) [MP3|~275 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99462.jpgsave_picture_99462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99462.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Infestdead - 3 альбома - Discography (1995 - 1999) [MP3|320 кб/с]<Deat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99464.jpgsave_picture_99464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99464.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99465.jpgsave_picture_99465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99465.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ I’ll Eat Your Face - Hot Brains Terror (2011) [MP3|320 кб/с]<Death Metal / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99467.jpgsave_picture_99467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99467.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99471.jpgsave_picture_99471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99471.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99473.jpgsave_picture_99473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99473.jpg" />
 </div>
 
 

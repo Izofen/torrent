@@ -6,7 +6,7 @@ PortableApps.com Platform 27.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133403.jpgsave_picture_133403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133403.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:B39DB456F29A959A8FC80E7D2F57CFD4922363B8
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133405.jpgsave_picture_133405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133405.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ magnet:?xt=urn:btih:BE35A4602E7D69F4207AB9185C3B6E50E3EBD2CE
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133410.jpgsave_picture_133410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133410.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:BE35A4602E7D69F4207AB9185C3B6E50E3EBD2CE
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133411.jpgsave_picture_133411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133411.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Downloads Cleaner Pro for Mac 8.3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133413.jpgsave_picture_133413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133413.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Pop Ambient 2024 (2023) [MP3|320 Kbps] <Electronic, Ambient, Pop>
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133415.jpgsave_picture_133415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133415.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Download Master 5.14.2.1329 Final RePack + Portable by elchupacabra [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133416.jpgsave_picture_133416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133416.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Smart AudioBook Player 10.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133417.jpgsave_picture_133417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133417.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:7246D9080D725EA437322BCD8212A33347100774
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133419.jpgsave_picture_133419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133419.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Rita Ora - Ora (2012) [FLAC (tracks+.cue)|Lossless]<R&B, Dance>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133420.jpgsave_picture_133420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133420.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Topaz Video AI for Mac 4.0.6 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133421.jpgsave_picture_133421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133421.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Music News vol.320 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133422.jpgsave_picture_133422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133422.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:2B587BC27EAC041947B1A2978C83C0F73AE4AA2C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133423.jpgsave_picture_133423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133423.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:F7D6FDD7D7A84E64BCF764AFED18C42880177E63
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133424.jpgsave_picture_133424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133424.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Easy File Organizer for Mac 3.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133425.jpgsave_picture_133425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133425.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:35A6EFE9756ECB29323DEB5B63DF30E1854961D3
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133426.jpgsave_picture_133426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133426.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Punto Switcher 3.2.8 Build 94 DC 25.12.2012 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133427.jpgsave_picture_133427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133427.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Punto Switcher — автоматический переключатель ра�
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133428.jpgsave_picture_133428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133428.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Wolfgang Amadeus Mozart - Piano Concertos K.453 & 482 (Kristian Bezuidenhout, Pe
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133429.jpgsave_picture_133429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133429.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:E312A518CE6405346242CECD4D31B0D3905FE70D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133430.jpgsave_picture_133430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133430.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:2A65E63C7CE8BD1705306E9244531CDA3482E09B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133432.jpgsave_picture_133432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133432.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:37325477F05AC16D7A906737B36D778B6D13F6C9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133434.jpgsave_picture_133434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133434.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:E38FBF1F4F3A35D1F9CE64074E4D27C9D96C2D1E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133436.jpgsave_picture_133436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133436.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:AB6206F7755CDBDBAB6CC237926BC81CFE46A19C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133437.jpgsave_picture_133437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133437.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:AB6206F7755CDBDBAB6CC237926BC81CFE46A19C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133438.jpgsave_picture_133438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133438.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:6DB8BCAA288C355F923481F53ADB266B6214F7C3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133440.jpgsave_picture_133440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133440.jpg" />
 </div>
 
 

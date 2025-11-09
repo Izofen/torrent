@@ -6,7 +6,7 @@ DuckTales: Remastered (2013) [PS3] [EUR] 4.46 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27052.jpgsave_picture_27052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27052.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52274D0C4F983252BE89E372D0B4239F7079546F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27053.jpgsave_picture_27053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27053.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F1539FF5441C110CA2935F194147710AC11D38D3
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27054.jpgsave_picture_27054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27054.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EAF17531542044BC450113D8D144C685A76992FE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27055.jpgsave_picture_27055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27055.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:83AA6A000A399F3F22CC4D942FDB65414AA55EF0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27056.jpgsave_picture_27056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27056.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.0.2049.0 RePack by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27057.jpgsave_picture_27057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27057.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.02.17 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27058.jpgsave_picture_27058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27058.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Microsoft® Windows® 11 x64 24H2 4in1 Upd 02.2025 by OVGorskiy [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27059.jpgsave_picture_27059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27059.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Microsoft Windows 10 [10.0.19045.5487], Version 22H2 (Updated February 2025) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27060.jpgsave_picture_27060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27060.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:944ED7ADF187CC85C8158DB93C15F7F09E8D4C19
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27061.jpgsave_picture_27061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27061.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:3A5B843718536F68C1EE73A6ECCE73980F700700
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27062.jpgsave_picture_27062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27062.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:3A5B843718536F68C1EE73A6ECCE73980F700700
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27063.jpgsave_picture_27063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27063.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.10) Repack Let'sРlay [Deluxe E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27064.jpgsave_picture_27064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27064.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.02.01/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27065.jpgsave_picture_27065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27065.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:5797494F1C69A63F63E29E2CB890ABAFD362A6CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27066.jpgsave_picture_27066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27066.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:00DA052F0423ABAD9CF84C1EBAE5BADAAB9FD99E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27067.jpgsave_picture_27067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27067.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:15879174F12575770F00621ECFD5CDEE3995A97D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27068.jpgsave_picture_27068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27068.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:D0AB9ADDC04FBDB79D9220429B334EAE9AC31E09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27069.jpgsave_picture_27069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27069.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:1A4FC5959E59F659FE525612269903C273332322
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27070.jpgsave_picture_27070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27070.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2F9EF10D721136F8687926CE9799E6E33A119CDF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27071.jpgsave_picture_27071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27071.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ PurpleSchool, Антон Ларичев | Основы тестирования 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27072.jpgsave_picture_27072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27072.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:5013E3E3FE81CA10FBA1EDD1C78707CB25F71C12
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27073.jpgsave_picture_27073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27073.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Lossless Scaling 2.13.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27074.jpgsave_picture_27074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27074.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:658BEA1B1C86B9351BD9ED8DF18431ADE0B719E9
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27075.jpgsave_picture_27075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27075.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:AE8FF4D56226D7D6F0C9529602DDEB5112CA72CB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27076.jpgsave_picture_27076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27076.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ JUG Ru Group | Flow 2024 Autumn. Конференция по системном�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27077.jpgsave_picture_27077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27077.jpg" />
 </div>
 
 

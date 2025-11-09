@@ -6,7 +6,7 @@ Abandon All - Far Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241878.jpgsave_picture_241878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241878.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C836A9691E5D1DBABB6C16BFB6A7CB937070952B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241879.jpgsave_picture_241879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241879.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ FolderSizes 9.5.419 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241881.jpgsave_picture_241881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241881.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:ACB22A7ED2B0F83316359E5E1B0615EC7E6FC332
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241882.jpgsave_picture_241882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241882.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:F928FD545EE8CCA493DC062182CD736A67BB2CB5
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241883.jpgsave_picture_241883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241883.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Wisborg - Into The Void (2021) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241884.jpgsave_picture_241884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241884.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:1CA013B53BBBDA73B972D184A0281FC619ADA48E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241885.jpgsave_picture_241885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241885.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Wondershare PDFelement 9.5.1.2174 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241886.jpgsave_picture_241886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241886.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Patti Page - Golden Hits (K2HD Mastering) (2010) [FLAC|Lossless|tracks] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241887.jpgsave_picture_241887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241887.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Benighted - Obscene Repressed (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241888.jpgsave_picture_241888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241888.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ GPS Waypoints Navigator v9.24 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241889.jpgsave_picture_241889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241889.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:3FAC1096D93002AC4A01EE017B1866DF381F0CB3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241890.jpgsave_picture_241890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241890.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:95A3C3F3061CE5C1F1094612348431436BDF1891
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241892.jpgsave_picture_241892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241892.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Grids for Instagram 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241893.jpgsave_picture_241893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241893.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Vosh - Vessel (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Darksynth, Synthpo
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241894.jpgsave_picture_241894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241894.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Calcpad 6.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241895.jpgsave_picture_241895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241895.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Solar Eruption - The End Is Near (Limited Edition) / Bloody Mary (2019-2020) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241896.jpgsave_picture_241896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241896.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Lee Morgan - The Cooker (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241897.jpgsave_picture_241897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241897.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ BluffTitler Easy / Pro / Ultimate 15.8.0.5 (x64) RePack (& Portable) by TryRooM 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241898.jpgsave_picture_241898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241898.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Lynda, George Maestri | Animating Cartoon Characters in Maya (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241899.jpgsave_picture_241899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241899.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ RAW Power 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241901.jpgsave_picture_241901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241901.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:16AF3DE5B34D8AABF717C23E41031333DF649195
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241902.jpgsave_picture_241902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241902.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:92096F70B6B2C8AADEDAF5AEE64976FF7210D483
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241903.jpgsave_picture_241903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241903.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Scrutiny 12.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241904.jpgsave_picture_241904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241904.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PCalc 4.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241905.jpgsave_picture_241905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241905.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Trickster 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241906.jpgsave_picture_241906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241906.jpg" />
 </div>
 
 

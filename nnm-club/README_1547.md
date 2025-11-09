@@ -6,7 +6,7 @@ Picture Mushroom - Mushroom ID v2.9.25 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40578.jpgsave_picture_40578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40578.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CE2E7ECBFEC55CB3D8F09A48D6050683C18DF80E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40579.jpgsave_picture_40579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40579.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VN - Video Editor / VN - Видеоредактор v2.2.8 Mod by MustHave [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40580.jpgsave_picture_40580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40580.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Pet Shop Boys - Album Collection (1986-1996) 1st UK Press [APE|Lossless|image + 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40581.jpgsave_picture_40581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40581.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ TreeSize Professional 9.2.1.1907 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40582.jpgsave_picture_40582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40582.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9775B159339F93BFB9D556C07E3D1179A2FB818C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40583.jpgsave_picture_40583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40583.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:527FC65878DC21FD8D4311FFBEAFD2567458DF9A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40584.jpgsave_picture_40584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40584.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ ES File Explorer File Manager v4.4.2.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40585.jpgsave_picture_40585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40585.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Alfa eBooks Manager 8.6.39.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40586.jpgsave_picture_40586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40586.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ FastStone Capture 10.8 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40587.jpgsave_picture_40587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40587.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:88EEFA413A8FB0BBD40B035A4383A42693FEB513
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40588.jpgsave_picture_40588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40588.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D411EDBFB00FD4DE89B906DB392B89E6BC9ED7A8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40589.jpgsave_picture_40589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40589.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:5EF615BE1D9DF6882675FB0CC7E5A221DE7FCAD0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40590.jpgsave_picture_40590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40590.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ CrystalDiskInfo 9.5.0 Beta 3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40591.jpgsave_picture_40591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40591.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:166A86E7CB6CE1B3993E260181936B2D19D033E0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40592.jpgsave_picture_40592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40592.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Everspace 2 (2021) [Ru/Multi] (1.3.43094/dlc) Repack Wanterlude
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40593.jpgsave_picture_40593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40593.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WeNote: заметки блокнот планер v6.16 Mod by Balatan [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40594.jpgsave_picture_40594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40594.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Enhance it v4.2.0 Mod by MustHave [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40595.jpgsave_picture_40595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40595.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:12D41347FA64365466B132D171BE3DADE91C78A5
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40596.jpgsave_picture_40596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40596.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:19F594762EB36BE6B6A9D6EBF958079C3E8E5FEA
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40597.jpgsave_picture_40597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40597.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Anno 2205 (2015) [Ru/Multi] (1.8.3741.13270/dlc) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40598.jpgsave_picture_40598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40598.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:7BD60437CF6C56AC4164FAF75FE4FF08841AD708
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40599.jpgsave_picture_40599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40599.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ FocusWriter 1.8.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40600.jpgsave_picture_40600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40600.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:14D64F5BB7F71D4A40BC7B966314EDE97D2603C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40601.jpgsave_picture_40601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40601.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:0F72C6DF712C37C96DEF0F53BC512A4394299428
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40602.jpgsave_picture_40602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40602.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Dead Season (2024) [Ru/Multi] (0.9.5.0) Scene FAiRLiGHT
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40603.jpgsave_picture_40603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40603.jpg" />
 </div>
 
 

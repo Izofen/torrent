@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122051.jpgsave_picture_122051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122051.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Davit Barqaia - Compilation Version 2 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122052.jpgsave_picture_122052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122052.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PortableApps.com Platform 29.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122053.jpgsave_picture_122053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122053.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Total Commander 11.03 RC1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122054.jpgsave_picture_122054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122054.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Whale Browser (NAVER Whale) 3.24.223.21 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122055.jpgsave_picture_122055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122055.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ DxO PhotoLab Elite 7.3.0 build 133 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122056.jpgsave_picture_122056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122056.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:098456BB6D7ECD1B2B7D5EDD09521A445BEF092C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122057.jpgsave_picture_122057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122057.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:ABE7D3478C5047BE391BDF5F257D31E235D8E91A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122058.jpgsave_picture_122058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122058.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Color school, Анна Давидян | Фотография в интерьер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122059.jpgsave_picture_122059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122059.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Microsoft Visual Studio 2022 Enterprise 17.8.5 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122060.jpgsave_picture_122060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122060.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:DDD85F1B62A57E325F85DE7521EEE15FF7D58DB8
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122061.jpgsave_picture_122061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122061.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:09BB845F2D9A8B85FFB447E174936196EE1C1F5C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122062.jpgsave_picture_122062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122062.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:F032542197B80619E7B91344F53B511CCACFA820
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122063.jpgsave_picture_122063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122063.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Udemy, Frantz Merine | OBS Studio - Learn how to become a Virtual Event Producer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122064.jpgsave_picture_122064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122064.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:196933611D20146BDC9109641C55A5EBF42AD440
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122065.jpgsave_picture_122065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122065.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Opera One 106.0.4998.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122066.jpgsave_picture_122066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122066.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Floorp Browser 11.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122068.jpgsave_picture_122068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122068.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:5168C12FEF0F9390E039CA277571292EEB5FEDE3
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122069.jpgsave_picture_122069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122069.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:4C068AD2388F82BD00BD393EB5EAB4948DF52EF3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122070.jpgsave_picture_122070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122070.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D3D5FDBE05C34C7B5BE53C397D9C6436B4C7EB74
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122071.jpgsave_picture_122071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122071.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Music News vol.332 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122072.jpgsave_picture_122072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122072.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Windows and Office Genuine ISO Verifier 11.13.45.24 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122073.jpgsave_picture_122073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122073.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:49BDA7BBFE325EB3339EB6DDF6146265E3223FAE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122074.jpgsave_picture_122074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122074.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:A9B5AEDFFCCF72475931543106F9C0C23F0485AF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122075.jpgsave_picture_122075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122075.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:F848D29A52FAC1F10DB685EF6BE75831802EB619
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122076.jpgsave_picture_122076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122076.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:AC493237A1B82E9B02A2347ADBC22EC804BC3DC2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122077.jpgsave_picture_122077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122077.jpg" />
 </div>
 
 

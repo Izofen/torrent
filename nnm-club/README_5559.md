@@ -6,7 +6,7 @@
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171520.jpgsave_picture_171520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171520.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1268A5EDE9396F6EF5DE3F0912111DEEEC6DC4F9
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171521.jpgsave_picture_171521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171521.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Imagine 1.3.3 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171522.jpgsave_picture_171522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171522.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2D9D67E18A94D0231B5124CA4EC1BB166692F1FB
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171523.jpgsave_picture_171523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171523.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ JRiver Media Center 31.0.76 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171524.jpgsave_picture_171524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171524.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B1F1AA519C172F6C3535868E6F7F6BE38C054D47
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171525.jpgsave_picture_171525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171525.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Revo Uninstaller Pro 5.2.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171526.jpgsave_picture_171526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171526.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Beartooth - The Surface (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171527.jpgsave_picture_171527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171527.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:D95C5B1121569FBF03E8CE36B88A281CF50A72AF
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171528.jpgsave_picture_171528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171528.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:02B3558EDA738DF0E3AD1246FE46C8DD70091583
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171529.jpgsave_picture_171529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171529.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Wondershare PDFelement 10.1.3.2510 RePack by elchupacabra + OCR Plugin [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171530.jpgsave_picture_171530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171530.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:E5F497824C89E1BE1EBB1F8FD5095A1129761D00
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171531.jpgsave_picture_171531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171531.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Aiseesoft Video Converter Ultimate 10.7.30 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171532.jpgsave_picture_171532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171532.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:185786F9977D2CAF980714B9DE5858363A05E73C
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171533.jpgsave_picture_171533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171533.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:6D09D271692509205339D018793A3CA575EB531B
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171534.jpgsave_picture_171534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171534.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:22224F84E4E724448BE5741913412D13B0188421
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171535.jpgsave_picture_171535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171535.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Revo Uninstaller Pro 5.2.1 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171536.jpgsave_picture_171536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171536.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ K-Lite Codec Pack Update 17.8.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171537.jpgsave_picture_171537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171537.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:7DB9E7132F9AB07FD90FA3B717DD77D75E7663BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171538.jpgsave_picture_171538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171538.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:ADC3C253B542A61D70EB76E0AF021F08474A8E16
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171539.jpgsave_picture_171539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171539.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:7F610630D715777823A85498397F0B96077750DC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171540.jpgsave_picture_171540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171540.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:4EF676FCEA9E01834761404AB64ABE1CD043BE07
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171541.jpgsave_picture_171541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171541.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:AA252F8C2CBD94D00A5EDE8C6462CB243EE74BD8
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171542.jpgsave_picture_171542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171542.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:F8010FBD6FCB3FED5410215FBBE322D959A7950B
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171543.jpgsave_picture_171543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171543.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ TechSmith Camtasia 2023 Studio 2023.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171544.jpgsave_picture_171544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171544.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:79F2B3C868652DD88654E7B667D65AFFBD5DE3DF
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171545.jpgsave_picture_171545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171545.jpg" />
 </div>
 
 

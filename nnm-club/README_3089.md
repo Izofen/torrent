@@ -6,7 +6,7 @@ Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industria
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98863.jpgsave_picture_98863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98863.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:EC82207169C45C0FE1E587E2F3C931041C4D4206
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98869.jpgsave_picture_98869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98869.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Chill Out Essentials: Spring Edition (2012) [MP3|320 kbps]<Chillout | Downt
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98871.jpgsave_picture_98871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98871.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ magnet:?xt=urn:btih:B4FC87ADB83DB561F2D7EA3EBBC113C4C9E5B617
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98872.jpgsave_picture_98872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98872.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:4468DBD3835FD1193395C2925B359AC91B925356
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98875.jpgsave_picture_98875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98875.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:0114DF3C264B838EC705C1BB000ACE2382B6BEC8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98878.jpgsave_picture_98878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98878.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:57351C7DFDC32B12E6F0327D8228CEAB8CE95AC1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98880.jpgsave_picture_98880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98880.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:804E62C43A65B0559A0C19769AF8475A2B4344B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98881.jpgsave_picture_98881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98881.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ VA - Kuduro Reggaeton Club (2012) [MP3|320 kbps]<Dance | Kuduro | Reggaeton | Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98883.jpgsave_picture_98883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98883.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:479526EC9531ED02A877133C3E355152CFDF3D9E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98884.jpgsave_picture_98884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98884.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Авто Дискотека Радио Record 50/50 Vol.2 (2012) [MP3|192 k
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98886.jpgsave_picture_98886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98886.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Лучшая 100-ка Весна (2012) [MP3|256 kbps]<Pop | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98887.jpgsave_picture_98887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98887.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:466A99E4E591536ADF7FFECD6F237F98BD293FF6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98889.jpgsave_picture_98889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98889.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Deep Line. Harmony Collection (2012) [MP3|320 kbps]<Relax | Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98890.jpgsave_picture_98890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98890.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:55CBEB7DADBE5E995ED00B7D3A1A46BC501114BE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98891.jpgsave_picture_98891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98891.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:FDFFACCE7306C5E1C04E6931ECCEBCA855DC5A5E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98892.jpgsave_picture_98892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98892.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - MAXI. Только Best Club (2012) [MP3|320 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98893.jpgsave_picture_98893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98893.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:26AB17FF19DBDBDA06ACC674F57ACB43F7BA2C9F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98895.jpgsave_picture_98895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98895.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:6E7A6EF740426BE07AED1505C5AB6CE9035E29D5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98896.jpgsave_picture_98896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98896.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:D568BDED94A9A628AF60F646F39192CC270C2927
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98902.jpgsave_picture_98902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98902.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Deep Line. Lounge Collection (2012) [MP3|320 kbps]<Chillout | Downtempo | L
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98903.jpgsave_picture_98903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98903.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:A311ECC58BF77FAC9F17AAC2F10DF072743DDC1E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98905.jpgsave_picture_98905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98905.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:69AAEDEC1BFA25920021EF776AF9406244DE203F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98906.jpgsave_picture_98906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98906.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:FFC4570E7CDA48CA4C605A51A1D3272EC2D547FF
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98907.jpgsave_picture_98907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98907.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:3E5D23D464FA41AD058EA19D4C9906BC38081EF3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98908.jpgsave_picture_98908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98908.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ magnet:?xt=urn:btih:337548FC1723B82E251752746C2CABE26893E800
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98909.jpgsave_picture_98909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98909.jpg" />
 </div>
 
 

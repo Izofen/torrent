@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61857.jpgsave_picture_61857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61857.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B80D5598ED598C4EED336F55F1A11DA34AFAC9E0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61858.jpgsave_picture_61858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61858.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:96DE49189C7095F4186E6652E46F3C976D821DA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61859.jpgsave_picture_61859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61859.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:30EB29285AE2BCFD75CEB932984A75AB7CAC317C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61860.jpgsave_picture_61860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61860.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61861.jpgsave_picture_61861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61861.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ qBittorrent 4.6.4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61862.jpgsave_picture_61862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61862.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Hime-sama Goumon no Jikan Desu | Tis Time for Torture, Princess | Время "п
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61863.jpgsave_picture_61863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61863.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:99020F0C8F177C34BBC6239319D3D96340B60304
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61864.jpgsave_picture_61864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61864.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:D4465285C08F0A526CA7B4A308617F7C4DB50C02
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61865.jpgsave_picture_61865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61865.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:DEBA9D7AA4F8E51F1579E9D0D1FDE52977AB5130
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61866.jpgsave_picture_61866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61866.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:C7206CCBDABFA2FA2C5C469CD404129C620FDDDA
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61867.jpgsave_picture_61867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61867.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1CF55A066B4CB7ADE6F50D4D456724BE768C51C8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61868.jpgsave_picture_61868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61868.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D7E84AB6FC04A842C3977414FB40CF51986FD16A
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61869.jpgsave_picture_61869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61869.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:8D7223F004B0CDB4EF4FC8BE7F2E5D4E4913BEAC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61870.jpgsave_picture_61870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61870.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:BBA4C690EBF81D7DDCC2ABDF6A84BD3A6BFA73FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61871.jpgsave_picture_61871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61871.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:56C63B9893318682316268BAA0CF66828AFB0B16
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61872.jpgsave_picture_61872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61872.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:D23C2238C208A76101A7B4A907C4D08DDF955C11
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61873.jpgsave_picture_61873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61873.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:D41DB34F23F99C9E42FC653F9563426FF1EA4442
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61874.jpgsave_picture_61874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61874.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ PicWish: AI Photo Editor v1.6.8 Mod by Raju054 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61875.jpgsave_picture_61875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61875.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:ED3CB009382F385CBE0B28644243EC28780DE90E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61876.jpgsave_picture_61876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61876.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:9682A03191C4B08EBCE827408D3884691FA4D147
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61877.jpgsave_picture_61877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61877.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:B3788DB1268B0AB694AECB9F05852255E068B225
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61878.jpgsave_picture_61878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61878.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:F1EA4A4EB8A9F548E4808946A1AD6638B17AF757
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61879.jpgsave_picture_61879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61879.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Horizon: Forbidden West (2024) [Ru/Multi] (1.0.38.0hf/dlc) Repack FitGirl [Compl
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61880.jpgsave_picture_61880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61880.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.240321) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61881.jpgsave_picture_61881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61881.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:EAA9E99984B494A58E2B2C29B22D9BA4F2073605
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61882.jpgsave_picture_61882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61882.jpg" />
 </div>
 
 

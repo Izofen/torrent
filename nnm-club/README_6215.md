@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195074.jpgsave_picture_195074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195074.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195075.jpgsave_picture_195075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195075.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A4502BD30AB00DDF5C8D873571BAF727E5774852
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195076.jpgsave_picture_195076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195076.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DD8FCBB0FC9AE272DD6B23462D1A09591CECF11F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195077.jpgsave_picture_195077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195077.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:130CE06CEFE8A3AB0CA536BFD191C75EABC717E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195078.jpgsave_picture_195078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195078.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ izi.TRAVEL v7.2.1.510 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195079.jpgsave_picture_195079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195079.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B8C5D5F1E264360A0B152407E229E65D70C8D65C
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195080.jpgsave_picture_195080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195080.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CDA0D301CE971A707456DC0B43088B0ABDD1DF4A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195081.jpgsave_picture_195081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195081.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:2A63EFAD3663EF672605A6106AEEE8BED2AF2A06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195082.jpgsave_picture_195082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195082.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:12FBB7C7AAFB0E86240E1C7F78616FEB314A710B
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195083.jpgsave_picture_195083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195083.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:32519508F93077A7239D78AA762DFC5B4EA00BF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195084.jpgsave_picture_195084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195084.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:2BCDC0EDCEACA403AACA9750223ED338DF3BC34A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195085.jpgsave_picture_195085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195085.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:E8DA6B54FF0E041700EACC6A3FBC2AFEDA68AEE4
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195086.jpgsave_picture_195086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195086.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:255088C39D267366904CB76C6B195D512C7C8580
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195087.jpgsave_picture_195087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195087.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:8558A578E8AA5C3DABC59A8E0F3EE924CDAAB60A
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195088.jpgsave_picture_195088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195088.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6621D342C989D093E4088B4DEBD6FC890B8DD990
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195089.jpgsave_picture_195089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195089.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Sinead O'Connor - 2 Альбома (2011-2012) [FLAC|Lossless/tracks+.cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195090.jpgsave_picture_195090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195090.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195091.jpgsave_picture_195091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195092.jpgsave_picture_195092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195092.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6C94E9B0E138D068B7EA9C76C1C27A12AEACC844
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195093.jpgsave_picture_195093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195093.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:8528C88EAED8988CD47529B0EA1F49DB0812CF82
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195094.jpgsave_picture_195094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195094.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:2AA8BBB69523036C0DAA2697E62C3E7A5B1AA4EC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195095.jpgsave_picture_195095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195095.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:43132B445D159687D9FB3D98C36CC36A37A5E95D
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195096.jpgsave_picture_195096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195096.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:0091A674B7F270E509A4AD53FA668695A0A7D4BF
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195097.jpgsave_picture_195097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195097.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ drvik | Нейросеть Leonardo: Твори как бог дизайна, з
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195098.jpgsave_picture_195098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195098.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:974A92E89A736F5E1891D9EDA2EAB61C0A053B48
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195099.jpgsave_picture_195099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195099.jpg" />
 </div>
 
 

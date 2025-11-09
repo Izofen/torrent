@@ -6,7 +6,7 @@ Usnea - Bathed in Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Funeral 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231490.jpgsave_picture_231490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231490.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Winger - Seven (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231493.jpgsave_picture_231493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231493.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Voivod - Morgöth Tales (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231495.jpgsave_picture_231495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231495.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Usnea - Usnea (2013) [FLAC|Lossless|WEB-DL|tracks] <Blackened Funeral Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231497.jpgsave_picture_231497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231497.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Valgrind - Millennium of Night Bliss (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231503.jpgsave_picture_231503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231503.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Razor - Decibels (1997) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231509.jpgsave_picture_231509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231509.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Later Sons - Rise Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231511.jpgsave_picture_231511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231511.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Disaver - Nemesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231518.jpgsave_picture_231518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231518.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Demolizer - Post Necrotic Human (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231521.jpgsave_picture_231521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231521.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Zenith Passage - Datalysium (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231525.jpgsave_picture_231525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231525.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Collapsed Minds - Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <MDM (Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231528.jpgsave_picture_231528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231528.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Shining of Kliffoth - Suicide Kings (1999) EP [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231530.jpgsave_picture_231530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231530.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Weirdream - Beyond the Mirror (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231531.jpgsave_picture_231531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231531.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Elegant Weapons - Horns For A Halo (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231535.jpgsave_picture_231535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231535.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ruadh - 1296 (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Folk, Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231537.jpgsave_picture_231537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231537.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dead Souls - No Hope For Tomorrow (2022) [MP3|320 Kbps] <Thrash Metal, Heavy Met
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231539.jpgsave_picture_231539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231539.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Warfare - Respiro Venganza (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231540.jpgsave_picture_231540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231540.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Rising Steel - Beyond the Gates of Hell (2022) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231544.jpgsave_picture_231544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231544.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Vision Deprived - Self Elevating, Deep Inside the Void (2023) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231545.jpgsave_picture_231545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231545.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sororicide & Strigaskor Nr. 42 & In Memoriam - Apocalypse (1992) Split, Alda Mus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231546.jpgsave_picture_231546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231546.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Any Given Day - Сollection (2014 - 2016) 2 CD [FLAC|Lossless|image + .cue|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231551.jpgsave_picture_231551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231551.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Hellbearer - For Those About to Bear Hell (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231552.jpgsave_picture_231552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231552.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Outer Heaven - Infinite Psychic Depths (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231553.jpgsave_picture_231553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231553.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Volcandra - Into the Azure (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231556.jpgsave_picture_231556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231556.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Fynal Stand - Tribulation Saint (2023) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231560.jpgsave_picture_231560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231560.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ White Falcon - Nueva era (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231561.jpgsave_picture_231561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231561.jpg" />
 </div>
 
 

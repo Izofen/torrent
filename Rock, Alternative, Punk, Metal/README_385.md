@@ -6,7 +6,7 @@ Godfall - The Sound of Robogroove (1995) EP [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231027.jpgsave_picture_231027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231027.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mission In Black - Profit Reigns Supreme (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231031.jpgsave_picture_231031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231031.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gardenian - Soulburner (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231034.jpgsave_picture_231034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231034.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231039.jpgsave_picture_231039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231039.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cavern Deep - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231041.jpgsave_picture_231041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231041.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Desolator - Unearthly Monument (2013) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231046.jpgsave_picture_231046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231046.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gardenian - Two Feet Stand (1997) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231048.jpgsave_picture_231048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231048.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Desolator - Sermon of Apathy (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231052.jpgsave_picture_231052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231052.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gardenian - Sindustries (2000) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231062.jpgsave_picture_231062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231062.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hænesy (Haenesy) - Garabontzia (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231070.jpgsave_picture_231070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231070.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ornamentos Del Miedo - El Cosmos Me Observa En Silencio (2023) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231087.jpgsave_picture_231087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231087.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Various Artists - 80s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231103.jpgsave_picture_231103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231103.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Feuerschwanz - Fegefeuer (2023) 3CD, Digital Deluxe Album [MP3|320 Kbps] <Gothic
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231107.jpgsave_picture_231107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231107.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Damnatory - The Complete Disgoregraphy 1991-2003 (2018) Compilation [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231111.jpgsave_picture_231111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231111.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lachaise - In a State of Oblivion (2012) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231131.jpgsave_picture_231131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231131.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Decimator - Carnage City State Mosh Patrol (1989) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231135.jpgsave_picture_231135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231135.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Mystfall - Celestial Vision (2023) [MP3|320 Kbps] <Symphonic Metal, Gothic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231138.jpgsave_picture_231138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231138.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Crossing Eternity - The Rising World (2018) [FLAC|Lossless|image + .cue] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231142.jpgsave_picture_231142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231142.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Oxbow - Love's Holiday (2023) [MP3|320 Kbps] <Art-Rock, Post-Rock, Noise Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231144.jpgsave_picture_231144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231144.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Critical Defiance - No Life Forms (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231148.jpgsave_picture_231148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231148.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Foo Fighters - But Here We Are (2023) [FLAC|Lossless|tracks + .cue] <Alt. Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231156.jpgsave_picture_231156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231156.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Lachaise - Silent Cries for Help (2009) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231157.jpgsave_picture_231157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231157.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dawnlight - Eternity (2017) EP [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231162.jpgsave_picture_231162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231162.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Graywolf - Graywolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231163.jpgsave_picture_231163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231163.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Zorormr - The Monolith (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231165.jpgsave_picture_231165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231165.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [MP3|320 Kbps] <Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231168.jpgsave_picture_231168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231168.jpg" />
 </div>
 
 

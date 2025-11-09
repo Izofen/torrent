@@ -6,7 +6,7 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245058.jpgsave_picture_245058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245058.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Opera 97.0.4719.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245059.jpgsave_picture_245059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245059.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Zuckerschlecken Vol.6: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245060.jpgsave_picture_245060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245060.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245061.jpgsave_picture_245061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245061.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Perfectly Clear WorkBench 4.3.0.2408 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245062.jpgsave_picture_245062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245062.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Mantovani and His Orchestra - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245063.jpgsave_picture_245063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245063.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:E98296878C4097BAF8CF19877F806225E71D5EDF
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245064.jpgsave_picture_245064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245064.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Bellatrix - Travel (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245065.jpgsave_picture_245065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245065.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:C9FA57B17D90EEFC470EBA51C7093887D3B81541
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245066.jpgsave_picture_245066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245066.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:CE28C22D7C7FC76AB3FB61A616A36711D646071C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245067.jpgsave_picture_245067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245067.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ djay - DJ App & AI Mixer 4.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245068.jpgsave_picture_245068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245068.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245069.jpgsave_picture_245069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245069.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ FSNotes 5.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245070.jpgsave_picture_245070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245070.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:766AF488F2832F960A998A8FAD690A7F81F84098
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245071.jpgsave_picture_245071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245071.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:8AACB6C83624D9731A1704FA24B94FE25E212E55
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245072.jpgsave_picture_245072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245072.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Babymetal - The Other One (2023) [FLAC|Lossless|WEB-DL|tracks] <J-Metal, Modern 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245073.jpgsave_picture_245073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245073.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:DB93C0FE70533125BA81C5E8979A955E52FAF4B6
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245074.jpgsave_picture_245074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245074.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Dave Douglas - Dark Territory (2016) Greenleaf Music[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245075.jpgsave_picture_245075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245075.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Brackets 2.2.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245076.jpgsave_picture_245076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245076.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Nightflight Dubai, Vol. 2 - 22 Premium Downbeat & Lounge Trax (2015) [AAC|~
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245077.jpgsave_picture_245077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245077.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245078.jpgsave_picture_245078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245078.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ College - Secret Diary (2008) [MP3|192 Kbps] <Synthpop, New Wave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245079.jpgsave_picture_245079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245079.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ PC Cleaner Pro 9.2.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245080.jpgsave_picture_245080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245080.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Wise Memory Optimizer 4.1.7.120 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245081.jpgsave_picture_245081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245081.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Urban Stories Deep House Vol.5 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245082.jpgsave_picture_245082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245082.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Riverside - ID.Entity (2023) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245083.jpgsave_picture_245083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245083.jpg" />
 </div>
 
 

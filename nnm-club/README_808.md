@@ -6,7 +6,7 @@ Background Eraser (InShot Inc.) v2.252.76 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21336.jpgsave_picture_21336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EC06E0BF04F2F98798D9D31A4A543C166772FDCF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21337.jpgsave_picture_21337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21337.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3E810BD446D8C6AD71B846214847982DEBA2E1AE
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21338.jpgsave_picture_21338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21338.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:857E613754AA470F81B8C1CFE49ED4805CDDBA41
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21339.jpgsave_picture_21339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21339.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1F386B359B0802D295962EF0A544FD24F56D6512
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21340.jpgsave_picture_21340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21340.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ OCCT 14.0.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21341.jpgsave_picture_21341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21341.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:29A9C37492633511DC4C9F704B71DF8757029709
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21342.jpgsave_picture_21342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21342.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:8F96530C501A08018C3A0DA824CAC173C839DDF4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21343.jpgsave_picture_21343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21343.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:F9B4D4651C7CB8EF3CD4541B6BCF2556850679C1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21344.jpgsave_picture_21344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21344.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Compilation Part 156 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21345.jpgsave_picture_21345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21345.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:38A205B4BC9BC6081B62C1142BB0C301F810543D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21346.jpgsave_picture_21346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21346.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ AAF Family DCH Audio Realtek 10.11.9815.1 Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21347.jpgsave_picture_21347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21347.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:EB38FDECCB167A693A3D3C92C50FC30ADCF9BB42
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21348.jpgsave_picture_21348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21348.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:E54596290CC5994A44751BF828BDB7F05B9CB3CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21349.jpgsave_picture_21349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21349.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:112895A0F7C7D40B7DB58E5935A008936D7EDFBB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21350.jpgsave_picture_21350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21350.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:BF8CB6D7170EC29B9FE42DFE3114E2A5275035D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21351.jpgsave_picture_21351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21351.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ UniFab 3.0.1.3 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21352.jpgsave_picture_21352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21352.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:24D403DAF30FE60C35FC23D62E19414EAC69AA82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21353.jpgsave_picture_21353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21353.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Windows Server [10.0.25398.1551], version 23H2 (Updated April 2025) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21354.jpgsave_picture_21354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21354.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:3CCE756352C61492386A9CE228BEE1CD4BAF8BB1
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21355.jpgsave_picture_21355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21355.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ tTorrent Pro  v1.8.10 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21356.jpgsave_picture_21356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21356.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Forever Skies (2023) [Ru/Multi] (build 18071558) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21357.jpgsave_picture_21357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21357.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:EFF221DEE372F00FA132CC6A32703408B614186E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21358.jpgsave_picture_21358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21358.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:AFF1295C01B913E69E4E0B6C5D6F87B5EE080C87
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21359.jpgsave_picture_21359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21359.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Microsoft Windows 11 [10.0.22631.5189], Version 23H2 (Updated April 2025) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21360.jpgsave_picture_21360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21360.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:E3E7FD0068A33DE3E3D87980D2B9C38820507691
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21361.jpgsave_picture_21361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21361.jpg" />
 </div>
 
 

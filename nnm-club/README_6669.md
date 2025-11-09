@@ -6,7 +6,7 @@ Sevendust - Truth Killer (2023) [FLAC|Lossless|tracks + .cue] <Industrial Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228757.jpgsave_picture_228757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228757.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5E0BB497090FE265CB2A5DDA8799CDC6A9874E47
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228762.jpgsave_picture_228762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228762.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BE8767F127759348DA64F161395BB7F3E6A9DE70
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228763.jpgsave_picture_228763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228763.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228764.jpgsave_picture_228764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228764.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228765.jpgsave_picture_228765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228765.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tony Valentino - Dirty Water Revisited (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228766.jpgsave_picture_228766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228766.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Omni Toolbox 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228773.jpgsave_picture_228773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228773.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ SUSE Linux Enterprise Desktop Server 15
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228774.jpgsave_picture_228774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228774.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Windows 10 Enterprise LTSB (x86/x64) + Office 2016 by SmokieBlahBlah 09.12.15 [R
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228781.jpgsave_picture_228781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228781.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:3C136E16A2B6C68509335B8F00565A492C14D1C1
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228784.jpgsave_picture_228784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228784.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Imperialist - Zenith (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228785.jpgsave_picture_228785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228785.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:A4E8292DFD8ADC4DED8BDDB87991AC3D30B97A48
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228795.jpgsave_picture_228795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228795.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Icecream Video Editor 1.48 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228797.jpgsave_picture_228797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228797.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:F5D76734EE0943CFCD5F5E5F94CEFCFD6525A1E3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228821.jpgsave_picture_228821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228821.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Macrorit Partition Extender 2.0.5 Unlimited Edition  RePack (& Portable) by 9649
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228822.jpgsave_picture_228822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228822.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:59E0C576D0FA8BE8D9BBBDACE3B68C7C6D33B954
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228823.jpgsave_picture_228823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228823.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:979D06EC193FE9CACF376E5F15613C8DBDD57E35
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228825.jpgsave_picture_228825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228825.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:C1AE1739EFC18C4DCD204C32FE96192D4BCDABEF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228826.jpgsave_picture_228826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228826.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:B4FC1E253572B57D64654CF69AABE9D3D99A6EBB
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228828.jpgsave_picture_228828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228828.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Nothing More - Spirits (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Progress
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228830.jpgsave_picture_228830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228830.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:3BC63E801E5B7958F6DB4EBF8C39C08435ADA128
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228831.jpgsave_picture_228831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228831.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:688FE63BED4D17FB1BA0E09C62BF13FE95EF7A03
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228833.jpgsave_picture_228833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228833.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:CCA6264FC4E34126EC3FDAC4830FF72D8F4986EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228834.jpgsave_picture_228834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228834.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Simplenote 1.11.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228837.jpgsave_picture_228837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228837.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:EF2BC9CBDBAC7B44CB33710C87168B3E52132FB8
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228838.jpgsave_picture_228838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228838.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:10B995AAE3912A0ACBDDF391753DF8B8FD049A9E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228840.jpgsave_picture_228840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228840.jpg" />
 </div>
 
 

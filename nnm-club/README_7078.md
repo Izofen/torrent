@@ -6,7 +6,7 @@ Les Lankhorst - Love and Lullabies (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242301.jpgsave_picture_242301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242301.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Hypnotic Sunset In Jungle (2023) [MP3|320 Kbps] <Techno, Minimal, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242302.jpgsave_picture_242302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242302.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:00E2133438FCC56516D689DE9784DF652146AD99
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242303.jpgsave_picture_242303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242303.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Athlantis - Last But Not Least (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242305.jpgsave_picture_242305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242305.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Viber 19.8.0.7 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242306.jpgsave_picture_242306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242306.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ James Brown - James Brown's Singles Anthology, Vol. 2 (2021) All Tracks Remaster
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242307.jpgsave_picture_242307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242307.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Opera Crypto Browser 97.0.4719.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242308.jpgsave_picture_242308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242308.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Paul Oakenfold - DJ Box February (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242309.jpgsave_picture_242309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242309.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Blues Tunes Vol 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242311.jpgsave_picture_242311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242311.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:6DBC793D479D79D36700FA2D3E30903CD4BEB4B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242312.jpgsave_picture_242312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242312.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:1B5514DA23F5DCFB242A0C80D02CCDBFCBCFEF8F
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242313.jpgsave_picture_242313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242313.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:24A6EA5B002FF0DB7EBA5CAD3AF23516467E82C3
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242314.jpgsave_picture_242314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242314.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Zoner Photo Studio X 19.2303.2.445 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242315.jpgsave_picture_242315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242315.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Country Western Band - Best Acoustic Country Music (2018) [MP3|320 Kbps] <Countr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242316.jpgsave_picture_242316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242316.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Ray Charles - Live At The Montreux Jazz Festival (2002) Geneon [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242317.jpgsave_picture_242317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242317.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Cowboy Junkies - Songs Of The Recollection (2022) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242319.jpgsave_picture_242319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242319.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Lungo 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242320.jpgsave_picture_242320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242320.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Bob Oister - Die Hard (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242321.jpgsave_picture_242321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242321.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:8F642B364A17C4FAAFB6F353B4EEEAE13B296203
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242322.jpgsave_picture_242322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242322.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Paws for Trello 2.0.3 [Muli/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242323.jpgsave_picture_242323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242323.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:1477CA080B815A8E123B9E4B8F9A234FE25D69F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242325.jpgsave_picture_242325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242325.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Русский шансон часть 6 (1999) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242326.jpgsave_picture_242326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242326.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ RAM Saver Professional 23.3 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242327.jpgsave_picture_242327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242327.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:4D512A3F6EB20C5239C467109E91983FCF5BAA5A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242328.jpgsave_picture_242328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242328.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Spring Cardio Dance Hits 2021 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242329.jpgsave_picture_242329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242329.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:2A5BAB3C68B5F2A225C59DCD9EEA5D4DEE005BED
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242330.jpgsave_picture_242330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242330.jpg" />
 </div>
 
 

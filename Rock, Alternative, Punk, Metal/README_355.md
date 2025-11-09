@@ -6,7 +6,7 @@ Perseide - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203327.jpgsave_picture_203327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203327.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Crawling - All of This for Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203372.jpgsave_picture_203372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203372.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:CAFB587AD8D085CA94F190CD792AE79EE83E9FFA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203376.jpgsave_picture_203376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203376.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Whispers In The Shadow - Ghosts (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203421.jpgsave_picture_203421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203421.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dragony - Viribus Unitis (2021) Japanese Edition [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203530.jpgsave_picture_203530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203530.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203536.jpgsave_picture_203536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203536.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Soulsad - Doomed to Funerals (2022) Compilation [MP3|320 Kbps] <Melodic Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203540.jpgsave_picture_203540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203540.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sons of Ragnar - Lindisfarne (2015) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203542.jpgsave_picture_203542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203542.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ another wave project - The Best of (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203544.jpgsave_picture_203544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203544.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Villanos - Bisonte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203552.jpgsave_picture_203552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203552.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Soulsad - Two Funerals (2018) EP [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203556.jpgsave_picture_203556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203556.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Fun Mode - Сверхновая (2023) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203563.jpgsave_picture_203563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203563.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Alice Cooper - Road (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203659.jpgsave_picture_203659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203659.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Black Stone Cherry - Smile, World (2023) EP [FLAC 24/48|WEB-DL|tracks] <Southern
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203671.jpgsave_picture_203671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203671.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Soulsad - Doomed to Funerals (2022) Compilation, Black Hearts Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203690.jpgsave_picture_203690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203690.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ The Death Wheelers - Chaos And The Art Of Motorcycle Madness (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203691.jpgsave_picture_203691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203691.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Coma Doof - Miasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203693.jpgsave_picture_203693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203693.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Borracho - Blurring the Lines of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203705.jpgsave_picture_203705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203705.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Everything Everything - Man Alive (2010) 2CD, Deluxe Edition, 2023, Universal Mu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203709.jpgsave_picture_203709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203709.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203711.jpgsave_picture_203711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203711.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Moon Coven - Sun King (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203721.jpgsave_picture_203721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203721.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Hephaistos - Medusa (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203723.jpgsave_picture_203723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203723.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Aether - 2 Releases (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Sl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203725.jpgsave_picture_203725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203725.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Lutalo - Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203729.jpgsave_picture_203729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203729.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Walrus - Black Cat (2023) EP [FLAC|24/48|tracks|WEB-DL] <Stoner Doom Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203733.jpgsave_picture_203733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203733.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Analog Sunshine - The Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203775.jpgsave_picture_203775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203775.jpg" />
 </div>
 
 

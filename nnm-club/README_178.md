@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4682.jpgsave_picture_4682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4682.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1F49AC659453F321DC47E60891A1A5F75447D799
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4683.jpgsave_picture_4683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4683.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Fast Screen Recorder 2.1.0.15 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4684.jpgsave_picture_4684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4684.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4685.jpgsave_picture_4685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4685.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Русская 30-ка хитов 17 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4686.jpgsave_picture_4686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4686.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1A7E126C5D20270020F8D149F46B21A20268D659
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4687.jpgsave_picture_4687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4687.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.8) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4688.jpgsave_picture_4688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4688.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4689.jpgsave_picture_4689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4689.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ AMS PhotoDiva 5.0 RePack by KaktusTv [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4690.jpgsave_picture_4690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4690.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:BD4BC0BF5FA1200D9EDAF79E65ECC6B74D31B377
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4691.jpgsave_picture_4691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4691.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:6916E15B7F3A7181B51662A78077507C35B25477
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4692.jpgsave_picture_4692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4692.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:A2702C6D2A4B5921DB6051C2EED8F445D658BAB0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4693.jpgsave_picture_4693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4693.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (02.09.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4694.jpgsave_picture_4694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4694.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:97966FA8E0FF7C1130B352734F2D7465BE102231
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4695.jpgsave_picture_4695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4695.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ElectroBox - Electronics v50 Mod by Viktor245 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4696.jpgsave_picture_4696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4696.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - 80s Music - 150 Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4697.jpgsave_picture_4697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4697.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:334594C3C694708939AB8D62B79CA27110E473EB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4698.jpgsave_picture_4698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4698.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:92F4BECE41AF964EFEA6DE5E979BE6CB082ED994
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4699.jpgsave_picture_4699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4699.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Word Learn Languages v5.12 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4700.jpgsave_picture_4700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4700.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:53FC05A78A819E80D5F70D3AC4C879206288DB3A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4701.jpgsave_picture_4701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4701.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:03ECB4F35A8072ACB7D30DF2013E5B3FCF63F910
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4702.jpgsave_picture_4702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4702.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Winxvideo AI 4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4703.jpgsave_picture_4703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4703.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Winxvideo AI  - это набор инструментов для масштаб
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4704.jpgsave_picture_4704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4704.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ IsMyLcdOK 6.11 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4705.jpgsave_picture_4705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4705.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:E83B2285F3131BEE1415F015DDB1A1B1CA7EE65F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4706.jpgsave_picture_4706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4706.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Advanced Renamer Commercial 4.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4707.jpgsave_picture_4707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4707.jpg" />
 </div>
 
 

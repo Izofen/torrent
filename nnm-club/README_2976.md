@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88747.jpgsave_picture_88747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88747.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VA - MAXI. Все хиты весны на Русском Радио (2012) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88751.jpgsave_picture_88751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88751.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:FBA50BAE0060FC5A38344B59AFA6ACFD7E7BDE04
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88752.jpgsave_picture_88752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88752.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ magnet:?xt=urn:btih:65609C692748E705CC426A3EC0397B292B8BA603
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88755.jpgsave_picture_88755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88755.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - Взрывной танцевальный Top DFM (2012) [MP3|192-248 kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88756.jpgsave_picture_88756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88756.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:DEAC26CB67B6B5435D7BCEE9F605E42FF71C8F5B
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88757.jpgsave_picture_88757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88757.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - BIG Vocals 2012.1 (2012) [MP3|320 kbps]<Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88759.jpgsave_picture_88759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88759.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Kaspersky Virus Removal Tool 2011 11.0.0.1245 от 15.04.2012 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88761.jpgsave_picture_88761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88761.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kaspersky Virus Removal Tool 2011 основные изменения
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88763.jpgsave_picture_88763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88763.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Jiang He Shui - Water of Jangce River (2007) [MP3|128-320 кб/с]<Ethnic, Folk>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88768.jpgsave_picture_88768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88768.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Hospitality Drum & Bass 2011 (2011) [FLAC|Lossless|WEB-DL|tracks] <Drum & B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88769.jpgsave_picture_88769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88769.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Hospitality Drum & Bass 2011 (2011) [FLAC|Lossless|WEB-DL|tracks] <Drum & B
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88771.jpgsave_picture_88771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88771.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - XXXL Союз 70: Парад хитов Русский (2012) [MP3|256 kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88772.jpgsave_picture_88772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88772.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - NeРусский Шторм 57 (2012) [MP3|320 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88776.jpgsave_picture_88776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88776.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Lai Muang - The Spirit Of Lanna (2008) [MP3|320 кб/с]<New age, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88778.jpgsave_picture_88778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88778.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:E78D86B09A1E5E5ABC8AB3AFAFC64888B8507307
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88783.jpgsave_picture_88783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88783.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:8D759C5ED78EFBCD1CC834A73622674369CFF44C
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88786.jpgsave_picture_88786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88786.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:8D759C5ED78EFBCD1CC834A73622674369CFF44C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88787.jpgsave_picture_88787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88787.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:F71BA585FDF86502CBB8023600501BB7E0015CC8
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88788.jpgsave_picture_88788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88788.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:951697EA6E8271A77024EB7F89C875D8AB5E8C3C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88789.jpgsave_picture_88789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88789.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Microsoft Process Monitor 3.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88790.jpgsave_picture_88790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88790.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Microsoft Process Monitor 3.0 [Русский]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88797.jpgsave_picture_88797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88797.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Doppia B Hostility & Sofia Gucci - Un Binario Morto (Uncensored) (2012) [H.264/7
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88798.jpgsave_picture_88798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88798.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ magnet:?xt=urn:btih:25493AC1B57FE2A7F04355549DDB250A69CD8484
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88804.jpgsave_picture_88804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88804.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:3891FEA5ACE33A86D46FA591346675B15DC39690
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88806.jpgsave_picture_88806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88806.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ magnet:?xt=urn:btih:BF87FE368F1F32AE2058DEF03547306BEA7EC8F9
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88809.jpgsave_picture_88809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88809.jpg" />
 </div>
 
 

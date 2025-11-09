@@ -6,7 +6,7 @@ Peter Gee - Pilgrim (2023) [MP3|320 Kbps] <Neo-Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244268.jpgsave_picture_244268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244268.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F95089FA9200B4292DF49933954E8334B05E860B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244275.jpgsave_picture_244275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244275.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Noctem - Credo certe ne cras (2022) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244276.jpgsave_picture_244276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244276.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Void Column - Admonition of Clarity (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244293.jpgsave_picture_244293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244293.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Bronx Casket Co. - Sweet Home Transylvania (2001) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244317.jpgsave_picture_244317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244317.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Angel Vivaldi - Away With Words, Part 1-2 (2014-2023) 2EP [MP3|320 Kbps] <Progre
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244323.jpgsave_picture_244323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244323.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chris Angels - Gods (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244327.jpgsave_picture_244327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244327.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Absurd - Asgardsrei (1999) 2017 Remastered, IG Farben [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244335.jpgsave_picture_244335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244335.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Empire - Sound Barrier (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244339.jpgsave_picture_244339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244339.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Djevel - Naa skrider natten sort (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244348.jpgsave_picture_244348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244348.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sweetlee - К​р​у​г р​а​з​у​м​а (2023) EP [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244357.jpgsave_picture_244357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244357.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ A Lake Of Ayes - Ouro Sobre Azul (2021) [FLAC|Lossless|tracks + .cue] <Post Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244362.jpgsave_picture_244362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244362.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Urantia - Innerverse (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244363.jpgsave_picture_244363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244363.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:4CA3A28651104262724C83DCC2C49B476A93CD30
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244366.jpgsave_picture_244366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244366.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Aura - Roku Ronin (2023) EP [MP3|320 Kbps] <Nu-Metal, Rapcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244367.jpgsave_picture_244367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244367.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lesson In Violence - The Thrashfall Of Mankind (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244370.jpgsave_picture_244370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244370.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Solefald - Collection (1997 - 2015) 9 CD [FLAC|Lossless|image + .cue] <Avant-gar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244374.jpgsave_picture_244374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244374.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Drac Attack! - Drac Attack! (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244380.jpgsave_picture_244380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244380.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Fox River - 2 Albums (2018-2023) [MP3|320 Kbps] <Progressive Metal, Progressive 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244384.jpgsave_picture_244384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244384.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Guild Of Ages - Vox Dominatas (1999) [FLAC|Lossless|image + .cue] <Progressive &
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244387.jpgsave_picture_244387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244387.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Detestor - In the Circle of Time (1995) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244395.jpgsave_picture_244395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244395.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Nightrage - Abyss Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244396.jpgsave_picture_244396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244396.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ White Lion - Love Don't Come Easy (1991) CDS, Single [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244403.jpgsave_picture_244403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244403.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Cadaver Shrine - Benighted Desecration (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244404.jpgsave_picture_244404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244404.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Mind Patrol - Milking The Massess (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244405.jpgsave_picture_244405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244405.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Seven Witches - Rebirth (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244408.jpgsave_picture_244408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244408.jpg" />
 </div>
 
 

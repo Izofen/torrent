@@ -6,7 +6,7 @@ Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201975.jpgsave_picture_201975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201975.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 10.0.19045.3324, Version 22H2 (Updated August 2023) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201978.jpgsave_picture_201978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201978.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ ARMORED CORE VI FIRES OF RUBICON (2023) [Ru/Multi] (1.01/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201984.jpgsave_picture_201984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201984.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DDA1E0AF6836BEF766803C230651A715354ABD5F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201986.jpgsave_picture_201986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201986.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:11A0148E00E097A4854EDA72200F396BBB982879
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201988.jpgsave_picture_201988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201988.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201991.jpgsave_picture_201991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201991.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:806BEF6CC9D6F80BDE32E662555C01606E1E2342
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201993.jpgsave_picture_201993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201993.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Whiskey River - Broken Highway (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201994.jpgsave_picture_201994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201994.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ MotoGP. Этап 20 из 22. Гран-при Малайзии. Спринт (25.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201997.jpgsave_picture_201997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201997.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Novi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Easy liste
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202001.jpgsave_picture_202001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202001.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C4DC82868497135ECD9AE3DB881F3510B9D17462
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202002.jpgsave_picture_202002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202002.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Novi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic, Easy liste
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202004.jpgsave_picture_202004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202004.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Novi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Pop Rock, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202006.jpgsave_picture_202006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202006.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Gunfire Reborn (2021) [Ru/Multi] (Build 20537927/dlc) Repack Let'sРlay [Bundles
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202009.jpgsave_picture_202009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202009.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:1EBDDB76EA6A4C1C168D76BA8C5ACB74CBBA3E5D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202011.jpgsave_picture_202011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202011.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ MotoGP. Этап 20 из 22. Гран-при Малайзии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202013.jpgsave_picture_202013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202013.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Mathlab Graphing Calculator Pro v2025.10.167 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202015.jpgsave_picture_202015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202015.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Paint the Town Red (2021) [Ru/Multi] (1.3.4 r5682) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202025.jpgsave_picture_202025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202025.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ AnyDesk 9.6.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202028.jpgsave_picture_202028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202028.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024)
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202031.jpgsave_picture_202031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202031.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202033.jpgsave_picture_202033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202033.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack Other s [Digital Deluxe E
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202034.jpgsave_picture_202034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202034.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:BDAE34627FF8902C76F7455ED707B9418F4D7346
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202036.jpgsave_picture_202036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202036.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:8A6C5BD9953C4AF872805B511D2DE2148D9C829D
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202037.jpgsave_picture_202037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202037.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202040.jpgsave_picture_202040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202040.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ All-In-One Offline Maps v3.17b Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202043.jpgsave_picture_202043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202043.jpg" />
 </div>
 
 

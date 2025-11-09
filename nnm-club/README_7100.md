@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243504.jpgsave_picture_243504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243504.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nox App Player 7.0.5.6000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243505.jpgsave_picture_243505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243505.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7723120548D41D0BCC54338DCD40F2625948454E
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243507.jpgsave_picture_243507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243507.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D9504FA77C33997EB863D57D4E64060C1B1AD731
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243508.jpgsave_picture_243508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243508.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MesaExif 2.4.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243509.jpgsave_picture_243509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243509.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FFFDBA75FA1481FFC2B79D407D8CE5B7A6EB771D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243510.jpgsave_picture_243510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243510.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Sieghetnar - Verfallen & Verendet (2006) [FLAC|Lossless|image + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243511.jpgsave_picture_243511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243511.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gearbox Software | Артбук по игре Borderlands 2 / The Art of Borderl
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243512.jpgsave_picture_243512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243512.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Hard Disk Sentinel Pro 6.01.4 Build 12540 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243513.jpgsave_picture_243513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243513.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ ARTY - Tomorrowland Friendship Mix (2021-03-18) [MP3|320 Kbps] <Big Room, Dance,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243514.jpgsave_picture_243514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243514.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ FileAssistant 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243515.jpgsave_picture_243515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243515.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:4ACC067044E5567F636611C35A03CDC65FFA36BE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243516.jpgsave_picture_243516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243516.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:1B2061798027F38CF44CF650331AD1DE110107E2
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243517.jpgsave_picture_243517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243517.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:CEE2CE7E065AA1F8B7ED674EB86CB54E5EF3BBC1
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243518.jpgsave_picture_243518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243518.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:234CD777DF607D69244D0F4F3B1D6D8E800A1C56
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243519.jpgsave_picture_243519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243519.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Reverence - Vengeance Is … LIVE (2018) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243520.jpgsave_picture_243520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243520.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ DirEqual 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243521.jpgsave_picture_243521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243521.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:2DDE61206C127650A3BB805864482CA45C834080
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243522.jpgsave_picture_243522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243522.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:CF0E847A5AB1749CEFE92149AF9CA12AD1645508
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243523.jpgsave_picture_243523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243523.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:EFFE43411432E807DC67FBB5A08A7AF5B360A872
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243524.jpgsave_picture_243524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243524.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:64A5EC01E6E962F4E42A76EA78B821E94347E7DD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243525.jpgsave_picture_243525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243525.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:BD5710C28A0268672883BB9A694077ED2FD907FE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243526.jpgsave_picture_243526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243526.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Bridge To Another World 10: Cursed Clouds (2022) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243527.jpgsave_picture_243527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243527.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ XMind 22.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243528.jpgsave_picture_243528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243528.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:B2E9BCD032FE55F6E3637A4D60A5A7C525A7DF4E
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243529.jpgsave_picture_243529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243529.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Cerulia - Aurora Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243530.jpgsave_picture_243530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243530.jpg" />
 </div>
 
 

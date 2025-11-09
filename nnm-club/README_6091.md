@@ -6,7 +6,7 @@ Thinknetica Pro, Анна Буянова | Старый Добрый Код: к�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191721.jpgsave_picture_191721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191721.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:AED485B8898C9924A138F58ADA0D46CB4E27987D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191722.jpgsave_picture_191722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191722.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:B2A84873EC9F524782C48DD26A90C7F9F3CC88EC
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191723.jpgsave_picture_191723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191723.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E689BCA9E2A4C3C1B5A4BF2B92BB0E5823DFC98B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191724.jpgsave_picture_191724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191724.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:CD8A6AFC6292E6C8CC1CBE392A8A75C03585BB68
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191725.jpgsave_picture_191725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191725.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7FA5C6836901B8A8DF0882CCA44F7CF092780D03
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191726.jpgsave_picture_191726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191726.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Auslogics BoostSpeed Pro 13.0.0.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191728.jpgsave_picture_191728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191728.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:BD725F14EBB7010C8E63D40936F15D6D0530A413
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191729.jpgsave_picture_191729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191729.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:41B8660797593A2A840059990A79BF59D691298B
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191730.jpgsave_picture_191730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191730.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ IBM клялась не разрабатывать системы распозн
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191732.jpgsave_picture_191732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191732.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ DxO PureRAW 2.2.1 build 3 RePack by KpoJIuK  [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191733.jpgsave_picture_191733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191733.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:935FE8822C604400556FD6219A33854DD2D42A90
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191734.jpgsave_picture_191734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191734.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:624DD4859438D76475757233B361022A2609F3FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191735.jpgsave_picture_191735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191735.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:DC2C84D7A1040F11E60D589176AAA42C0EDC46E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191736.jpgsave_picture_191736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191736.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:0C654E73EE25A1C912E0E9F5303E01F92F1C50C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191737.jpgsave_picture_191737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191737.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:AAE681A4D69EC719CC76B96B92EBAC37A11C91AE
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191738.jpgsave_picture_191738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191738.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:E05190BA5A49462B2EEDFA62F537F76D788E28C2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191739.jpgsave_picture_191739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191739.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:2795B9AFF96454F552D04A65FF82C6F57936F6CA
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191740.jpgsave_picture_191740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191740.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:B3255E8D55D19F59AB2CD0D602AC6C075A5442D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191741.jpgsave_picture_191741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191741.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:9ACE5953114D0DD3D48B8D7CAB57BCEF67BA94D3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191742.jpgsave_picture_191742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191742.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ KLayout 0.27.12 + (standalone) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191743.jpgsave_picture_191743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191743.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:20E3644ED552461F451C9A90D2DB31BF9BEBDBAD
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191744.jpgsave_picture_191744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191744.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Udemy, Learn IT University, Andrii Piatakha | Object Oriented Programming - Basi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191745.jpgsave_picture_191745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191745.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191746.jpgsave_picture_191746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191746.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Visual Studio Code 1.73.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191747.jpgsave_picture_191747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191747.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Great North Shelter 2 (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191748.jpgsave_picture_191748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191748.jpg" />
 </div>
 
 

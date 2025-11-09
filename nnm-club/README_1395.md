@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36625.jpgsave_picture_36625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36625.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:673C58768CF3710CD148B6D0300FC1950C3686A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36626.jpgsave_picture_36626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36626.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:775E819BA66EE9B1B63542D83B1ED05BB8122921
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36627.jpgsave_picture_36627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36627.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:F061FA3EC0AEB689585E0CD548290D27AABD555B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36628.jpgsave_picture_36628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36628.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:52E293468782AE69014CCB5A640E5E4B9FA0FCD0
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36629.jpgsave_picture_36629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36629.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ qBittorrent 5.0.2 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36630.jpgsave_picture_36630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36630.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B3A438E76BBBBCBCF0735B65F963EA1FE4860E9C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36631.jpgsave_picture_36631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36631.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Office Installer & Office Installer+ 1.19 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36632.jpgsave_picture_36632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36632.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:D78106684098C2CB785C474EAFC7651CE801C709
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36633.jpgsave_picture_36633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36633.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36634.jpgsave_picture_36634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36634.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:CE27F9DDB8E131E9AEC91ADF82763F05A9CCA163
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36635.jpgsave_picture_36635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36635.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:1E8AC0318789C2E25207148024539123301F5124
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36636.jpgsave_picture_36636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36636.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Far Cry (2004) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36637.jpgsave_picture_36637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36637.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sid Meier’s Civilization® VI v.1.4.6 DLC (2016) [Multi/Ru] [macOS Native game
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36638.jpgsave_picture_36638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36638.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:105FDD3143CD89D92AC8C0C7697BD90B579EC4B6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36639.jpgsave_picture_36639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36639.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:D64A760B7D32F245B44BB1E511E61A20F1B3FB58
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36640.jpgsave_picture_36640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36640.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft Windows 10 [10.0.19045.5131], Version 22H2 (Updated November 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36641.jpgsave_picture_36641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36641.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D725582E9899B07288687809D584AA002942EABB
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36642.jpgsave_picture_36642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36642.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36643.jpgsave_picture_36643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36643.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:1E83B090946F85F7617D81A61E21C5400651D45B
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36644.jpgsave_picture_36644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36644.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:9B0D212979D405CFD2EEB083E15A51B516822305
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36645.jpgsave_picture_36645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36645.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Rainbow - Ballads & Instrumentals (1995) [Rem.2014] [FLAC|Lossless]<Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36646.jpgsave_picture_36646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36646.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Rainbow – 11 альбомов (1975-1995) Remastered Japanese Edition, Box-Set
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36647.jpgsave_picture_36647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36647.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36648.jpgsave_picture_36648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36648.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Psiphon 3 build 184 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36649.jpgsave_picture_36649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36649.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36650.jpgsave_picture_36650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36650.jpg" />
 </div>
 
 

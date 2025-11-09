@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154368.jpgsave_picture_154368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154368.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Jeff Goldblum & The Mildred Snitzer Orchestra - I Shouldn't Be Telling You This 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154369.jpgsave_picture_154369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154369.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PowerPhotos 2.1.3b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154370.jpgsave_picture_154370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154370.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 2 (2020) [AAC|~32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154371.jpgsave_picture_154371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154371.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Abora Chillout: Best of 2017 [MP3|320 Kbps] <Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154372.jpgsave_picture_154372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154372.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Зайцев.нет Лучшие новинки Декабря (2020) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154373.jpgsave_picture_154373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154373.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154374.jpgsave_picture_154374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154374.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Relax Winter Sound (2018) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154375.jpgsave_picture_154375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154375.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Alpha Prime (2007) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154376.jpgsave_picture_154376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154376.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:BC6B21DE74AC37E1048EAFDCA4FB59C61D791041
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154377.jpgsave_picture_154377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154377.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:D555ED1375000A1835A630DF55AE9EC0F317B15D
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154378.jpgsave_picture_154378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154378.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:63EBD9AB7175531A41FB1B5E2590CDF7E9979A36
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154379.jpgsave_picture_154379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154379.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Tom Robinson Band - Rising Free (the very best of TRB) (1997) Compilation, EMI [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154380.jpgsave_picture_154380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154380.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:DD27E73CFE831AF76AA00D2D495BABB308033F87
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154381.jpgsave_picture_154381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154381.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Unheilig - Lichter Der Stadt Live (2012) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154382.jpgsave_picture_154382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154382.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5F93BD181C4FDBD6A9FF303C4BD9C9B39294BC20
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154383.jpgsave_picture_154383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154383.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Veil of Thorns - Dosage (2018) [FLAC|Lossless|Web-DL|tracks] <Metal, Dark Ambien
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154384.jpgsave_picture_154384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154384.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:CEB3FFD5A5B1E2595B0FB5C433AC400244B61999
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154385.jpgsave_picture_154385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154385.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Varitda Bhirombhakdi - Mood 2: Jazz in the City (2021) [AAC|~320 Kbps] <Jazz, Vo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154386.jpgsave_picture_154386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154386.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Atapaskan - Humans (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154387.jpgsave_picture_154387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154387.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mitti 1.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154388.jpgsave_picture_154388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154388.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Nitzinger - Nitzinger (1972) Reissue, CD [MP3|320 Kbps] <Southern Rock, Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154389.jpgsave_picture_154389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154389.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Windows 10 Manager 3.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154390.jpgsave_picture_154390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154390.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Comedy Woman (2016.12.23) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154392.jpgsave_picture_154392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154392.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:E316E99E2384AD652189338E524016B84F71B7AF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154393.jpgsave_picture_154393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154393.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:82D75336E176842B9EB675CE0D6AEAFB48711D8A
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154394.jpgsave_picture_154394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154394.jpg" />
 </div>
 
 

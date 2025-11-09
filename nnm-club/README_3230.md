@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104337.jpgsave_picture_104337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104337.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:92AB3CBD7EB5F7F3376E4070CC28FF59411F6FBC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104338.jpgsave_picture_104338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104338.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4EBAB69DB58C436E7A52AB63C4C3B945309D9013
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104339.jpgsave_picture_104339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104339.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ektomorf - Studio Albums (16 releases) (1996-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104340.jpgsave_picture_104340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104340.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Funeral Portrait - Greetings From Suffocate City (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104341.jpgsave_picture_104341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104341.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:C57F7B2C69E1524EE6FFDFAC7C4152A1E8C0E13E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104342.jpgsave_picture_104342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104342.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:0297F4E65B356040E4D3C9E80176EDAA335807F7
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104343.jpgsave_picture_104343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104343.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:E97E82153FEAFB3F30B7C9B4C487A5E21A80C7B0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104344.jpgsave_picture_104344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104344.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Jim Hall Trio featuring Tom Harrell - These Rooms (1988) Denon [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104345.jpgsave_picture_104345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104345.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mastodon, Lamb of God - Floods of Triton (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104346.jpgsave_picture_104346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104346.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Barock Disco Band - Disco Classical Fever (1979) LP [MP3|320 Kbps] <Funk Soul, C
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104347.jpgsave_picture_104347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104347.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ The Gibbons - Into The Storm (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104348.jpgsave_picture_104348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104348.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:B49307150673733C296EC2A1D188C75985FC9CA5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104349.jpgsave_picture_104349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104349.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Simon & Garfunkel - Manchester, England, May '67 (2024) [MP3|320 Kbps] <Soft Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104350.jpgsave_picture_104350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104350.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ The Alan Parsons Project - The Turn of a Friendly Card (1980) Sessions, 2024, Le
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104351.jpgsave_picture_104351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104351.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ XYplorer 26.40.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104352.jpgsave_picture_104352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104352.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:B655C4BB37332879B87816EA466F1BBD4DD92F07
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104353.jpgsave_picture_104353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104353.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - House - Move Your Body - Top Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104354.jpgsave_picture_104354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104354.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ V.A. - The Best Smooth Jazz Ever (2002) 2CD [FLAC|Lossless|WEB-DL|tracks] <Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104355.jpgsave_picture_104355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104355.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:4CE07FB81D2733DFB011295BC606B56D78A034C1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104356.jpgsave_picture_104356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104356.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - DJ Hits Vol. 1300 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104357.jpgsave_picture_104357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104357.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Maretimo Chill Radio - Best of Vol. 3 - Positive Summer Vibes (2024) [FLAC|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104358.jpgsave_picture_104358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104358.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:8FBD6E247C847AF433DC63DCCF0A488F64536ED5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104359.jpgsave_picture_104359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104359.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Find Your Harmony 2024 Part 1 - HEAVENS (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104360.jpgsave_picture_104360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104360.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Breeze - Echoes from a Distant Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104361.jpgsave_picture_104361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104361.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:A7FDB4957FE6802E4D139C453B4CBA3DB6BF0888
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104363.jpgsave_picture_104363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104363.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Norsk Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237770.jpgsave_picture_237770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237770.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Snuts - Burn The Empire (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237771.jpgsave_picture_237771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237771.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Michael Pavlovich | Substance Designer Quick Start (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237772.jpgsave_picture_237772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237772.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:3550358C45C4648F0A833B336F1A42CB8E4E41C2
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237773.jpgsave_picture_237773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237773.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Zynaptiq - Orange Vocoder 4.0.0 VST, VST 3, AAX (x64) Repack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237774.jpgsave_picture_237774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237774.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Fifty Shades of Lounge, Vol. 2 - 50 Smooth & Sexy Chill Tunes 4 Erotic Mome
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237775.jpgsave_picture_237775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237775.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:E33F8145F22418D8D499E702238A669EB5EE7443
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237776.jpgsave_picture_237776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237776.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ VA - Убойная Сила. Любимые песни из телесериа�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237777.jpgsave_picture_237777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237777.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ iBarcoder 3.12.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237778.jpgsave_picture_237778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237778.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ RTG. Приокско-террасный заповедник (2014) HDTV [H.264
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237779.jpgsave_picture_237779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237779.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:7900E4A34B55F275208028E4EEBF7399017C69D2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237780.jpgsave_picture_237780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237780.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:F9FD43B373CCE7CCF68F31973DE1EEF20E9ED8A3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237781.jpgsave_picture_237781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237781.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Necrodeath - Singin' in the Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237782.jpgsave_picture_237782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237782.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:1A6B2D0FD5FE9311C85F03D3E7CC34ADD3634252
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237783.jpgsave_picture_237783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237783.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:D24457ECA75417C275ED905321500037C4FBE8FF
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237784.jpgsave_picture_237784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237784.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Fireplace Chill, Vol. 2 (2020) [AAC|~313 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237785.jpgsave_picture_237785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237785.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ WonderPen 1.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237786.jpgsave_picture_237786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237786.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - soft pop 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237787.jpgsave_picture_237787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237787.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:C63473B2B44932A230943A6AC1867BB8741B3692
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237788.jpgsave_picture_237788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237788.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Lattermath - Lattermath (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237789.jpgsave_picture_237789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237789.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B9FD5F1FE6EA0DF58FF167220CBEF73661D700E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237790.jpgsave_picture_237790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237790.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Mojo Monkeys - Mojofo (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237791.jpgsave_picture_237791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237791.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237792.jpgsave_picture_237792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237792.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Smooth Jazz n Chill 2 (2017) [AAC|~344 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237793.jpgsave_picture_237793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237793.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Topaz Video AI 3.2.3 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237794.jpgsave_picture_237794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237794.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Vlatko Stefanovski - Cowboys & Indians (1994) [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237795.jpgsave_picture_237795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237795.jpg" />
 </div>
 
 

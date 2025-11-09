@@ -6,7 +6,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] BDRemu
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18133.jpgsave_picture_18133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18133.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18134.jpgsave_picture_18134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18134.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:66300E6DEA93FB65083560E60914B20AB95FC892
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18135.jpgsave_picture_18135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18135.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:FFBD0D44C0092C5CFCF12DFCA8480D6C1C14E308
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18136.jpgsave_picture_18136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18136.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FFBD0D44C0092C5CFCF12DFCA8480D6C1C14E308
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18137.jpgsave_picture_18137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18137.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:867FEF373BD926F0C26606387854CC30D06731A4
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18138.jpgsave_picture_18138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18138.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B57FF1A5DA70D44893439F541E8BF4C14B713001
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18139.jpgsave_picture_18139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18139.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:EFE7590512EF49B7A09A605DAEE33A1D06D95F05
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18140.jpgsave_picture_18140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18140.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Abelssoft SSD Fresh Plus 2026 15.01.61691 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18141.jpgsave_picture_18141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18141.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Fabledom (2024) [Ru/Multi] (1.07 HF) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18142.jpgsave_picture_18142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18142.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:1425E21E0767049D621B8B146573866B9DC80055
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18143.jpgsave_picture_18143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18143.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:63EFF1AD8CB477BFFD47D2DFB1BDD8214072332F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18144.jpgsave_picture_18144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18144.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ V-Ray 7.10.00 for 3ds Max 2021-2026 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18145.jpgsave_picture_18145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18145.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:2099BFE5560A610BD3882EFA24AF02C1A5B6C4AC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18146.jpgsave_picture_18146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18146.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2099BFE5560A610BD3882EFA24AF02C1A5B6C4AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18147.jpgsave_picture_18147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18147.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2099BFE5560A610BD3882EFA24AF02C1A5B6C4AC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18148.jpgsave_picture_18148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18148.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:C96027E993A538CC71D93F2D01EB3DC74BCBF516
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18149.jpgsave_picture_18149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18149.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ The Sinking City (2019) [Ru/Multi] (ms6 58246 s mc2 4/dlc) License GOG [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18150.jpgsave_picture_18150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18150.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:4B9582B17C5DA53673217DF8CD3966095CA4FE73
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18152.jpgsave_picture_18152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18152.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:90EBAA5DA189001BA81EDC1D92D41BC7D15CB6DA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18153.jpgsave_picture_18153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18153.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:08907BAB8542D310F66554591B3F0EE3B3074BF3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18154.jpgsave_picture_18154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18154.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ PowerISO 9.1 RePack by KpoJIuK [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18156.jpgsave_picture_18156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18156.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:B157085A1285F77A71F94EF5E7DEAAB67D0BE6D9
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18157.jpgsave_picture_18157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18157.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Windows 11 Pro VL x64 24Н2 (build 26100.4061) by ivandubskoj 14.05.2025 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18158.jpgsave_picture_18158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18158.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.264/1080p] [MVO]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18159.jpgsave_picture_18159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18159.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:C16D184A89946E45F05C19A2D3F6A719B356A2E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18160.jpgsave_picture_18160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18160.jpg" />
 </div>
 
 

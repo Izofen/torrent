@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174109.jpgsave_picture_174109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174109.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:22B2AE9F1C06E190B353B05F9F19C66236F296FD
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174111.jpgsave_picture_174111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174111.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Quinn Golden - Southern Soul Icon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174112.jpgsave_picture_174112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174112.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Fraction - Moon Blood (1971) Reissue, 2023, RidingEasy Records [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174113.jpgsave_picture_174113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174113.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Darken - Welcome To The Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174114.jpgsave_picture_174114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174114.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ AcidMorph - Prometheus in Flames (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174115.jpgsave_picture_174115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174115.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Victoria 5.34 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174116.jpgsave_picture_174116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174116.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:872FE81A0DBD3D798DF64211DC46FB6A4954DF75
 >>Библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174117.jpgsave_picture_174117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174117.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Acer Fury - Crazy King (2016) Compilation [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174119.jpgsave_picture_174119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174119.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:2709F58DD5DA9585BAD104EBDC6DBC8841745A9F
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174120.jpgsave_picture_174120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174120.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:E63BA37C7398F90A1606BD330F2ED787C0DF74EF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174121.jpgsave_picture_174121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174121.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Elli de Mon - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174122.jpgsave_picture_174122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174122.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:7D67F538D2CC4611ADFA8C429B1835B65025A81C
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174123.jpgsave_picture_174123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174123.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:A0694F56569A73E65F635386DAAFC44EEBB8673A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174124.jpgsave_picture_174124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174124.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:491BD5612E507F429EEFF2CF767BBEEC6FBF1405
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174125.jpgsave_picture_174125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174125.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:CA1F7204EE70F9B35A093B2556DB45D6DCA670E9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174127.jpgsave_picture_174127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174127.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Randy Waldman - UnReel (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174128.jpgsave_picture_174128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174128.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:05D043792DB71A9DE1707336E5A721D70684843A
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174129.jpgsave_picture_174129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174129.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ We Are Resolute - Only Human (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174130.jpgsave_picture_174130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174130.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:CE2AD31E6ABDBED5741A421A8721DF486C607E2E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174131.jpgsave_picture_174131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174131.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:022BF25EB0D7B4EE8548A4C93666720C2A79381C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174132.jpgsave_picture_174132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174132.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:1B6672B6AE086221268746667DE64955E63AB9BD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174134.jpgsave_picture_174134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174134.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Kerosene Drifters - The Gun Announced Go (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174135.jpgsave_picture_174135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174135.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Rocket Typist Pro 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174136.jpgsave_picture_174136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174136.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Necroscum - Gates of Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174137.jpgsave_picture_174137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174137.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Adrian - One Step Into The Uncertain (1987) Reissue 2014, Karthago Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174138.jpgsave_picture_174138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174138.jpg" />
 </div>
 
 

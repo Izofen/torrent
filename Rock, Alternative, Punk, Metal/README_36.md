@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43870.jpgsave_picture_43870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43870.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SkinInc. - Another Crack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43877.jpgsave_picture_43877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43877.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Steve Cone - Autonomous (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43879.jpgsave_picture_43879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43879.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ One More Shot - Railroad to Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43880.jpgsave_picture_43880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43880.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Many Colored Death - The Comfort In Telling (2024) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43882.jpgsave_picture_43882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43882.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ireful - Agents Of Doom (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Old 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43883.jpgsave_picture_43883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43883.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rush - Ten songs for you (2024) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43898.jpgsave_picture_43898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43898.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ David Gilmour - Luck And Strange (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43918.jpgsave_picture_43918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43918.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8E7BE083439EB6A9CF6E6E9A28A72E806F947BA4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43920.jpgsave_picture_43920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43920.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Victory - Circle Of Life (2024) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43975.jpgsave_picture_43975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43975.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ghostwriter Society - Long Weekend (2024) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43979.jpgsave_picture_43979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43979.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Massacration - Metal Is My Life (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43985.jpgsave_picture_43985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43985.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bon Jovi - Forever (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44185.jpgsave_picture_44185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44185.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Thin Lizzy - 1976 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44198.jpgsave_picture_44198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44198.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ David Gilmour - Luck and Strange (2024) [MP3|320 Kbps] <Progresiv Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44285.jpgsave_picture_44285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44285.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:069142622531001C971B9975D6557A1997C1BACE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44343.jpgsave_picture_44343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44343.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:BEE8D3C9C37C561F924DA68386B1A4BC8A7C3E24
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44389.jpgsave_picture_44389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44389.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ blink-182 - One More Time... Part-2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44393.jpgsave_picture_44393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44393.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:E7B21A74F39CB1BAE3BD6B934FD984CF31C06191
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44396.jpgsave_picture_44396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44396.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ David Gilmour - Luck and Strange (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44420.jpgsave_picture_44420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44420.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Neil Young & Crazy Horse - Fu##in’ Up (2024) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44511.jpgsave_picture_44511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44511.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E4A4B332F47740ADE657B602654A134598F87E9D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44531.jpgsave_picture_44531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44531.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:40CE86D2DB0D1C4FE5CB148B1DE648C514360298
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44533.jpgsave_picture_44533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44533.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:C798AFDE9D16BF6B960B96845565AC5DB8AE8C44
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44707.jpgsave_picture_44707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44707.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Lyran Lions - Star Rider (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44723.jpgsave_picture_44723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44723.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:D732DE679F4B3AACB93AE8108339C060A913D151
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44738.jpgsave_picture_44738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44738.jpg" />
 </div>
 
 

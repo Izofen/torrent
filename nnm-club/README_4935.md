@@ -6,7 +6,7 @@ Firefox Browser 84.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154316.jpgsave_picture_154316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154316.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C6BFECB998BCCE394583FA2DE4E4C1FAD5E0D9BB
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154317.jpgsave_picture_154317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154317.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154318.jpgsave_picture_154318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154318.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Emerald Rain - 6 альбомов Discography (1997-2005) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154319.jpgsave_picture_154319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154319.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Records 1.6.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154320.jpgsave_picture_154320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154320.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:37CD0CEF4E9C0A796DBE815108B3898AF429A132
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154321.jpgsave_picture_154321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154321.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:07F682F3D0600A04BA2CBFE2137F395070BD520D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154322.jpgsave_picture_154322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154322.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Topaz Video AI 4.0.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154323.jpgsave_picture_154323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154323.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154324.jpgsave_picture_154324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154324.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Skarlett Riot - Sentience (2016) EP [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154325.jpgsave_picture_154325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154325.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Movavi Screen Recorder 10.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154326.jpgsave_picture_154326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154326.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ KeepStreams 1.1.9.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154327.jpgsave_picture_154327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154327.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:B47667A92B4E2B44CF27B7C54CDFDC9460D626E4
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154328.jpgsave_picture_154328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154328.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ UltraCompare 20.00.0.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154329.jpgsave_picture_154329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154329.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:6BEEF18E8EAE983799D978451D41C56FE978F020
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154330.jpgsave_picture_154330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154330.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:CBC654A65E966B0D46C6949F3CF5DA1EC7956F8E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154331.jpgsave_picture_154331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154331.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:F993445D699E9D3F0C65A7C37598537A01F21755
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154332.jpgsave_picture_154332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154332.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:5633C84884CE53A117AC1010278C42190BAC0D93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154333.jpgsave_picture_154333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154333.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:187841BA0024572BB890FF97F6A25AE2642116E7
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154334.jpgsave_picture_154334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154334.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:E68DF4D2C3103DB6E74B157F854469551264332E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154335.jpgsave_picture_154335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154335.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ FileZilla 3.46.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154336.jpgsave_picture_154336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154336.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Sport Club Hits Vol.1 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154337.jpgsave_picture_154337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154337.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Varitda Bhirombhakdi - Mood (2020) [AAC|~331 Kbps] <Jazz, Vocal Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154338.jpgsave_picture_154338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154338.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Blackened Corvus - Until We Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154339.jpgsave_picture_154339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154339.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:D93DE934F7B4EE8FDEC84952216A786297181235
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154340.jpgsave_picture_154340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154340.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Nine Inch Nails - Not The Actual Events (2016) EP [MP3|320 Kbps] <Industrial Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154341.jpgsave_picture_154341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154341.jpg" />
 </div>
 
 

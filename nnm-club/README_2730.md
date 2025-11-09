@@ -6,7 +6,7 @@ Olivia Rox - Super Cool Songs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71730.jpgsave_picture_71730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71730.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Flirts - Blondes, Brunettes & Redheads (1994) [OGG Vorbis|480 Kbps] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71731.jpgsave_picture_71731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71731.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Marius M.21 - Disco Classics (Best Reworks) (2011) [MP3|320 Kbps] <Italo-Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71732.jpgsave_picture_71732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71732.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Cooperation Trance Selection: Year of the Loong (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71733.jpgsave_picture_71733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71733.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Boogie Woogie & Blues Piano: Milestones of Legends (1920-e -1960-e) 10CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71734.jpgsave_picture_71734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71734.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:A100CE0B237B06CC462525A9718EB58614CE4BB2
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71735.jpgsave_picture_71735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71735.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Noetic Resonance - Best of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71736.jpgsave_picture_71736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71736.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:C1BD887194F6FCB72B1B948B957A949016B64937
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71737.jpgsave_picture_71737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71737.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Black Magick SS - Burning Bridges (2023) [FLAC|Lossless|image + .cue] <Black, Ps
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71738.jpgsave_picture_71738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71738.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Kemas - Deus X Machina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71739.jpgsave_picture_71739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71739.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Diogo M. Jr. - Rock com Maestria (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71740.jpgsave_picture_71740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71740.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Raging Fate - Mutiny (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71741.jpgsave_picture_71741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71741.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Crucial Velocity - Controller (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71742.jpgsave_picture_71742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71742.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ GTO Trio featuring Gadi Lehavi, Tal Mashiach and Ofri Nehemya - GTO TRIO: Within
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71743.jpgsave_picture_71743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71743.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ David "Fathead" Newman - Four Classic Albums (1958 - 1961) 2CD, 2018, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71744.jpgsave_picture_71744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71744.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:E2EB858AEB51F4BDB6A7D09242E1FCC13C08252A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71745.jpgsave_picture_71745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71745.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:B8AA0030160034A75F18C63CF56F2C852FB59E24
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71746.jpgsave_picture_71746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71746.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Izaak Maurits Kolthoff | Potentiometric titrations (1931) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71747.jpgsave_picture_71747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71747.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Photo Studio PRO v2.7.12.3627 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71748.jpgsave_picture_71748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71748.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - The Perfect Chillout & Lounge Music Playlist (2025) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71749.jpgsave_picture_71749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71749.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:2D523B551F9D42CD57EAF5285A902B22172ADD00
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71750.jpgsave_picture_71750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71750.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71751.jpgsave_picture_71751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71751.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ The Halo Effect - March of the Unheard (2025) (Limited Edition) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71752.jpgsave_picture_71752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71752.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:27907E92F158C3A9772EF8DCEC3F6973D953F9D4
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71753.jpgsave_picture_71753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71753.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:4D9227828E6340529E10242DCA5E3BDF7B01C099
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71754.jpgsave_picture_71754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71754.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:D8619110CCB8396E9EE0B33D6E4DC7123EEE9D68
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71755.jpgsave_picture_71755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71755.jpg" />
 </div>
 
 

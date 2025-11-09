@@ -6,7 +6,7 @@ Bane Gluvakov - Awake (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108319.jpgsave_picture_108319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108319.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Reverend Hound - Deal In Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108320.jpgsave_picture_108320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108320.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dave Williams - Open to Persuasion (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108321.jpgsave_picture_108321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108321.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Jack Hadley - The St. Louis Sessions, Vol. II (2024) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108322.jpgsave_picture_108322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108322.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108323.jpgsave_picture_108323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108323.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Darko Us - Starfire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <progressive me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108324.jpgsave_picture_108324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108324.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108325.jpgsave_picture_108325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108325.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Half Heard Voices - Moon Burial (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108326.jpgsave_picture_108326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108326.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108327.jpgsave_picture_108327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108327.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hammerhead Blues - After The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108328.jpgsave_picture_108328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108328.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - The Deep Collective - Deep Echoes (2023) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108329.jpgsave_picture_108329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108329.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC|Lossless|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108330.jpgsave_picture_108330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108330.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:1A7F6615CA4DF7060D000B4253CC811A2FBECA90
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108331.jpgsave_picture_108331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108331.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - DJ Hits 34 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108332.jpgsave_picture_108332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108332.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Blue Deal - Can't Kill Me Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108333.jpgsave_picture_108333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108333.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Black Cat Bones - Troublemaker (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108334.jpgsave_picture_108334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108334.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108335.jpgsave_picture_108335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108335.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - DJ Hits 35 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108336.jpgsave_picture_108336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108336.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ian Hunter - Defiance Part 2: Fiction (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108337.jpgsave_picture_108337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108337.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ The Iron Bees - РЖАВЫЙ ТРОМБОН (2024) [MP3|320 Kbps] <Ska, Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108338.jpgsave_picture_108338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108338.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Armin van Buuren - A State Of Trance 1176 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108339.jpgsave_picture_108339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108339.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Jamie Lockhart - Ship Fools (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108340.jpgsave_picture_108340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108340.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Louis Armstrong - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Dix
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108341.jpgsave_picture_108341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108341.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ DarWin - Five Steps On The Sun (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108342.jpgsave_picture_108342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108342.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:B69EC687915CD5476C92255D91ABA6B1E1B72869
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108343.jpgsave_picture_108343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108343.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Guitarbo' - Old Boxer (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108344.jpgsave_picture_108344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108344.jpg" />
 </div>
 
 

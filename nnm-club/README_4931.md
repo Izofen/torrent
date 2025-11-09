@@ -6,7 +6,7 @@ PDF-XChange Editor Plus 10.1.3.383 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154212.jpgsave_picture_154212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154212.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wood Roses - We Call It Maize (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154213.jpgsave_picture_154213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154213.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Method Man - Meth Lab II: The Lithium (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154214.jpgsave_picture_154214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154214.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Emerald Rain - альбомов Discography (1997-2005) [MP3|320 Kbps] <Melodic 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154215.jpgsave_picture_154215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154215.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:52813C6E563CCD6B1F54A33D5053C56CF7D3B521
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154216.jpgsave_picture_154216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154216.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:31E1325B361D2840B382ED6DA0FEBDA28EC3FF50
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154217.jpgsave_picture_154217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154217.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Walletry 2.8.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154218.jpgsave_picture_154218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154218.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154219.jpgsave_picture_154219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154219.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:33818CB5C21C551332B481890E402846B45B4CB0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154220.jpgsave_picture_154220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154220.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:A9FD2FAE2F242D01FFCFC7D8452C77B233AE1A4E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154221.jpgsave_picture_154221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154221.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ PicPick Free+Pro 7.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154222.jpgsave_picture_154222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154222.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Task Office 6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154223.jpgsave_picture_154223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154223.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Badhoven - 3 альбома Discography (2001-2013) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154224.jpgsave_picture_154224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154224.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:27A7E0E48DF996B0E3E6C14F3606C3C63FB6C5EE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154225.jpgsave_picture_154225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154225.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:E56BE6739149541D208737FAE4406E4F53FD2D06
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154226.jpgsave_picture_154226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154226.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:199CFBEEB5984A7FB85B3DC78A7DEBC3BC1DBE10
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154227.jpgsave_picture_154227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154227.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:71380898CEB381DD3528AF50765698B54C9D5D76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154228.jpgsave_picture_154228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154228.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Google Chrome 119.0.6045.160 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154229.jpgsave_picture_154229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154229.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Jan Dylan Hunter - Blues Au Jus (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154230.jpgsave_picture_154230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154230.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossle
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154231.jpgsave_picture_154231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154231.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154232.jpgsave_picture_154232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154232.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:17153EBC5031A330228F7A2506B0A3B2B947AB44
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154233.jpgsave_picture_154233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154233.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:1A15F658526957F439634A3AFBE9CBC59C8171DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154234.jpgsave_picture_154234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154234.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Winter Relaxation, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154235.jpgsave_picture_154235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154235.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Microsoft .NET 8.0.0 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154236.jpgsave_picture_154236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154236.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ HitPaw Watermark Remover 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154237.jpgsave_picture_154237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154237.jpg" />
 </div>
 
 

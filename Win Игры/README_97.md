@@ -6,7 +6,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack FitGirl [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27551.jpgsave_picture_27551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27551.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Catizens (2022) [Ru/Multi] (1.0.r166) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27566.jpgsave_picture_27566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27566.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27567.jpgsave_picture_27567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27567.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27572.jpgsave_picture_27572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27572.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Scorchlands (2023) [Ru/Multi] (1.0.5) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27577.jpgsave_picture_27577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27577.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Symphonia (2024) [Ru/Multi] (1.1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27578.jpgsave_picture_27578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27578.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Scene Rune [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27579.jpgsave_picture_27579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27579.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.419.0/dlc) Repack Wagner [Pre
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27590.jpgsave_picture_27590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27590.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27667.jpgsave_picture_27667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27667.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1272@67558/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27683.jpgsave_picture_27683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27683.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Amazing Cultivation Simulator (2020) [Multi] (1.268-2501211542dev/dlc) License G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27691.jpgsave_picture_27691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27691.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Flooded (2023) [Multi] (1.0.8.3.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27695.jpgsave_picture_27695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27695.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kardboard Kings: Card Shop Simulator (2022) [Ru/Multi] (1.3.25) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27696.jpgsave_picture_27696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27696.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.0.34) Repack EXROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27707.jpgsave_picture_27707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27707.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Mind Echoes: The Lost Mysteries / Эхо разума: Утраченные та
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27726.jpgsave_picture_27726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27726.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack De
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27738.jpgsave_picture_27738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27738.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Rake (2015) [En] (5.0.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27742.jpgsave_picture_27742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27742.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Locks (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27743.jpgsave_picture_27743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27743.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Let's Cook Together 2 (2025) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27745.jpgsave_picture_27745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27745.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.00) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27751.jpgsave_picture_27751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27751.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Backrooms: Mass Extinction (2022) [En] (1.2.2 Beta) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27757.jpgsave_picture_27757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27757.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27760.jpgsave_picture_27760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27760.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27779.jpgsave_picture_27779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27779.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27781.jpgsave_picture_27781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27781.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bulwark Evolution: Falconeer Chronicles (2024) [Ru/Multi] (Build 17334550/dlc) R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27783.jpgsave_picture_27783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27783.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack Wa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27788.jpgsave_picture_27788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27788.jpg" />
 </div>
 
 

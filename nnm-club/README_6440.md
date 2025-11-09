@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204132.jpgsave_picture_204132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204132.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:78C92B6BDA00E4FB77E65B52CE2457C573E520E0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204133.jpgsave_picture_204133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204133.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Nik Complete 5 Collection by DxO v.5.4.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204134.jpgsave_picture_204134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204134.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Shantanu Baruah, Shaurya Baruah | App Development Using iOS iCloud (2023) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204135.jpgsave_picture_204135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204135.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E720D6F984D16FC4E835FF334E50ED7B7C16EB08
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204136.jpgsave_picture_204136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204136.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9AA28AC53A4DCB0CAC846DDC3F927CC619B332EF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204137.jpgsave_picture_204137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204137.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BAEABA446857F4CFF2B65CB59A41A492F8E04997
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204138.jpgsave_picture_204138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204138.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:13CDD7F19F19674524013008700C5F337143DA66
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204139.jpgsave_picture_204139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204139.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:796D729EA8ABC55BC52964ECA8521D1D0103FE90
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204140.jpgsave_picture_204140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204140.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Little Snitch nightly 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204141.jpgsave_picture_204141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204141.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2C08BCD5D7A8FD562613372C832484962AA8D1F0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204142.jpgsave_picture_204142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204142.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Plus Messenger (Telegram+) v10.0.4.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204143.jpgsave_picture_204143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204143.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:8A266C06D42A0D84BAD4BE791BD4E6C6A20DC5A7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204144.jpgsave_picture_204144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204144.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MobaXterm 22.3 build 5024 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204145.jpgsave_picture_204145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204145.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Bernie Marsden - Trios (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204146.jpgsave_picture_204146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204146.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:632DDB30A0FF18AB5BAEA35060E7F07B529B63B0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204147.jpgsave_picture_204147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204147.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ACDSee Photo Studio 9 v.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204148.jpgsave_picture_204148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204148.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:67D0939B9378C9C55972564CD2EE2F16F256F1EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204149.jpgsave_picture_204149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204149.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:005E6609DC910050066C8FF7D92B8F55CE6CBB4C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204150.jpgsave_picture_204150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204150.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:7B5AB88BE1A7A0D92C7DE98360E493A23C9EB75B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204151.jpgsave_picture_204151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204151.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ LibreOffice 7.4.4.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204152.jpgsave_picture_204152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204152.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:0D97C3DBD3EA5F05BD391456CAD4A37E7E1B90C1
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204153.jpgsave_picture_204153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204153.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Topaz Photo AI 1.1.6 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204154.jpgsave_picture_204154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204154.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.0.0 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204155.jpgsave_picture_204155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204155.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:A059DE6E2523F2294271959907C18140F1EE56C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204156.jpgsave_picture_204156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204156.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ DxO PureRAW 2.4.0 build 8 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204157.jpgsave_picture_204157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204157.jpg" />
 </div>
 
 

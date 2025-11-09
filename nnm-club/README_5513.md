@@ -6,7 +6,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170305.jpgsave_picture_170305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170305.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AD9EB109A792B7F470144FADE14A5869310AF263
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170306.jpgsave_picture_170306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170306.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Radiant Photo 1.1.2.324 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170307.jpgsave_picture_170307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170307.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7CFE9622365FA516738809647943E1EF0D0871F9
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170308.jpgsave_picture_170308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170308.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Trance Dance 2022 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170310.jpgsave_picture_170310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170310.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C92BBF53989B61778EA6AD437019F6D080FA2291
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170311.jpgsave_picture_170311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170311.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:1AE38016EB0C08C2038583CDD095A8CF89812BD8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170312.jpgsave_picture_170312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170312.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ DJ Shadow - Action Adventure (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170313.jpgsave_picture_170313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170313.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:87D7CB3367B7BD6DAF56FDF7149D2C0C7A20CCB6
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170314.jpgsave_picture_170314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170314.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:A78CAF760D90C8A52C7E1857B199401D0A10959C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170315.jpgsave_picture_170315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170315.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Hit News Vol. 3 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170316.jpgsave_picture_170316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170316.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:5AD734721E9D4E6ECBA95DE8A9E669AB541731F7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170317.jpgsave_picture_170317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170317.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Гармонь России 2 (2006) [FLAC|Lossless|tracks + .cue] <Фол�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170318.jpgsave_picture_170318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170318.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ V.A. - NOW 100 Hits: Even More Forgotten 80s (2019) 5CD Box Set [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170319.jpgsave_picture_170319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170319.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Macrorit Partition Expert 7.1.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170320.jpgsave_picture_170320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170320.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:11EF40CD49B0E11FEBBD2B5FB080ACD4F37F65E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170321.jpgsave_picture_170321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170321.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:6220C1F4FB1BCBAFD6A8712CE5A510FE1D314BE0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170322.jpgsave_picture_170322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170322.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Art Text 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170323.jpgsave_picture_170323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170323.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:2935A46DB5F81931711E04E2D6A3466BFD24B712
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170324.jpgsave_picture_170324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170324.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:5A67DED26214BBBDBA161D6948DFE0943F6E7B68
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170325.jpgsave_picture_170325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170325.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Photo Supreme 2023.2.0.5078 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170326.jpgsave_picture_170326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170326.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Cisdem DVD Burner 6.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170327.jpgsave_picture_170327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170327.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Reverse Echoes: Ambient Music (2019) [MP3|320 Kbps] <Chillout, Ambient, Dow
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170328.jpgsave_picture_170328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170328.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:3E8019E38B1683E98BF78D5A92AAEE4F821ED351
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170329.jpgsave_picture_170329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170329.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Musical Escape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170330.jpgsave_picture_170330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170330.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:C22B18548C6840F99FE79DFC826328D8CB1A44BB
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170331.jpgsave_picture_170331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170331.jpg" />
 </div>
 
 

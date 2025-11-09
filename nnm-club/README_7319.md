@@ -6,7 +6,7 @@ WhatsApp вслед за Telegram стал предлагать россияна
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250331.jpgsave_picture_250331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250331.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ WhatsApp вслед за Telegram стал предлагать россияна
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250332.jpgsave_picture_250332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250332.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Winxvideo AI 4.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250333.jpgsave_picture_250333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250333.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:14175678EAEA8DF0C48269259A856E43C4F370CD
 >>Юмор
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250334.jpgsave_picture_250334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250334.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Super Mario Bros. Remastered (2025) [Ru/Multi] (1.0.1) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250335.jpgsave_picture_250335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250335.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Knightica (2025) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250336.jpgsave_picture_250336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250336.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Trailer Park Tycoon: Raccoon Ranch (2025) [Ru/En ] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250337.jpgsave_picture_250337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250337.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Roman Triumph: Survival City Builder (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250338.jpgsave_picture_250338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250338.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Those Who Rule (2025) [En] (1.4.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250339.jpgsave_picture_250339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250339.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ The Outer Worlds 2 (2025) [Ru/Multi] (1.0.3.0 Build 20467470/dlc) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250340.jpgsave_picture_250340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250340.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Thief's Shelter (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250341.jpgsave_picture_250341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250341.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250342.jpgsave_picture_250342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250342.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Little Nightmares (2017-2025) [Ru/Multi] (build 19756066/1160/build 20018821/dlc
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250343.jpgsave_picture_250343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250343.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Plus Ultra: Legado (2025) [Ru/Multi] (1.0.11) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250344.jpgsave_picture_250344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250344.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ The Scouring (2025) [Ru/Multi] (02.11.25) Repack R.G. Freedom [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250345.jpgsave_picture_250345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250345.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Painkiller (2025) [Ru/Multi] (224001/dlc) Repack Decepticon
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250346.jpgsave_picture_250346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250346.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack FitGirl [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250347.jpgsave_picture_250347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250347.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250348.jpgsave_picture_250348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250348.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:3DD7D99E1100F7BEB15CDAAEDBAF88258DC0BF40
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250349.jpgsave_picture_250349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250349.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ House Flipper 2 / Хаус Флиппер 2 (2023) [Ru/Multi] (1.10.2/dlc) Repac
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250350.jpgsave_picture_250350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250350.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ The Bench (2025) [Ru/Multi] (Build 20633602) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250351.jpgsave_picture_250351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250351.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ The Remains And The Residue (2025) [Multi] (Build 19745628) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250352.jpgsave_picture_250352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250352.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Asterix & Obelix - Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack Let
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250353.jpgsave_picture_250353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250353.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Wanterlude [Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250354.jpgsave_picture_250354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250354.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Dementium: The Ward (2025) [Multi] (1.1.5) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250355.jpgsave_picture_250355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250355.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Shrine's Legacy (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250356.jpgsave_picture_250356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250356.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16068.jpgsave_picture_16068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16068.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PictureThis - Plant Identification v5.4.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16069.jpgsave_picture_16069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16069.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Daily Yoga (Ежедневная йога) v8.69.00 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16070.jpgsave_picture_16070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16070.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Devin Townsend - The Moth. Live with Noord Nederlands Orkest (2025) WEB-DL [1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16071.jpgsave_picture_16071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16071.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Shazam v15.23.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16072.jpgsave_picture_16072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16072.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:7C52AC5B22C9DE052DB75F63C64469A9C7E0FD4B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16073.jpgsave_picture_16073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16073.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:EDD88EE9942B18EFE2E27F7BF3D109494D14A2E7
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16074.jpgsave_picture_16074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16074.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Excite Audio - Motion Fractal 1.0.0 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16075.jpgsave_picture_16075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16075.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ HiPER Calc Pro v11.1.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16076.jpgsave_picture_16076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16076.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:718970E625270CC8BB8F7F75987C0FD9DFD6D26C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16077.jpgsave_picture_16077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16077.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ TheWaveWarden - Odin 2 2.4.0 VSTi 3, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16078.jpgsave_picture_16078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16078.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:2B0237105B54A48B27DC8E4977E5F15847CA2D0F
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16079.jpgsave_picture_16079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16079.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Joe Yellow - Greatest Hits & Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16080.jpgsave_picture_16080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16080.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:7B7BD76FFB7C86DFFC850C58542B49477859E42A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16081.jpgsave_picture_16081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16081.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Smart AudioBook Player Pro v11.4.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16082.jpgsave_picture_16082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16082.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:28A264FC0656D5588A18FFEA569053888DED5249
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16083.jpgsave_picture_16083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16083.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D4A5ECD16A0609423ADD1E5177D2CEAE0F814072
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16084.jpgsave_picture_16084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16084.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mflex Sounds - Robot Eléctrico (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16085.jpgsave_picture_16085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16085.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mt. Metal - The Metal Gods Demand Sacrifice (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16086.jpgsave_picture_16086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16086.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:53D60DE875DEBD684DFEF06B4CA97E2E751D2291
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16087.jpgsave_picture_16087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16087.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:C5224319DECF1513C3833CA22BF6DC79CDE7912F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16088.jpgsave_picture_16088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16088.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:BAC9A44F623E3850304C77F3A567D1A118F49B1D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16089.jpgsave_picture_16089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16089.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:7BA054A30898A9C3937B07D0D6E16E1EDDF23BE5
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16090.jpgsave_picture_16090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16090.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:412D9AB2AD15D17466996E1442217E489958E928
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16091.jpgsave_picture_16091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16091.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:AD5ED2F3A1B0564CDE02ABFAEF36C259C2662501
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16092.jpgsave_picture_16092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16092.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:2220EF82C563E418E40274A0746EB99A2ED1B3DC
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16093.jpgsave_picture_16093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16093.jpg" />
 </div>
 
 

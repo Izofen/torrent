@@ -6,7 +6,7 @@ VA - Hangover Lounge Grooves, Vol. 2 (2012) [AAC|~314 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243845.jpgsave_picture_243845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243845.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Treponem Pal - Screamers (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243846.jpgsave_picture_243846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243846.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C53946451E02FA3E913226D0E1ABDC9034EFBE06
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243847.jpgsave_picture_243847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243847.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Clouds Of Clarity - Superficial Society (2022) [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243848.jpgsave_picture_243848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243848.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ MediaInfo 23.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243849.jpgsave_picture_243849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243849.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243850.jpgsave_picture_243850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243850.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Summer Light Deep (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243851.jpgsave_picture_243851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243851.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:80AF9B68B872086D934FF274209A91E0F3F0ED78
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243852.jpgsave_picture_243852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243852.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Things 3 v3.17.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243853.jpgsave_picture_243853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243853.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Voelker - How The Other Half Dies (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243854.jpgsave_picture_243854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243854.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.2.0  + Portable  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243855.jpgsave_picture_243855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243855.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Il Caffe Italiano Firenze (Italian Lounge Espresso Music) (2016) [AAC|~318 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243856.jpgsave_picture_243856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243856.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Davvi - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243857.jpgsave_picture_243857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243857.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:714D5BA0004AA2AFB2338435C37567727603A29C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243859.jpgsave_picture_243859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243859.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:FC9A6615E31213089F644C64EDF5D9230CA53B1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243860.jpgsave_picture_243860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243860.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D9C86A750C97724B067FE96BDA457037697905D2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243861.jpgsave_picture_243861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243861.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:CEF289B41D1C920EE9FE5D08C36955F3235C8A7C
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243862.jpgsave_picture_243862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243862.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Data Extractor 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243863.jpgsave_picture_243863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243863.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ SyncBird Pro 3.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243864.jpgsave_picture_243864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243864.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Betelzeus - Shedding the Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243865.jpgsave_picture_243865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243865.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:901B241E32A0E75C37316759929C830B80C6BDA6
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243866.jpgsave_picture_243866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243866.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243867.jpgsave_picture_243867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243867.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ The Swindle (2015) [En] (1.061) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243869.jpgsave_picture_243869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243869.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:FAE9BE56EA1517DD714C29536145FA88CBFA20D9
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243870.jpgsave_picture_243870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243870.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Text Scanner - PDF & Document 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243871.jpgsave_picture_243871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243871.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Hangover Lounge Grooves, Vol. 1 (2012) [AAC|~337 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243872.jpgsave_picture_243872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243872.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206800.jpgsave_picture_206800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206800.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Paint.NET 5.0.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206801.jpgsave_picture_206801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206801.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A7741515964C029E038F9BD68496A153A395B04B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206804.jpgsave_picture_206804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206804.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:AACC412D008566ADD496F98A19B6FB3780F37359
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206807.jpgsave_picture_206807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206807.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Photo Supreme 2023.2.0.4954 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206808.jpgsave_picture_206808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206808.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B4478644FB20412A6305B7E8042DB0E5515D2D0D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206809.jpgsave_picture_206809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206809.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:3FF4AF74B09A8693214DDBBD525F75E82C2A202A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206811.jpgsave_picture_206811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206811.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ HopToDesk 1.40.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206814.jpgsave_picture_206814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206814.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Peggy Lee - The Centenary Albums Collection (1948-1962) 4CD, 2000, Acrobat [MP3|
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206815.jpgsave_picture_206815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206815.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Peggy Lee - I’m A Woman (1963) Expanded Edition, 2023, Capitol Records [MP3|32
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206817.jpgsave_picture_206817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206817.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Franchise Hockey Manager 9 (2022) [En] (9.4.107) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206819.jpgsave_picture_206819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206819.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Firefox Browser 116.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206821.jpgsave_picture_206821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206821.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:8C94B416AAE9CBAE439C40883856600B9CBE48CC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206824.jpgsave_picture_206824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206824.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:35893D919AAF51D6FCA0A0A3433656DD35B5EA91
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206827.jpgsave_picture_206827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206827.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Q-Dir 11.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206829.jpgsave_picture_206829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206829.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:A87D472D86A5F66D8EEDE3F2A32B4AD184FB8DB6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206831.jpgsave_picture_206831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206831.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:DBAB39D59DDD641E2E1A9679C3F783BC0E2FC083
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206834.jpgsave_picture_206834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206834.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:9F70220EE8390AB491B15ECE2B33388F7AC146AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206835.jpgsave_picture_206835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206835.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ GeoGebra 6.0.794.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206837.jpgsave_picture_206837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206837.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:06D19C227490C4D5EC5AAD4339DB91C8E5101F50
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206842.jpgsave_picture_206842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206842.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Internet Download Manager 6.41 Build 18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206845.jpgsave_picture_206845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206845.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:5EFB282CECED6B41B58F362D18C218D02E6E9DE0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206846.jpgsave_picture_206846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206846.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Coffee Talk Episode 2: Hibiscus & Butterfly (2023) [Multi] (1.11) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206848.jpgsave_picture_206848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206848.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Realtek Ethernet Driver 11.25.014 | 10.65 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206850.jpgsave_picture_206850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206850.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ LDPlayer 9.0.55.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206853.jpgsave_picture_206853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206853.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:EC60D042D908C92B0E9C6AFC2A68A14441D5E593
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206856.jpgsave_picture_206856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206856.jpg" />
 </div>
 
 

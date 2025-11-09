@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140296.jpgsave_picture_140296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140296.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5CD558556364D745EE8E1D82496B7F2A39672A36
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140297.jpgsave_picture_140297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140297.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - FreeZone vol. 1-7 (1994-2001) SSR Records [FLAC|Lossless|tracks+.cue]<Downt
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140298.jpgsave_picture_140298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140298.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Huawei предупреждает Google: Мы почти готовы заме�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140299.jpgsave_picture_140299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140299.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Huawei предупреждает Google: Мы почти готовы заме�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140300.jpgsave_picture_140300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140300.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Huawei предупреждает Google: Мы почти готовы заме�
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140301.jpgsave_picture_140301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140301.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:7A327FC890AF15578E82B8E0F2EA38F357B80CC4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140302.jpgsave_picture_140302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140302.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Fantastic Wallpapers (17.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140303.jpgsave_picture_140303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140303.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Radio DFM Top D-Chart Декабрь 2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140304.jpgsave_picture_140304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140304.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:82CB7C8616335E48CED0CC73FC44BBA4499E2896
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140305.jpgsave_picture_140305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140305.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Gov't Mule - Time Of The Signs (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140306.jpgsave_picture_140306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140306.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Mirillis Splash Premium v2.2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140307.jpgsave_picture_140307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140307.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:1FBFEA1EE8547899A7E56AC62903081C8B1AE9C3
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140308.jpgsave_picture_140308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140308.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ MindManager 2020 20.0.334 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140311.jpgsave_picture_140311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140311.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Revo Uninstaller Pro 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140312.jpgsave_picture_140312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140312.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Nektar - Remember The Future (1973) 50th Anniversary Edition, 2023, Esoteric [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140314.jpgsave_picture_140314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140314.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ EZ CD Audio Converter 1.0.3 Ultimate [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140315.jpgsave_picture_140315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140315.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Sabayon 17.01 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140316.jpgsave_picture_140316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140316.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140317.jpgsave_picture_140317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140317.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:40B2302EA03319770B77E619C6A9E5D88ED1F6CC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140318.jpgsave_picture_140318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140318.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:F783C8194246B1F9BD167F185175A1FB5CE8CF45
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140319.jpgsave_picture_140319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140319.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Space Wallpapers (17.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140321.jpgsave_picture_140321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140321.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:F1C739DDEA8E12B0958E7922EE0A6C851785B8E5
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140322.jpgsave_picture_140322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140322.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:184411642C41144FDEEADD8C451624749789D605
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140323.jpgsave_picture_140323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140323.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:C25C6C703055C697E04428A6BF2258CDD77ADEA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140324.jpgsave_picture_140324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140324.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Araxis Merge 2016.4801 Repack by Alex Zaguzin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140325.jpgsave_picture_140325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140325.jpg" />
 </div>
 
 

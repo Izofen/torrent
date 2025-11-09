@@ -6,7 +6,7 @@ VA - House Radio 2022 - The Ultimate Collection #5 (2022) CD, Compilation [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179367.jpgsave_picture_179367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179367.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ StartAllBack 3.6.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179370.jpgsave_picture_179370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179370.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - House Radio 2022 - The Ultimate Collection #4 (2022) CD, Compilation [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179371.jpgsave_picture_179371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179371.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ruben Hoeke Band - Reloaded (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Cl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179372.jpgsave_picture_179372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179372.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft PowerToys 0.74.1 Portable by FC Portables [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179374.jpgsave_picture_179374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179374.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Enterclass, Сергей Курбатов | Зеленый цвет в пейз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179377.jpgsave_picture_179377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179377.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - House Radio 2022 - The Ultimate Collection (2022) CD, Compilation [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179379.jpgsave_picture_179379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179379.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:8377ACB2EC0199D09D5E0ACA7110D50CC79484C4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179382.jpgsave_picture_179382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179382.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:FA3F8F3E7E16038CCE120A1C3137653F28D0BEF9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179383.jpgsave_picture_179383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179383.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ IcoFX 3.9 Home, Business, Site [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179385.jpgsave_picture_179385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179385.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:7AD13E1311909EDD60B021653EE587CF2C84E23C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179386.jpgsave_picture_179386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179386.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:9BB71C3CBC33193D8D3F752EB64888F639E0B37E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179389.jpgsave_picture_179389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179389.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:FD57BA4974B6C9C1B6EAAC874937BA5C8B777306
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179391.jpgsave_picture_179391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179391.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Dav Dralleon - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179394.jpgsave_picture_179394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179394.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Udemy, The Full Upgrade | Circadian Rhythm - Boost Energy, Focus, Sleep & more (
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179395.jpgsave_picture_179395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179395.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ PicPick Free+Pro 7.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179397.jpgsave_picture_179397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179397.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - House Radio 2022 - The Ultimate Collection #3 (2022) CD, Compilation [MP3|3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179398.jpgsave_picture_179398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179398.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Google Chrome 117.0.5938.150 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179400.jpgsave_picture_179400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179400.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Czyszy - Scent Emmental (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179401.jpgsave_picture_179401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179401.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C54D0B3FF9A0C54169306D3976514D1520E32BA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179403.jpgsave_picture_179403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179403.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ NetLimiter 5.3.4.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179404.jpgsave_picture_179404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179404.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ The Rev Douglas - Do You Have the Blues or Do the Blues Have You (2022) [FLAC|Lo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179405.jpgsave_picture_179405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179405.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ NoMachine 8.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179407.jpgsave_picture_179407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179407.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:5B0094381807DD9CA102B3DD39A18892B747349F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179409.jpgsave_picture_179409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179409.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Furio Chirico's The Trip - Equinox (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179410.jpgsave_picture_179410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179410.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ IcoFX 3.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179412.jpgsave_picture_179412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179412.jpg" />
 </div>
 
 

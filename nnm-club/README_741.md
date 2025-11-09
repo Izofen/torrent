@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19592.jpgsave_picture_19592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19592.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19593.jpgsave_picture_19593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19593.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Zen Life: игры с плитками v3.258 Mod by Viktorovich31 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19594.jpgsave_picture_19594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19594.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1CF4D0AC2E560B45827A2AB7545DF8347466F495
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19595.jpgsave_picture_19595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19595.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Food.ru: пошаговые рецепты v02.02.00 Mod by vadj [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19596.jpgsave_picture_19596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19596.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:CBECBD5390C59A770F244C40DAE58091482C9956
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19597.jpgsave_picture_19597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19597.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Ascold Flow | Цикл "Граф Берестьев" [Законы рода] (20
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19598.jpgsave_picture_19598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19598.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0307875E5D46E6C364219FF5FFDE53D76ADDC4D1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19599.jpgsave_picture_19599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19599.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:721753C92EE5049483F5CF17FE0500BAFEC2703E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19600.jpgsave_picture_19600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19600.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:49E2678E0A820F33A597A90A42B4B4C1AAD08713
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19601.jpgsave_picture_19601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19601.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A1F64E64B8B52FB54458EA0D2B4CC43318BFFD3B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19602.jpgsave_picture_19602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19602.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1EEDE718945007E798CD761BE8FEDA48A0129BD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19603.jpgsave_picture_19603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19603.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:20B95FF4B7072B1B440BC907ED13D2617C521692
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19604.jpgsave_picture_19604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19604.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Space Grunts 2 (2019) [En] (2.0.1b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19605.jpgsave_picture_19605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19605.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DCBEF670BC2A125A2EFE529F63E7960BA7950FC1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19606.jpgsave_picture_19606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19606.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:E93E67615E9BD6A187A8129970642148147F011F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19607.jpgsave_picture_19607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19607.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:4BEEC3B6EB64EC9DCC3C80B9D88955A015904BF3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19608.jpgsave_picture_19608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19608.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:F17C4E77D26655680AE075DF7FD434C4B1DF5C7C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19609.jpgsave_picture_19609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19609.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:00C4E47B5F8E6180B77171E26F2DB2BABC347723
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19610.jpgsave_picture_19610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19610.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:BB404B043E8B3CCA94AF78C168DCD591A6E0CF2E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19611.jpgsave_picture_19611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19611.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:E401A764A1E8208B9D098DBBD0D12C4E42CC11C3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19612.jpgsave_picture_19612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19612.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Internet Download Manager 6.42 Build 35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19613.jpgsave_picture_19613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19613.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:613A889E05FDC3E4FB325439AA59234AE313B24E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19614.jpgsave_picture_19614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19614.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:C364D049D32A1DFB87962549F11E15CCE95B3ED4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19615.jpgsave_picture_19615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19615.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19616.jpgsave_picture_19616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19616.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Display Driver Uninstaller 18.1.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19617.jpgsave_picture_19617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19617.jpg" />
 </div>
 
 

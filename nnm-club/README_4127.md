@@ -6,7 +6,7 @@ Malwarebytes Windows Firewall Control 6.9.9.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127877.jpgsave_picture_127877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127877.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MEmu 9.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127878.jpgsave_picture_127878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127878.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ StartAllBack 3.7.2 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127879.jpgsave_picture_127879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127879.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Air: Большой прыжок / Air (2023) BDRip [MVO]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127880.jpgsave_picture_127880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127880.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:75E62131D3356FE62BA64E3351C45DFDD1715A78
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127881.jpgsave_picture_127881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127881.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ R-Drive Image System Recovery Media Creator 7.1 Build 7111 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127882.jpgsave_picture_127882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127882.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Doom отмечает 30 лет: как игра завоевала сердца
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127883.jpgsave_picture_127883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127883.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Doom отмечает 30 лет: как игра завоевала сердца
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127884.jpgsave_picture_127884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127884.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8B3AE0496378356CBE03148A19A50A89D44A0FC2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127885.jpgsave_picture_127885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127885.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:B694981A77D6181ED181B1A5ED7A53BAB395DCF0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127886.jpgsave_picture_127886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127886.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:51085E927FEC53C007A649D75E38AFD1AE4CBA64
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127887.jpgsave_picture_127887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127887.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:26A0DA1D533C7AFE97C7B978FC737192D1B5789B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127888.jpgsave_picture_127888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127888.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:29E09821B1FB3588B28A009569AB194F27710A02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127889.jpgsave_picture_127889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127889.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:1C4D31D4F17E16DE1CDF1F90552FE31750D140E3
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127890.jpgsave_picture_127890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127890.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E40B87F1EC4263D317A888B390D1FB314FC431CE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127891.jpgsave_picture_127891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127891.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6BC541FE398D903A73A0045F4D3D23BF827CBFC0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127892.jpgsave_picture_127892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127892.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Capture One 23 Enterprise 16.3.3.1813 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127893.jpgsave_picture_127893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127893.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:877CB9DD94B28A93A1BE46AE8DF14BE25E114F34
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127894.jpgsave_picture_127894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127894.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C6709541162A5E1CED3A532A1CE04FC3B2A5AE2F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127895.jpgsave_picture_127895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127895.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:27FE826F54A95B068ACDC2C41E4869B6E1022805
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127896.jpgsave_picture_127896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127896.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Far Manager 3.0.6226 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127897.jpgsave_picture_127897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127897.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:7D1753814F2BC19F7C5AF487A153A29A30E2B95A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127898.jpgsave_picture_127898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127898.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:7D1753814F2BC19F7C5AF487A153A29A30E2B95A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127899.jpgsave_picture_127899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127899.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:1AEA526CA8AEF3AEFCBD83A709E3162178722C18
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127900.jpgsave_picture_127900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127900.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Cookie Cutter (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127901.jpgsave_picture_127901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127901.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FB92A107323DF0677FD58468DC09F09B950B6E03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127902.jpgsave_picture_127902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127902.jpg" />
 </div>
 
 

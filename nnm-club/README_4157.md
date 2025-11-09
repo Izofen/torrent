@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128679.jpgsave_picture_128679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128679.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:7EAB250009AAE9A3105994D5707EA737BE791D8F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128680.jpgsave_picture_128680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128680.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ VA - Sister Bossa Vol. 11 (Cool Jazzy Cuts With A Brazilian Flavour) (2023) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128681.jpgsave_picture_128681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128681.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:CD5261E1667D1C49C2095681BEC480288AA24BF7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128682.jpgsave_picture_128682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128682.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:1661C4AF9D50733A5515BDFE02368A1D64069604
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128683.jpgsave_picture_128683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128683.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Big Big Train - Ingenious Devices (2023) [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128684.jpgsave_picture_128684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128684.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:86863A9A29E18D35D58EB0DE5325F07CF2DDBCDF
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128685.jpgsave_picture_128685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128685.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:E6F3A76D64C34186E6AAC8CECE618F9DE5714DA2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128686.jpgsave_picture_128686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128686.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:5966B9447512310D1797AED85BEA205C961FB8C9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128687.jpgsave_picture_128687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128687.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Ramsey Lewis - The Beatles Songbook: The Saturday Salon Series, Vol. 1 (2022) St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128688.jpgsave_picture_128688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128688.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ McCoy Tyner - The Impulse Albums Collection (1961 - 1964) 4CD, 2022, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128689.jpgsave_picture_128689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128689.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:B53EFF49F67A4BEF3E298F0D00E0A44F6E45A728
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128690.jpgsave_picture_128690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128690.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Jeff McMillan - I Wish You Would (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128691.jpgsave_picture_128691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128691.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:5757BCF73729BF2F1A08E4F15EE1C72BCE9F8DCB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128692.jpgsave_picture_128692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128692.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:5DECA7194233A3ABC2F58AE42F844C38A72EAECD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128693.jpgsave_picture_128693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128693.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128694.jpgsave_picture_128694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128694.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:3DF9AA9B5CDEB7FB8AAD5EBB827D89CC645FB46D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128695.jpgsave_picture_128695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128695.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:85E2EF5B5106A85961C69120398143B46155D9DF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128696.jpgsave_picture_128696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128696.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ The Woodleigh Research Facility - Phonox Nights (2023) [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128697.jpgsave_picture_128697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128697.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E1B0085E95E18A627CB580BC64045A6A45410EDF
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128698.jpgsave_picture_128698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128698.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:0E001E16D59BA2B0343D769F157265F13FB1BF5D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128699.jpgsave_picture_128699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128699.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Alison Goldfrapp - The Love Reinvention (2023) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128700.jpgsave_picture_128700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128700.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Soul Browser 1.3.92 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128701.jpgsave_picture_128701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128701.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:44A4DD3991D0BE0C3CE0BEA773F6F2B251C74CD3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128702.jpgsave_picture_128702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128702.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Best Emotional Sax Colletion (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128703.jpgsave_picture_128703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128703.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Speedtest от Ookla 5.2.4 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128704.jpgsave_picture_128704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128704.jpg" />
 </div>
 
 

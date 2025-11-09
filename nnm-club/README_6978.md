@@ -6,7 +6,7 @@ RTG. Императорский фарфоровый завод (2009) TVRip
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239585.jpgsave_picture_239585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:24646B8C5AD22BE9888862C896374A003ED061CC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239586.jpgsave_picture_239586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239586.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9D5B4E10DA4AAA824D83498E12B41AAFFBEFC7E2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239587.jpgsave_picture_239587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239587.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Netler 2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239588.jpgsave_picture_239588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239588.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Harry James - 1937 - 1939 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239589.jpgsave_picture_239589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239589.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:19C3C1F323274EC30A05E5C3F64951C3068AF809
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239590.jpgsave_picture_239590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239590.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Perfectly Clear WorkBench 4.4.0.2496 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239591.jpgsave_picture_239591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239591.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Cinemagraph Pro 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239592.jpgsave_picture_239592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239592.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:DAF53EB09E9A2ACB77C3B9A96ED727C0767EF1B0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239593.jpgsave_picture_239593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239593.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:11C1EA2D91470674BA12B381E84BEC69C52E2483
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239594.jpgsave_picture_239594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239594.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:5929465B013E2F2B6554D13E78404C0BE043DB9C
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239595.jpgsave_picture_239595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239595.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:771B9B375ABBB769EB3E8EF1F8D4B8CF66C151D1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239596.jpgsave_picture_239596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239596.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Muggsy Spanier - 1939 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239597.jpgsave_picture_239597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239597.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Mysterium - Soulwards (2003) [FLAC|Lossless|image + .cue] <Dark Doom Metal, Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239598.jpgsave_picture_239598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239598.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:E6A7B4690A0BFE0149B8A47A52174EFE2E48BDBC
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239599.jpgsave_picture_239599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239599.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Microsoft Windows 10.0.19044.2846, Version 21H2 (Updated April 2023) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239600.jpgsave_picture_239600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239600.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ John Haydock - Straight Line on a Curved Road (2023) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239601.jpgsave_picture_239601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239601.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:9F7DB13AB10C40BA5539C5AABD88A70EF3EDCFEA
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239602.jpgsave_picture_239602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239602.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ RTG. Летний отдых в Анапе (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239603.jpgsave_picture_239603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239603.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ GraphicConverter 11 v11.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239604.jpgsave_picture_239604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239604.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Macabre - Carnival Of Killers (2020) [FLAC|Lossless|image + .cue] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239605.jpgsave_picture_239605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239605.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:A657ACC01FA4784FD28FA1B0A899929162EE05B8
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239606.jpgsave_picture_239606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239606.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Yate 6.4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239607.jpgsave_picture_239607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239607.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:7E147DD5BE2B74A653CCBBDCAB8C540717D2FBD6
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239608.jpgsave_picture_239608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239608.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239609.jpgsave_picture_239609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239609.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:C1DFDED1CBFDF789F6758BB82457692E1DFC5D31
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239610.jpgsave_picture_239610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239610.jpg" />
 </div>
 
 

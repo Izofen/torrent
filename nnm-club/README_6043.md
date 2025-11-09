@@ -6,7 +6,7 @@ Bazaart: Photo Editor & Graphic Design v2.2.6 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190115.jpgsave_picture_190115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190115.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EB5917C1981920FA9C86F1A6212FBBE215D4F919
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190116.jpgsave_picture_190116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190116.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F6669AA5CE2F3143EBD46F00BD19FD8BF357B16F
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190117.jpgsave_picture_190117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190117.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ James Blake - Playing Robots Into Heaven (2023) [FLAC 24/96|WEB-DL|tracks] <Elec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190118.jpgsave_picture_190118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190118.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Jerry Lee Lewis - Killer In Stereo: Good Rockin' Tonight (1969) (Remastered 2023
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190121.jpgsave_picture_190121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190121.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F52E08BCC090B639AB488A8D543FF7D8D568FEFB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190123.jpgsave_picture_190123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190123.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Laufey - Bewitched (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190125.jpgsave_picture_190125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190125.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:93152E337F2DFD3D6A4510F82E41964C665EBB9A
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190127.jpgsave_picture_190127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190127.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:587525183A0EFC83552312E32DB5AAA97E09CCDA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190129.jpgsave_picture_190129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190129.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Live Wallpaper & Themes 4K Pro 18.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190131.jpgsave_picture_190131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190131.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:C8478AB8D88A5D858CE9144FC8F2094B8F7D8B1C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190134.jpgsave_picture_190134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190134.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Capture One Pro 22 16.0.0.143 Portable by conservator [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190135.jpgsave_picture_190135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190135.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:0F069CDDF9505B739D04B3BB4FBB1B1E9BC6176E
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190137.jpgsave_picture_190137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190137.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Puddle of Mudd - Ubiquitous (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190138.jpgsave_picture_190138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190138.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:BF863A539043194520AF0CA871EC15DA58188A0C
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190142.jpgsave_picture_190142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190142.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Abelssoft SSD Fresh Plus 2022 11.11.42432 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190145.jpgsave_picture_190145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190145.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ DMG Canvas 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190146.jpgsave_picture_190146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190146.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:2C44EA91BCE40A2CA6A759630B8281FA152CC803
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190148.jpgsave_picture_190148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190148.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Dynamic Wallpaper Engine 15.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190150.jpgsave_picture_190150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190150.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:CC357F2B67919CC3A21A4EF4CABEE21E0C074EFA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190151.jpgsave_picture_190151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190151.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:FBB9BAF408B1333652A9B903A17630C3FD36DD51
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190153.jpgsave_picture_190153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190153.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Pixelmator Pro 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190154.jpgsave_picture_190154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190154.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:B53B1263DB3E2469B17F7FA5D4D91EC3DF5B4E28
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190155.jpgsave_picture_190155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190155.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:A4686548B930EF4E4B43B44ACF3C96F3A7C5D65A
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190156.jpgsave_picture_190156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190156.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:C0712D1111D9F2E9D8F7938164B0D2DA19815EED
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190157.jpgsave_picture_190157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190157.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Osaka Punch - Mixed Ape (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190158.jpgsave_picture_190158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190158.jpg" />
 </div>
 
 

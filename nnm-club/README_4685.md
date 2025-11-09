@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146659.jpgsave_picture_146659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146659.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:76C405CD1C8CCB883E626DAF86216B5713213877
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146660.jpgsave_picture_146660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146660.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3BDDBCA41DA2FA2800FD36DB00D0EEF5CCD1656E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146661.jpgsave_picture_146661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146661.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:134B9872195F1C0AC3FD8CA9D9D365B53AD37318
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146662.jpgsave_picture_146662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146662.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Gilrs Wallpaper Collection (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146663.jpgsave_picture_146663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146663.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:2C60834CBD647E1CE4B79927BBCC734AFEDAEFEA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146664.jpgsave_picture_146664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146664.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0536B2927519616651657CD6378F0494B05750D4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146665.jpgsave_picture_146665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146665.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ PortableApps.com Platform 19.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146666.jpgsave_picture_146666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146666.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Карнавал Русских Новинок (2013) [MP3|256 кб/с]<Pop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146667.jpgsave_picture_146667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146667.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Noire Antidote - I Know Where The Wolf Sleeps (2016) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146668.jpgsave_picture_146668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146668.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:A7E20DC506D43093AB70A720E108F504E10EACE7
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146669.jpgsave_picture_146669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146669.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:9D0AE1ABC034BBE2735D2CF084124A6D0B7F3718
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146670.jpgsave_picture_146670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146670.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:1C29804E5945869E9F462FB1D1085C186074E4D0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146671.jpgsave_picture_146671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146671.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Butterfly - Favorite Colors 062: Top 10 (15.12.2012) [MP3|320 кб/с]<Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146672.jpgsave_picture_146672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146672.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ ClamXav v2.11 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146673.jpgsave_picture_146673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146673.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Uranium Backup 9.6.8.7229 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146675.jpgsave_picture_146675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146675.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:13C481200CB0E64CBDFEE38EE9A316A8A4D3298D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146676.jpgsave_picture_146676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146676.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:7329EF93CC404AF1C35B94C5189E0E0A25201859
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146677.jpgsave_picture_146677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146677.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:52DFE4989DE636A608EC135412F1EA2043CD8AC5
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146678.jpgsave_picture_146678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146678.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E4B4E96FEB69DDD8C4F3FC4C6976442184F972D8
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146679.jpgsave_picture_146679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146679.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Erzengel - 3 Albums (2019-2020) [MP3|320 Kbps] <NDH, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146680.jpgsave_picture_146680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146680.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Nature Wallpapers (14.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146681.jpgsave_picture_146681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146681.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Liebe - Revolution Of Love (2016) [FLAC|Lossless|image + .cue] <Synthpop, New Wa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146684.jpgsave_picture_146684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146684.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Skrillex & Diplo - Skrillex and Diplo Present Jack U (2015) [FLAC|Lossless|Web-D
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146685.jpgsave_picture_146685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146685.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:624808470ECDC065C45BDBD8F89FEF6AB0E2F1D6
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146686.jpgsave_picture_146686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146686.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:B29ACB6B79D0F24F4295365676CCA15D28DE803D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146687.jpgsave_picture_146687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146687.jpg" />
 </div>
 
 

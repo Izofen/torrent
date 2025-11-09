@@ -6,7 +6,7 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42763.jpgsave_picture_42763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42763.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Huseyin Babal | gRPC Microservices in Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42764.jpgsave_picture_42764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42764.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A307F8546003AD7BB4D515BBBE07444F8BDAFD1A
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42765.jpgsave_picture_42765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42765.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D8D697A6BE6CD0223627837B29D118146B05AA2A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42766.jpgsave_picture_42766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42766.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Autumn Dance Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42767.jpgsave_picture_42767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42767.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VueScan Pro 9.8.36.17 RePack (& Portable) by elchupacabra (DC 2024.09.21) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42768.jpgsave_picture_42768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42768.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Garlant: My Story (2024) [Multi] (1.1.0.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42769.jpgsave_picture_42769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42769.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Castle of Lord Velimir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42770.jpgsave_picture_42770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42770.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:501261B467FE409FB05E258542882ABE30BE1D5F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42771.jpgsave_picture_42771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42771.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:BAD383CD5DAE8ACC245B4A171595D64C7175FF1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42772.jpgsave_picture_42772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42772.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Maneskin - Коллекция (2017-2024) [MP3|320 Kbps] <Rock, Pop-Rock, Glam R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42773.jpgsave_picture_42773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42773.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:CE1384A70DC3CECB3AF99ACCC8902B61A364CB33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42774.jpgsave_picture_42774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42774.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VTuber Nanda ga Haishin Kiriwasuretara Densetsu ni Natteta / Легенда о �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42775.jpgsave_picture_42775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42775.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Isekai Yururi Kikou: Kosodate Shinagara Boukensha Shimasu | Iseyuru | Прикл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42776.jpgsave_picture_42776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42776.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:798332A3B5171C4C7FA7B37AD91712D336919CAC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42777.jpgsave_picture_42777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42777.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:4E4955675B2FE15EBCA87590A3C84A16DC781A8C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42778.jpgsave_picture_42778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42778.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:809E3F45A99ACD0C4BD579B438D40B63FCE52B27
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42779.jpgsave_picture_42779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42779.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:A0B446EC68E42AB67068B0C19631B8A34D0C57EA
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42780.jpgsave_picture_42780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42780.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42781.jpgsave_picture_42781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42781.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ AI ChatBot AI Friend Generator v3.0.8.1 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42782.jpgsave_picture_42782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42782.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Nanare Hananare / Narenare: Cheer for You! / Слушайте Хананарэ [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42783.jpgsave_picture_42783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42783.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:4689AF3735B7BBF9AB3C6B1EAB536AA0C620367F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42784.jpgsave_picture_42784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42784.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:52AEE04C85A8C258EA8615F1D3FC36B8781512D4
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42785.jpgsave_picture_42785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42785.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:0AED291A83B2D9D5123FC391BBBCA82CD2A928CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42786.jpgsave_picture_42786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42786.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:CE793D44D9E555B0CA8829FA2D1DE1E46AB825C6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42787.jpgsave_picture_42787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42787.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:8EFBCDEA0812C5E3DAA5A9CA0E0A7A411E25A852
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42788.jpgsave_picture_42788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42788.jpg" />
 </div>
 
 

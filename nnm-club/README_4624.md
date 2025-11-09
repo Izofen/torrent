@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144736.jpgsave_picture_144736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144736.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144737.jpgsave_picture_144737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144737.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ BELOFF [dp] 2019.12.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144738.jpgsave_picture_144738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144738.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:84811CE39DE965EDA4E95E6CAD73914EF918D088
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144739.jpgsave_picture_144739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144739.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Bzzzt (2023) [Multi] (1.001) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144741.jpgsave_picture_144741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144741.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Yate 6.2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144743.jpgsave_picture_144743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144743.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:CAB1A795431FACEE02E7D7030FBA8AB62D2B82D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144744.jpgsave_picture_144744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144744.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:5F477D788ABC6DE9EF1B2FE0947B2B1819363D1C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144747.jpgsave_picture_144747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144747.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Tiesto - AFTR:HRS (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144748.jpgsave_picture_144748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144748.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:A30162082D2B0D0BE008A5335BED17AE962DCA4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144749.jpgsave_picture_144749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144749.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:A859E93A8F95C5E25174AC24B1057579E31D41A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144750.jpgsave_picture_144750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144750.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Barton Lynch Pro Surfing (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144751.jpgsave_picture_144751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144751.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:3F0170E84FD7415B3C92D5B2C61017145FA71E10
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144752.jpgsave_picture_144752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144752.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:98526890692E640ABB1E522505F05FDAE74137A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144753.jpgsave_picture_144753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144753.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:218AE4AFC14941F68374EB1B6F9A7D680F245F4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144755.jpgsave_picture_144755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144755.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:D7408AC51D1C847FC23DB0428F9CD4DFB25B7729
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144757.jpgsave_picture_144757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144757.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Journal - Simple and Elegant Diary 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144758.jpgsave_picture_144758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144758.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:2655286657873F57AEFE32F8057A71E9BAC369EA
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144760.jpgsave_picture_144760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144760.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:84289CAB696C985243C02D58EF7C8D8899D250ED
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144761.jpgsave_picture_144761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144761.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Stellarium 0.15.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144762.jpgsave_picture_144762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144762.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:AFA550757A10A8924680D5125CF5D89539BCB34B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144763.jpgsave_picture_144763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144763.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:E4B60FEC97413DC3B3EF9E4D9DDE8C4A198E32B9
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144764.jpgsave_picture_144764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144764.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:04E1660228B37370F1B9B7665F068A7F6FBF45B4
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144766.jpgsave_picture_144766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144766.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Gears 5 (2019) [Ru/Multi] (1.1.97.0/dlc) Repack xatab [Ultimate Edition]
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144767.jpgsave_picture_144767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144767.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ iDeer Blu-ray Player 1.11.7.2128 RePack (& Portable) by AlekseyPopovv [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144768.jpgsave_picture_144768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144768.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ NoteBooks 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144769.jpgsave_picture_144769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144769.jpg" />
 </div>
 
 

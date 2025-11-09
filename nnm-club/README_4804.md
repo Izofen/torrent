@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150337.jpgsave_picture_150337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150337.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Athentech Perfectly Clear Complete 3.6.3.1392 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150338.jpgsave_picture_150338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150338.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2BE0F01C92399DB8757A71C340DDED69791C7FD6
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150339.jpgsave_picture_150339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150339.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Comedy Woman. Лучшее  (2015.12.25) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150340.jpgsave_picture_150340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150340.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Firehouse - Collection (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150341.jpgsave_picture_150341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150341.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:A00315206AE9089CDEEED58066F1052EC4278003
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150342.jpgsave_picture_150342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150342.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:BE03C13ECD3C90463905A6729AA42039FBCF648C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150343.jpgsave_picture_150343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150343.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:2112AA8AE043A1BFCE1B1D8F93C04186ED6CF856
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150344.jpgsave_picture_150344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150344.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:F00C112C0E2E8F21501C08D324EE1E524E283C6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150345.jpgsave_picture_150345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150345.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:51CFD46CFF93C5126EED40EA6A393E65CC347815
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150347.jpgsave_picture_150347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150347.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Steyoyoke Gems Nocturnal 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150348.jpgsave_picture_150348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150348.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EC6DE866610FD2FC75809BA4622485E4334AAFC1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150349.jpgsave_picture_150349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150349.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Adobe Systems Incorporated | Руководство пользователя Ado
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150350.jpgsave_picture_150350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150350.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Marked 2 v2.5.9
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150351.jpgsave_picture_150351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150351.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ MudRunner Mobile v1.3.0.8633 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150352.jpgsave_picture_150352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150352.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:55081B8931B1D82F80F9266DB351BD11C431C9C8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150354.jpgsave_picture_150354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150354.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - The Soundplate 2016 Collection (2016) [MP3|320 Kbps] <Electronic, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150357.jpgsave_picture_150357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150357.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Gorky Park - Moscow Calling (1992) Denmark [FLAC 2.0 24/192|image (Vinyl-Rip)]<H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150358.jpgsave_picture_150358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150358.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150359.jpgsave_picture_150359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150359.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Steyoyoke Gems Solar 05 (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150360.jpgsave_picture_150360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150360.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:372A902CC1F89EA25154EE606C7F44B737CC1426
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150361.jpgsave_picture_150361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150361.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ iShowU Studio 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150364.jpgsave_picture_150364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150364.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:BD67F46F759A2739CE6292E061A8983B489302F2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150365.jpgsave_picture_150365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150365.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:7795A28963956CDB93D224D680A41DD6FEB2B026
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150367.jpgsave_picture_150367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150367.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Moon+ Reader Pro v8.6 (build 806000) Mod by Balatan, derrin,  Lucky Las [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150369.jpgsave_picture_150369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150369.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F0CD222CA8170DB27841190A6EFECD757931C0F2
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150370.jpgsave_picture_150370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150370.jpg" />
 </div>
 
 

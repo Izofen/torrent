@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185997.jpgsave_picture_185997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185997.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9DF5B467088DE15B2EE9697A0EAAC8151D565BCA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186002.jpgsave_picture_186002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186002.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7CEC584236F1B7FB160CC4DF37D4E460C2BD9C64
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186005.jpgsave_picture_186005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186005.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Raspy Junker - Bad Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal / Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186007.jpgsave_picture_186007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186007.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C20402BC10A85F937408A4C1A355D02E01148316
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186011.jpgsave_picture_186011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186011.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Ignea - Dreams of Lands Unseen (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186013.jpgsave_picture_186013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186013.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:7167237D3101E63617E911A3D5CA72156229313C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186017.jpgsave_picture_186017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186017.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2EADFCC60A8281E7ED656D01B2E671C22304DFDC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186020.jpgsave_picture_186020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186020.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:B6619EE00205F2EB396B96A9FE1A2A640EB562E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186023.jpgsave_picture_186023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186023.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186025.jpgsave_picture_186025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186025.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Hax - Wives with Knives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186028.jpgsave_picture_186028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186028.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Lieder Distortion - The Age of Art (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186032.jpgsave_picture_186032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186032.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Doris Melton - Reflected Perspective (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186035.jpgsave_picture_186035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186035.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Lost Romantic - LovexHate (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186038.jpgsave_picture_186038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186038.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:403792A0B7A9E9005728AB56B99BA287A7F7680E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186040.jpgsave_picture_186040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186040.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186044.jpgsave_picture_186044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186044.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Dead Feathers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186046.jpgsave_picture_186046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186046.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Rene Marie - Vertigo (2001) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186050.jpgsave_picture_186050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186050.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186053.jpgsave_picture_186053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186053.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186055.jpgsave_picture_186055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186055.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Paquito D'Rivera - Este Camino Largo (1978) 2002, Yemaya Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186057.jpgsave_picture_186057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186057.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:5502108C575D580404089AD010F1A3F17FB772E9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186061.jpgsave_picture_186061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186061.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Ataraxie - Live Doomination (2003) Demo [FLAC|Lossless|image + .cue] <Funeral Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186064.jpgsave_picture_186064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186064.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Bhargest - Ritual of Death (2017) [FLAC|Lossless|image + .cue] <Doom, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186068.jpgsave_picture_186068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186068.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:C9896F2F2BBD3D01F0CC1FF4F7D2511B7F8F603B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186072.jpgsave_picture_186072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186072.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:8AA7055131B70215DB9E66E4D5E07858F35531DC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186073.jpgsave_picture_186073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186073.jpg" />
 </div>
 
 

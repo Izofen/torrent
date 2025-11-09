@@ -6,7 +6,7 @@ Mars First Logistics (2025) [Ru/Multi] (Build 20566341) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246260.jpgsave_picture_246260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246260.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246261.jpgsave_picture_246261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246261.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246262.jpgsave_picture_246262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246262.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8052F931CDC693B03AAA862CBC920A4F2AE57ECE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246263.jpgsave_picture_246263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246263.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246264.jpgsave_picture_246264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246264.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:010049A27EFC70C69FA95D15A14C5DDE36C2CA98
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246265.jpgsave_picture_246265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246265.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:C5681863FE5EBEBDDF4E9A9837B98CD1EEF75997
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246266.jpgsave_picture_246266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246266.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ PowerISO 9.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246267.jpgsave_picture_246267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246267.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:58E771F6B1294AE91FBE6A6713186BA91CB1072E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246268.jpgsave_picture_246268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246268.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7A9363D7A7867008B27700AF27B8FACD248ADD8A
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246269.jpgsave_picture_246269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246269.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:70875AECEA999B871C4E7566F21C9E20B9FA783D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246270.jpgsave_picture_246270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246270.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:0900CB77FE695F07F155EA5F320EA459FE2FFFB9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246271.jpgsave_picture_246271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246271.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:0E6546A16C153F1070139C3F00AC336CFC529510
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246272.jpgsave_picture_246272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246272.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:982870974902B65E0B96F63A4BFF3AB37DCBBD41
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246273.jpgsave_picture_246273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246273.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:B55704CE15E5D9243F2B1B8B12EB6598212961FC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246274.jpgsave_picture_246274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246274.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D5D5E594B299CEBA177788418F2E17ABD8CE73A4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246276.jpgsave_picture_246276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246276.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:450FD07E19843FA9591485042F6E1456026417E5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246278.jpgsave_picture_246278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246278.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:69B9FAD31C13894662D3EACECC5B422132390FF2
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246280.jpgsave_picture_246280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246280.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:E3BA6FF40B9157E6DE849627D11E1FFF90CFF9EB
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246282.jpgsave_picture_246282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246282.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:5632E6FE7A8ADAA5D7FB702AC7EFFF61BE90E824
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246285.jpgsave_picture_246285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246285.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - May Club Party (2012) [MP3|192-256 кб/с]<Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246286.jpgsave_picture_246286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246286.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:CC1D532AF039025C875CE66AFFB41A0B93DE180A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246287.jpgsave_picture_246287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246287.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:E5C875F562A6C9CE2C4C4AA78A608B09CACC6F05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246288.jpgsave_picture_246288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246288.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:DAF273F597ED128A6AB17A6E3103C3F91F7B3520
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246289.jpgsave_picture_246289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246289.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:BFC88F54CC952C0C1D92F1D5F34FF9B2467E71C0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246290.jpgsave_picture_246290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246290.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Клубные Новинки Vol.70 from AGR (2012) [MP3|320 кб/с]<Club
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246292.jpgsave_picture_246292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246292.jpg" />
 </div>
 
 

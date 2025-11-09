@@ -6,7 +6,7 @@ Glen Barbuto - CONCEPT ALBUM / DEMO 4 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15147.jpgsave_picture_15147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15147.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blank & Jones - Milchbar - Seaside Season 17 (2025) [FLAC 24/44.1 - 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15350.jpgsave_picture_15350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15350.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Brian Eno & Beatie Wolfe - 2 Albums (2025) [FLAC 24/44.1, 96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15356.jpgsave_picture_15356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15356.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Volbeat - Studio Albums (9 releases) (2005-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15417.jpgsave_picture_15417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15417.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pink Martini - Bella ciao (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15464.jpgsave_picture_15464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15464.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Mo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15467.jpgsave_picture_15467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15467.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Linkin Park - Studio Albums (10 releases) (2000-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15506.jpgsave_picture_15506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15506.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ WellBad - Oyster & Pearl (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15534.jpgsave_picture_15534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15534.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Cardinal Black - Midnight at The Valencia (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15535.jpgsave_picture_15535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15535.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Umpfel - Studio Albums (2 releases) (2015-2019) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15539.jpgsave_picture_15539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15539.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Honeyboy Slim & The Bad Habits - Honeyboy Slim & The Bad Habits (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15541.jpgsave_picture_15541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15541.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ When Rivers Meet - Addicted To You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15551.jpgsave_picture_15551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15551.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:4FB10FE0CADCA29D1E4CEEA58F9B3A031D0AAAA2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15552.jpgsave_picture_15552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15552.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Gary Hoey - Avalanche (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15555.jpgsave_picture_15555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15555.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Joe & The Regulators - Are You Regulated? (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15557.jpgsave_picture_15557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15557.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Keb' Mo', Taj Mahal - Room On The Porch (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15559.jpgsave_picture_15559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15559.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Joe Kelly & The Royal Pharmacy - Cast Me Down (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15560.jpgsave_picture_15560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15560.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Edgar Blues Trio - SHINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15561.jpgsave_picture_15561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15561.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Volbeat - God Of Angels Trust (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15581.jpgsave_picture_15581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15581.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ The Mamas & The Papas - Best Of The Mamas & The Papas: California Dreamin' (1977
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15620.jpgsave_picture_15620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15620.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Manowar - Kings Of Metal (1988)[APE|24/96|image + .cue|Vinyl-Rip]  <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15642.jpgsave_picture_15642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15642.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Papik & Frankie Lovecchio - Memories (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15836.jpgsave_picture_15836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15836.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Haunted - Studio Albums (10 releases) (1998-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15841.jpgsave_picture_15841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15841.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Rivers of Nihil - Дискография (7 releases) (2010-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16061.jpgsave_picture_16061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16061.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Cradle of Filth - Existence Is Futile (2021) [FLAC|24/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16141.jpgsave_picture_16141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16141.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Peter Bjargo (Bjärgö, Arcana, Onus) - Studio Albums (10 releases) (2005-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16142.jpgsave_picture_16142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16142.jpg" />
 </div>
 
 

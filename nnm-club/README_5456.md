@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168775.jpgsave_picture_168775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168775.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Vocal Trance 2021 (2020) [MP3|320 Kbps] <Trance, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168776.jpgsave_picture_168776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168776.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Life Is Better with Lounge (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168777.jpgsave_picture_168777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168777.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:54C47024AF6A8D983F5472B7F35688A418854F76
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168778.jpgsave_picture_168778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168778.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Vkontakte Online 6.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168779.jpgsave_picture_168779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168779.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:9DE01F3CCC4A8D5295B2EC06923C4C24FA0E4D9C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168780.jpgsave_picture_168780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168780.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Pier-O - Dreams (2021) [AAC|~329 Kbps] <Chill Out, Downtempo, Soulful House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168781.jpgsave_picture_168781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168781.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:54FA31756A75163483AF46F1638637B164500B99
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168782.jpgsave_picture_168782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168782.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Air Explorer Pro 2.6.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168783.jpgsave_picture_168783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168783.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:06F5E3720DF57F5D67B5255D3FAC80F69187043C
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168784.jpgsave_picture_168784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168784.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Adobe Animate 2020 20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168785.jpgsave_picture_168785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168785.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:9E38EEC9029E3BCF8C3631B75D59489C78BC08E8
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168786.jpgsave_picture_168786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168786.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Nightflight Berlin – 22 Premium Downbeat & Lounge Trax (2014) [AAC|~330 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168787.jpgsave_picture_168787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168787.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Native Instruments - Replika 1.4.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168788.jpgsave_picture_168788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168788.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Sacred Journey, Vol. 4 (2021) [AAC|~303 Kbps] <Electronic, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168789.jpgsave_picture_168789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168789.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:3EA00666907579A4BDC81FB6F5B14672F6C98A3C
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168790.jpgsave_picture_168790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168790.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:3F32A68AF7499E37B06A181EB7B3DF8509B6724A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168791.jpgsave_picture_168791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168791.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:F01B20D99B99D7883768F38912F66F4063986133
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168792.jpgsave_picture_168792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168792.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:EF3CE5BF563BF1B18B1693C340ED448DDDCA6426
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168793.jpgsave_picture_168793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168793.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:A566F78B3092EE122AA7663986FB400A07C14F7C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168794.jpgsave_picture_168794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168794.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:353B6902E03C150A5D98168C4FD681FC7558417C
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168795.jpgsave_picture_168795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168795.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:C0D7076C25753BFCE97230BA7649952E4AC0D477
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168796.jpgsave_picture_168796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168796.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Casa of House, Vol. 1 (2021) [AAC|~335 Kbps] <Progressive House, Electro Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168797.jpgsave_picture_168797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168797.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Beatport Synthwave: Pack #635 (2023) [MP3|320 Kbps] <Electronic, Synthwave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168798.jpgsave_picture_168798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168798.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - ЕвроХит Топ 40 Europa Plus 11.12.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168799.jpgsave_picture_168799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168799.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:965C30D6EB43EEA569C21B5FCFBCA4D8C269A70A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168800.jpgsave_picture_168800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168800.jpg" />
 </div>
 
 

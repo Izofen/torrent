@@ -6,7 +6,7 @@ Udemy, Manas Roy | DALL-E and Adobe Firefly Course: AI Art Generation Ethically 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131359.jpgsave_picture_131359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131359.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:1E2BC0268F20B8D61EBF71E8D928E9BEEC9F5070
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131360.jpgsave_picture_131360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131360.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Mystery Case Files 14: Broken Hour / За семью печатями 14: Раз
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131361.jpgsave_picture_131361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131361.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D4900E26909DB06597BCFF9A87A3DBA400EFBDDE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131363.jpgsave_picture_131363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131363.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:94292D128E46AB4A844FD349CC2124818002E304
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131364.jpgsave_picture_131364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131364.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:FAB8189F0FF5A481FC2C6217A3D2F3980E6DFD4C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131365.jpgsave_picture_131365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131365.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Chromium-Gost 120.0.6099.62 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131367.jpgsave_picture_131367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131367.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:BAE55FC1D1151AA7689DB3F98297CCA0D2871DA5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131369.jpgsave_picture_131369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131369.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:AF8C88B92B246237E0C51E80A5690C20892A5253
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131371.jpgsave_picture_131371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131371.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:28DB19AEC790320B769E9A032D7EAA9C71029E2A
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131372.jpgsave_picture_131372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131372.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:28DB19AEC790320B769E9A032D7EAA9C71029E2A
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131373.jpgsave_picture_131373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131373.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:A6BF2E707B75AA7D8C62F08C7E9381A53B785648
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131374.jpgsave_picture_131374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131374.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Udemy, Manas Roy | Adobe Firefly Course: Beginner to Pro AI In One Go (2023) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131375.jpgsave_picture_131375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131375.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ mp3DirectCut 2.17 [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131376.jpgsave_picture_131376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131376.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ mp3DirectCut — небольшой редактор MP3 файлов, позв�
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131377.jpgsave_picture_131377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131377.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Google Chrome 120.0.6099.71 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131379.jpgsave_picture_131379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131379.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:CFD369795C7C0F1C88117C6DC207064BBA73AED5
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131380.jpgsave_picture_131380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131380.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:94D516F5D14EBFE6D42581086D531FAA78129992
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131381.jpgsave_picture_131381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131381.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:904637DACB3144548401496D6258888413126E8D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131382.jpgsave_picture_131382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131382.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131383.jpgsave_picture_131383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131383.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131387.jpgsave_picture_131387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131387.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:AA21C44C6CF3B44201DCBC858AAA92C2002E1B96
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131388.jpgsave_picture_131388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131388.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:204487DC93036CD81E69E0D73BA2121A2527D4E9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131389.jpgsave_picture_131389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131389.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Slimjet 42.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131390.jpgsave_picture_131390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131390.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Dee D. Jackson - The Singles Collection (2023) ESonCD, Unofficial Release [FLAC|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131391.jpgsave_picture_131391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131391.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ RogueKiller Anti-Malware 15.13.1.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131392.jpgsave_picture_131392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131392.jpg" />
 </div>
 
 

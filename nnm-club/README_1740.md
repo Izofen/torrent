@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45597.jpgsave_picture_45597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45597.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F1A3B018991D048C044B840BAF833453C4676FB5
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45598.jpgsave_picture_45598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45598.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinToUSB Technician 9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45599.jpgsave_picture_45599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45599.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:32CFA805A849B8E7A460384873A39831A9F45298
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45600.jpgsave_picture_45600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45600.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:32CFA805A849B8E7A460384873A39831A9F45298
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45601.jpgsave_picture_45601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45601.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45602.jpgsave_picture_45602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45602.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:36254CD100ABD3C16B8CFA035D33467404CBAAF3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45603.jpgsave_picture_45603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45603.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:AA3FC2A05CD5C3840ABCC855B2035A70F0B91548
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45604.jpgsave_picture_45604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45604.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:295ED57675AED0CD2F4385589464187B62069D77
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45605.jpgsave_picture_45605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45605.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:D62909E91D979337BC2D9ECB289F2F9DF9C6454E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45606.jpgsave_picture_45606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45606.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sumatra PDF 3.6.16779 Prerelease + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45607.jpgsave_picture_45607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45607.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Adobe Photoshop Lightroom Classic 2024 13.5.0.12 (x64) Portable by 7997 [Multi/R
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45608.jpgsave_picture_45608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45608.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.4.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45609.jpgsave_picture_45609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45609.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v20 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45610.jpgsave_picture_45610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45610.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ CCleaner 6.27.11214 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45611.jpgsave_picture_45611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45611.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:4DA5CBF8FCDF6E2B1FEE5C251BEF875E94E2D947
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45612.jpgsave_picture_45612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45612.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:21218FB60984C834D7694CAFDE0C803273EDFE0E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45613.jpgsave_picture_45613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45613.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Beach Club Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45614.jpgsave_picture_45614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45614.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45615.jpgsave_picture_45615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45615.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:5FB46E14131E27DD7949A748C69C8FAEEDD34C40
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45616.jpgsave_picture_45616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45616.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:9C44C5EEA42A79521A2A7A9787B09053C1E86996
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45617.jpgsave_picture_45617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45617.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:6B3B4D286B589067A799144049B4563C9F3B35A0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45618.jpgsave_picture_45618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45618.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:2766618BD6F0D25EA871E5E42021081064F903AD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45619.jpgsave_picture_45619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45619.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:6124679277D51EF5B10A5252DCC4ED372841AA47
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45620.jpgsave_picture_45620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45620.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45621.jpgsave_picture_45621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45621.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Who is Abby (2023) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45622.jpgsave_picture_45622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45622.jpg" />
 </div>
 
 

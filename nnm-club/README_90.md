@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.8.0.2852 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2377.jpgsave_picture_2377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2377.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ R-Studio Network / Technician 9.5 Build 191603 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2378.jpgsave_picture_2378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2378.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Auslogics BoostSpeed 14.1.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2379.jpgsave_picture_2379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2379.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ashampoo Photo Optimizer 11.0.0.10 (x64) Portable by 7997 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2380.jpgsave_picture_2380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2380.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:835A0C9892CE2CF8AFF50697551058E8A0109691
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2381.jpgsave_picture_2381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2381.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:8F0337D920243C00EA7D9582142AE559B20BBF1C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2382.jpgsave_picture_2382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2382.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BAA2217A856AFB76F1B64183AF6753E30EC43D32
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2383.jpgsave_picture_2383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2383.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0E9939A47C3421DC2CDE23F06010C1664D5CBC4D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2384.jpgsave_picture_2384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2384.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:C17D78E70B068C23813517262C194AF0AEBC231B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2385.jpgsave_picture_2385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2385.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ MiniTool Partition Wizard All Editions 13.0 RePack (& Portable) by Dodakaedr [Mu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2386.jpgsave_picture_2386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2386.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ X4: Foundations (2018) [Ru/Multi] (8.00/dlc) Repack FitGirl [Community of Planet
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2387.jpgsave_picture_2387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2387.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ macOS 16 Tahoe (25A354) ISO [Multi/Ru]
 >>macOS (Apple)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2388.jpgsave_picture_2388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2388.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack FitGirl [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2389.jpgsave_picture_2389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2389.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2390.jpgsave_picture_2390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2390.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ K-Lite Codec Pack 19.2.0 Mega/Full/Standard/Basic [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2391.jpgsave_picture_2391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2391.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:BE47860ECD1B91CA8A22B45DB4FF80A19F4D62BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2392.jpgsave_picture_2392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2392.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:216822A0348812C5348E25EA8BCBBC06B808565F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2393.jpgsave_picture_2393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2393.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:9005D7C744FE02460B57A8C2E5EC8D84ECE04650
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2394.jpgsave_picture_2394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2394.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:047CAADED39C8D0656F61BEEF4E4EAED19D5FBFE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2395.jpgsave_picture_2395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2395.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:2342B9F680FB438FA23FD88CCB6D12B71C48030D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2396.jpgsave_picture_2396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2396.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ IObit Driver Booster Pro 13.0.0.138 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2397.jpgsave_picture_2397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2397.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Jotunnslayer: Hordes of Hel (2025) [Ru/Multi] (1.0.0.87582) Repack FitGirl [Coll
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2398.jpgsave_picture_2398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2398.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ WinToUSB Free / Pro / Enterprise / Technician 10.0 RePack (& Portable) by Dodaka
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2399.jpgsave_picture_2399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2399.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:89CA23206492265AC7C83230B45A66912B548038
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2400.jpgsave_picture_2400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2400.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:2ACD8A311B33460A1010045E1A5CC63A6583FB15
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2401.jpgsave_picture_2401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2401.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ThisIsMyFile 4.44 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2402.jpgsave_picture_2402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2402.jpg" />
 </div>
 
 

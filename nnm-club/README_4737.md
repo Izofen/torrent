@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148247.jpgsave_picture_148247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148247.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8E1410AE37E8E5DAAEBE7F4D3656A40E94EE4FA5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148248.jpgsave_picture_148248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148248.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A96790EFCF94D7ED60765FA45A3E311854C9BF79
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148249.jpgsave_picture_148249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148249.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:176A8D248097008B1483785F88CE7438D253EDA5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148252.jpgsave_picture_148252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148252.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:01F105EA37834400ACC8346AC021558ED72D8A98
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148253.jpgsave_picture_148253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148253.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B415C98D7350AE545B21657B29BA2B6BD5D8C8F1
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148255.jpgsave_picture_148255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148255.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:ECEF7D5042D79B7983B3C8C60793F1186967506F
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148256.jpgsave_picture_148256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148256.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:38BD61357B6ED2C3362606262D18238CC731EDA8
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148257.jpgsave_picture_148257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148257.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:ED10CC45C2EC4DD1DA2B26050176E86040BEE3BB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148258.jpgsave_picture_148258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148258.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:13181CCEF4DBBC1DF2F9097DA85497C63006FC68
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148259.jpgsave_picture_148259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148259.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9371497A5AE92AC46E6C25D27BC25F0C697B6DD5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148261.jpgsave_picture_148261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148261.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Celeste (2018) [Ru/Multi] (1.2.5.1) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148262.jpgsave_picture_148262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148262.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:03A30CB4C1624EFA0A3C4C913CF84B75877C037A
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148263.jpgsave_picture_148263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148263.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:0EE2ABEC9AC59F2E779E6DF7197B0972F5183D79
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148266.jpgsave_picture_148266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148266.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:6BDC99DE7985837F6FB365F51E4F0700DB5BBA2D
 >>Костюмы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148267.jpgsave_picture_148267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148267.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:38D8E6FF74E4C23A70BB343A51421C0BA1611791
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148268.jpgsave_picture_148268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148268.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Lumuroze - What`s the Point of Falling Down If We Are Already in Hell (2020) [MP
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148271.jpgsave_picture_148271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148271.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:832E46C002DD7DC7EC2FE2FF82844D0E2FE483ED
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148272.jpgsave_picture_148272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148272.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:07C9A5ACF54C4876E2A145B3220F0CB90408CCA2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148273.jpgsave_picture_148273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148273.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:77006C0E45AF6DE4EAC32652B23155C14FD6DE2C
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148274.jpgsave_picture_148274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148274.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:D7D2E8B7B223832D91768C690776BFA2C8D69B12
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148275.jpgsave_picture_148275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148275.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ The Grinch - Земля остановилась (2020) [MP3|320 Kbps] <Punk Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148278.jpgsave_picture_148278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148278.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:413E43EDEBE0695EBCDB1EC64374D687FBC00FA1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148279.jpgsave_picture_148279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148279.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:AFF67A8DFB1F05C71113CA96B3D4141344216B35
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148280.jpgsave_picture_148280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148280.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Topaz DeNoise AI 3.4.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148281.jpgsave_picture_148281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148281.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:1B3EE6329256A14DA99B182DAED55E1B7220B329
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148282.jpgsave_picture_148282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148282.jpg" />
 </div>
 
 

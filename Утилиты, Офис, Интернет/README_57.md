@@ -6,7 +6,7 @@ Airytec Switch Off 3.5.0.950 + Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204187.jpgsave_picture_204187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204187.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Earth Pro 7.3.6.9345 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204325.jpgsave_picture_204325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204325.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ PerigeeCopy 1.7 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204953.jpgsave_picture_204953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204953.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ DesktopImages3D 2.29 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205071.jpgsave_picture_205071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205071.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ IObit Smart Defrag Pro 11.1.0.466 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205662.jpgsave_picture_205662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205662.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ IObit Uninstaller Pro 15.1.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205671.jpgsave_picture_205671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205671.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ YT Downloader 9.17.15 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205688.jpgsave_picture_205688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205688.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MAX Desktop 25.14.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205721.jpgsave_picture_205721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205721.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 20.10.2025) [Multi/R
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205723.jpgsave_picture_205723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205723.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ DesktopNoteOK 3.88 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205882.jpgsave_picture_205882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205882.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PureSync 7.2.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207627.jpgsave_picture_207627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207627.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ HashMyFiles 2.44 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207669.jpgsave_picture_207669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207669.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ LiveTcpUdpWatch 1.51  Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207907.jpgsave_picture_207907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207907.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ OpenHashTab 3.0.4 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208063.jpgsave_picture_208063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208063.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ ASCOMP BackUp Maker 8.202 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208151.jpgsave_picture_208151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208151.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.8 RePack (& Portable) by Try
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208647.jpgsave_picture_208647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208647.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ fx-Calc 4.9.4.0 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208672.jpgsave_picture_208672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208672.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.8 RePack (& Port
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208745.jpgsave_picture_208745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208745.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Task Manager DeLuxe 4.8.0.0 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208908.jpgsave_picture_208908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208908.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ NVCleanstall 1.16.0 Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208973.jpgsave_picture_208973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208973.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Auslogics BoostSpeed 13.0.0.4 Portable by JooSeng [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208977.jpgsave_picture_208977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208977.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Auslogics File Recovery 11.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209076.jpgsave_picture_209076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209076.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ TaskSchedulerView 1.73 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209154.jpgsave_picture_209154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209154.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ MultiHasher 2.8.2 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209199.jpgsave_picture_209199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209199.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ BurnAware Professional 16.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209396.jpgsave_picture_209396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209396.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ReviverSoft Driver Reviver 5.42.2.10 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209604.jpgsave_picture_209604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209604.jpg" />
 </div>
 
 

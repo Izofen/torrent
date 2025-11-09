@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147392.jpgsave_picture_147392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147392.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Barbra Lica - Christmas Present (2015) [MP3|320 Kbps] <Vocal-Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147393.jpgsave_picture_147393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147393.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Avant Browser Ultimate 2016 build 01 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147394.jpgsave_picture_147394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147394.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:03C8B599DF9317F51E3228A9E38C252D1052C2C7
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147395.jpgsave_picture_147395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147395.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147397.jpgsave_picture_147397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147397.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - B2B Best of 2021 (2021) [AAC|~332 Kbps] <Tech House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147398.jpgsave_picture_147398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147398.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AnyBurn 4.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147399.jpgsave_picture_147399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147399.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Red Faction Anthology (2001-2011) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147400.jpgsave_picture_147400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147400.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:2929FBB2123ABBCEA7B54A3E0D7F571F584987CB
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147401.jpgsave_picture_147401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147401.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:FA065A1523B3FE71078E1DDCE1F7C13919C54B34
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147402.jpgsave_picture_147402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147402.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Udemy, Imtiaz Ahmad | Головоломки Java для устранения с
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147404.jpgsave_picture_147404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147404.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:4D563C899C1D6DCC5A394B2D63BD178BB1D33BB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147405.jpgsave_picture_147405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147405.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ David Coverdale - Whitesnake and Northwinds (1988) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147406.jpgsave_picture_147406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147406.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147407.jpgsave_picture_147407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147407.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - 100 New Year Dance Party 2016 (2015) [MP3|320 кб/с] <Dance, Club, House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147408.jpgsave_picture_147408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147408.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:0601E06338E189CF7211E05840659BFA0FF3751C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147410.jpgsave_picture_147410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147410.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - White Sensation Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147411.jpgsave_picture_147411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147411.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D4D4EEE9886F76D44098D5AD8EA71F7B8D9769DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147412.jpgsave_picture_147412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147412.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:2D115DE1D2416D333157627940597BA61ED162B1
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147413.jpgsave_picture_147413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147413.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147414.jpgsave_picture_147414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147414.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147415.jpgsave_picture_147415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147415.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:57155A9DD7BFBB72475F0B3517FD710AFCA41FD9
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147416.jpgsave_picture_147416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147416.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:2705EC3C372C47FF9D5D532B1D25FBC63D68B01F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147417.jpgsave_picture_147417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147417.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:0E2CE418087A6F99BCF7778C9E0F05F875D16024
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147418.jpgsave_picture_147418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147418.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - A State Of Trance Top 20: January (Selected by Armin Van Buuren) (Extended 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147419.jpgsave_picture_147419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147419.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:5680D94C4CB7BA05D58E80DD7FD5BD44DBAD033D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147421.jpgsave_picture_147421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147421.jpg" />
 </div>
 
 

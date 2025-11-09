@@ -6,7 +6,7 @@ Absent - Beaufort (2020) Airvent [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Do
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245654.jpgsave_picture_245654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245654.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - A Chillout Affair (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245658.jpgsave_picture_245658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245658.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hocico - HyperViolent (2022) 2xCD [FLAC|Lossless|image + .cue] <EBM, Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245667.jpgsave_picture_245667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245667.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ LDA - Shattered Feelings. (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245670.jpgsave_picture_245670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245670.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Metropolis - Metropolis (2018) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245709.jpgsave_picture_245709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245709.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Lovely001 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245731.jpgsave_picture_245731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245731.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Progressive Dreamland (2023) [MP3|320 Kbps] <Trance, Progressive, Electroni
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245761.jpgsave_picture_245761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245761.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Chillout Lounge 2021 [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245806.jpgsave_picture_245806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245806.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - World Of Trance (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245971.jpgsave_picture_245971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245971.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Alexander Popov - Adagio (2021) Singles [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245993.jpgsave_picture_245993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245993.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Chris Wonderful - Music for Lovers, Vol. 1 (2013) Yoola, 2020 [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246007.jpgsave_picture_246007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246007.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Uplifting Only Top 15: January 2023 (Extended Mixes) (2023) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246057.jpgsave_picture_246057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246057.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Miami Sessions 2023 (Mixed by Milk & Sugar) (2023) [MP3|320 Kbps] <House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246067.jpgsave_picture_246067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246067.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [FLAC|Lossless|WEB-DL|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246074.jpgsave_picture_246074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246074.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Ori Uplift - Uplifting Only Episode 664 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246082.jpgsave_picture_246082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246082.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Ibiza Winter Session 2026 (The Tech House Rockets) (2025) [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246093.jpgsave_picture_246093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246093.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Armin van Buuren - A State Of Trance 1249 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246103.jpgsave_picture_246103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246103.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Ibiza Winter Session 2026 (Late Night Techno Kisses) (2025) [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246114.jpgsave_picture_246114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246114.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Hot Summer Vibes - Ibiza Session Volume 2 (2025) [MP3|320 Kbps] <House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246136.jpgsave_picture_246136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246136.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Club Paradise (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246228.jpgsave_picture_246228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246228.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Scooter - Greatest Hits (2011) [MP3|320 kbps] <Progressive, Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247304.jpgsave_picture_247304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247304.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ DJ Грув - Последние Киноремиксы (2007)
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247534.jpgsave_picture_247534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247534.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ DJ Грув - Ты не со мной (2008) [MP3|320 kbps]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247548.jpgsave_picture_247548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247548.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Deadушки - ИСКУССТВО КАМЕННЫХ СТАТУЙ (1996) [FLAC|Los
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247694.jpgsave_picture_247694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247694.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Eguana - Silent Pulsar (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247785.jpgsave_picture_247785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247785.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Archon Satani - 8 albums (1991-2002) [mp3|192-320 kbps] <Dark Ambient, Ritual Am
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247980.jpgsave_picture_247980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247980.jpg" />
 </div>
 
 

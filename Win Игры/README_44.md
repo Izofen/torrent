@@ -6,7 +6,7 @@ Tobacco Shop Simulator (2024) [Ru/Multi] (1.0) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13462.jpgsave_picture_13462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13462.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Road Food Simulator (2025) [Ru/Multi] (0.1.06) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13468.jpgsave_picture_13468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13468.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2013.012.003.008.007/dlc) Scene R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13471.jpgsave_picture_13471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13471.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Afterlove EP (2025) [Multi] (1.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13478.jpgsave_picture_13478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13478.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19225) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13480.jpgsave_picture_13480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13480.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13486.jpgsave_picture_13486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13486.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.0.64099/dlc) Repack seleZen [Digital Del
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13487.jpgsave_picture_13487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13487.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Forgotten Mines (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13494.jpgsave_picture_13494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13494.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.4/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13512.jpgsave_picture_13512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13512.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sorry We're Closed (2024) [Multi] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13529.jpgsave_picture_13529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13529.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Lightyear Frontier (2024) [Ru/Multi] (0.5.1593) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13532.jpgsave_picture_13532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13532.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (2.2.0 r22519/dlc) License GOG [Royal Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13538.jpgsave_picture_13538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13538.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (1.2.18.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13550.jpgsave_picture_13550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13550.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13584.jpgsave_picture_13584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13584.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13585.jpgsave_picture_13585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13585.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13598.jpgsave_picture_13598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13598.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13605.jpgsave_picture_13605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13605.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13611.jpgsave_picture_13611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13611.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13615.jpgsave_picture_13615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13615.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vivat Slovakia (2024) [Multi] (1.0b12) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13628.jpgsave_picture_13628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13628.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Suit for Hire (2021) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13633.jpgsave_picture_13633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13633.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13654.jpgsave_picture_13654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13654.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13656.jpgsave_picture_13656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13656.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.3 CS:16422) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13660.jpgsave_picture_13660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13660.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (2506161915) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13686.jpgsave_picture_13686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13686.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13704.jpgsave_picture_13704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13704.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Jorg (Jörg) Danielsen - Foolin’ Around (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135333.jpgsave_picture_135333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135333.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B69FDE73416C8C77040A96F08E2DAF4CB3131EC4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135334.jpgsave_picture_135334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135334.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Just Before Dawn - On the History of Destruction (2017) Compilation [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135335.jpgsave_picture_135335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135335.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:EB3C703F89EF93AB4AFB6CDEB2D147B78D627A55
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135337.jpgsave_picture_135337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135337.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:F31331BB158CACBEAA7FAC926786BC3453153013
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135338.jpgsave_picture_135338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135338.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Planethard - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135341.jpgsave_picture_135341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135341.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Jetboy - Crate Diggin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135342.jpgsave_picture_135342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135342.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Aspect Ratio X 2.1.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135343.jpgsave_picture_135343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135343.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ JixiPix Chromatic Edges 1.0.31 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135344.jpgsave_picture_135344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135344.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Don't Drop the Sword - Age of Heroes (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135345.jpgsave_picture_135345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135345.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:8D0D3EE5834B26C576FEE16E883A9161051FF291
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135346.jpgsave_picture_135346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135346.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:CC0AD5412DA7C1F534F72F5B067A2AE131638E21
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135347.jpgsave_picture_135347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135347.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:77331EA4F3F5011A20BB46E6F5340C23E78F3CA8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135349.jpgsave_picture_135349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135349.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135351.jpgsave_picture_135351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135351.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Silent Angel - Unyielding, Unrelenting (2023) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135353.jpgsave_picture_135353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135353.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:C0097EFAFE8A073ADA1EB1A0A28173876D8123D4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135354.jpgsave_picture_135354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135354.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:D93B6F3638ABA8C3A726B0D0188D42C762FF57D0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135355.jpgsave_picture_135355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135355.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135357.jpgsave_picture_135357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135357.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135359.jpgsave_picture_135359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135359.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Roadkill - Insanity Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135361.jpgsave_picture_135361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135361.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:D8DEA6F24673496F97A9999FFB99D4283266D122
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135362.jpgsave_picture_135362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135362.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Just Before Dawn - Tides of Blood (2018) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135363.jpgsave_picture_135363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135363.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:8EBD16DC7DF6CFCF7C5EE75AC2793CC93CD8C745
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135365.jpgsave_picture_135365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135365.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:095C160CE02D0BF10663BD888BDD92A51012BAD2
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135367.jpgsave_picture_135367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135367.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135369.jpgsave_picture_135369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135369.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Plies - Hunna (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135370.jpgsave_picture_135370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135370.jpg" />
 </div>
 
 

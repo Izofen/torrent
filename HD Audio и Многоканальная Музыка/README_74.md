@@ -6,7 +6,7 @@ Edge Of Forever - The Days of Future Past (The Remasters) (2022) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68627.jpgsave_picture_68627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68627.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vampyros Lesbos - Vi Per Sanguinem (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68629.jpgsave_picture_68629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68629.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nightwish - Century Child (2002) Released, 2007, Universal Music Group Internati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68635.jpgsave_picture_68635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68635.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bad Valentine - I Am A Mess (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68638.jpgsave_picture_68638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68638.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Black & Damned - Resurrection (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68639.jpgsave_picture_68639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68639.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Crown - Crown of Thorns (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68640.jpgsave_picture_68640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68640.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Forlorn - Aether (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68642.jpgsave_picture_68642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68642.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Metallica - Load (1996) Released, 2001, Vertigo [FLAC|24/192|tracks|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68645.jpgsave_picture_68645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68645.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kalya Scintilla - Tales from the Path, Pt. 1 (2025) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68649.jpgsave_picture_68649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68649.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:558DFD2137A73565C03F15629CC2542D5A3EB463
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68655.jpgsave_picture_68655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68655.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Yelena Eckemoff - Scenes From the Dark Ages (2025) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68656.jpgsave_picture_68656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68656.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Desire - Games People Play (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68657.jpgsave_picture_68657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68657.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Arch Enemy - Blood Dynasty (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal, Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68663.jpgsave_picture_68663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68663.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Einherjer - Odin Owns Ye All (1998) Released, 2020, Funeral Industries [WavPack|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68678.jpgsave_picture_68678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68678.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Autopsy - The Tomb Within (2010) EP, Released, 2017, Peaceville [WavPack|32/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68679.jpgsave_picture_68679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68679.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Nightwish - Over the Hills and Far Away (2001) EP, Released, 2014, Music On Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68689.jpgsave_picture_68689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68689.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Savatage - Handful of Rain (1994) Released, 2022, Ear Music Classics [FLAC|24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68695.jpgsave_picture_68695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68695.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ancient Silence - The 1st Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <It
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68707.jpgsave_picture_68707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68707.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Albert White - The Definitive Albert White (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68716.jpgsave_picture_68716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68716.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Huckleberry - Huck it (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68717.jpgsave_picture_68717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68717.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Diem Gartopolus - Nor Th (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68718.jpgsave_picture_68718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68718.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Horse Drawn Cadillac - Mapless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68720.jpgsave_picture_68720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68720.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Geraint Watkins and The Mosquitoes - Here and There (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68723.jpgsave_picture_68723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68723.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Massimo Rosner - Long Rest (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Free Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68724.jpgsave_picture_68724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68724.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Switch Opens - Switch Opens (2009) Released, 2010, GMR Music Group [WavPack|32/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68726.jpgsave_picture_68726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68726.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Solefald - Pills Against The Ageless Ills (2001) Released, 2021, Abstract Emotio
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68729.jpgsave_picture_68729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68729.jpg" />
 </div>
 
 

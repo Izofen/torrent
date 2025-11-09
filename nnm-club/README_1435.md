@@ -6,7 +6,7 @@ Alphaville & Deutsches Filmorchester Babelsberg - A Night at the Philharmonie Be
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37665.jpgsave_picture_37665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37665.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9704A60E39EB5ABF393BDC668471B8276ED28E0E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37666.jpgsave_picture_37666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37666.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:737DB0897287CD728F89B42EBA54AA87098C347F
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37667.jpgsave_picture_37667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37667.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:FA13E1BA017B43C317FA626DA11F8DC913090996
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37668.jpgsave_picture_37668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37668.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:19B04DAF1BD799050FEF35CEAC1A444DCB3F7365
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37669.jpgsave_picture_37669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37669.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Primal Scream - Come Ahead (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37670.jpgsave_picture_37670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37670.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:5A52B2D310D14E660C2C991A4845A4CA5D0D5958
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37671.jpgsave_picture_37671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37671.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Dungeon Defenders (2011) [Multi] (9.6.1/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37672.jpgsave_picture_37672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37672.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:EAB40849807117F3AEA8622AA96AE96CC150DB79
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37673.jpgsave_picture_37673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37673.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:BA5F58389CE1140247AADCA8D20C214775FB6460
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37674.jpgsave_picture_37674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37674.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ XnConvert 1.102.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37675.jpgsave_picture_37675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37675.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EE045B29B6A67CD391CAC4E4DF921260753ECC9F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37676.jpgsave_picture_37676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37676.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:A90DFF1D4C9A46E83336254E2CDA1044D86B4B81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37677.jpgsave_picture_37677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37677.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ iCSee v7.4.0 Free [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37678.jpgsave_picture_37678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37678.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.0.54212 Extra Mod by Balatan [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37679.jpgsave_picture_37679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37679.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:6B3CDA37404FE0A0EE7C3138B26362E81391003B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37680.jpgsave_picture_37680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37680.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:7A8318D7CBCE776A9A93C33E081CB9973D5E2F4F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37681.jpgsave_picture_37681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37681.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:D173B0A2CF24AE4EA679FB0FCF74FE9A66678999
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37682.jpgsave_picture_37682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37682.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8BE15E6AA947A81065681EF6FA59178A750E3DF1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37683.jpgsave_picture_37683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37683.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:7FB7A77F7EC023DF0B503187E8C89345BECE32B3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37684.jpgsave_picture_37684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37684.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:A5AD52F86910B0F641B54047D0B7949D471A1D8A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37685.jpgsave_picture_37685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37685.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:B7C1EA1AD2252E4CA862F968229784E7E75DFA49
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37686.jpgsave_picture_37686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37686.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ RRR: Рядом ревёт революция / RRR (2022) WEB-DL [AV1/2160p] [4
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37687.jpgsave_picture_37687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37687.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Minimal Audio - Effect Bundle 2024.11 VST, VST 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37688.jpgsave_picture_37688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37688.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Melodic Techno 1 2024 [MP3|320 Kbps] <Melodic Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37689.jpgsave_picture_37689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37689.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ CATO: Buttered Cat (2024) [Ru/Multi] (1.1.528) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37690.jpgsave_picture_37690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37690.jpg" />
 </div>
 
 

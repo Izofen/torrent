@@ -6,7 +6,7 @@ Anathema - Studio Albums (15 releases) (1992-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117984.jpgsave_picture_117984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117984.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4BF29E8E1D4A78C405809317268B8522DCEEB99B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117985.jpgsave_picture_117985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117985.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CareUEyes 2.2.12.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117986.jpgsave_picture_117986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117986.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:193D52ADCD9F1A7CC8D4D77F817B75BE18F1C17D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117987.jpgsave_picture_117987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117987.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:D3B4614FC860CF5A2D64ACC56D37B9AFBE0DA976
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117988.jpgsave_picture_117988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117988.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Revo Uninstaller Pro 5.2.5 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117989.jpgsave_picture_117989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117989.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ PicPick Free+Pro 7.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117990.jpgsave_picture_117990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117990.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8E591453603339A0DB7304D9745374763B74DC22
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117991.jpgsave_picture_117991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117991.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B30332724BDBFB0D68235346A49BA5B88E9692AF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117992.jpgsave_picture_117992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117992.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F4D432D5847C016AD0A1569EC152821ABA8BAB1D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117993.jpgsave_picture_117993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117993.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sumatra PDF 3.6.15961 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117994.jpgsave_picture_117994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117994.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:1C1F5B2C1EB998CA5CC1C8832898AA0270C9A560
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117995.jpgsave_picture_117995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117995.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:CFBB4DFBA8E9BEF680366862E3F2ABFF70EF01CA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117996.jpgsave_picture_117996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117996.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Aiseesoft Video Converter Ultimate 10.8.16 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117997.jpgsave_picture_117997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117997.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117998.jpgsave_picture_117998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117998.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E41E757840E2686DA97D19D1784617D90799210C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117999.jpgsave_picture_117999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117999.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:60D7DB7CD70FDF8AC3D6419DD1B9AF0E74F55DA8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118000.jpgsave_picture_118000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118000.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Clint Langley | Артбук художника Clint Langley / The Art of Clint
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118001.jpgsave_picture_118001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118001.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:1FEC29DEC643AA085A4FD01E46D5A575204608EC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118002.jpgsave_picture_118002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118002.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:D48C14F01EBCC9EC4417476A48F941EAFD10B7A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118003.jpgsave_picture_118003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118003.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:ED4AEBF8B97E85BC384A2577462770844E616955
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118004.jpgsave_picture_118004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118004.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:BA3EF27DEF9C15754A33CFA9F6F7511CF757F0E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118005.jpgsave_picture_118005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118005.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7D6B526ED3C799364BDEBB7DF4B4AA027137D762
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118006.jpgsave_picture_118006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118006.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:9F276ADBE318ECBC94A55E7BD906272230A9C2FA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118007.jpgsave_picture_118007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118007.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ USB Device Tree Viewer 4.0.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118008.jpgsave_picture_118008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118008.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Spotify 1.2.29.605 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118009.jpgsave_picture_118009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118009.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Deck of Haunts (2025) [Ru/Multi] (1.16) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8931.jpgsave_picture_8931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8931.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8938.jpgsave_picture_8938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8938.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Satisfactory (2019) [Ru/Multi] (1.1.1.2 CL#424353/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8951.jpgsave_picture_8951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8951.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8985.jpgsave_picture_8985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8985.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Castle Crashers (2012) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Complete Bundle]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8993.jpgsave_picture_8993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8993.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9043A90D91D4ABB1A4810BFE2D2F347D3E0885B0
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9020.jpgsave_picture_9020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9020.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Luto (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9048.jpgsave_picture_9048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9048.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9052.jpgsave_picture_9052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9052.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9059.jpgsave_picture_9059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9059.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Future War Tactics: SOF vs Alien Invasion – Turn-Based Strategy (2025) [Ru/Mul
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9061.jpgsave_picture_9061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9061.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.1.1) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9079.jpgsave_picture_9079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9079.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Blood West (2023) [Ru/Multi] (4.5.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9080.jpgsave_picture_9080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9080.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ RIPOUT (2024) [Ru/Multi] (1.41:01) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9081.jpgsave_picture_9081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9081.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Necrophosis (2025) [Ru/Multi] (Build 19486897) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9084.jpgsave_picture_9084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9084.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Headquarters: World War II (2024) [Ru/Multi] (1.04.03/dlc) Repack Let'sРlay [Co
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9088.jpgsave_picture_9088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9088.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tall Trails (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9118.jpgsave_picture_9118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9118.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mars Base (2022) [Multi] (1.107) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9121.jpgsave_picture_9121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9121.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.1f/dlc) Repack Let'sРlay [Early Access
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9147.jpgsave_picture_9147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9147.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ dotAGE (2023) [Ru/Multi] (1.7.2/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9163.jpgsave_picture_9163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9163.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9165.jpgsave_picture_9165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9165.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Lucy Dreaming (2022) [Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9176.jpgsave_picture_9176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9176.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Sou
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9188.jpgsave_picture_9188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9188.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Steel Seed (2025) [Ru/Multi] (1.0.9-j/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9189.jpgsave_picture_9189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9189.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Pilgrims / Пилигримы (2019) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9243.jpgsave_picture_9243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9243.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9249.jpgsave_picture_9249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9249.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Captain Bones: A Pirates Journey / Пиратское Путешествие (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9250.jpgsave_picture_9250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9250.jpg" />
 </div>
 
 

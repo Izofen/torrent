@@ -6,7 +6,7 @@ Uriah Heep - Collection (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19384.jpgsave_picture_19384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19384.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CF62B4509867043B40984B7D0C948CC986663FFD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19385.jpgsave_picture_19385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19385.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Inazuma Eleven GO | Одиннадцать молний: Только вперё
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19386.jpgsave_picture_19386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19386.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Wise Care 365 Pro 7.2.5.698 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19387.jpgsave_picture_19387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19387.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:C720E47DCB693439A88C79C9FC954265744D09D2
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19388.jpgsave_picture_19388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19388.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6ECB65576B7B58AB31FAD96C40006C2CB12FE677
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19389.jpgsave_picture_19389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19389.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Tony Joe White - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Blues Rock)>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19390.jpgsave_picture_19390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19390.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7AC6BAF807587C838A01F0A01CBEB534C2543B8A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19391.jpgsave_picture_19391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19391.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Firefox Browser ESR 115.23.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19392.jpgsave_picture_19392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19392.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:F8CBA5BD0A2FD9D230375EBAB89BC65E22AF9AF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19393.jpgsave_picture_19393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19393.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Alan Jones | Артбук по фильму Лара Крофт: Расхити�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19394.jpgsave_picture_19394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19394.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:970882CB02EA077D8F1636EEC124326C70275A84
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19395.jpgsave_picture_19395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19395.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:BA013B20728AD66002A8F20241DD49125D7712CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19396.jpgsave_picture_19396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19396.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:A126C0EDB0330D36B799BCF9E72B87AC36FACDD0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19397.jpgsave_picture_19397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19397.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Snappy Driver Installer Origin R814 | Драйверпаки 25.03.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19398.jpgsave_picture_19398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19398.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:0199CAAFE1755732A355E370B678FD8DC69E9F1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19399.jpgsave_picture_19399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19399.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:4A083ADCD31126A9A8E6FF8136F389E01C40C2EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19400.jpgsave_picture_19400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19400.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19401.jpgsave_picture_19401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19401.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6EEDBB49A0F1786E0CCFA2AA07C87CEB6DE93C17
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19402.jpgsave_picture_19402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19402.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Stellar Outpost Commander (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19403.jpgsave_picture_19403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19403.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.404.43827/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19404.jpgsave_picture_19404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19404.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ BrokenLore: DON'T WATCH (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19405.jpgsave_picture_19405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19405.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:E5EDF521909EA6EC9B8EC26671226CFA4591A377
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19406.jpgsave_picture_19406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19406.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:19F639AC880BEA9D16605075E7A1201C89E45C75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19407.jpgsave_picture_19407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19407.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19408.jpgsave_picture_19408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19408.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Guru Maps Pro & GPS Tracker v5.7.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19409.jpgsave_picture_19409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19409.jpg" />
 </div>
 
 

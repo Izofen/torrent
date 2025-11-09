@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144801.jpgsave_picture_144801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144801.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5444B54BB0099C6CB0AB6A6115E684531949ACEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144802.jpgsave_picture_144802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144802.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:747DFB90B1B336D19A707282E460ECE1D11F484E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144804.jpgsave_picture_144804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144804.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E9BAC451CD07ECE78D253B010C5A7D08C1F98F76
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144805.jpgsave_picture_144805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144805.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:BB70FCBD8A7B91F75E939987A1A490AB9357D8F7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144806.jpgsave_picture_144806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144806.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:D7CEF48ED37ECE7B0F512FE3484901F7299DA2C6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144807.jpgsave_picture_144807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144807.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Зимние хиты экспресс. Зарубежная версия (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144808.jpgsave_picture_144808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144808.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144809.jpgsave_picture_144809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144809.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:E878B2AF0028F04704E524F5BD6046A015198CFE
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144810.jpgsave_picture_144810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144810.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:568140C06D4D4A38AD8418DE8498592C00117181
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144811.jpgsave_picture_144811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144811.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:9F86267DEFEC76B948632C78E949DBDDEF455DAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144813.jpgsave_picture_144813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144813.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ SafeInCloud v20.8.5 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144814.jpgsave_picture_144814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144814.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:3A2F84F16D927B13BEC82BAD0917F0C4E676F0BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144815.jpgsave_picture_144815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144815.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:D06F20AEBD721D9434AA56D567AAA66B1EB0A0CD
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144817.jpgsave_picture_144817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144817.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Postico 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144818.jpgsave_picture_144818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144818.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ FrontendMasters, Scott Moss | Build Full-Stack Apps from Scratch (2021) WEB-DL [
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144819.jpgsave_picture_144819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144819.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ FrontendMasters, Scott Moss | Build Full-Stack Apps from Scratch (2021) WEB-DL [
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144820.jpgsave_picture_144820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144820.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Death Stranding (2020) [Ru/Multi] (1.06hf/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144821.jpgsave_picture_144821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144821.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Liquid Drum & Bass Sessions Vol 14 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144823.jpgsave_picture_144823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144823.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:80AF234AE9664736B3559A07CA8E9C3C5B8C33EE
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144824.jpgsave_picture_144824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144824.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - House Anthems (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144825.jpgsave_picture_144825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144825.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Librera PRO: Читалка для книг v8.4.25 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144826.jpgsave_picture_144826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144826.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:6D8CF4DCCF87808339D3557ACBC343CE5811A388
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144827.jpgsave_picture_144827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144827.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:6D8CF4DCCF87808339D3557ACBC343CE5811A388
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144829.jpgsave_picture_144829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144829.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:D2B7E6A93B49EF633529463AA09F5E51FB73EE8E
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144830.jpgsave_picture_144830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144830.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Gregorian - Pure Chants (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144831.jpgsave_picture_144831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144831.jpg" />
 </div>
 
 

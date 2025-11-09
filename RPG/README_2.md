@@ -6,7 +6,7 @@ Caves of Lore (2023) [En] (1.8.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5306.jpgsave_picture_5306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5306.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kynseed (2018) [En] (1.2.11.14505) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5307.jpgsave_picture_5307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5307.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Legends of Amberland II: The Song of Trees (2023) [En] (1.24) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5309.jpgsave_picture_5309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5309.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ELDEN RING (2022) [Ru/Multi] (1.16.1/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5310.jpgsave_picture_5310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5310.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Telepath Tactics Liberated (2022) [En] (1.0.60l) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5313.jpgsave_picture_5313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5313.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The RPG (2025) [Ru/Multi] (1.021) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5315.jpgsave_picture_5315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5315.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5427.jpgsave_picture_5427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5427.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.69/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5428.jpgsave_picture_5428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5428.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5434.jpgsave_picture_5434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5434.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rogue Loops (2025) [Ru/Multi] (1.3.4) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5454.jpgsave_picture_5454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5454.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5470.jpgsave_picture_5470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5470.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5474.jpgsave_picture_5474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5474.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:87C4273C0A767BEBEAAF4BEC7F730F3994D5EDA7
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5635.jpgsave_picture_5635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5635.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5728.jpgsave_picture_5728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5728.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5761.jpgsave_picture_5761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5761.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack FitGirl [Director's Cut - Supp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5762.jpgsave_picture_5762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5762.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5778.jpgsave_picture_5778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5778.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5884.jpgsave_picture_5884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5884.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,547) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6050.jpgsave_picture_6050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6050.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6055.jpgsave_picture_6055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6055.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dark Envoy (2023) [Ru/Multi] (1.8.0.74338) Repack Let'sРlay [Director's Gut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6067.jpgsave_picture_6067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6067.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Last Epoch (2024) [Ru/Multi] (1.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6169.jpgsave_picture_6169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6169.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ To the Eden (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6177.jpgsave_picture_6177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6177.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6195.jpgsave_picture_6195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6195.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Tale of Immortal (2021) [Ru/Multi] (1.2.111.259/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6197.jpgsave_picture_6197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6197.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6215.jpgsave_picture_6215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6215.jpg" />
 </div>
 
 

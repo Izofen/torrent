@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244083.jpgsave_picture_244083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244083.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A88416183E1D923D2D9C004A7D30CC8BAA98C9BF
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244084.jpgsave_picture_244084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244084.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6FB6947DBD2E73F5435F03D8E529E72CB841ACCC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244085.jpgsave_picture_244085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244085.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5D8A52A74AFCEED1E97B32853E8D4D19A7439E63
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244086.jpgsave_picture_244086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244086.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Stargazer - Life Will Never Be The Same (2023) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244087.jpgsave_picture_244087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244087.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:BE57C399A77B6853A2CB4C8BA724B60D1A9B581A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244088.jpgsave_picture_244088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244088.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ The Radio Sun - Heaven Or Heartbreak (2015) [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244089.jpgsave_picture_244089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244089.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Rob Van Bavel, Vincent Koning, Frans Van Geest - Trilogy: The Ghost, The King & 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244090.jpgsave_picture_244090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244090.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Aiseesoft Video Converter Ultimate 10.6.26 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244091.jpgsave_picture_244091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244091.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:317EF78EA656EE277152160EFAF7BFB532A60834
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244092.jpgsave_picture_244092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244092.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:1C6381D6D7048CD9B40BFE6B6B33A1A79C2E1768
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244093.jpgsave_picture_244093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244093.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:1D4C877F8DCDFB587AFBF2289DB4193061CE1644
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244094.jpgsave_picture_244094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244094.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:DDBAABBE237DF4BCA8297594788C1ED7DBCD3E37
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244095.jpgsave_picture_244095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244095.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Die Apokalyptischen Reiter - Tief.Tiefer (2014) 2xCD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244096.jpgsave_picture_244096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244096.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Осенний динамит. Русский выпуск (2016) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244097.jpgsave_picture_244097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244097.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dave Grusin - Discovered Again (1976), Mountain Dance (1979), 2CD [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244098.jpgsave_picture_244098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244098.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Otto Knows - Tomorrowland Friendship Mix (2022-03-10) [MP3|320 Kbps] <Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244099.jpgsave_picture_244099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244099.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ AIMP 5.11 Build 2425 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244100.jpgsave_picture_244100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244100.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Cattle Decapitation - Terrasite (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244101.jpgsave_picture_244101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244101.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:F4E097323ACEC198520698539995D47AE7BF873E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244102.jpgsave_picture_244102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244102.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ OmniPlayer Pro - Media Player 2.0.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244103.jpgsave_picture_244103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244103.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:AF25CE583A2DD9A1F2FD09B1BCA634D295EF7712
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244104.jpgsave_picture_244104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244104.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:F790D33DC5B1175099E9D579587529BFBF8C74B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244105.jpgsave_picture_244105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244105.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Goblin Hovel - The Comedy of Forms, The Tragedy of Function (2021) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244106.jpgsave_picture_244106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244106.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FontLab 7 v7.2.0.7649 Beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244107.jpgsave_picture_244107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244107.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:0CDB36368640C95EAD3C5FABB94FCC92FE60A023
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244108.jpgsave_picture_244108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244108.jpg" />
 </div>
 
 

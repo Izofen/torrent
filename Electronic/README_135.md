@@ -6,7 +6,7 @@ VA - Extreme Sports Music Vol 5 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241321.jpgsave_picture_241321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241321.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Toxxic Project - Secrets of Planet Helios (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241334.jpgsave_picture_241334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241334.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Electrozombies Records • Compilations Collection - 14 Releases (2016-2022
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241336.jpgsave_picture_241336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241336.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Black Hole Trance Music 03-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241367.jpgsave_picture_241367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241367.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Villa del Mar Vol.2: Deluxe Luxury and Spa Resort Chill Out (2017) [MP3|320
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241388.jpgsave_picture_241388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241388.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mindsphere - Mental Triplex - Mindream (2017) [MP3|320 Kbps] <Psybient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241397.jpgsave_picture_241397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241397.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - IBIZA Vol.1 (Chill Out and Lounge) (2017) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241404.jpgsave_picture_241404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241404.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Armin van Buuren - A State Of Trance 1118 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241439.jpgsave_picture_241439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241439.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Cattac - Deliverance (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241455.jpgsave_picture_241455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241455.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - There Is Nothing Like A Power Woman (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241466.jpgsave_picture_241466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241466.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Miami Downtempo Hits 2023 [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241487.jpgsave_picture_241487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241487.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Black Hole House Music 03-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241490.jpgsave_picture_241490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241490.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - WMC Miami 2017: Deep & Chill Beats (2017) [MP3|320 Kbps] <Deep House, Chill
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241493.jpgsave_picture_241493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241493.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Uplifting Only Top 15: April 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241497.jpgsave_picture_241497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241497.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Best Of Disco Balls Records 2019, Pt. 3 (2020) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241499.jpgsave_picture_241499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241499.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Makes Sense To Me Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241500.jpgsave_picture_241500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241500.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Veell - For What? (2005) SHUM Records [FLAC|Lossless|tracks+.cue] <IDM, Downtemp
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241548.jpgsave_picture_241548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241548.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Freakangel + Matthew Creed (Side Project) - Discography 20 Releases (2010-2021) 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241549.jpgsave_picture_241549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241549.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Proactive Criteria (2000) Underconstructing Records [FLAC|Lossless|tracks+.
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241593.jpgsave_picture_241593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241593.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Luxury Bar Grooves, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241605.jpgsave_picture_241605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241605.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Chill Оut Essential Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241667.jpgsave_picture_241667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241667.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ J-Kerz - WE ARE JK (I-XXIII) (2022) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241772.jpgsave_picture_241772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241772.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Vosh - Vessel (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Darksynth, Synthpo
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241894.jpgsave_picture_241894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241894.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Craig Connelly - One Second Closer (2017) [FLAC|Lossless|WEB|tracks] <Trance , P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241974.jpgsave_picture_241974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241974.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Synthatic - Take A Ride (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242030.jpgsave_picture_242030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242030.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242069.jpgsave_picture_242069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242069.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ PowerDirector Ultimate 21.1.2401.0 (x64) RePack by PooShock [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202533.jpgsave_picture_202533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Balabolka 2.15.0.837 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202534.jpgsave_picture_202534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202534.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Microsoft Windows 11 [10.0.22000.1574], Version 21H2 (Updated February 2023) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202535.jpgsave_picture_202535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202535.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WhatsApp 2.2306.9 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202536.jpgsave_picture_202536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202536.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Blender 3.3.4 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202537.jpgsave_picture_202537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202537.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Screen Translator 3.3.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202538.jpgsave_picture_202538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202538.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ OCCT 11.0.21 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202539.jpgsave_picture_202539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202539.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ WhatsApp 2.2306.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202540.jpgsave_picture_202540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202540.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ PotPlayer 230208 (1.7.21878) (x64) Stable RePack (& portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202541.jpgsave_picture_202541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202541.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:3292FEA43E9B7F4062B6165C5CF3C49AB75CB2C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202542.jpgsave_picture_202542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202542.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ WhatsApp 2.2306.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202543.jpgsave_picture_202543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202543.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Scrivener 3.1.4.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202544.jpgsave_picture_202544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202544.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:81D7EFDA6451062D155379CAEC8D0A1AE299A704
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202545.jpgsave_picture_202545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202545.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:F4B56ED5D3D87B985FE54DB56C6BB0F4F97E26B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202546.jpgsave_picture_202546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202546.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:65757E7627731E54C355E078A96837514831A14F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202547.jpgsave_picture_202547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202547.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E38EF5747F30B9BFF4B2FA2A54A6185FDF9C2158
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202548.jpgsave_picture_202548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202548.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:020F0DA19029574A6F4AEF277314CCE5CA5DB8C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202549.jpgsave_picture_202549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202549.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:43FD55816E97E58B7AADB3FA8E86EE6E63EAE512
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202550.jpgsave_picture_202550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202550.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Paint.NET 5.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202551.jpgsave_picture_202551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202551.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Nekonverter 1.3.0 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202552.jpgsave_picture_202552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202552.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:C850FCD212B50A0B3E5C01BB0B29C438A9173AC6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202553.jpgsave_picture_202553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202553.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mylene Farmer - L’emprise (2022) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202554.jpgsave_picture_202554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202554.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:A0D341659188EC9A9704BE4356D67C252421E4A9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202555.jpgsave_picture_202555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202555.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ WinRAR 6.21 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202556.jpgsave_picture_202556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202556.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ TechSmith Camtasia 22.5.0 (Build 43121) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202557.jpgsave_picture_202557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202557.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:4B0A662132ED035CFCB2BB1F4511C292BE0CA8EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202558.jpgsave_picture_202558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202558.jpg" />
 </div>
 
 

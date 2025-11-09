@@ -6,7 +6,7 @@ VA - Relaxing Evening Jazz Chill out Playlist (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111543.jpgsave_picture_111543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111543.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Monocast - Детства край (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111544.jpgsave_picture_111544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111544.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:4DD227C4733AD627DC5EE8EABAA29A22D23871D5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111545.jpgsave_picture_111545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111545.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:A19FC200702A5FB9CBCB29B58CB9D74FB277F6EF
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111546.jpgsave_picture_111546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111546.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Vivaldi 6.6.3271.61 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111547.jpgsave_picture_111547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111547.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:FFF776D6338285A5CC9096112B8EB3074DD05162
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111548.jpgsave_picture_111548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111548.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Carter The Unstoppable Sex Machine - 1992_ The Love Album (1992) Remaster, 2023,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111549.jpgsave_picture_111549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111549.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Lumen feat. Olympic Orchestra - Над пропастью... (2024) EP [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111550.jpgsave_picture_111550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111550.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Image Uploader 1.4.0 Build 5138 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111551.jpgsave_picture_111551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111551.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Footsteps On The Dancefloor, Vol. 1 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111552.jpgsave_picture_111552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111552.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:04762E57BF09D43302243426D72469BFF88D5B8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111553.jpgsave_picture_111553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111553.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:04762E57BF09D43302243426D72469BFF88D5B8C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111554.jpgsave_picture_111554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111554.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ PIDKey Lite 1.64.4 b41 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111555.jpgsave_picture_111555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111555.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - 10 Years Of Suanda Music - Mixed by Mhammed El Alami (2024) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111556.jpgsave_picture_111556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111556.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - Footsteps On The Dancefloor, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111557.jpgsave_picture_111557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111557.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Papik - Cocktail Mina Vol.3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111558.jpgsave_picture_111558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111558.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:7F8D480C60793CF2711DA81A34DC7ECBFFF07FEF
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111559.jpgsave_picture_111559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111559.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:82764E9457DFD6AA316491640035692F5E271DEA
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111560.jpgsave_picture_111560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111560.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Antarsys - Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111561.jpgsave_picture_111561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111561.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:8568ED2CECA383094BD049383069566DB70C46EB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111562.jpgsave_picture_111562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111562.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Armin van Buuren - A State Of Trance 1168 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111563.jpgsave_picture_111563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111563.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Voices From The New Cool Vol. 2 (Nu Jazz Crooners & Female Jazz Singers) (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111564.jpgsave_picture_111564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111564.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:3E40629A9938DB1CFD3D9C587DAECEFEB7A1BD9C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111565.jpgsave_picture_111565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111565.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ NIUBI Partition Editor 9.9.5 Technician Edition Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111566.jpgsave_picture_111566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111566.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Kurayukaba | Краюкаба [2024, Movie] WEBRip 544p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111567.jpgsave_picture_111567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111567.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:75A11C343DAF241DC4F4C874E494F72D89CD78A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111568.jpgsave_picture_111568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111568.jpg" />
 </div>
 
 

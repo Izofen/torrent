@@ -6,7 +6,7 @@ Symphonix - The Usual Suspects Remixes (2011) [MP3|320 кб/с]<Psy-Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96038.jpgsave_picture_96038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96038.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ magnet:?xt=urn:btih:C175591FCACFDA02112B0CA4C1FEBA129CA16320
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96041.jpgsave_picture_96041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96041.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96043.jpgsave_picture_96043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96043.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ magnet:?xt=urn:btih:E597C66839AA0E9D031D80E72769FDEE8D05928C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96044.jpgsave_picture_96044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96044.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ VA - Hip-Hop для Любимой (2012) [MP3|320 кб/с]<Hip-Hop, Rap>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96045.jpgsave_picture_96045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96045.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0390ECC62746501F523913688A0BC55F57B1816D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96050.jpgsave_picture_96050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96050.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:33794C303E6732672581C8DACA7327FA34EF9BC1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96052.jpgsave_picture_96052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96052.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:5556D30A00E83B31EFEF5A63E719275EC4DAADFA
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96054.jpgsave_picture_96054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96054.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Cosmos Just Now Beat (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96055.jpgsave_picture_96055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96055.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Горячая Танцевальная Сенсация (2012) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96056.jpgsave_picture_96056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96056.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:8681CE57681B58C6AE5929CA5068DC49441D7F7B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96059.jpgsave_picture_96059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96059.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:EB140A0B72D8769EBC2D0935A1D3F0D4543E5A06
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96063.jpgsave_picture_96063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96063.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:05566D884C6B48E70A6F683E00C27B25619D9C6D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96065.jpgsave_picture_96065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96065.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:768D878CF3B68154FA757431FAC12D7349276C0B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96068.jpgsave_picture_96068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96068.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Armin van Buuren - A State of Trance 551 (2012) [MP3|256 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96069.jpgsave_picture_96069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96069.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Generation of Psytrance Vol.8 (2012) [MP3|320 кб/с]<Psychedelic / Full O
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96072.jpgsave_picture_96072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96072.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:F8A23B9079126A7BC12FFDBDD6938165DEFFD41A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96073.jpgsave_picture_96073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96073.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Шоферской Хит 6 (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96078.jpgsave_picture_96078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96078.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:366CB18109D4DA6ACDCB3EA71A20A81AB70D6CEA
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96083.jpgsave_picture_96083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96083.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:72185CE6D257A894040D8B5101FAB031C43D1B2D
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96085.jpgsave_picture_96085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96085.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Amaranthe - Amaranthine (2011) HDRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96089.jpgsave_picture_96089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96089.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:40881F7E02A3C1F303822AEA077B2CD1F8F70E5E
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96091.jpgsave_picture_96091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96091.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:6C7270FB18ACCB7C0DED42E706ADE24CBCDE1638
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96094.jpgsave_picture_96094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96094.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:8CA6910CE93D972AC2D8C5EA69A1952C945CA2E6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96097.jpgsave_picture_96097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96097.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ magnet:?xt=urn:btih:23A7DA0FE0BBC7B7B621B9DB662EB21C781302A0
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96098.jpgsave_picture_96098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96098.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ magnet:?xt=urn:btih:70D0F28E6FCD842B4CCD64F1121FA2382A9EC169
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96099.jpgsave_picture_96099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96099.jpg" />
 </div>
 
 

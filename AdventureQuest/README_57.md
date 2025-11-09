@@ -6,7 +6,7 @@ Voodoo Detective (2022) [En] (0.0.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197309.jpgsave_picture_197309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197309.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197357.jpgsave_picture_197357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197357.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Killer Frequency (2023) [Ru/Multi] (1.0) Scene Rune [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197467.jpgsave_picture_197467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197467.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hello Goodboy (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197562.jpgsave_picture_197562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197562.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Infliction: Extended Cut (2018) [Ru/Multi] (3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198170.jpgsave_picture_198170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198170.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Backfirewall_ (2023) [Ru/Multi] (10567133) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198540.jpgsave_picture_198540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198540.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Before I Forget (2020) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198871.jpgsave_picture_198871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198871.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Neighbours Back From Hell (2020) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200003.jpgsave_picture_200003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200003.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201765.jpgsave_picture_201765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201765.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ FAR: Lone Sails (2018) [Ru/Multi] (1.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202176.jpgsave_picture_202176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202176.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Wreck (2023) [Multi] (1.0.0) License GOG [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202177.jpgsave_picture_202177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202177.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202219.jpgsave_picture_202219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202219.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Unto The End (2020) [Ru/Multi] (1.61) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202243.jpgsave_picture_202243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202243.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202244.jpgsave_picture_202244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202244.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202246.jpgsave_picture_202246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202246.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Undead Wilderness: Survival (2023) [Ru/Multi] (0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202282.jpgsave_picture_202282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202282.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Remorse: The List (2022) [Multi] (1.1.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202295.jpgsave_picture_202295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202295.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Midnight Scenes: The Highway (2020) [Ru/Multi] (1.27a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202384.jpgsave_picture_202384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202384.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Jenny LeClue - Detectivu (2019) [Ru/Multi] (2.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202440.jpgsave_picture_202440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202440.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202441.jpgsave_picture_202441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202441.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202442.jpgsave_picture_202442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202442.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202582.jpgsave_picture_202582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202582.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Loretta (2023) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202595.jpgsave_picture_202595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202595.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203090.jpgsave_picture_203090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203090.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203228.jpgsave_picture_203228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203228.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203267.jpgsave_picture_203267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203267.jpg" />
 </div>
 
 

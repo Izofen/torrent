@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210882.jpgsave_picture_210882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210882.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows and Office Genuine ISO Verifier 11.12.38.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210885.jpgsave_picture_210885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210885.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210886.jpgsave_picture_210886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210886.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ GPU-Z 2.54.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210887.jpgsave_picture_210887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210887.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Windows Update Viewer 0.5.12.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210890.jpgsave_picture_210890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210890.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Wondershare PDFelement 9.5.11.2311 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210891.jpgsave_picture_210891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210891.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:EEE5EA91D45B5C19E6D515CFFC790EB4DA693105
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210894.jpgsave_picture_210894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210894.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6A7C46AAD71CF5D76E979A842E981C82A1ED1AE4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210896.jpgsave_picture_210896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210896.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:64CBC426D477B23DEC6EF58C2E4876925D692661
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210898.jpgsave_picture_210898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210898.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:FDB73C40BA7708EE7A555401CC7F62010F215232
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210901.jpgsave_picture_210901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210901.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:27FFF4B51B9C665DA20904B65A01223D592F81D4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210903.jpgsave_picture_210903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210903.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:1BCDED7161EAE428D8EE575657EF384AEDC0A9E3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210906.jpgsave_picture_210906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210906.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Audio Hijack 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210909.jpgsave_picture_210909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210909.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Perfectly Clear WorkBench 4.5.0.2534 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210911.jpgsave_picture_210911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210911.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sandboxie plus 1.9.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210912.jpgsave_picture_210912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210912.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VueScan Pro 9.8.07 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210914.jpgsave_picture_210914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210914.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Smart Driver Manager Pro 6.4.977 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210916.jpgsave_picture_210916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210916.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A6C2E01BB70E07F76EBE39FC018AFA4F83FDFC57
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210918.jpgsave_picture_210918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210918.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Files Inspector Pro 3.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210923.jpgsave_picture_210923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210923.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:FA0ED43C1AB4E103BED24FC7BA8B098418EB96AA
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210926.jpgsave_picture_210926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210926.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:B881E08F301EE450FD056BFA3A6155317EBD678E
 >>Мультимедийные справочники, Энциклопедии
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210929.jpgsave_picture_210929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210929.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:173110A0503724C3CB8FA10103CFD072A009C1B5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210932.jpgsave_picture_210932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210932.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ PBS: Nature - Отважный Ирак / Braving Iraq (2010) BDRip [H.264/1080p
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210934.jpgsave_picture_210934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210934.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Topaz Video AI 3.3.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210935.jpgsave_picture_210935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210935.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Ashampoo Photo Optimizer 9.3.7.34 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210936.jpgsave_picture_210936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210936.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:FDC0B79984B75896D9A5724BC6472681C060934C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210939.jpgsave_picture_210939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210939.jpg" />
 </div>
 
 

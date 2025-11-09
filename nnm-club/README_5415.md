@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167684.jpgsave_picture_167684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167684.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ YouTube ReVanced Extended 18.40.34 (RVP v2.195.1) Mod by Number one' + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167685.jpgsave_picture_167685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167685.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Komet City - Don't Go to Strangers - A tribute to the Tulsa Sound (2022) [FLAC|L
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167686.jpgsave_picture_167686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167686.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v1.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167687.jpgsave_picture_167687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167687.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:707A25F948988F62072EE6895FE5812A8782346A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167688.jpgsave_picture_167688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167688.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:BA4A7F96C3DE6BB217EB4D1B96CE161E91BB27CA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167689.jpgsave_picture_167689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167689.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:73F9A46DFC0CE00A101CB6129E7678D35D1D145A
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167690.jpgsave_picture_167690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167690.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - National Pop Dance Music Vol.27 (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167691.jpgsave_picture_167691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167691.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:A6B56964123C10322D923A649D4443B8C146C0DA
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167692.jpgsave_picture_167692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167692.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Spektrvm - Blood for Heaven (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167693.jpgsave_picture_167693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167693.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:2C3F1EDA912A26525CC3A8BD65D484FE1A0FF948
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167694.jpgsave_picture_167694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167694.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:FF5EB2B7C4F48E603B3881731F9B5D85EF8D5CBE
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167695.jpgsave_picture_167695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167695.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ El Pasador - Non Stop And Other Hits (2015) CD [MP3|320 Kbps] <Electronic, Funk 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167696.jpgsave_picture_167696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167696.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167697.jpgsave_picture_167697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167697.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Not Now Norman - It's Not This One (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167698.jpgsave_picture_167698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167698.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Spotify 1.2.23.1125 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167699.jpgsave_picture_167699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167699.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ WinX VideoProc Converter 6.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167700.jpgsave_picture_167700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167700.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Saharok - Отчаяние Падающих Звёзд (2022) [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167701.jpgsave_picture_167701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167701.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:9D3EDD18DBBAF3ED1E38E621773CA898593D31B3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167703.jpgsave_picture_167703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167703.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:0C7931CE9D220FB4D0040A95B691DD230462ADD2
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167704.jpgsave_picture_167704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167704.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:562FDE0FFB748C16F2C32DAFA7FA4201075DBAAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167705.jpgsave_picture_167705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167705.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167706.jpgsave_picture_167706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167706.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:BB4C8897F9B75E4E95E1CAF61A9A344E7462F4E7
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167707.jpgsave_picture_167707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167707.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Taylor Swift - evermore (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167708.jpgsave_picture_167708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167708.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sellouts - Sellouts (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167709.jpgsave_picture_167709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167709.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:A2A51C4AFE19D7470C347BBEEDAE7CB49DAA7EA8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167710.jpgsave_picture_167710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167710.jpg" />
 </div>
 
 

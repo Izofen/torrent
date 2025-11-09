@@ -6,7 +6,7 @@ Microsoft Visual Studio 2022 Enterprise 17.7.0 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206515.jpgsave_picture_206515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206515.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Calm and Relaxed (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditati
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206518.jpgsave_picture_206518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206518.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Peter Gabriel - Come Talk to Me (Live) (2023) [MP3|320 Kbps] <Progressive Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206521.jpgsave_picture_206521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206521.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ XnView MP 1.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206522.jpgsave_picture_206522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206522.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Photo Lab PRO v3.12.65 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206525.jpgsave_picture_206525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206525.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:04C3E63E7F326DB8978AB5E8DF9197C21499BC54
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206526.jpgsave_picture_206526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206526.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ NG. Загадка акул Мауи / Maui Shark Mystery (2022) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206528.jpgsave_picture_206528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206528.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Blank & Jones - The Best Of Relax // 20 Years // 2003 - 2023 (2023) [MP3|320 Kbp
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206530.jpgsave_picture_206530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206530.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3723A747B249B28441C6EE4D04AC3C998C62EF65
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206531.jpgsave_picture_206531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206531.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:9C5159FA85D284B7A42F492F9670BD7666685821
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206535.jpgsave_picture_206535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206535.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:16ABA7814FCF94FBC6DE5A6A90354422E2C01899
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206536.jpgsave_picture_206536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206536.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ MagicMouseTrails 3.91 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206538.jpgsave_picture_206538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206538.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Draw.io 21.6.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206541.jpgsave_picture_206541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206541.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:2B637119CBCC7598EE5D775DAB39633F0A5C4BF2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206544.jpgsave_picture_206544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206544.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:56D29B12797873A257A87DAFB8B9DB64313923A5
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206546.jpgsave_picture_206546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206546.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ RedNotebook 2.30.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206549.jpgsave_picture_206549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206549.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Suzi Quatro, KT Tunstall - Face To Face (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206551.jpgsave_picture_206551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206551.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:5463B9124B1277909176DCF7B588A157A423EF63
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206553.jpgsave_picture_206553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206553.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:A0BAED94319860FC1745642256D354B753204ACB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206555.jpgsave_picture_206555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206555.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:328B6039DFFDDED4E1F5604F03FBA00FA4B1688A
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206556.jpgsave_picture_206556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206556.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:D835DCC79918A2DD970223B5155AC128B54B8592
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206558.jpgsave_picture_206558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206558.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ DxO PhotoLab 5 ELITE Edition 5.13.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206563.jpgsave_picture_206563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206563.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Sublime Merge 2.0 Build 2087 Dev for Mac [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206564.jpgsave_picture_206564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206564.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Viber 20.7.0.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206566.jpgsave_picture_206566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206566.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Transcend SSD Scope 4.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206567.jpgsave_picture_206567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206567.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Laid-Back Lounge: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206569.jpgsave_picture_206569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206569.jpg" />
 </div>
 
 

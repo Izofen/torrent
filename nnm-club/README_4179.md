@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129370.jpgsave_picture_129370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129370.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129371.jpgsave_picture_129371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129371.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129373.jpgsave_picture_129373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129373.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129374.jpgsave_picture_129374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129374.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129375.jpgsave_picture_129375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129375.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129377.jpgsave_picture_129377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129377.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129382.jpgsave_picture_129382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129382.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129384.jpgsave_picture_129384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129384.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129385.jpgsave_picture_129385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129385.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Crowd Rocker Cuts (2012) [MP3|320 кб/с]<Jungle, Liquid Funk, Drum'n'Bass
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129388.jpgsave_picture_129388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129388.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129389.jpgsave_picture_129389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129389.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129390.jpgsave_picture_129390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129390.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electr
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129391.jpgsave_picture_129391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129391.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129392.jpgsave_picture_129392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129392.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129393.jpgsave_picture_129393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129393.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Startup Panic (2022) [Ru/Multi] (3.15) License GOG
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129395.jpgsave_picture_129395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129395.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ DaVinci Resolve Studio for Linux 17.4.3 Build 10 [amd64] (run, deb)
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129397.jpgsave_picture_129397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129397.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ DaVinci Resolve — единственное в мире решение для �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129399.jpgsave_picture_129399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129399.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ uTorrent 3.5.5 Build 46148 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129400.jpgsave_picture_129400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129400.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ IObit Driver Booster Pro 9.1.0.156 RePack (& Portable) by TryRooM [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129402.jpgsave_picture_129402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129402.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Driver Booster сканирует и определяет устаревшие �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129403.jpgsave_picture_129403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129403.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Driver Booster сканирует и определяет устаревшие �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129404.jpgsave_picture_129404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129404.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Driver Booster сканирует и определяет устаревшие �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129406.jpgsave_picture_129406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129406.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Driver Booster сканирует и определяет устаревшие �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129409.jpgsave_picture_129409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129409.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Edge of Sanity - Kur-Nu-Gi-A (2012) [FLAC|Lossless]<Death Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129410.jpgsave_picture_129410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129410.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Edge of Sanity - Kur-Nu-Gi-A (2012) [FLAC|Lossless]<Death Metal>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129411.jpgsave_picture_129411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129411.jpg" />
 </div>
 
 

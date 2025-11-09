@@ -6,7 +6,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165814.jpgsave_picture_165814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165814.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C3873F59BEA0C9DED815C59968A8EF899B851984
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165815.jpgsave_picture_165815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165815.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ NCH Zulu Maters 5.02 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165816.jpgsave_picture_165816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165816.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ H2O: Просто добавь воды / H2O: Just Add Water (2006-2010) WEBRip
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165818.jpgsave_picture_165818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165818.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:82BECBB7B7A354E4D44CFED0E910EB9AC2289B56
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165819.jpgsave_picture_165819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165819.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Oceans of Slumber - The Banished Heart (2018) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165820.jpgsave_picture_165820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165820.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Macrorit Partition Extender 2.1.0 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165821.jpgsave_picture_165821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165821.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:301C829091902057EE1269BF76804593B84548E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165822.jpgsave_picture_165822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165822.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165823.jpgsave_picture_165823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165823.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:7943967A00D1155E4F6912C4D0F62EB5B55C5AAD
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165824.jpgsave_picture_165824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165824.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:EB845494C35FF8A6DF51591C631035785809D59E
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165825.jpgsave_picture_165825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165825.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Textify 1.8.10 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165826.jpgsave_picture_165826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165826.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:5236A3A625F548EE9A2AFD498809607A48019B2E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165827.jpgsave_picture_165827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165827.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Inhalo - Sever (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165828.jpgsave_picture_165828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165828.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:9ED4744F6B4B4883011B703665C797D359EE0DC7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165829.jpgsave_picture_165829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165829.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Agathodaimon - Serpent's Embrace (2004) + обои, фото, фото гале�
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165830.jpgsave_picture_165830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165830.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:B45C0DD90D91ABEB36C46710B2469072F36ADC73
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165831.jpgsave_picture_165831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165831.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:6DC38B7F37F77951E1441365409C8EB4BB133BBF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165832.jpgsave_picture_165832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165832.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E8FAF7D7DCF227FE6BCA64254EF86A32A12FF9CE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165833.jpgsave_picture_165833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165833.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:95A5CA954500A81B75F79ADB74266965647A4104
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165834.jpgsave_picture_165834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165834.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:2FAA48F49A7A80F43DD0C130D5B3143FE9590672
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165835.jpgsave_picture_165835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165835.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ K-Lite Codec Pack Update 17.3.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165836.jpgsave_picture_165836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165836.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165837.jpgsave_picture_165837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165837.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165838.jpgsave_picture_165838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165838.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ CleanMyMac X 4.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165839.jpgsave_picture_165839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165839.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:C2BCDA5B964D15AEDAD86E8E9F06345DB17477D9
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165840.jpgsave_picture_165840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165840.jpg" />
 </div>
 
 

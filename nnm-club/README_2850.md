@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83016.jpgsave_picture_83016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83016.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:293C2C6A2E01DF9EF33C0AC13FB4FC399302C926
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83017.jpgsave_picture_83017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83017.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:97CEEFE0BEE67C5C94C67F10ED18AE866F5CC625
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83019.jpgsave_picture_83019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83019.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C21C132B3909279E06F1A3A32B50177E61DAFD0C
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83021.jpgsave_picture_83021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83021.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:19B3D01C97EF3EF646D8A9EAB3AC2DA175593D04
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83022.jpgsave_picture_83022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83022.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9633BC6412AC9AF57CC83310D036DD107EC29A0C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83023.jpgsave_picture_83023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83023.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C532F751DD5A1390ECC0B6AD53D513142DB6FC4B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83025.jpgsave_picture_83025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83025.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Peter Bjargo - The Architecture Of Melancholy (2011) [FLAC|Lossless]<Dark Ambien
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83026.jpgsave_picture_83026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83026.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - Жажда Скорости XXX (2012) [MP3|160-192 kbps]<Club | Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83027.jpgsave_picture_83027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83027.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:688BE7F6548D54F3CF95C6AFE5C0976463339FCD
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83028.jpgsave_picture_83028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83028.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:F3DF841DE5725DA528BBE896BAFCED6522C1F274
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83032.jpgsave_picture_83032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83032.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:30A3DA1F9E1072D6100C98ECA2373B989B4A1AAF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83034.jpgsave_picture_83034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83034.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Душевная музыка (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83035.jpgsave_picture_83035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83035.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:E596C508AA71C679EF0EA2FF8AAC5711342188C2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83036.jpgsave_picture_83036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83036.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:B42199B12ECBE687ECFDD3B3C6A7A2CE084EDC96
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83037.jpgsave_picture_83037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83037.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:9F8CA2F3E1B936FBF6358EE97AE509AA1109A9A8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83038.jpgsave_picture_83038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83038.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Time Chronicles: The Missing Mona Lisa (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83039.jpgsave_picture_83039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83039.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:C433A30D3B5E4ACF634D21C241CAE3316A721959
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83040.jpgsave_picture_83040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83040.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Turbo Gems (P) [En] 2010
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83041.jpgsave_picture_83041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83041.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:B93F342329CC155C0C025B1EAB228AC3DCABBCEC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83045.jpgsave_picture_83045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83045.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:7A467841A944BE0B1FC4EEEA592741668BA43566
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83048.jpgsave_picture_83048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83048.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83050.jpgsave_picture_83050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83050.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tarja Turunen & Harus - In Concert - Live at Sibelius Hall (2011) [FLAC|Lossless
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83051.jpgsave_picture_83051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83051.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:3E38C278480FA99DE564BC9AEB083247E8832C1D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83052.jpgsave_picture_83052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83052.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Russian Pop music (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83055.jpgsave_picture_83055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83055.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ magnet:?xt=urn:btih:8F12D1AE86C314816EE53DBEB953449609EF8A42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83056.jpgsave_picture_83056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83056.jpg" />
 </div>
 
 

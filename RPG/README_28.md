@@ -6,7 +6,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47090.jpgsave_picture_47090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47090.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Voltaire: The Vegan Vampire (2023) [Multi] (1.03.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47093.jpgsave_picture_47093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47093.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47241.jpgsave_picture_47241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47241.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47258.jpgsave_picture_47258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47258.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47278.jpgsave_picture_47278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47278.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0-012215) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47388.jpgsave_picture_47388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47388.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Arranger: A Role-Puzzling Adventure (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47395.jpgsave_picture_47395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47395.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ LunarLux (2023) [Multi] (1.371) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47570.jpgsave_picture_47570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47570.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Thalassa: Edge of the Abyss (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47699.jpgsave_picture_47699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47699.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47710.jpgsave_picture_47710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47710.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Citizen Sleeper (2022) [En] (1.4.9) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47716.jpgsave_picture_47716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47716.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47788.jpgsave_picture_47788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47788.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47796.jpgsave_picture_47796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47796.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Minecraft Dungeons (2020) [Ru/Multi] (1.17.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47823.jpgsave_picture_47823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47823.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47833.jpgsave_picture_47833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47833.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48008.jpgsave_picture_48008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48008.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Oblivion Override (2024) [Multi] (1.1.2.1574) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48038.jpgsave_picture_48038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48038.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48107.jpgsave_picture_48107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48107.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ELDEN RING (2022) [Ru/Multi] (1.13/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48116.jpgsave_picture_48116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48116.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Dread Delusion (2024) [En] (1.1.0.13) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48123.jpgsave_picture_48123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48123.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Space Prison (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48201.jpgsave_picture_48201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48201.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48230.jpgsave_picture_48230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48230.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ruzar - The Dark Stones (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48339.jpgsave_picture_48339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48339.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Ruzar - The Life Stone (2015) [Ru/Multi] (1.0) Scene PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48346.jpgsave_picture_48346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48346.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Thaumaturge (2024) [Ru/Multi] (1.1.1 HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48454.jpgsave_picture_48454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48454.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.3.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48529.jpgsave_picture_48529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48529.jpg" />
 </div>
 
 

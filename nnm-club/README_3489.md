@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111075.jpgsave_picture_111075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111075.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Deviated Instinct - Liberty Crawls to the Sanctuary of Slaves (2013) EP [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111076.jpgsave_picture_111076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111076.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tarja Turunen - What Lies Beneath (2010) Special Edition, 2024, earMUSIC [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111077.jpgsave_picture_111077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111077.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Bazaart: Photo Editor & Graphic Design v2.5.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111078.jpgsave_picture_111078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111078.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:4F59D6BF797AC215DA852A19F9B347353B2DB48C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111079.jpgsave_picture_111079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111079.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:974E0D9DFCC91BEC4EA1C9952660220CE2C6D1D3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111080.jpgsave_picture_111080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111080.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:575708FEAD4D78A5D55089953958E570134865B1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111081.jpgsave_picture_111081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111081.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ QOwnNotes 24.4.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111082.jpgsave_picture_111082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111082.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ PhotoDirector v19.1.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111083.jpgsave_picture_111083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111083.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ L.a. Guns - Black Diamonds (2024) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111084.jpgsave_picture_111084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111084.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ John Haydock - Cold Look (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111085.jpgsave_picture_111085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111085.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:E4FA2357C4E2B8F4CE217516EB89F4FA15F8DA20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111086.jpgsave_picture_111086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111086.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:E4FA2357C4E2B8F4CE217516EB89F4FA15F8DA20
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111087.jpgsave_picture_111087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111087.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:157F67E0F6164FC82419433DC8D4D4D9B85330C1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111088.jpgsave_picture_111088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111088.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Process Lasso Pro 14.0.2.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111089.jpgsave_picture_111089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111089.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:1A392F18CD069B975ED4A61F313F610180959219
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111090.jpgsave_picture_111090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111090.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:2ACF6D50D65824BC099619929C9A78CDD4C61325
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111091.jpgsave_picture_111091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111091.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Glary Disk Cleaner 6.0.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111092.jpgsave_picture_111092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111092.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Wise Care 365 Pro 6.6.7.637 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111093.jpgsave_picture_111093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111093.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ OneCommander Pro 3.76.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111094.jpgsave_picture_111094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111094.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:0A38E1CEF962A105D338CDA104B2A916929EFB58
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111095.jpgsave_picture_111095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111095.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:5DA58A3BE1C3CB54BE802EB50DB8900B35EF3DA2
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111096.jpgsave_picture_111096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111096.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:2CB0DA6D778B0A496894079B404F4422677595E6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111097.jpgsave_picture_111097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111097.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:FBD37E7C65F14EED894F1EBAFEA65B502544910B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111098.jpgsave_picture_111098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111098.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Photo Lab PRO v3.13.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111099.jpgsave_picture_111099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111099.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:7DB7E66A262CC9F453990641E0A23C8D8333C7B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111100.jpgsave_picture_111100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111100.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239035.jpgsave_picture_239035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239035.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mercy Shot - Brace For Impact! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239047.jpgsave_picture_239047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239047.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pressure Points - Remorses To Remember (2010) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239050.jpgsave_picture_239050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239050.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Weight of Atlas - The Art of Letting Go Pt:I (2021) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239053.jpgsave_picture_239053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239053.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ For Giants - There, There (2021) [MP3|320 Kbps] <Progressive Metal, Djent, Instr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239061.jpgsave_picture_239061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239061.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Throne Of Heresy - Decameron (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239067.jpgsave_picture_239067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239067.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Ocean Dark - Hope & Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239073.jpgsave_picture_239073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239073.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Throne Of Heresy - Antioch (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239090.jpgsave_picture_239090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239090.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Avery Watts - Death Ground (2023) [MP3|320 Kbps] <Alternative Rock, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239130.jpgsave_picture_239130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239130.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Strawbs - Prognostic (2014) [FLAC|Lossless|tracks + .cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239166.jpgsave_picture_239166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239166.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:4A0E9ABEC9E64A4DDA1359A0A39C7E6BDA936915
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239169.jpgsave_picture_239169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239169.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Blind Ego - Mirror (2007) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239177.jpgsave_picture_239177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239177.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Extreme - Six (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rock, Heavy Metal, Fun
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239181.jpgsave_picture_239181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239181.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mahr - Maelstrom (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239188.jpgsave_picture_239188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239188.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Cowboy Junkies - Such Ferocious Beauty (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239210.jpgsave_picture_239210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239210.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239211.jpgsave_picture_239211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239211.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bloodsugar - Join The Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239217.jpgsave_picture_239217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239217.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sunken State - Solace in Solitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239219.jpgsave_picture_239219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239219.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Excelsis - Bluetmond (2020) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239224.jpgsave_picture_239224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239224.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239228.jpgsave_picture_239228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239228.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Son of Sam - And The Monster Awoke... (2021) [MP3|320 Kbps] <Heavy Metal, Melodi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239230.jpgsave_picture_239230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239230.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Rival Sons - DARKFIGHTER (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239242.jpgsave_picture_239242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239242.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Blacktop Kings - Royalty (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239247.jpgsave_picture_239247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239247.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Offensive - Blast from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239273.jpgsave_picture_239273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239273.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mike Tramp - Songs Of White Lion (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239291.jpgsave_picture_239291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239291.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ David Sinclair - Apropos Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239297.jpgsave_picture_239297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239297.jpg" />
 </div>
 
 

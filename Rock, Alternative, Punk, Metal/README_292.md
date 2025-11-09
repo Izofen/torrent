@@ -6,7 +6,7 @@ Kings Crown - Closer To The Truth (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173849.jpgsave_picture_173849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173849.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tarja Turunen - Best of: Living the Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173872.jpgsave_picture_173872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173872.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sproingg - Clam (2020) [MP3|320 Kbps] <Progressive Rock, Eclectic Prog, Instrume
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173888.jpgsave_picture_173888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173888.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Diablo Swing Orchestra - Swagger & Stroll Down the Rabbit Hole (2021) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173896.jpgsave_picture_173896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173896.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ DevilDriver - Dealing With Demons Vol. I (2020) [FLAC|Lossless|image + .cue] <Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173911.jpgsave_picture_173911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173911.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Frowning - Death Requiem (2020) [FLAC|Lossless|image + .cue] <Funeral Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173958.jpgsave_picture_173958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173958.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:25DD4F5DA6BDAC79D0F013F154374C6D2E4D930D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173964.jpgsave_picture_173964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173964.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:44DC3B31DC584D082F5DD1E39FA971852AA2B45E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173975.jpgsave_picture_173975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173975.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Rock Anthem Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173997.jpgsave_picture_173997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173997.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Foo Fighters - The Essential Foo Fighters (2022) Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174019.jpgsave_picture_174019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174019.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Summertime Rock Hits 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174026.jpgsave_picture_174026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174026.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Boppin' B - Saxbomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174036.jpgsave_picture_174036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174036.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ronnie Atkins - Trinity (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174049.jpgsave_picture_174049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174049.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:01AB16D51B34C7EA84E7C94CB6DAF00856A90312
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174054.jpgsave_picture_174054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174054.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Newman - Ignition (2020) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174065.jpgsave_picture_174065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174065.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Assbuka - Ипортозамещение (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174075.jpgsave_picture_174075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174075.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gothic Sky - Последние Слова Покаяния (2023) [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174080.jpgsave_picture_174080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174080.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Arabs In Aspic - 3 Albums (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174087.jpgsave_picture_174087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174087.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Circus Maximus - Nine Live (2019) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174098.jpgsave_picture_174098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174098.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wendigo - Темный ритуал (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174103.jpgsave_picture_174103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174103.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Darken - Welcome To The Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174114.jpgsave_picture_174114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174114.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ AcidMorph - Prometheus in Flames (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174115.jpgsave_picture_174115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174115.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Acer Fury - Crazy King (2016) Compilation [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174119.jpgsave_picture_174119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174119.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ We Are Resolute - Only Human (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174130.jpgsave_picture_174130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174130.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Necroscum - Gates of Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174137.jpgsave_picture_174137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174137.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Adrian - One Step Into The Uncertain (1987) Reissue 2014, Karthago Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174138.jpgsave_picture_174138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174138.jpg" />
 </div>
 
 

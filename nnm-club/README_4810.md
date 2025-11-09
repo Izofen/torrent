@@ -6,7 +6,7 @@ Perfectly Clear WorkBench 4.6.0.2616 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150529.jpgsave_picture_150529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150529.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150530.jpgsave_picture_150530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150530.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:DC7B919847CAEDA208613D6FB63CB019A288B041
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150531.jpgsave_picture_150531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150531.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:7562D4932E60B0EC3139E6BE68A1715730636B16
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150532.jpgsave_picture_150532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150532.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Dogma - Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Female Voca
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150533.jpgsave_picture_150533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150533.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Aperitivo Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150534.jpgsave_picture_150534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150534.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - The Best Of House 2023 Part 2 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150535.jpgsave_picture_150535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150535.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Black Hole Trance Music 11-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150536.jpgsave_picture_150536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150536.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Blank & Jones - Chilltronica EP 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150537.jpgsave_picture_150537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150537.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:C7A8FB69C9795AE1BEE653B17AD1794A0550D713
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150538.jpgsave_picture_150538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150538.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Zoner Photo Studio X 19.2309.2.507 Portable by 7997 [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150539.jpgsave_picture_150539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150539.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:AFF3C6F6ADB4F9ACF6C17C2C35C095E30816DECF
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150540.jpgsave_picture_150540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150540.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Emurasoft EmEditor Professional 23.0.2 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150541.jpgsave_picture_150541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150541.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Succubus - The Eternal Curse Of Existence (2023) [FLAC|Lossless|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150542.jpgsave_picture_150542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150542.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150543.jpgsave_picture_150543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150543.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:C752E8BF354E556D5EE0D805D25E0412BB4A08D0
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150544.jpgsave_picture_150544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150544.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Acid Jazz & Funky Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150545.jpgsave_picture_150545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150545.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Acid Jazz Today 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150546.jpgsave_picture_150546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150546.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Black Hole House Music 11-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150547.jpgsave_picture_150547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150547.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:1DAFCA8133188C905A4D3BCE17F4AFAE750C293A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150548.jpgsave_picture_150548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150548.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Hit News Vol. 8 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150549.jpgsave_picture_150549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150549.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150550.jpgsave_picture_150550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150550.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Hit News Vol. 7 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150551.jpgsave_picture_150551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150551.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150552.jpgsave_picture_150552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150552.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:DEAC45CE0F5EAD772903489F1800015934F8C53F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150554.jpgsave_picture_150554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150554.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:EEAF238069BBFF013BFDE349E262C5DC0ACAAF9E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150555.jpgsave_picture_150555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150555.jpg" />
 </div>
 
 

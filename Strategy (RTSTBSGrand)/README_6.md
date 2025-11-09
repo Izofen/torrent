@@ -6,7 +6,7 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53918.jpgsave_picture_53918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53918.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Armored Brigade (2018) [En] (1.068b/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54013.jpgsave_picture_54013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54013.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Medieval Kingdom Wars (2018) [Ru/Multi] (1.20) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54322.jpgsave_picture_54322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54322.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54329.jpgsave_picture_54329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54329.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54475.jpgsave_picture_54475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54475.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ StarCraft II: Антология (2010-2015) [Ru/En] (3.0.5.39117/dlc) Repack Fi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54855.jpgsave_picture_54855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54855.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.9.10756/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55061.jpgsave_picture_55061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55061.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Scene Tenoke [Legate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55169.jpgsave_picture_55169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55169.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:FA52B061E0FE97AB8C11FC2A688D233EB5DD6373
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55481.jpgsave_picture_55481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55481.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ WARNO (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55539.jpgsave_picture_55539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55539.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:728A40E5998C77C98095FDB40AD4BFD2F067A570
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55797.jpgsave_picture_55797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55797.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ StarCraft: Remastered (2017) [Ru/En] (1.23.9.10756) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56085.jpgsave_picture_56085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56085.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенн�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56089.jpgsave_picture_56089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56089.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56096.jpgsave_picture_56096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56096.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Expansion - Europa Universalis IV: Domination (2023) [Multi] (1.37.0/dlc) Scene 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57103.jpgsave_picture_57103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57103.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Stronghold (2023) [Ru/Multi] (1.3/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57996.jpgsave_picture_57996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57996.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58083.jpgsave_picture_58083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58083.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58605.jpgsave_picture_58605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58605.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Revival: Recolonization (2023) [Ru/Multi] (1.0.415) Repack FitGirl [Deluxe Editi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59239.jpgsave_picture_59239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59239.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Victoria II (2) (2010) [Ru/Multi] (4904558/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61540.jpgsave_picture_61540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61540.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Lord of the Rings: War of the Ring / Властелин колец: Войн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62490.jpgsave_picture_62490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62490.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Gord (2023) [Ru/Multi] (1.5.0/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62725.jpgsave_picture_62725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62725.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Empire Earth 3 [Ru] (RePack/1.1) 2007 | MAJ3R
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76215.jpgsave_picture_76215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76215.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Command & Conquer: Red Alert 3 Uprising [Ru] (Rip) 2009 | Fenixx
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82157.jpgsave_picture_82157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82157.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Galactic Civilizations 2 Ultimate Edition / Космическая Федера�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82160.jpgsave_picture_82160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82160.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rise of Nations: Rise of Legends [Ru] (RePack) 2006 | Naitro
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82363.jpgsave_picture_82363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82363.jpg" />
 </div>
 
 

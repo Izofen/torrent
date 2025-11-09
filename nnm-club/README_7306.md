@@ -6,7 +6,7 @@ SRWare Iron 110.0.5600.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249993.jpgsave_picture_249993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249993.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2557ED6C78E4FB0C7AD25C0C440F57464C60634A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249994.jpgsave_picture_249994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249994.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Allman Brothers Band - Hittin’ the Note (2003) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249995.jpgsave_picture_249995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249995.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Apple добавляет в iOS режим Lockdown Mode для защиты о�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249996.jpgsave_picture_249996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249996.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Apple добавляет в iOS режим Lockdown Mode для защиты о�
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249997.jpgsave_picture_249997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249997.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Commander One PRO Pack 3 v3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249998.jpgsave_picture_249998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249998.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:FF1B1F0B3AC19D921822CF948C78F1A574CB40CF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249999.jpgsave_picture_249999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249999.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Topaz Photo AI 1.2.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250000.jpgsave_picture_250000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250000.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Uninstall Tool 3.6.1 Build 5687 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250001.jpgsave_picture_250001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250001.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:9FC199C561AE8A5F546EF709A65012612B5A04F5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250002.jpgsave_picture_250002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250002.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Aiseesoft Screen Recorder 2.7.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250003.jpgsave_picture_250003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250003.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ zero-project - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age, Ambient>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250004.jpgsave_picture_250004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250004.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:D4445BA5F2537ABDFB48E4EA6F35D07D744B9516
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250005.jpgsave_picture_250005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250005.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Advanced SystemCare Pro 15.5.0.263 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250006.jpgsave_picture_250006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250006.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:6E92F23D23D63B4C2ACBF67157BDF8CED92F1D6C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250007.jpgsave_picture_250007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250007.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:C5B47D665FE500B5886D0DA588D1E66241E44F2D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250008.jpgsave_picture_250008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250008.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Inkscape 1.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250009.jpgsave_picture_250009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250009.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.31.31103.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250010.jpgsave_picture_250010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250010.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wondershare UniConverter Ultimate 14.1.13.154 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250011.jpgsave_picture_250011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250011.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ GPU-Z 2.47.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250012.jpgsave_picture_250012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250012.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:7C26429622F8825C1C29EC10D930280E31ADE167
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250013.jpgsave_picture_250013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250013.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ OfficeSuite + PDF & HD + Addons 12.2.40533 & 12.1.39984 Mod by Balatan, Mihz, Al
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250014.jpgsave_picture_250014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250014.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:EEB389C6FAE155EA0D92034291F27748666A7BDA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250015.jpgsave_picture_250015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250015.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Nik Complete 5 Collection by DxO v5.0.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250016.jpgsave_picture_250016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250016.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Matt Andersen - The Big Bottle of Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250017.jpgsave_picture_250017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250017.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:2DBDC7A9AD6F5070C7476FC84F52274BBFA1744D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250018.jpgsave_picture_250018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250018.jpg" />
 </div>
 
 

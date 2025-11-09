@@ -6,7 +6,7 @@ Diary of Lucie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190434.jpgsave_picture_190434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190434.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AC60188FD7FF5CC3CE11983295E07DCFB218DA38
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190435.jpgsave_picture_190435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190435.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Laid Back - Road To Fame (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listeni
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190436.jpgsave_picture_190436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190436.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C750C2F2C6B123BF2B72BAD02D8569EA4C054CCD
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190437.jpgsave_picture_190437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190437.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:1D2DB64CDE4DE724D8119C9838E2E087C712845B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190438.jpgsave_picture_190438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190438.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Alien Vampires - Return Me To Hell (2023) 2CD, Uncensored version [FLAC|Lossless
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190439.jpgsave_picture_190439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190439.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:3B1BC92C426003561DFC7E7D98466C1094F1F709
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190440.jpgsave_picture_190440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190440.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:3BED196DB76DE2328EE26B960D9D5965BB17459C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190447.jpgsave_picture_190447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190447.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Justin Jenkins | MongoDB for Jobseekers (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190449.jpgsave_picture_190449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190449.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:9D53E6F0921F6136217A2DFFBB2AF3028376E1A3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190452.jpgsave_picture_190452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190452.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Adobe XD 55.1.12.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190453.jpgsave_picture_190453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190453.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Supermax - 3 Albums (1977 - 1986) Remastered, 2005, CD-Maximum [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190454.jpgsave_picture_190454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190454.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:9D457C94472FEEE00EE2B5C7B64525E893B2DD78
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190456.jpgsave_picture_190456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190456.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:87C0EBD48A5AB0A2492A290DF9E02435EA386FA0
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190458.jpgsave_picture_190458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190458.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:3C6C6C4BE59B51389D87F8A43D2F1311AB539943
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190460.jpgsave_picture_190460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190460.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:F8E6B2C5DCF29A86EA94D2F8859600C8002B513F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190462.jpgsave_picture_190462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190462.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VPN Inf - Security Fast VPN 7.6.026 Mod by AzadNet [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190464.jpgsave_picture_190464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190464.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:D989B452D0FB644FCA103B6611A00ECACDEC6BD7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190466.jpgsave_picture_190466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190466.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:164BB88CDF07BF4028F3EBB973F31170CA0B1E85
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190467.jpgsave_picture_190467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190467.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:98AD75EC350EDC21C853360088BF7B09CB97188F
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190469.jpgsave_picture_190469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190469.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:C927BE2737801F32BAD95A6892E4218074476AEF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190472.jpgsave_picture_190472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190472.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Unsolved Case 4: Above the Law (2023) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190474.jpgsave_picture_190474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190474.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - House Relax 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190475.jpgsave_picture_190475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190475.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190478.jpgsave_picture_190478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190478.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Rohan Banerjee | Hands-on TinyML (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190480.jpgsave_picture_190480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190480.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Ice Giant - Ghost of Humanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190483.jpgsave_picture_190483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190483.jpg" />
 </div>
 
 

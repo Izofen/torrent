@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18161.jpgsave_picture_18161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18161.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3ABF8C82A4773AA4559EF6A3095D8FA996EA6A5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18162.jpgsave_picture_18162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18162.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6EB7E72E221734DCFFEAF0C841954E669D5E3A61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18163.jpgsave_picture_18163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18163.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DF64049187D82983E5084A56A94173A80D74CFCA
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18164.jpgsave_picture_18164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18164.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:DF64049187D82983E5084A56A94173A80D74CFCA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18165.jpgsave_picture_18165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18165.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18166.jpgsave_picture_18166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18166.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:4D46DA3902E8EFA671F2A6FFEF82E26993AD39D1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18167.jpgsave_picture_18167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18167.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:4D46DA3902E8EFA671F2A6FFEF82E26993AD39D1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18168.jpgsave_picture_18168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18168.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.264/720p] [MVO]
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18169.jpgsave_picture_18169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18169.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:11B142F1F7A74C0D9B879249C1142C3D1C9F3568
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18170.jpgsave_picture_18170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18170.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:DD85BED025C88880811BC7DECC92EA8EC5719E8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18171.jpgsave_picture_18171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18171.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18172.jpgsave_picture_18172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18172.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:596DA09827F0BE41FB4CB4A458FC9D8D3BFC9632
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18174.jpgsave_picture_18174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18174.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18175.jpgsave_picture_18175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18175.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:EC2DADBCC6B89E674B6A2A44849B6445D8E79FEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18176.jpgsave_picture_18176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18176.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:9B79A2EF6777A5E6370CE95890C81563715A0289
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18177.jpgsave_picture_18177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18177.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:789BFC1703AB48E2817D03BCB2734F188830A935
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18178.jpgsave_picture_18178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18178.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Guns N' Roses - Appetite For Democracy 3D (2014) BOX Set, 2xCD, Limited Edition 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18179.jpgsave_picture_18179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18179.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Ino-Head Gargoyle | Горгулья из парка Инокасира (2012) [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18180.jpgsave_picture_18180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18180.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:E4BC5FC561435BCF7FBA40FC02F13B583193C99B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18181.jpgsave_picture_18181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18181.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18182.jpgsave_picture_18182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18182.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Sakuranbo Syndrome - Cupid no Itazura II | Шалость купидона: Ви
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18183.jpgsave_picture_18183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18183.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:2F0471481E7C43D17A5AD93E73B75AAB7813F9F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18184.jpgsave_picture_18184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18184.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Yakusoku no Neverland | Обещанный Неверленд (2016) [20 том�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18185.jpgsave_picture_18185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18185.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:5D61C37E6F110826E1BEF8A7A40E7848D185C31F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18186.jpgsave_picture_18186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18186.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Platinum End | Платиновый предел (2015) [14 томов, 28 гл�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18187.jpgsave_picture_18187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18187.jpg" />
 </div>
 
 

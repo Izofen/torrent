@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149150.jpgsave_picture_149150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149150.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ IObit Uninstaller Pro 10.2.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149152.jpgsave_picture_149152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149152.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F45B4817450D8244920448413BB7198C85E06272
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149153.jpgsave_picture_149153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149153.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E88DB14E5FF708AB8281DFBA372845574E69F9CE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149154.jpgsave_picture_149154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149154.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:ECA0D4FD37E4BC74F32173996BA0FD9561696CF7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149155.jpgsave_picture_149155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149155.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:94B1E533F0EBF0E792244EB5DE7982716A47D618
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149156.jpgsave_picture_149156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149156.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ ACDSee Ultimate 10.2 Build 878 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149157.jpgsave_picture_149157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149157.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:7E3E602F57E8B4091807D696D2AC7CA1D8AE2240
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149158.jpgsave_picture_149158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149158.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Roxy Music - The Best Of Roxy Music (2001) SACD, Compilation, 2003, Virgin [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149159.jpgsave_picture_149159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149159.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:A76CAA1DFD6458EDBFCDC1799B7282531F7C0172
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149160.jpgsave_picture_149160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149160.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ AOMEI Backupper Pro 6.3.0 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149161.jpgsave_picture_149161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149161.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из шк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149162.jpgsave_picture_149162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149162.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:29D4F1BCD1F9DFF49B53CF63D3F7A798A56B4C1F
 >>Дискуссионный клуб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149164.jpgsave_picture_149164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149164.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:29D4F1BCD1F9DFF49B53CF63D3F7A798A56B4C1F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149166.jpgsave_picture_149166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149166.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Learn Squared, Maciej Kuciara | Intro to Environment Painting (2016) WEB-DLRip [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149167.jpgsave_picture_149167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149167.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:F8E1A2F50C6F886FFDB9C4716072B9B1C7BF38AF
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149168.jpgsave_picture_149168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149168.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Balabolka 2.14.0.682 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149170.jpgsave_picture_149170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149170.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:0840141B27C64A1A9CE27AF214D6007C8A0D7073
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149171.jpgsave_picture_149171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149171.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:030DBF2F8A5C2F6573C5E840E52C5BF9321E8C6D
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149172.jpgsave_picture_149172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149172.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ AOMEI Backupper Technician Plus 6.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149173.jpgsave_picture_149173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149173.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ David Bowie - The Rise And Fall Of Ziggy Stardust And The Spiders From Mars (197
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149175.jpgsave_picture_149175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149175.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:9491CF4F587428EE110BA8D7D22C00C6B92C8C68
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149176.jpgsave_picture_149176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149176.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:30CD9A102DA8582A09D9CA6D60ED49414561EAF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149177.jpgsave_picture_149177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149177.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ R-Studio Emergency Network GUI TUI 8.8.0670 (BootCD) [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149178.jpgsave_picture_149178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149178.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:8289067BCCB597FF16E496111DDE59C30ED3010D
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149179.jpgsave_picture_149179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149179.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149180.jpgsave_picture_149180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149180.jpg" />
 </div>
 
 

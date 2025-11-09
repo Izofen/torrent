@@ -6,7 +6,7 @@ Lyna Mahyem - Mon âme (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul/Funk/R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117776.jpgsave_picture_117776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117776.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Miguel Angel Torres - Opera Eneida (2024) [MP3|320 Kbps] <Progressive Rock, Heav
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117777.jpgsave_picture_117777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117777.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:5862E08A2BC363FEBC5AC3082A6967E6B0D04A16
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117778.jpgsave_picture_117778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117778.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Find Any File (FAF) 2.4.2b6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117779.jpgsave_picture_117779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117779.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Seth James - Lessons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117780.jpgsave_picture_117780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117780.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ TechSmith Camtasia 2023 Studio 2023.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117781.jpgsave_picture_117781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117781.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Topor - Wieczna kazn (2023) [MP3|320 Kbps] <Thrash, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117782.jpgsave_picture_117782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117782.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Torchia - The Coven (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117783.jpgsave_picture_117783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117783.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:A1562C00E103BBBF6E276B692301805A4B2AD5CB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117784.jpgsave_picture_117784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117784.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ EasyGantt Classic  4.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117785.jpgsave_picture_117785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117785.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Myary 2.5.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117786.jpgsave_picture_117786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117786.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:5AD0B2065F5449A3518D4CBA9C89E3A9B5469F95
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117787.jpgsave_picture_117787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117787.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Kitty Kallen - Our Lady... Kitty Kallen (1946 - 1952) 2003, Sepia Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117788.jpgsave_picture_117788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117788.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Die Sterne - Grandezza (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117789.jpgsave_picture_117789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117789.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:F6DA81201D15AFF4760AB2762B112B0D4F1B79A9
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117790.jpgsave_picture_117790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117790.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Cheikh Ouza - African Smooth (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117791.jpgsave_picture_117791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117791.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ ScrollNavigator 5.15.4 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117792.jpgsave_picture_117792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117792.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ DirPrintOK 6.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117793.jpgsave_picture_117793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117793.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:0D1BC82039BFD65C7AA663C97464B65179759370
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117794.jpgsave_picture_117794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117794.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Bright & Black - The Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117795.jpgsave_picture_117795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117795.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ YT Downloader 9.6.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117796.jpgsave_picture_117796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117796.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BB10FE1E24EDBA33866A264E04EA1411E17A4A51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117797.jpgsave_picture_117797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117797.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:BB10FE1E24EDBA33866A264E04EA1411E17A4A51
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117798.jpgsave_picture_117798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117798.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117799.jpgsave_picture_117799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117799.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:C01F3D890BB0602C07B85477A970F7B0B78DC67E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117800.jpgsave_picture_117800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117800.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Fort Firewall 3.11.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117801.jpgsave_picture_117801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117801.jpg" />
 </div>
 
 

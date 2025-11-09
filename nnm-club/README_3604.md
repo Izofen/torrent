@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114079.jpgsave_picture_114079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114079.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114080.jpgsave_picture_114080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114080.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:86E18B28311DB0DD2D428238EEA031557AF96BB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114081.jpgsave_picture_114081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114081.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ CleanMyMac X 4.15.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114082.jpgsave_picture_114082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114082.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9024F535F22F055F1C491EDEEE7996912A26812A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114083.jpgsave_picture_114083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114083.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114084.jpgsave_picture_114084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114084.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7E1887130D841F66631996EDC775E2EDD1B15B39
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114085.jpgsave_picture_114085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114085.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D138181EEC0EDD35AB140A0AEDEE2F203E9B20E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114086.jpgsave_picture_114086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114086.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:E12E46E903DBE9BA92519085DAB53A9ABFE58489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114087.jpgsave_picture_114087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114087.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:A58B8AEFBE52F61CDB480D71CDEAC07CF292D48A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114088.jpgsave_picture_114088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114088.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cent Browser 5.1.1130.26 Beta + Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114089.jpgsave_picture_114089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114089.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:D6ACC7F1E1932312BC8426642D381932EA0C7FE3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114090.jpgsave_picture_114090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114090.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:BBAB1014B4CBF0B61128AE07C103A8EF694B62E9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114091.jpgsave_picture_114091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114091.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:E9FCBEFEF12875EFDD2CC38621EC76AED676AA0D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114092.jpgsave_picture_114092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114092.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:F18CDB836052A7AD91CA2D92713211FFD7C678A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114093.jpgsave_picture_114093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114093.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:0EC17301E7BC6B2E4FFE1A42D93C81F938FB24C0
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114094.jpgsave_picture_114094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114094.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Adobe Photoshop 2024 25.5.1.408 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114095.jpgsave_picture_114095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114095.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:5CC7E49900BF1E82E6CC84376C4F4B2FACA0C48D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114096.jpgsave_picture_114096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114096.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:7DE69E93C3BEFA76E007AE1052C9D4E1C191C021
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114097.jpgsave_picture_114097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114097.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:6F367C86A9DDBBFFC0A8A49C1C43FA0F7068B04D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114098.jpgsave_picture_114098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114098.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:339ED3AF766E7C53C2D616E836C4A9C3A910185D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114099.jpgsave_picture_114099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114099.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Wynton Marsalis - Hot House Flowers (1984) CBS [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114100.jpgsave_picture_114100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114100.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Lionel Hampton - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114101.jpgsave_picture_114101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114101.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Solitude Aeturnus - Hour of Despair (2007) hand made remaster [FLAC 16/44.1|Loss
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114102.jpgsave_picture_114102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114102.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Stephane Grappelli Trio - I Got The World On A String (1996) 1998, West Wind [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114103.jpgsave_picture_114103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114103.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Alfred PowerPack 5.5 Beta 2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114104.jpgsave_picture_114104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114104.jpg" />
 </div>
 
 

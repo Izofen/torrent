@@ -6,7 +6,7 @@ Blaze of Perdition - The Hierophant (2011) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110060.jpgsave_picture_110060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110060.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Blaze of Perdition - 418 - ATh IAV (2013) Split [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110061.jpgsave_picture_110061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110061.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Trippelganger - Possessor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110064.jpgsave_picture_110064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110064.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:A79EEDA7DC4D84A2ADC1E7E28245CF38A6D2C9C2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110067.jpgsave_picture_110067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110067.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Cold Years - A Different Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110070.jpgsave_picture_110070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110070.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Scavenger - Beyond The Bells (2024) [FLAC|Lossless|WEB-DL|tracks] <Oldschool Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110074.jpgsave_picture_110074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110074.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Christian Kallias' Steel Eternal - Battlecry Of The Galaxy (2024) [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110079.jpgsave_picture_110079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110079.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ The Watchers - Nyctophillia (2024) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110080.jpgsave_picture_110080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110080.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Keith Wallen - Infinity Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110093.jpgsave_picture_110093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110093.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ MaidaVale - Sun Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110096.jpgsave_picture_110096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110096.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:3947FDE27736FF6459BE978989BFE22F240811D7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110110.jpgsave_picture_110110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110110.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Warhorse - The Recordings: 1970-1972 (2024) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110121.jpgsave_picture_110121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110121.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Rotting Christ - Pro Xristou (2024) Limited Edition [MP3|320 Kbps] <Melodic Blac
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110129.jpgsave_picture_110129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110129.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Submariner - Resurgence (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110137.jpgsave_picture_110137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110137.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Lares - Et in Arcadia Ego (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110138.jpgsave_picture_110138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110138.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Mind's Mirrors - Forever Is Not Nearly Long Enough (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110140.jpgsave_picture_110140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110140.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Allcharters - AllCharters (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcor
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110142.jpgsave_picture_110142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110142.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ The Monarch - A Moment to Lose Your Breath (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110143.jpgsave_picture_110143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110143.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Yasru - Bilinmeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Folk>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110144.jpgsave_picture_110144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110144.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Juke Cove - Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner, doom, psych, p
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110145.jpgsave_picture_110145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110145.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A377CDCA79EE66C57DC775EA3B579749F127CE5A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110149.jpgsave_picture_110149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110149.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:2E3D67F22FC6620A35387D4B56BBC95E7FA54137
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110157.jpgsave_picture_110157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110157.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Contention - Artillery From Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalli
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110159.jpgsave_picture_110159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110159.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Alestorm - Voyage Of The Dead Marauder (2024) EP [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110162.jpgsave_picture_110162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110162.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:F586F7BF50AB16C2A24CF3DEAB6CF59BF32D3D9D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110163.jpgsave_picture_110163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110163.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Sons Of Thunder - Thunderhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110166.jpgsave_picture_110166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110166.jpg" />
 </div>
 
 

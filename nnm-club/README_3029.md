@@ -6,7 +6,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack dixen18 [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94588.jpgsave_picture_94588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94588.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9DB1DC9625B70C24139636974454590D38C73D22
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94589.jpgsave_picture_94589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94589.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ The Derailed (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94590.jpgsave_picture_94590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94590.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:06E29EDB05D5670E74EC25120D825222A4B4E600
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94591.jpgsave_picture_94591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94591.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:1E6A5B979D0EF6EA86F7A10E3F87CEB9634D90E2
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94594.jpgsave_picture_94594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94594.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Ravenswatch (2023) [Ru/Multi] (1.3/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94595.jpgsave_picture_94595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94595.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94597.jpgsave_picture_94597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94597.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:FDF292AE9ECA0534D1BF773DED0D9196857FE32C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94598.jpgsave_picture_94598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94598.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ No, I'm not a Human (2025) [Ru/Multi] (1.1.3) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94599.jpgsave_picture_94599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94599.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:86E8A183AA83D403E9A34C90C8E53E74258B3ACB
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94601.jpgsave_picture_94601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94601.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:9DD259EC128F4CB62F70976BC78B8A5B3BC3592C
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94603.jpgsave_picture_94603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94603.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:B6700D009133ADD7526D9C5DDD06FBA9E48972D5
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94604.jpgsave_picture_94604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94604.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:3158DD93FCE2D94BA3FA21E3AD85F0D4848D04C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94605.jpgsave_picture_94605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94605.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:D7DFA551E42D781E0B3031FFA0B7DE2226BEA969
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94607.jpgsave_picture_94607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94607.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:FA77FDEB19CE948E4432EFBC0B092EB04345B5B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94609.jpgsave_picture_94609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94609.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:48AF6A919F24677C93A0A916E5799162A0B5EF76
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94611.jpgsave_picture_94611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94611.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:EE7C13BC5E6B792D2CA9957276FEAF0813898D11
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94613.jpgsave_picture_94613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94613.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:5924F496A1DBED69D26D1A213EB67EDC4566EAD5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94615.jpgsave_picture_94615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94615.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Firefox Browser 143.0.4 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94617.jpgsave_picture_94617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94617.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:AC6E4A76E8AD180F27DE4150F8E8AB3E1839BA95
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94618.jpgsave_picture_94618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94618.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Firefox Browser 143.0.4 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94619.jpgsave_picture_94619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94619.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Perfectly Clear WorkBench 4.8.0.2857 RePack (& Portable) by elchupacabra [Multi/
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94621.jpgsave_picture_94621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94621.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Calibre 8.12.0 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94623.jpgsave_picture_94623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94623.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ By Click Downloader Premium 2.4.26 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94625.jpgsave_picture_94625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94625.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ JetBrains GoLand 2025.2.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94626.jpgsave_picture_94626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94626.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ JetBrains DataGrip 2025.2.4 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94627.jpgsave_picture_94627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94627.jpg" />
 </div>
 
 

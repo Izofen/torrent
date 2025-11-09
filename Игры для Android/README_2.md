@@ -6,7 +6,7 @@ Monolith v1.1.12.065 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30172.jpgsave_picture_30172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30172.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Reviver: Premium v1.0.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30201.jpgsave_picture_30201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30201.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30536.jpgsave_picture_30536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30536.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ GRID™ Autosport v1.10RC10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31834.jpgsave_picture_31834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31834.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32039.jpgsave_picture_32039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32039.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32108.jpgsave_picture_32108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32108.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ugly v1.1.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32119.jpgsave_picture_32119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32119.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Niffelheim v1.6.15 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32146.jpgsave_picture_32146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32146.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32153.jpgsave_picture_32153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32153.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32219.jpgsave_picture_32219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32219.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Young Detective: The Mutation v1.2.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32717.jpgsave_picture_32717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32717.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Unforeseen Incidents v1.0.90 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32844.jpgsave_picture_32844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32844.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ DYSMANTLE v1.4.0.03 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32968.jpgsave_picture_32968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32968.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Not Another Weekend v1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33020.jpgsave_picture_33020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33020.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Universe For Sale 1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33046.jpgsave_picture_33046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33046.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ The Grinch 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33056.jpgsave_picture_33056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33056.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Castlevania: SotN v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33076.jpgsave_picture_33076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33076.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Homo Machina v1.6.38 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33078.jpgsave_picture_33078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33078.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33098.jpgsave_picture_33098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33098.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Woolly Boy and the Circus 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33156.jpgsave_picture_33156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33156.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ARK: Ultimate Mobile Edition 1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33204.jpgsave_picture_33204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33204.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ A Kindling Forest v1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33257.jpgsave_picture_33257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33257.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Bendy and the Ink Machine v1.0.840 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33284.jpgsave_picture_33284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33284.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33461.jpgsave_picture_33461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33461.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ DREDGE v1.5.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33482.jpgsave_picture_33482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33482.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Exploding Kittens® 2 v0.0.19 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33578.jpgsave_picture_33578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33578.jpg" />
 </div>
 
 

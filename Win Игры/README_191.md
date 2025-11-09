@@ -6,7 +6,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/En] (27042024/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58111.jpgsave_picture_58111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58111.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (275.957/dlc) Scene CODEX [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58113.jpgsave_picture_58113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58113.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58117.jpgsave_picture_58117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58117.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Staffer Reborn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58165.jpgsave_picture_58165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58165.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License GOG [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58171.jpgsave_picture_58171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58171.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58192.jpgsave_picture_58192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58192.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Scene Rune [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58221.jpgsave_picture_58221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58221.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58242.jpgsave_picture_58242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58242.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ ColorBlend FX: Desaturation (2024) [Multi] (1.0.0-rc1) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58256.jpgsave_picture_58256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58256.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58271.jpgsave_picture_58271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58271.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58272.jpgsave_picture_58272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58272.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Truck Driver (2021) [Ru/Multi] (1.35.2.32/dlc) Scene DOGE
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58280.jpgsave_picture_58280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58280.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58288.jpgsave_picture_58288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58288.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Paranormal Files 10: Counterpart / Паранормальные явления 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58348.jpgsave_picture_58348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58348.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58354.jpgsave_picture_58354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58354.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tents and Trees (2024) [Ru/Multi] (2404041009) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58361.jpgsave_picture_58361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58361.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.2.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58370.jpgsave_picture_58370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58370.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58383.jpgsave_picture_58383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58383.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Rise of the Triad (2013) [En] (1.5.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58390.jpgsave_picture_58390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58390.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Diluvian Winds (2023) [Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58391.jpgsave_picture_58391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58391.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:89ECFFD04C5FD3CD7F626495233AB0649BF78572
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58393.jpgsave_picture_58393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58393.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58399.jpgsave_picture_58399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58399.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58409.jpgsave_picture_58409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58409.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58445.jpgsave_picture_58445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58445.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Royal Order (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58452.jpgsave_picture_58452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58452.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58453.jpgsave_picture_58453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58453.jpg" />
 </div>
 
 

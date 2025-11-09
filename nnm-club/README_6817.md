@@ -6,7 +6,7 @@
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234409.jpgsave_picture_234409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234409.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ McCurdy Brothers - Voodoo Rooster (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234410.jpgsave_picture_234410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234410.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kdenlive 23.04.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234411.jpgsave_picture_234411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234411.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ MyRadar - Weather Radar Pro 8.49.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234412.jpgsave_picture_234412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234412.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A0FA4A2DD219DA399090371A338E0981683E3BD4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234413.jpgsave_picture_234413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234413.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Aevum - Glitch (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234414.jpgsave_picture_234414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234414.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:3D826E34FC18F2485D95D659E98A4BFE0B15C0F3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234415.jpgsave_picture_234415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234415.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:1312D6332CD86D7C6DC616AE06F6D1C324BFE59F
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234416.jpgsave_picture_234416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234416.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:9A79D5B32BC832B572D630204AB14F5E6C00A9C6
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234417.jpgsave_picture_234417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234417.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ D.A. Strauss - Guitar on Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234418.jpgsave_picture_234418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234418.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Out To Dinner - Episodes Of Grace (2022) Posi-Tone [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234419.jpgsave_picture_234419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234419.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:4F37D06FDDA133D7231FF399FE3DAEE65C52694D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234420.jpgsave_picture_234420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234420.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ The Dead Rabbitts - Rumination (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234421.jpgsave_picture_234421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234421.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:4DF3251F7C65F0F232C256C74E24680E33C384FD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234422.jpgsave_picture_234422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234422.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:7D9187B63BEB4C84C7AF467648A5BB6DA721042D
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234423.jpgsave_picture_234423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234423.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Glary Utilities Pro 5.203.0.232 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234424.jpgsave_picture_234424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234424.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234425.jpgsave_picture_234425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234425.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:42D7F876B5F0A557A29927FFB8366D8B857689C7
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234426.jpgsave_picture_234426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234426.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Lynn Cannon - Just Chillin'! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234427.jpgsave_picture_234427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234427.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Medialife | Трек с нуля до готового результата в F
 >>Другие мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234428.jpgsave_picture_234428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234428.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Glary Utilities Pro 5.203.0.232 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234429.jpgsave_picture_234429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234429.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ HDCleaner 2.049 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234430.jpgsave_picture_234430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234430.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Luciana Souza - Storytellers (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234431.jpgsave_picture_234431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234431.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Witchskull - The Serpent Tide (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234432.jpgsave_picture_234432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234432.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:945506DFA0C2B4D3384026E5B3D90BE290066565
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234433.jpgsave_picture_234433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234433.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:357F9AEFA799A78CDDB528CDB239C35889A18609
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234434.jpgsave_picture_234434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234434.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146782.jpgsave_picture_146782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146782.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Bat! Professional Edition 9.0.16 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146783.jpgsave_picture_146783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146783.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sexy Girls Pack Wallpapers (14.12.12) [Wallpapers 16+]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146784.jpgsave_picture_146784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146784.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:470A756F5FCC4695F462686D503A84515BA36ED5
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146785.jpgsave_picture_146785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146785.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:BF14630DD72C389A1016258BD94AB45029162D71
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146786.jpgsave_picture_146786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146786.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Ashampoo Burning Studio 23.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146788.jpgsave_picture_146788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146788.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ TechSmith Camtasia 23.3.3 build 49804 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146789.jpgsave_picture_146789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146789.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B35B1FADBA5158FC75FCA54D82A75C6EFFD7DB5E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146790.jpgsave_picture_146790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146790.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Andrew Lu - Club Universe Radioshow 052 (13.12.2012) [MP3|320 кб/с]<Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146791.jpgsave_picture_146791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146791.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ The Neal Morse Band - The Similitude of a Dream (2016) 2CD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146792.jpgsave_picture_146792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146792.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Dilmoon - What Lies Beyond (2020) [MP3|320 Kbps] <Progressive Rock, Female Vocal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146793.jpgsave_picture_146793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146793.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ March of Shrooms (2023) [En] (m309e) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146794.jpgsave_picture_146794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146794.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:026794B5D52F2EB71C0F2E67C93B9A1BAD5CBECF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146795.jpgsave_picture_146795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146795.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:11AD0637A5D8D8C9663AA5DD517E1997C7A4D8B4
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146797.jpgsave_picture_146797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146797.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Devil Doll - The Return of Eve (2007) [MP3|320 Kbps] <Country Blues, Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146798.jpgsave_picture_146798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146798.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ JRiver Media Center 31.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146800.jpgsave_picture_146800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146800.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:FD1C6C5C7715377795CB2F0DB2E44AC577F44C1B
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146802.jpgsave_picture_146802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146802.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:35EF03CA228CAEFD54A8F2D445AD523744C2F395
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146803.jpgsave_picture_146803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146803.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ MP4Box 0.5.2 rev 1110 Nightly [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146804.jpgsave_picture_146804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146804.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:4335547504DB08DC9AC3246A9D3B7C0D69A2FE51
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146805.jpgsave_picture_146805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146805.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Joe Brown - The Ukulele Album (2013) 2CD Deluxe Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146806.jpgsave_picture_146806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146806.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:8032B7B2B463D8F35BF70503816524FD1AC48907
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146807.jpgsave_picture_146807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146807.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Fast Video Cutter Joiner 3.6.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146809.jpgsave_picture_146809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146809.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Rencontre Nocturne - Recap 2020 (2020) [MP3|320 Kbps] <Electro House, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146811.jpgsave_picture_146811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146811.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:68CD8938C36DFF1A9A5F174A06A887D261E43CB2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146812.jpgsave_picture_146812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146812.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146813.jpgsave_picture_146813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146813.jpg" />
 </div>
 
 

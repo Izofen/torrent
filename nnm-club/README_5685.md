@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175116.jpgsave_picture_175116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175116.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F56BF865C332282CE4FB8D094FE17E96BFFD9D40
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175117.jpgsave_picture_175117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175117.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1A4EA9F8C3ABA70D054FA0F4C98E32732BE94834
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175119.jpgsave_picture_175119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175119.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D04BC5EA27A402ED039A1C072CB0DEC6EE6EB8CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175120.jpgsave_picture_175120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175120.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - The Forest Chill Lounge, Vol. 16 (Deep Moods Music with Smooth Ambient & Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175121.jpgsave_picture_175121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175121.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Antropofagus - Origin (2022) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175122.jpgsave_picture_175122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175122.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4512C55753A8F2B252D341E4B564DD5499287673
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175124.jpgsave_picture_175124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175124.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:107BD860D01F5336AE33DA304C086A05096B065C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175126.jpgsave_picture_175126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175126.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Motorhead - Blitzkrieg On Birmingham '77 (1989) [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175127.jpgsave_picture_175127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175127.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Firefox Browser 118.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175128.jpgsave_picture_175128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175128.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175130.jpgsave_picture_175130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175130.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Adobe InCopy 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175131.jpgsave_picture_175131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175131.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:810C8F3408B267078B946042D2211C00940C715A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175132.jpgsave_picture_175132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175132.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ WRC: ACI Rally Monza, 03-06.12.2020 [A21 Network Russian Motorsport Television]
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175134.jpgsave_picture_175134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175134.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Macrorit Disk Scanner 6.6.8 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175135.jpgsave_picture_175135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175135.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Mythika - Unholy Glory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175136.jpgsave_picture_175136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175136.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - The Real West (2020) [MP3|320 Kbps] <Country>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175138.jpgsave_picture_175138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175138.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Macrorit Partition Extender 2.3.1 Unlimited Edition RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175139.jpgsave_picture_175139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175139.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Meteora - Tragedy of Delusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175140.jpgsave_picture_175140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175140.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Jinjer - Cloud Factory (2014) Reissue, 2018, Napalm Records [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175142.jpgsave_picture_175142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175142.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Master PDF Editor 5.9.70 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175143.jpgsave_picture_175143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175143.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Sound Times: Advanced Club House (2020) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175145.jpgsave_picture_175145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175145.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Opera One 103.0.4928.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175146.jpgsave_picture_175146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175146.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Paramore - Re: This Is Why (2023) [MP3|320 Kbps] <Alt. Rock, Pop Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175148.jpgsave_picture_175148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175148.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Beatport Deep House: Electro Sound Pack #206 (2020) [MP3|320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175149.jpgsave_picture_175149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175149.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:4E05529CF01B33D7666488F97014639EBEF29BC9
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175151.jpgsave_picture_175151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175151.jpg" />
 </div>
 
 

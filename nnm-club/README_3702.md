@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116627.jpgsave_picture_116627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116627.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3461808024E65EA25C462B84993BBC9BF469DCCD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116628.jpgsave_picture_116628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116628.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C7AF4E87785E8F51FA8D37329F50DC82ED228E43
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116629.jpgsave_picture_116629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116629.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Microsoft Windows 11 [10.0.22631.3155], Version 23H2 (Updated February 2024) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116630.jpgsave_picture_116630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116630.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Ru/Multi] (1.1.2381.1623) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116631.jpgsave_picture_116631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116631.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:DF0B2546C975148823306EE10C41E33A6C736B93
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116632.jpgsave_picture_116632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116632.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9DE2DF9C4746776C9A7AD4B0140C89C793BB32DF
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116633.jpgsave_picture_116633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116633.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Astra Linux Special Edition 1.7.5.UU.1 [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116634.jpgsave_picture_116634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116634.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Microsoft Activation Scripts (MAS) 2.5 (12.02.2024) Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116635.jpgsave_picture_116635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116635.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Decepti
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116636.jpgsave_picture_116636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116636.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:BD491996C616C12E6860A06FB0C740C0DD9C7C5A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116637.jpgsave_picture_116637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116637.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:9564195F0C9DB21ECD5520F943FCD8BBC9BF81F8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116638.jpgsave_picture_116638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116638.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:9564195F0C9DB21ECD5520F943FCD8BBC9BF81F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116639.jpgsave_picture_116639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116639.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:24EBEC4411B8837B54428309F0FBC8ACA9C4CBAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116640.jpgsave_picture_116640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116640.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:25125342FFA5FB55D96554B5D26C5135E869EBCF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116641.jpgsave_picture_116641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116641.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:201D8662AFF6781FD266CA5449C2D3C5C23D2B9B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116642.jpgsave_picture_116642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116642.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Windows 10 Enterprise LTSC 2021 21H2 19044.4046 (Updated Feb 2024) by FaTaL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116643.jpgsave_picture_116643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116643.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Windows 11 удалит данные пользователя, если отка
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116644.jpgsave_picture_116644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116644.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Windows 11 удалит данные пользователя, если отка
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116645.jpgsave_picture_116645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116645.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:833187C79E485427CAFA891E7C9706218D8A5E21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116646.jpgsave_picture_116646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116646.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Once - Out Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116647.jpgsave_picture_116647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116647.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Eisenkult - Vulgare, deutsche Hassmusik (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116648.jpgsave_picture_116648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116648.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116649.jpgsave_picture_116649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116649.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Svend Asmussen - Still Fiddling (1999) 2002, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116650.jpgsave_picture_116650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116650.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Immediate Family - Srin In The Game (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116651.jpgsave_picture_116651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116651.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Folder-Factory 7.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116652.jpgsave_picture_116652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116652.jpg" />
 </div>
 
 

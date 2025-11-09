@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4185.jpgsave_picture_4185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4185.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:FAC2CBA94FBA570BD4E3CC1C04C586C9220A2D46
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4186.jpgsave_picture_4186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4186.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4187.jpgsave_picture_4187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4187.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:FA9E233A35B69527807F30918A201C9A099CBCC2
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4188.jpgsave_picture_4188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4188.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ All-In-One Offline Maps v3.17 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4189.jpgsave_picture_4189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4189.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:90883050133CE48C72B537766078610F430B34D3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4190.jpgsave_picture_4190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4190.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:206FEDF0CEDDCCA07781184BE5C4176464790861
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4191.jpgsave_picture_4191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4191.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Anews: все новости и блоги v4.6.0 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4192.jpgsave_picture_4192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4192.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:2507BFCF2A930AD58596C7E1DB36A661A1D141AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4193.jpgsave_picture_4193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4193.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:2507BFCF2A930AD58596C7E1DB36A661A1D141AA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4194.jpgsave_picture_4194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4194.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4195.jpgsave_picture_4195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4195.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Auslogics SSD Optimizer 2.1.0.0 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4196.jpgsave_picture_4196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4196.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:0E983F7203CEDBFEAF3F349793681A2E1EB1A514
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4197.jpgsave_picture_4197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4197.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:648C3D0B1A1FBDC3CB07E58EC0449736AC2F1A8F
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4198.jpgsave_picture_4198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4198.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:20CBBC8176808244D45FCC26B1DF60F2BADCD0E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4199.jpgsave_picture_4199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4199.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ FOTO projects 3D professional 1.12.04285 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4200.jpgsave_picture_4200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4200.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ FOTO projects 3D professional 1.12.04285 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4201.jpgsave_picture_4201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4201.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:B62678BB0109AC5FF32F9104EA8699DAFA447C90
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4202.jpgsave_picture_4202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4202.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:9E74891B3549234593B50A2561AD7216A386BD9C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4203.jpgsave_picture_4203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4203.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:C395B7223C398D7C6A239D4D8FBC8E0F6B98E980
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4204.jpgsave_picture_4204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4204.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Auslogics Windows Slimmer 5.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4205.jpgsave_picture_4205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4205.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ SHAREit Premium: Pure Share v1.1.98 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4206.jpgsave_picture_4206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4206.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:4CB2A301603A882E37F85D0C28F5CCCB62BE6685
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4207.jpgsave_picture_4207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4207.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:A9ABB1B36DF6D0F559B01EAE6679A7AA0DFFE6BE
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4208.jpgsave_picture_4208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4208.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата. Пр�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4209.jpgsave_picture_4209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4209.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:898B6485A5D05F420F2504BCA7501546AD8E2307
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4210.jpgsave_picture_4210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4210.jpg" />
 </div>
 
 

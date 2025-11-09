@@ -6,7 +6,7 @@ MiniTool Power Data Recovery 12.0 Technician RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49445.jpgsave_picture_49445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GPS Emulator v2.85 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49446.jpgsave_picture_49446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49446.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Classified: France '44 (2024) [Multi] (20240718/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49447.jpgsave_picture_49447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49447.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:430E4B17CEE02C079E232A241E37DBDE4A958A13
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49448.jpgsave_picture_49448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49448.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3EF7644B402376A0349F95B86387F80B222C164A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49449.jpgsave_picture_49449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49449.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.52-267364) Repack Other s [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49450.jpgsave_picture_49450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49450.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EDB2919DF41F3C5B83729DB58EC49B78821C17BF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49451.jpgsave_picture_49451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49451.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Spirit of the Island (2022) [Ru/Multi] (3.0.5.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49452.jpgsave_picture_49452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49452.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:3E9724334C6670B64399B9A4CCAA7DEC5CDDCF24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49453.jpgsave_picture_49453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49453.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:22B4E80D8D45F342BB72778F0647EDAF7A476EAE
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49454.jpgsave_picture_49454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49454.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:F18E675CF03D94452EC4006165DD6C2D75D03A98
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49455.jpgsave_picture_49455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49455.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:595066C063518CB4E4A0B6333F40D6E236BD0D21
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49456.jpgsave_picture_49456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49456.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:09053CADEA4346E40BFD778E55F170A5B955E329
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49457.jpgsave_picture_49457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49457.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Asterix & Obelix Slap Them All! 2 (2023) [Multi] (2023121101) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49458.jpgsave_picture_49458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49458.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:1D359FA91A7CA142AAC9DC808C5712577F2B8BCF
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49459.jpgsave_picture_49459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49459.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49460.jpgsave_picture_49460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49460.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ B.B. King & Friends - A Night of Blistering Blues (2005) DVD5 <Blues>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49461.jpgsave_picture_49461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49461.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:7CE2BAD3B7C2F9C379DFB48DF1795FF49BD03AAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49462.jpgsave_picture_49462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49462.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:83066302DF5B48F8DF66FEC4D2FAE9594965C583
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49463.jpgsave_picture_49463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49463.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:83066302DF5B48F8DF66FEC4D2FAE9594965C583
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49464.jpgsave_picture_49464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49464.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:B380DF2C4954A39574C5E44603733FA7C8F16840
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49465.jpgsave_picture_49465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49465.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:47EB4AC7126F4498F6B46EDCBAC33539AE2213E0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49466.jpgsave_picture_49466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49466.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:4819FEEA526A0AF2D4EFA9ACE1E275B4A2ADD937
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49467.jpgsave_picture_49467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49467.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:F65FB25793D299DF4E0FF8F0B0B9C23FB2A17CD2
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49468.jpgsave_picture_49468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49468.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:DD50DD233CC8CD76D3D34CCBEB1FC7E2F70B1A82
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49469.jpgsave_picture_49469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49469.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 11.1.2039.2 (12.07.2024) RePack
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49470.jpgsave_picture_49470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49470.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот мон�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91313.jpgsave_picture_91313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91313.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91314.jpgsave_picture_91314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91314.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0.0.10/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91315.jpgsave_picture_91315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91315.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C5D5E17250F85C6D2061F9CC42BEBC8427371703
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91349.jpgsave_picture_91349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91349.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FABCE3216CC4A1D2D7CB2A7C77EBE7F24C73687B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91363.jpgsave_picture_91363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91363.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0DAB90208ACE0353BE9206163158607F7917241B
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91374.jpgsave_picture_91374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91374.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B5FF3290F6642D640BC8573CAE452904DFD8896A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91384.jpgsave_picture_91384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91384.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91421.jpgsave_picture_91421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91421.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Umo Jazz Orchestra - Umo Jazz Orchestra (1997) [MP3|320 kbps]<Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91469.jpgsave_picture_91469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91469.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Red Hot + Riot (2002) [MP3|192-320 kbps]<Electronic, Funk, Soul, Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91472.jpgsave_picture_91472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91472.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Sky Trance #2 - Distant Horizon (2010) [MP3|320 kbps]<Uplifting, Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91485.jpgsave_picture_91485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91485.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Red Hot + Dance (1992) [MP3|192 kbps]<Dance, Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91501.jpgsave_picture_91501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91501.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:436B92CFD9D4B8BEDF497FB72665E6BEE0FEE144
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91505.jpgsave_picture_91505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91505.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:D0A4590EB52D542370255C833D1C2DBFECE20856
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91556.jpgsave_picture_91556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91556.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:B6373D62B250500D4787837A6E09D09E5349A1CD
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91569.jpgsave_picture_91569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91569.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:AA239DA4421FEF49F854A2832E32606A07072DE2
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91581.jpgsave_picture_91581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91581.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:2E31A1689C85D46A04DEDFD4997D872AB7C1A9E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91595.jpgsave_picture_91595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91595.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:DA63464FCB233FA34175256CA1057289588745BE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91598.jpgsave_picture_91598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91598.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:679A40FF135B512209952B6847EF17B2DEA8CC70
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91663.jpgsave_picture_91663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91663.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:F8611C41EE7A01B4BC030DDCAD3E582F264E1400
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91683.jpgsave_picture_91683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91683.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:950FE8C8AE3B28A103DB7581BE7159C786A1DC48
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91691.jpgsave_picture_91691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91691.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - 202 По Встречной. Убойный Автохит (2012) [MP3|128-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91789.jpgsave_picture_91789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91789.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Aquagen - Weekender (2002) [MP3|320 kbps]<Techno, trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91792.jpgsave_picture_91792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91792.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:69EE7E49A029A04017E857FCC671112C1439C63E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91967.jpgsave_picture_91967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91967.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:ECE72AE227C84C9509AB912D1F55876ED5CA1C28
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92008.jpgsave_picture_92008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92008.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ VA - The Official UK Top 40 Singles Chart (29-01-2012) [MP3|320 kbps]<Pop, Rok, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92010.jpgsave_picture_92010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_92010.jpg" />
 </div>
 
 

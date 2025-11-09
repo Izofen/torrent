@@ -6,7 +6,7 @@
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55099.jpgsave_picture_55099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55099.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5FA6BBBBA414D91D2A525979E6768EF02E0FC05B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55128.jpgsave_picture_55128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55128.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:45B38619B284C29B738B02C5136CB56362B47ED9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55137.jpgsave_picture_55137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55137.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3079F36EE0A7E2979A31565B44CB7CE125BD7B7C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55143.jpgsave_picture_55143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55143.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B66CADCE70BB80A09A723E94BC3A4FA8C6C113D2
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55148.jpgsave_picture_55148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55148.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4FB9E799FE238DC956DE4342FA37D7D1FFE59555
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55151.jpgsave_picture_55151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55151.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A9C2C435AEDC0B48C00CE67B7EC8C434AD5995B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55154.jpgsave_picture_55154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55154.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:95DFEF435C016EC52A11671D66069FDCBF06C0EF
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55164.jpgsave_picture_55164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55164.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2379F2C8DD706E0DBAA9EA5E06370E3FB251F7B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55170.jpgsave_picture_55170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55170.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:6F90FEAE4F885073C378B8656BE6C8FA3A9004F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55174.jpgsave_picture_55174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55174.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:F5EAB0D9E6338FC4422FA1CC20F29990B412967C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55181.jpgsave_picture_55181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55181.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:49D755D3FD66D80F5BE3757A3704F5AEB09057B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55216.jpgsave_picture_55216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55216.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:67EA75B9B6BEA6F00A68FC5156C8A1B8E65FB57B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55244.jpgsave_picture_55244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55244.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:1272F873ADAAE692D076FB24217BF4F056FF1DAD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55253.jpgsave_picture_55253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55253.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:123090A16AFEA5AABCED21B11507834A46105E1D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55261.jpgsave_picture_55261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55261.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:F3B27980B45E29A0A211B155B324046894207BDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55377.jpgsave_picture_55377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55377.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:8254486A5336925A1016F03DA539186677A0D580
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55413.jpgsave_picture_55413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55413.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:F489B68C9C602F8ED3C532F6AC916F5711999AEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55426.jpgsave_picture_55426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55426.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:AF4600A5E7F3BE23E4816427AC26B1891D72742B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55438.jpgsave_picture_55438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55438.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:583F425776A88257A5B0F16AB795E4578E4BB246
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55455.jpgsave_picture_55455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55455.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:EEC8C9758D4D5E039FD2E82CA4D09FFF0B0B7E10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55471.jpgsave_picture_55471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55471.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:6DB5783CF178F208A3E5614485368DDCDA72E0F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55483.jpgsave_picture_55483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55483.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:D227BF147C37A8FF4DCC582E1407DFA2437CCBD0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55486.jpgsave_picture_55486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55486.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:8E1E429A4FCF5A33D9E33136B625D3E5BBDE4D70
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55501.jpgsave_picture_55501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55501.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:6789E33E93875EC2410B856ADC5CC2140A958FDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55561.jpgsave_picture_55561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55561.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:73828330C6A54CE1267D3B9FA3521192444DA7FB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55580.jpgsave_picture_55580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55580.jpg" />
 </div>
 
 

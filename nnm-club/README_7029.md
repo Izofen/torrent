@@ -6,7 +6,7 @@ Bills v1.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240919.jpgsave_picture_240919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240919.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Master PDF Editor 5.8.50 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240920.jpgsave_picture_240920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240920.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:400E1B6337F12A080F138CB95A9F5AA73C8F056F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240921.jpgsave_picture_240921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240921.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Cookin' Jazz, Vol. 2 (2020) [AAC|~327 Kbps] <Jazz, Nu Jazz, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240922.jpgsave_picture_240922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240922.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:71B2113F9736C7F83B923589C0F4919483011EC2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240923.jpgsave_picture_240923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240923.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Neverlove - Добро пожаловать на бал (2023) [MP3|320 Kbps] <A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240924.jpgsave_picture_240924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240924.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Total Commander 10.51 RC2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240925.jpgsave_picture_240925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240925.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Acon Digital Acoustica Premium Edition 7.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240926.jpgsave_picture_240926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240926.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:0B5490E1F139A387BA0ED4E2098E2F1A915ED4EF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240929.jpgsave_picture_240929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240929.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Mac Blu-ray Player Pro 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240930.jpgsave_picture_240930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240930.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:FD34214037F1EB85E36AA1DC11787FC94D45CB0B
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240931.jpgsave_picture_240931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240931.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CEFAC96C4A659C49B98741C36F76EB98592CFD7C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240932.jpgsave_picture_240932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240932.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wolfram Mathematica 13.1.0 [x86_x64] (.sh)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240933.jpgsave_picture_240933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240933.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Celestial Season - The Secret Teachings (2020) [FLAC|Lossless|image + .cue] <Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240934.jpgsave_picture_240934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240934.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Autumn Grooves (The Lounge & Chill out Deluxe Collection), Vol. 2 (2020) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240935.jpgsave_picture_240935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240935.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Spirit of Trance, Vol. 1 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240936.jpgsave_picture_240936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240936.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Waterfox Current G5.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240938.jpgsave_picture_240938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240938.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:4551646B9781CA7338FBABC2953E6E11DAB10974
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240939.jpgsave_picture_240939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240939.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Money 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240941.jpgsave_picture_240941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240941.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:446F90BA6EB8DBEC32917611BFCDEA8C41C1A63E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240942.jpgsave_picture_240942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240942.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:E893A044CBD234726454B255196AE52C4423B210
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240943.jpgsave_picture_240943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240943.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VA - Chilling Tunes for Heart & Soul (2020) [AAC|~315 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240944.jpgsave_picture_240944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240944.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ iShowU Studio 2 v2.3.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240947.jpgsave_picture_240947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240947.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:4761DD06AFB1D71A11A7EA3C141FD09A65D7C253
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240948.jpgsave_picture_240948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240948.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Later - Create Quick Reminders With Presets 1.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240949.jpgsave_picture_240949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240949.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ IObit Uninstaller Pro 12.4.0.4 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240950.jpgsave_picture_240950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240950.jpg" />
 </div>
 
 

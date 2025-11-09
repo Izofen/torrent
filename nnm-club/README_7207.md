@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246395.jpgsave_picture_246395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246395.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BF80DEE5CFAABBDB6D6FE29909974B76DE3EA7F9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246400.jpgsave_picture_246400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246400.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Various Artists - Mysteria Mithrae (1996) [mp3|320 kbps] <Apocalyptic Folk, Indu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246404.jpgsave_picture_246404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246404.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Убойная Авто Дискотека DFM 50/50 (2012) [MP3|256 kbps]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246409.jpgsave_picture_246409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246409.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Serj Tankian - Figure It Out [Single] (2012) [MP3|320 кб/с]<Alt.Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246410.jpgsave_picture_246410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246410.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:9CEA657C7D770B9A5A3A4C3D7FA16ACB6B2D7D6C
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246413.jpgsave_picture_246413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246413.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:2E652A21371CEDA788E5C6EEE9D219B58843E75F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246414.jpgsave_picture_246414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246414.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Песня с женским именем 2CD (2012) [MP3|256 кб/с]<Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246415.jpgsave_picture_246415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246415.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:539F3EC7B580876979176E8DBA703F5E4B85470E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246421.jpgsave_picture_246421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246421.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ dj Alex Spark - Made In Russia (30.04.2012) [MP3|320 кб/с]<House / Electro Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246429.jpgsave_picture_246429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246429.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:64E233E611C02D77426FC745ECFE5E643DD5A8FE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246437.jpgsave_picture_246437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246437.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:77801F9797CDC4D3C169DE3588FD4F3898B09406
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246438.jpgsave_picture_246438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246438.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:2ACF96582E65E7BA9A0B0FCE7AAA49FF8BEB69BA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246440.jpgsave_picture_246440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246440.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:8BCBFD77AAB62B637FCD09A7A648B408F5E10334
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246442.jpgsave_picture_246442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246442.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Skelator - Agents Of Power (2012) [MP3|320 кб/с]<Epic Power/Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246451.jpgsave_picture_246451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246451.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Acheode - Anxiety (2012) [MP3|320 кб/с]<Technical Death / Mathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246453.jpgsave_picture_246453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246453.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:AF741D5DE80E534FEEA40A1A474AC494779F0367
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246455.jpgsave_picture_246455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246455.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:11AAF014A028DF46FCE6EC893EB035BB2FD47821
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246460.jpgsave_picture_246460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246460.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Sepalcure - Sepalcure (2011) [MP3|320 кб/с]<UK Garage, Dubstep, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246462.jpgsave_picture_246462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246462.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:157A78A25CCBD3F629B989401CA21F882F3D0D8C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246463.jpgsave_picture_246463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246463.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Club Night May (2012) [MP3|320 кб/с]<Pop,Dance, Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246464.jpgsave_picture_246464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246464.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:1887DB0CA5910AFFA2A43E8EB8CE75099D0BB88A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246469.jpgsave_picture_246469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246469.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Scars 19 - Реальность из кошмарных снов (2009)[MP3|320 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246473.jpgsave_picture_246473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246473.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Sacred Gate - When Eternity Ends (2012) [MP3|320 кб/с]<Traditional Heavy Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246474.jpgsave_picture_246474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246474.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ magnet:?xt=urn:btih:566F826D6208946287A0F0D8E2E071BC58D4CF8D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246476.jpgsave_picture_246476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246476.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ magnet:?xt=urn:btih:5F6941F295CBBF2A481554E1BAB006301D223908
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246477.jpgsave_picture_246477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246477.jpg" />
 </div>
 
 

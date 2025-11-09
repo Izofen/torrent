@@ -6,7 +6,7 @@ Dying Fetus - Make Them Beg for Death (2023) [FLAC|24/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108111.jpgsave_picture_108111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108111.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:5E23309185F361126F43CB3DA8C859B4B990F7D2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108112.jpgsave_picture_108112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108112.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Gone til Winter - Hiding from the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108113.jpgsave_picture_108113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108113.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:73C8E86DC7C26D97146E7861AA78CF4874E804D4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108114.jpgsave_picture_108114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108114.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:8B9D42D954D868443360584631A15D52C58E80EA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108115.jpgsave_picture_108115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108115.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Discotron, Sandy's Groove - Crying At The Discoteque (2022) [FLAC|Lossless|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108116.jpgsave_picture_108116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108116.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ VA - DJ Hits 40 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108117.jpgsave_picture_108117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108117.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:98CFB0AA54DEB38FD66A99D12C2592F5754590CA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108118.jpgsave_picture_108118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108118.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kujan - Crying at the Discoteque (2021) [FLAC|Lossless|tracks] <Nu-Disco, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108119.jpgsave_picture_108119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108119.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:E999F11E89425E99A08FE2523F38F2588C9767C9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108120.jpgsave_picture_108120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108120.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Humanity Gone - Everything Nothing (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108121.jpgsave_picture_108121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108121.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Joanne Shaw Taylor - Heavy Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108122.jpgsave_picture_108122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108122.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Lucassen & Soeterboek's Plan Nine - The Long-Lost Songs (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108123.jpgsave_picture_108123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108123.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Calvin Russell - Tribute To Calvin Russell (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108124.jpgsave_picture_108124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108124.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - DJ Hits 39 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108125.jpgsave_picture_108125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108125.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ivan Kravchenko - Lady Made of Sand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108126.jpgsave_picture_108126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108126.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Gone til Winter - Hear Me (2009) Single [MP3|320 Kbps] <Gothic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108127.jpgsave_picture_108127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108127.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Carpenthus - Midgard (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk, Symphonic Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108128.jpgsave_picture_108128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108128.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Johanna Red - Stronger Than You Thought (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108129.jpgsave_picture_108129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108129.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Gangruel - The Harvest Withers (2024) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108130.jpgsave_picture_108130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108130.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Hu - Live At Glastonbury (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108131.jpgsave_picture_108131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108131.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:F84D2BCFEEBAEC58CA4007807718DD126FE31482
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108132.jpgsave_picture_108132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108132.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:1C6417327A47206C6585005FD6D3C31E2FA55643
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108133.jpgsave_picture_108133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108133.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:646DF8393733619F166524794342127F6DB863C9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108134.jpgsave_picture_108134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108134.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Sunset Dreamer: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108135.jpgsave_picture_108135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108135.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ The Distance And Franky Miller Feat. Easi - Crying At The Discotheque (2023) [FL
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108136.jpgsave_picture_108136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108136.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112623.jpgsave_picture_112623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112623.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Music Collection 3.6.4.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112624.jpgsave_picture_112624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112624.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Skiltron - The Clans Have United (2006) [APE|Lossless|image + .cue] <Celtic Folk
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112625.jpgsave_picture_112625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112625.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Vivaldi 6.6.3271.55 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112626.jpgsave_picture_112626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112626.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Skype 8.115.0.217 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112627.jpgsave_picture_112627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112627.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Brother Cane - 3 Albums (1993 - 1998) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112628.jpgsave_picture_112628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112628.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E5983BAD6509C9DC433DF8640191B4C7FE89672F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112629.jpgsave_picture_112629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112629.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4A11D00EDC95A79F5EFF095C46F53E4A9329ABDF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112630.jpgsave_picture_112630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112630.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:FB855DEEE8644CA260E05E86C2BF2C2836EFEBBA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112631.jpgsave_picture_112631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112631.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:2682316AC5F23D2B00A0AFFFA11435607D9C9E2F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112632.jpgsave_picture_112632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112632.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ MarkMyWords 2.10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112633.jpgsave_picture_112633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112633.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:16D4092D4B0E4DBACBB9627094493A71387836CF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112634.jpgsave_picture_112634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112634.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4D30FD8C5EB1BFDB72266D5945D137461F0C36D7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112635.jpgsave_picture_112635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112635.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:69FB7A6B86A132574811C49A755723CC72560928
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112636.jpgsave_picture_112636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112636.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Finger-Picking Masters (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112637.jpgsave_picture_112637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112637.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:0F6C23EB3EA4E318296D456099B73021B6F7A9A6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112638.jpgsave_picture_112638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112638.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Cryptosis - The Silent Call (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112639.jpgsave_picture_112639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112639.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Tribuzy - Execution (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112640.jpgsave_picture_112640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112640.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Cookie 7.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112641.jpgsave_picture_112641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112641.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ramsey Lewis - Sky Islands (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112642.jpgsave_picture_112642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112642.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:7D5E703C8DB01416BAEAA70F30402DCCEA776FF9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112643.jpgsave_picture_112643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112643.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Skiltron - Beheading the Liars (2008) [APE|Lossless|image + .cue] <Celtic Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112644.jpgsave_picture_112644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112644.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Cryptosis - Bionic Swarm (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112645.jpgsave_picture_112645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112645.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Cyber Space - Cyber Space Plays A Tribute To Hotsound (2011) [MP3|320 Kbps] <Spa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112646.jpgsave_picture_112646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112646.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - I Love Rock 'N' Roll: Anthems for Hard Times (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112647.jpgsave_picture_112647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112647.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Trance In Motion Vol.373 (2024) [MP3|320 Kbps|image + .cue]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112648.jpgsave_picture_112648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112648.jpg" />
 </div>
 
 

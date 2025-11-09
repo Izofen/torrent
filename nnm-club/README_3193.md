@@ -6,7 +6,7 @@ King Crimson - Red (1974) Expanded & Remastered Original Album Mix, 2014, Discip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103358.jpgsave_picture_103358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103358.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3579806C6D6CF1E70152ABCFD5084A4207B62FFE
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103359.jpgsave_picture_103359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103359.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:79E48449CCCC0DB1BB382913064F4E5AA8E4DC37
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103360.jpgsave_picture_103360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103360.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:46C0EE7CEEDFEB4BB1C1860A69A784E6C2C34E94
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103361.jpgsave_picture_103361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103361.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Robert Jon & The Wreck - Red Moon Rising (Deluxe Edition) (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103362.jpgsave_picture_103362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103362.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:C8F7528EABCEF3AA854FD6EDD0B75546CF0765E9
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103363.jpgsave_picture_103363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103363.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:BEA0A0D8F57354499E07524D3B9A80E2BDBD120B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103364.jpgsave_picture_103364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103364.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ensiferum - Winter Storm (2024) Special Edition [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103365.jpgsave_picture_103365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103365.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Robert Jon & The Wreck - Red Moon Rising (Deluxe Edition) (2024) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103366.jpgsave_picture_103366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103366.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:1F887E74FDE884FA6A41ADC8B466F5B0DC16F2F5
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103367.jpgsave_picture_103367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103367.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:5E6416AE289A9264672973FC29880566DD2B2F51
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103368.jpgsave_picture_103368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103368.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:4BD1C814FA2BEEDB75B6B6B1092B43B5F476BD9E
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103369.jpgsave_picture_103369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103369.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Zephira - Wisdom's Wrath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103370.jpgsave_picture_103370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103370.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:D5D1CC500CAFD72BE00B39C867DEFFC52BA1853E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103371.jpgsave_picture_103371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103371.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:DF29882B5E639A1614C27E2DE10A39180D5251E6
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103372.jpgsave_picture_103372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103372.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:FB311A8E42F5CFFEE4E704AFC83AD150AC852995
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103373.jpgsave_picture_103373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103373.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:E55EEB44396A3A0561D46D42AD9AE9F83109C876
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103374.jpgsave_picture_103374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103374.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ PdfFactory Std & Pro 9.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103375.jpgsave_picture_103375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103375.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:3DA61C34808EA7F76F53AF41D82F4435FF3C79C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103376.jpgsave_picture_103376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103376.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:9DD88CB47297AC77DF657DAAFE9DD91C30F8F8A5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103377.jpgsave_picture_103377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103377.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Best of 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Tech
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103378.jpgsave_picture_103378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103378.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:1B194F909C39F8AEFE0E75F984521109D763B176
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103379.jpgsave_picture_103379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103379.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:902F64DC9D244D82C137688A1792F5CC12B50023
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103380.jpgsave_picture_103380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103380.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:68A3D53B4490F79602393118432921376BDC9B0E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103381.jpgsave_picture_103381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103381.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:D01DDBE0357B7257678D5FCAAFA28C032B8792C9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103382.jpgsave_picture_103382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103382.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ magnet:?xt=urn:btih:0E954B932DF18F67AD6FFDED7A5463A27B9BC489
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103383.jpgsave_picture_103383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103383.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Песни И Романсы. Поют В. Трошин, З. Невская
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118295.jpgsave_picture_118295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118295.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118311.jpgsave_picture_118311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118311.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118395.jpgsave_picture_118395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118395.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118409.jpgsave_picture_118409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118409.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118414.jpgsave_picture_118414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118414.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Myrkur - Folkesange (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Bla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118898.jpgsave_picture_118898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118898.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118903.jpgsave_picture_118903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118903.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118905.jpgsave_picture_118905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118905.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Brutus (Norway) - Studio Albums (3 releases) (2010-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118921.jpgsave_picture_118921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118921.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Myrkur - Mareridt (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118923.jpgsave_picture_118923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118923.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:9828534FC90C6994C3D4D55A35E1C2D993E508E7
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118941.jpgsave_picture_118941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118941.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Urne - Studio Albums (3 releases) (2018-2023) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119079.jpgsave_picture_119079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119079.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Myrkur - Myrkur (2014) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119082.jpgsave_picture_119082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119082.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119107.jpgsave_picture_119107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119107.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119305.jpgsave_picture_119305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119305.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Serenity - Studio Albums (8 releases) (2007-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119474.jpgsave_picture_119474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119474.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119615.jpgsave_picture_119615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119615.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119620.jpgsave_picture_119620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119620.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119623.jpgsave_picture_119623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119623.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119624.jpgsave_picture_119624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119624.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119646.jpgsave_picture_119646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119646.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119760.jpgsave_picture_119760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119760.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Guns N' Roses - G N' R Lies (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119764.jpgsave_picture_119764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119764.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Avenged Sevenfold - Дискография (10 albums) (2001-2023) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119842.jpgsave_picture_119842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119842.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Reign of Fury - Studio Albums (4 releases) (2011-2019) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120133.jpgsave_picture_120133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120133.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalco
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120256.jpgsave_picture_120256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120256.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Supertone Clear 1.1.1 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23089.jpgsave_picture_23089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23089.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ eRa: The Live Experience 2025 (2025) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23090.jpgsave_picture_23090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23090.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:C5546F19024E322A8AA4B3F6639E28D83C514FA1
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23091.jpgsave_picture_23091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23091.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ OsmAnd+  Карты & GPS Офлайн v5.0.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23092.jpgsave_picture_23092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23092.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F94D4BA935547448CA4685C6096B4C139630CE63
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23093.jpgsave_picture_23093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_23093.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23094.jpgsave_picture_23094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23094.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:9AFDA7D931CD524D132E36C84B568005A2DECCB5
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23095.jpgsave_picture_23095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23095.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:79FFFF278BCF70809B741C7BE64DBFB34FFDD839
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23096.jpgsave_picture_23096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23096.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Arch Enemy - Blood Dynasty (2025) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23097.jpgsave_picture_23097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23097.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:72926C15FCBC08547779D04F1C80A6F7C68B69FE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23098.jpgsave_picture_23098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23098.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:1C40B84C88C4D37874C74D52325B245EDB87AEF4
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23099.jpgsave_picture_23099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23099.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Santana - Sentient (2025) Compilation [FLAC|Lossless|tracks + .cue] <Blues Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23100.jpgsave_picture_23100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23100.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:A585F170C2E93C30A5A46A3EFFDE8D4667DEE25F
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23101.jpgsave_picture_23101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23101.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:A154CDAA8B14E28730857002EFD7BDDABAA6C518
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23102.jpgsave_picture_23102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23102.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:0412C0378980662F60CFCB453A7D593A23D3E03B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23103.jpgsave_picture_23103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23103.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - The Best Of 1980-1990 Vol. 6 (1992) 2 CD [OGG Vorbis|480 Kbps] <Pop Rock, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23104.jpgsave_picture_23104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23104.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ IObit Uninstaller Pro 14.2.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23105.jpgsave_picture_23105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23105.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:EE6C1B1B86B489F30ED71E0E98469F6772D79F70
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23106.jpgsave_picture_23106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23106.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ YT Downloader 9.12.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23107.jpgsave_picture_23107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23107.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:10E2218E709A5404A7ACFAAB04AF5767BA331F49
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23108.jpgsave_picture_23108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23108.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:334D008FFF4BC8108E4820EC1C7F5C3E096283FB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23109.jpgsave_picture_23109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23109.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:277DF29055F562D45C9AD015DE1DAD83FB15DD53
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23110.jpgsave_picture_23110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23110.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wartales (2021) [Ru/Multi] (1.0.40128/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23111.jpgsave_picture_23111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23111.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ GPS АнтиРадар v48.1 Mod by СМАРТОС [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23112.jpgsave_picture_23112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23112.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ MassTube Ultra 20.1.2.124 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23113.jpgsave_picture_23113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23113.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:B09BDF2C590D9C7ED4191A4A110CEAC19289F0B5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23114.jpgsave_picture_23114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_23114.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ YT Downloader 7.27.5 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238291.jpgsave_picture_238291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238291.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Perfect Face - Pimple Remover 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238292.jpgsave_picture_238292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238292.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - New Disco House Lights (2023) [MP3|320 Kbps] <Nu Disco, Soulful, Dance, Fun
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238293.jpgsave_picture_238293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238293.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ TunesKit AceMovi Video Editor 4.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238294.jpgsave_picture_238294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238294.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Music for Running Are You Ready?!? (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238295.jpgsave_picture_238295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238295.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Deer Creek - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238296.jpgsave_picture_238296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238296.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Fokuz Recap 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238297.jpgsave_picture_238297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238297.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:3E684737537B8DBE11B434B7B141762C7DFAF40E
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238298.jpgsave_picture_238298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238298.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:D03D9E2053CAFCD9B114F52F776A87F3D4BA4C1B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238299.jpgsave_picture_238299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238299.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238300.jpgsave_picture_238300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238300.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Mega Hits 2013 (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238301.jpgsave_picture_238301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238301.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Keep It Disco Vol. 10 (2023) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238302.jpgsave_picture_238302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238302.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:20E9FA69696E6321F8F4E83FED7B87B07A12EE2E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238303.jpgsave_picture_238303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238303.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:03FE48CCEDED141DDE7A4CF1D6EF9E04FB81F285
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238304.jpgsave_picture_238304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238304.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:99810D9795E8ECFFE069731489F99127E01D3D83
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238305.jpgsave_picture_238305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238305.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Apoplexy - Infection (1997) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238306.jpgsave_picture_238306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238306.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:B5FD1053425EA042EFCEE921A942488C729A70E2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238307.jpgsave_picture_238307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238307.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:AB17F0D18260C28FE86BCB076E1EBF303C055E14
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238308.jpgsave_picture_238308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238308.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Emilie-Claire Barlow - Spark Bird (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238309.jpgsave_picture_238309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238309.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:D95693B97E698685AD289DED6DC2E401D8A53E86
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238310.jpgsave_picture_238310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238310.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:BCC5C17EA76B58B638724863CF3333F5533D5EFB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238311.jpgsave_picture_238311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238311.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:2957A9F68A4155753081604F03AB0922C2A3EBC9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238312.jpgsave_picture_238312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238312.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Cathode Ray Tube - Anabasis (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM>
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238313.jpgsave_picture_238313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238313.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:0D8BF76ACDBEA1B4701542E4BCDBE689C6F40F5B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238314.jpgsave_picture_238314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238314.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ TweakNow WinSecret Plus! 4.7.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238315.jpgsave_picture_238315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238315.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Jonathan Jeremiah - Horsepower For The Streets (2023) Deluxe Version [FLAC 2.0|4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238316.jpgsave_picture_238316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238316.jpg" />
 </div>
 
 

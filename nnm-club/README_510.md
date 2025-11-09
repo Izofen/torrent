@@ -6,7 +6,7 @@ Ashes of the Singularity: Escalation (2016) [Multi] (3.30.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13537.jpgsave_picture_13537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13537.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (2.2.0 r22519/dlc) License GOG [Royal Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13538.jpgsave_picture_13538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13538.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9BF2924326BEE1EB94E9C7895093ABD53A446461
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13539.jpgsave_picture_13539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13539.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C731FCFDF99C41AAC757FABEE03A2DCC1E8A5A37
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13540.jpgsave_picture_13540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13540.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chotto dake Ai ga Omoi Dark Elf ga Isekai kara Oikakete Kita | Yandere Dark Elf 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13541.jpgsave_picture_13541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13541.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C76B0400F5934D6393EF38E99EE8832D0C68F820
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13542.jpgsave_picture_13542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13542.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13544.jpgsave_picture_13544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13544.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:53E35594243BEED0DF19F4DFFBD877A7C89FFE0F
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13545.jpgsave_picture_13545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13545.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B3651C791F17DD561318D47E3D7826851BE1BF92
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13546.jpgsave_picture_13546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13546.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:23F6870BBF760AC97B059AB0C2C238D1B63518A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13547.jpgsave_picture_13547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13547.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:8FBD47CB154DE321DBB660164BCABA9B2FB1B1E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13548.jpgsave_picture_13548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13548.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ RRR: Рядом ревёт революция / RRR (2022) WEB-DL [H.264/1080p] 
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13549.jpgsave_picture_13549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13549.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (1.2.18.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13550.jpgsave_picture_13550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13550.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:5D79F0D57FE95436D85296E9669CBD5C440A177C
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13551.jpgsave_picture_13551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13551.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:776C197BD368FD95A66ED9F28C5914BB4F4D38F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13552.jpgsave_picture_13552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13552.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:B424F2CE38E1794CFE129C5461BE22F78E668B76
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13554.jpgsave_picture_13554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13554.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:B424F2CE38E1794CFE129C5461BE22F78E668B76
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13555.jpgsave_picture_13555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13555.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:B424F2CE38E1794CFE129C5461BE22F78E668B76
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13556.jpgsave_picture_13556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13556.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13557.jpgsave_picture_13557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13557.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Strymon - Plugins Effects 06.2025 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13558.jpgsave_picture_13558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13558.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:7B9E14033ECD65D9BC8ACD80F5F17C6CB5BBA57F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13559.jpgsave_picture_13559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13559.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:245D5FD983F67753D7A180EF1AC706D3FD48F933
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13560.jpgsave_picture_13560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13560.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Musical kaleidoscope part 44 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13561.jpgsave_picture_13561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13561.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:18582DAEC42EE1140E75FCE533B3B5A4F04A0CFD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13562.jpgsave_picture_13562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13562.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:3D5C94A6D34486B11F86C4A8A8828C36235083EE
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13563.jpgsave_picture_13563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13563.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:3C8BCE55775B7EC83FC2FF3A088C8533D40D0B25
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13564.jpgsave_picture_13564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13564.jpg" />
 </div>
 
 

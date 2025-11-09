@@ -6,7 +6,7 @@ Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108475.jpgsave_picture_108475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108475.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Priest - Dark Pulse (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <EBM>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108476.jpgsave_picture_108476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108476.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Asena Akan - Asık (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108477.jpgsave_picture_108477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108477.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:34488097EE9D0522E31F65803100A33C5B3BEE58
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108478.jpgsave_picture_108478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108478.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Deliverance - What a Joke (1991) [FLAC|Lossless|image + .cue] <Speed, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108479.jpgsave_picture_108479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108479.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108480.jpgsave_picture_108480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108480.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bludgeoned - Live at the end (2018) [MP3|320 Kbps|tracks] <Crust Punk, Doom, Slu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108481.jpgsave_picture_108481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108481.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ MotoGP. Этап 07 из 20. Гран-при Италии. Гонка (02.06.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108482.jpgsave_picture_108482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108482.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Barock Project - Time Voyager (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108483.jpgsave_picture_108483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108483.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:C62EDA05DD754151E58B6A1E933F134108E585BA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108484.jpgsave_picture_108484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108484.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108485.jpgsave_picture_108485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108485.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:784D0E7B7C7E1B14DDDC089301F4132632AFF400
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108486.jpgsave_picture_108486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108486.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:CC9B64319A65417119B908AF616CAB5F3D0ECB9E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108487.jpgsave_picture_108487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108487.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ MotoGP. Этап 07 из 20. Гран-при Италии. Спринт (01.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108488.jpgsave_picture_108488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108488.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:AB4B29397014E2D9ED6C0EC9B3274FA5D0880626
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108489.jpgsave_picture_108489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108489.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - DJ Hits 24 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108490.jpgsave_picture_108490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108490.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Dead Or Alive - The Pete Hammond Hi-NRG Remixes (2024) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108491.jpgsave_picture_108491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108491.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:B39C8959387FB1AFB53499889A2D057E9C9CF95D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108492.jpgsave_picture_108492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108492.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ V.A. - Bossanova & Jazz: Summer Bossanova & Jazz Vibes 2024 (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108493.jpgsave_picture_108493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108493.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:77B25E4C9106D97B0E73C58A4CE82BD2786C044F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108494.jpgsave_picture_108494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108494.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Erasure - Cowboy (1997) Expanded Edition, 2024, BMG Company [FLAC 16,24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108495.jpgsave_picture_108495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108495.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:6464DFD562DAA69C421A931220140B78B93D4FF1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108496.jpgsave_picture_108496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108496.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:413C42F386B4C07A157EB0E5D5AB04057FA5EF8F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108497.jpgsave_picture_108497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108497.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:3DCD1363255C5B24BBA84FA4AB0D761427A181DF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108498.jpgsave_picture_108498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108498.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:A1A292B4B60832E9D836FE0392136D6741DC4AD4
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108499.jpgsave_picture_108499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108499.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:A6EF72BC4F3AE4D466D1D71EC9486E0CD8D6CAAF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108500.jpgsave_picture_108500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108500.jpg" />
 </div>
 
 

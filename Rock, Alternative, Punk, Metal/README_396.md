@@ -6,7 +6,7 @@ Lesath - There is a profound sense in which we are isolated (2023) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232256.jpgsave_picture_232256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232256.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Demon Project - Demon Project (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232260.jpgsave_picture_232260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232260.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Wealthy Hobos - Ticking Twelve (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232265.jpgsave_picture_232265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232265.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lintver - The Worst Is Yet to Come (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232269.jpgsave_picture_232269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232269.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Mare Salutis - Symphony of Thunderstorm (2023) [MP3|320 Kbps] <Instrumental, Sym
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232271.jpgsave_picture_232271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232271.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Impact - Confrontaci​o​n (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232274.jpgsave_picture_232274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232274.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Ocean - Holocene (2023) [FLAC|Lossless|tracks + .cue] <Prog-Rock Related, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232278.jpgsave_picture_232278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232278.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sarvekas - Woven Dark Paths (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232279.jpgsave_picture_232279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232279.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nattverd - I Helvetes Forakt (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232283.jpgsave_picture_232283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232283.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ End of the Dream - All I Am (2015) [MP3|320 Kbps] <Melodic Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232285.jpgsave_picture_232285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232285.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Screamer - Adrenaline Distractions (2011) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232287.jpgsave_picture_232287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232287.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Def Leppard With The Royal Philharmonic Orchestra - Drastic Symphonies (2023) Ja
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232292.jpgsave_picture_232292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232292.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Scaphis - Dissected & Fermented (2022) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232295.jpgsave_picture_232295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232295.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Hanlon's Razor - Stockholm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232297.jpgsave_picture_232297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232297.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ End of the Dream - Until You Break (2017) [MP3|320 Kbps] <Melodic Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232315.jpgsave_picture_232315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232315.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Company - The Company (1995) Japan Edition, Teichiku Records [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232319.jpgsave_picture_232319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232319.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Fall of Mother Earth - Another Kind of Consciousness (2022) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232331.jpgsave_picture_232331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232331.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B165A532588B7594461674F8F9A358979A1079BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232335.jpgsave_picture_232335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232335.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Zone Out - Турбоглэм (2023) [MP3|320 Kbps] <Glam Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232342.jpgsave_picture_232342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232342.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C18E8265D65C616013C8CB7C1C2EF1136A86B141
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232352.jpgsave_picture_232352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232352.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:35C9731E53CE5E6669315A5EB72C4F661174AD3F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232365.jpgsave_picture_232365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232365.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dreadhammer - Sovereign (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232381.jpgsave_picture_232381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232381.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Brian May - Star Fleet Sessions [2CD, Deluxe] (2023) [MP3|320 Kbps] <Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232402.jpgsave_picture_232402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232402.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mega Bog - End of Everything (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232404.jpgsave_picture_232404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232404.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Last Giant - Monuments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232413.jpgsave_picture_232413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232413.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Cottage Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232430.jpgsave_picture_232430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232430.jpg" />
 </div>
 
 

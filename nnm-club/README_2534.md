@@ -6,7 +6,7 @@ Sum Of All - Time to leave (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66634.jpgsave_picture_66634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66634.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MIKA - The Boy Who Knew Too Much (2009) CD, Album [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66635.jpgsave_picture_66635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66635.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kryuhm - Demoni (2025) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66636.jpgsave_picture_66636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66636.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Inka Inka - Reconsider (1992) Special Edition, 2025, [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66637.jpgsave_picture_66637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66637.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:12979D4E76DE1C54010220A838B122BD56A90A95
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66638.jpgsave_picture_66638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66638.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Elles Bailey - Beneath the Neon Glow (Reimagined) (2025) [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66639.jpgsave_picture_66639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66639.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Charlie Musselwhite - Look Out Highway (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66640.jpgsave_picture_66640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66640.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:28659F85C6759E588639BDFF536E9CF04C658BE9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66641.jpgsave_picture_66641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66641.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Ace Monroe - Wild Card (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66642.jpgsave_picture_66642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66642.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bob Stroger & The Headcutters - Bob Is Back (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66643.jpgsave_picture_66643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66643.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Brandon Santini - Which Way Do We Go? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66644.jpgsave_picture_66644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66644.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Earnest 'Guitar' Roy - This Is Earnest 'Guitar' Roy (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66645.jpgsave_picture_66645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66645.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Ben Joseph & The Lay-Lows - The Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66646.jpgsave_picture_66646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66646.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Azure Riff - Thunder in My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66647.jpgsave_picture_66647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66647.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Venator - Psychodrome (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66648.jpgsave_picture_66648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66648.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Sherlocks - Everything Must Make Sense! (2025) [MP3|320 Kbps] <Alternative &
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66649.jpgsave_picture_66649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66649.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Monhell - A Last Sigh of Pain (2025) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66650.jpgsave_picture_66650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66650.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66651.jpgsave_picture_66651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66651.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Confessions of a Traitor - This Pain Will Serve You (2025) [MP3|320 Kbps] <Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66652.jpgsave_picture_66652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66652.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:D7E17E15FFB46AC3C266552BFB0BFCBDD2A0AE52
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66653.jpgsave_picture_66653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66653.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66654.jpgsave_picture_66654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66654.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66655.jpgsave_picture_66655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66655.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Warfield - With the Old Breed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66656.jpgsave_picture_66656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66656.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Chris Connor - Four Classic Albums Plus (1953 - 1956) 2CD, 2013, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66657.jpgsave_picture_66657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66657.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:58385CA090EF733AA1D20423E4537D7D93BA4CED
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66658.jpgsave_picture_66658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66658.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ magnet:?xt=urn:btih:7446DB940F8035BE2EA728D6A079D592015219A4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66659.jpgsave_picture_66659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66659.jpg" />
 </div>
 
 

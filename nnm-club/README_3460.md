@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110321.jpgsave_picture_110321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110321.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Trance In Motion Vol.375 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110322.jpgsave_picture_110322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110322.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Future Sound Of London - ISDN (30th Anniversary Edition) (2024) [FLAC 16/44.
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110323.jpgsave_picture_110323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110323.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Icecream PDF Editor Pro 3.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110324.jpgsave_picture_110324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110324.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110325.jpgsave_picture_110325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110325.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Trance In Motion Vol.374 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110326.jpgsave_picture_110326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110326.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ InnoExtractor Ultra 7.3.2.535 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110327.jpgsave_picture_110327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110327.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (2023) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110328.jpgsave_picture_110328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110328.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ LibreWolf 125.0.3-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110329.jpgsave_picture_110329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110329.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Telegram Desktop 5.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110330.jpgsave_picture_110330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110330.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Icecream Slideshow Maker PRO 5.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110331.jpgsave_picture_110331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110331.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:3D50E3394AEDA8D21CD6E832123A9E922C209D75
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110332.jpgsave_picture_110332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110332.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Icecream PDF Editor Pro 3.23 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110333.jpgsave_picture_110333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110333.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Italove - I Finally Realized (2024) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110334.jpgsave_picture_110334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110334.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:FF20CB2D81A4C0CC75A9B72A471CD8C359E1C750
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110335.jpgsave_picture_110335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110335.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:CFCEE4EFC549D08CD8D49DD8E454AB32062CE4B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110336.jpgsave_picture_110336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110336.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Steinberg Nuendo 13.0.30.226 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110337.jpgsave_picture_110337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110337.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ CyberLink PhotoDirector Ultra 15.3.1528.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110338.jpgsave_picture_110338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110338.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ FocusWriter 1.8.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110339.jpgsave_picture_110339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110339.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:DFE51DF4E3C1C7CC7863676FC9C6B1BA00DE5996
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110340.jpgsave_picture_110340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110340.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ MAGIX Samplitude Music Studio X8 19.1.3.23431 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110341.jpgsave_picture_110341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110341.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ MediaHuman YouTube Downloader 3.9.9.91 (0503) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110342.jpgsave_picture_110342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110342.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Icecream PDF Editor PRO 3.23 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110343.jpgsave_picture_110343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110343.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:7D859467F5FEA6DA1999EC757C5C75D5E5334B20
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110344.jpgsave_picture_110344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110344.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Chromium 124.0.6367.119 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110345.jpgsave_picture_110345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110345.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Serif Affinity Publisher 2.4.2.2371 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110346.jpgsave_picture_110346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110346.jpg" />
 </div>
 
 

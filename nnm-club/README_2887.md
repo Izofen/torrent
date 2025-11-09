@@ -6,7 +6,7 @@
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84720.jpgsave_picture_84720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84720.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Zero no Tsukaima: Princess no Rondo / Подручный Луизы-Нулизы
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84721.jpgsave_picture_84721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84721.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:5E561470BB30299CE6C8A318F77A9B89BBF61D44
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84724.jpgsave_picture_84724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84724.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:C8A7BD775F72EDAAFA54072E75FCC36C473FA95B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84725.jpgsave_picture_84725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84725.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:C8A7BD775F72EDAAFA54072E75FCC36C473FA95B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84727.jpgsave_picture_84727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84727.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:A5704CAD4C48B5FBEFC64C068672ECCB84523909
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84730.jpgsave_picture_84730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84730.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:A5704CAD4C48B5FBEFC64C068672ECCB84523909
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84731.jpgsave_picture_84731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84731.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:727351931273C3D212EA88558FA0EF325992590F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84732.jpgsave_picture_84732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84732.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:727351931273C3D212EA88558FA0EF325992590F
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84733.jpgsave_picture_84733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84733.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:16074D1B3FB6F9CE54A2696D13BF7853835CE847
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84734.jpgsave_picture_84734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84734.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:16074D1B3FB6F9CE54A2696D13BF7853835CE847
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84736.jpgsave_picture_84736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84736.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:984BA7A72D1DAF88545C699FA897FBE8C8D018F8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84737.jpgsave_picture_84737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84737.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Epica - Requiem For The Indifferent (2012) 2 издания [FLAC,APE|Lossless]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84740.jpgsave_picture_84740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84740.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Ltd. Digibook Edition содержит нормальную версию "Serena
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84742.jpgsave_picture_84742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84742.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:4A7512C1E705C280A4D706CDB28E24B58F237798
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84745.jpgsave_picture_84745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84745.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:FC776EDF8D7613B98D640DCF517470A48470A962
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84750.jpgsave_picture_84750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84750.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:E1C7ED52F49CB63094C78263341A6D0E0CBE381E
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84751.jpgsave_picture_84751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84751.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:E803D9B54DEE5D8C47A118C42BAF3CB97AABA5BB
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84752.jpgsave_picture_84752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84752.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:5F0B6A3B4F88688ACD3E6E59CD92BC98E694DBC7
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84753.jpgsave_picture_84753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84753.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:5F0B6A3B4F88688ACD3E6E59CD92BC98E694DBC7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84754.jpgsave_picture_84754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84754.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:5F0B6A3B4F88688ACD3E6E59CD92BC98E694DBC7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84756.jpgsave_picture_84756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84756.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:5F0B6A3B4F88688ACD3E6E59CD92BC98E694DBC7
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84757.jpgsave_picture_84757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84757.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:AAD0C038DFC287B5A8F883D6488BB5E79B6281A8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84758.jpgsave_picture_84758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84758.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:58E53812830232314BF77D9DE32287B90E2831F6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84760.jpgsave_picture_84760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84760.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Princess Isabella: Return of the Curse. Collector's Edition / Принцесса
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84762.jpgsave_picture_84762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84762.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:7D1ED2BF99021C0C8F8E08A5B5C9B3CE0CF6F52E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84763.jpgsave_picture_84763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84763.jpg" />
 </div>
 
 

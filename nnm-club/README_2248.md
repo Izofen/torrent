@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58815.jpgsave_picture_58815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58815.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58816.jpgsave_picture_58816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58816.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DF0A9496CBE3B52A68E23047FE1979FCDCCA6EA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58817.jpgsave_picture_58817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58817.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:212C4F2CA8D3730B7C20211B1F5C51103D981A62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58818.jpgsave_picture_58818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58818.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C829DCD1B33E7837F168774F57C21C9FE98AA6F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58819.jpgsave_picture_58819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58819.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:CD8E93F1DBB8A52376E7000D41231A0A79F9AF60
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58820.jpgsave_picture_58820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58820.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58821.jpgsave_picture_58821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58821.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ BBC: История древней Британии / A History of Ancient Brita
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58822.jpgsave_picture_58822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58822.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:2206EB236563799D46119FFFDCCA16F4CA172CD0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58823.jpgsave_picture_58823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58823.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:39DBA4B1A80B7617695406620A8BD7F2DFC596CB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58824.jpgsave_picture_58824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58824.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:69E166737D18C88CF8EAF25B0AD4D8FC69A4E913
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58825.jpgsave_picture_58825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58825.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Sweet Transit (2022) [Ru/Multi] (1.0.38) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58826.jpgsave_picture_58826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58826.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Kingsgrave (2024) [Ru/Multi] (1.0.0.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58827.jpgsave_picture_58827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58827.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:499DB8B743609D41BE25CA8FACA80F93AC65FE09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58828.jpgsave_picture_58828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58828.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:499DB8B743609D41BE25CA8FACA80F93AC65FE09
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58829.jpgsave_picture_58829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58829.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Adguard 7.17.1 (7.17.4709.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58830.jpgsave_picture_58830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58830.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:7B48D139E7A58F36FF3BBBF03B7D962633957F83
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58831.jpgsave_picture_58831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58831.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:6531BD5B4286BF52AE5659E4DA94DB8DDEDB8C0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58832.jpgsave_picture_58832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58832.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:F56B6741A6EC0230C02599E82D5D7DDD5C890FF9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58833.jpgsave_picture_58833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58833.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:8CD2B716E93D727B75252C0E2169357B25BA3674
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58834.jpgsave_picture_58834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58834.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack dixen18 [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58835.jpgsave_picture_58835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58835.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Carmageddon 2: Carpocalypse Now! (1998) [En] (1.1) Repack/Mod aL
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58836.jpgsave_picture_58836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58836.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:A428ADB8D141B856C1E4768D60FED7B339181BA6
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58837.jpgsave_picture_58837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58837.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:AB958602901BF9A982DD35995A1D2645A3F6F93E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58838.jpgsave_picture_58838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58838.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:B94B3FF3FA7065F4EE4824452F121B6B1AA864E0
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58839.jpgsave_picture_58839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58839.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B2B949B58E88F77CE3C72BF92F0FF688CFE55CEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58840.jpgsave_picture_58840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58840.jpg" />
 </div>
 
 

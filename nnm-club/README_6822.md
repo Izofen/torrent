@@ -6,7 +6,7 @@ Chris Angels - Chaos (War of the Worlds) (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234539.jpgsave_picture_234539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234539.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RTG. Сад-гигант (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234540.jpgsave_picture_234540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234540.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Stats 2.8.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234541.jpgsave_picture_234541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234541.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ HitPaw Video Converter for Mac 3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234542.jpgsave_picture_234542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234542.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2CE571B515F5737202DC3A398B20757F1D959562
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234543.jpgsave_picture_234543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234543.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Art Text 4 v.4.3.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234544.jpgsave_picture_234544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234544.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:BFA8A20FC65E347367BA8BD620AEB4B968CFC9E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234545.jpgsave_picture_234545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234545.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:73CBEE9EFB48AF5797B35270B7B4BDD2E04D4583
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234546.jpgsave_picture_234546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234546.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ K-Lite Codec Pack Update 17.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234547.jpgsave_picture_234547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234547.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:B745881BB488A9FBECBB5D9AE04812E9B5B952ED
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234548.jpgsave_picture_234548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234548.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Громкие новинки Мая (2022) [MP3|320 Kbps] <Pop, Dance, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234549.jpgsave_picture_234549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234549.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:B7B78C1FBAD8F889ED38984037B9242011155B72
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234550.jpgsave_picture_234550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234550.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:120FBBC106B847386D4F18FB266A81BA9DBDF5C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234551.jpgsave_picture_234551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234551.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:026CFB1305BDF462D8A0D5C3B5C5C93E8B7A9762
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234552.jpgsave_picture_234552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234552.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ YT Downloader 7.26.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234553.jpgsave_picture_234553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234553.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Sugaray Rayford - In Too Deep (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234554.jpgsave_picture_234554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234554.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:425BDC112F0E7CB8B11294993870B36DE0EF61CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234555.jpgsave_picture_234555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234555.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Black Hole Trance Music 05-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234556.jpgsave_picture_234556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234556.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:001B598120ACAE1F376E8B7B99601B53C9CD4209
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234557.jpgsave_picture_234557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234557.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:53493DD17B5E3E3C61FC8B4C75C328D94F5A6622
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234558.jpgsave_picture_234558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234558.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classi
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234559.jpgsave_picture_234559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234559.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:D691D176B40D0A98B49515607849BE238C29A221
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234560.jpgsave_picture_234560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234560.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Saphath - Ascension of the Dark Prophet (2022) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234561.jpgsave_picture_234561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234561.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ iScanner - Сканер Документов v3.68.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234562.jpgsave_picture_234562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234562.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Averblack - Gaslighting Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234563.jpgsave_picture_234563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234563.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:DFF6C2F1F59068B7BBEAC773BED4FBC520620D08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234564.jpgsave_picture_234564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234564.jpg" />
 </div>
 
 

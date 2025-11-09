@@ -6,7 +6,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250305.jpgsave_picture_250305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250305.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:AAD67E881832CEE7FDF1D2E9D3D4EC75DE413CA9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250306.jpgsave_picture_250306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250306.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Macrium Reflect Free Edition 8.0.6635 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250307.jpgsave_picture_250307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250307.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7BF835ABB230D880BEC9741CFEDB283BDF85FE38
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250308.jpgsave_picture_250308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250308.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Шансон 2 (2022) [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250309.jpgsave_picture_250309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250309.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:56BC121688D6AA3F9C47493E43CE9FB55CDD01F9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250310.jpgsave_picture_250310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250310.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9EFA58D234BEC6505F06F2F5246A32D52EC0FDD1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250311.jpgsave_picture_250311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250311.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:C66900124AE6C252E14326E612D5E769B299A115
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250312.jpgsave_picture_250312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250312.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:3421F712BD4CDD06F04469AE4BB744BB47E53F0B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250313.jpgsave_picture_250313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250313.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Bullet - No Mercy (1983) Reissued, 1997,	High Vaultage [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250314.jpgsave_picture_250314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250314.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ ShareX 14.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250315.jpgsave_picture_250315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250315.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250316.jpgsave_picture_250316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250316.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Uninstall Tool 3.6.0 Build 5686 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250317.jpgsave_picture_250317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250317.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Display Driver Uninstaller 18.0.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250318.jpgsave_picture_250318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250318.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:78CE7300C9E5806F236FA370FCD8C98313DAF705
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250319.jpgsave_picture_250319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250319.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ City Fixx - Fire Your Guns (1990) Compilation, 2022, Steelheart Memories, The "L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250320.jpgsave_picture_250320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250320.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Lese - Sweep 1.1.1 VST 3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250321.jpgsave_picture_250321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250321.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ GO Weather EX Premium 6.162 Mod by Balatan, tasker67 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250322.jpgsave_picture_250322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250322.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Notepad++ 8.4.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250323.jpgsave_picture_250323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250323.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:5EAFF77287C726D9144DEF13ECCAA5E82C4E0B9C
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250324.jpgsave_picture_250324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250324.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:A126526E95E35A27A54824531F0177D96CE084D5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250325.jpgsave_picture_250325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250325.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Bootstrap Studio 6.1.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250326.jpgsave_picture_250326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250326.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:BDAA3DFBE339C95ED40754866838F66CB881874F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250327.jpgsave_picture_250327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250327.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ simplewall 3.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250328.jpgsave_picture_250328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250328.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:55B091FD416D8D876BDFCF878CE03F872CBA4EDA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250329.jpgsave_picture_250329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250329.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Dr. Stone: Ryuusui | Доктор Стоун (спэшл) [2022, Special, 1 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250330.jpgsave_picture_250330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250330.jpg" />
 </div>
 
 

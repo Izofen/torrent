@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160113.jpgsave_picture_160113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C04917876EC71A4F63FD30A873E633185170E87D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160114.jpgsave_picture_160114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160114.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VueScan Pro 9.8.21 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160115.jpgsave_picture_160115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160115.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5CF4A9131B99F7129FE65108F9AD18AC518537D4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160116.jpgsave_picture_160116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160116.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A67F78C694213CD4E9C08735DF95A62F787CEC45
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160117.jpgsave_picture_160117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160117.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Status Quo - Heavy Traffic (2022) 3xCD, Deluxe Edition, Remastered, Universal Mu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160118.jpgsave_picture_160118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160118.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:59BE0841C9032B22F11198B1A80F0842806575CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160119.jpgsave_picture_160119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160119.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VideoProc Converter 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160120.jpgsave_picture_160120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160120.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:25EDD72E44479C37C9C1902AAE83F7EFD359539C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160121.jpgsave_picture_160121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160121.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Perfectly Clear WorkBench 4.2.0.2372 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160122.jpgsave_picture_160122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160122.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:2DA153FF96FA7CC0F834928B07F36FA7AE1108CC
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160123.jpgsave_picture_160123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160123.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Autumn's Child - Starflower (2022) Japanese Edition [MP3|320 Kbps] <Melodic Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160124.jpgsave_picture_160124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160124.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Adobe Photoshop Express 11.4.156 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160125.jpgsave_picture_160125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160125.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Joyoshare iPasscode Unlocker 4.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160126.jpgsave_picture_160126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160126.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ City of Stories: Stephan's Journey / Город Историй: Путешест
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160127.jpgsave_picture_160127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160127.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Lacuna Coil - Comalies XX (2002) 2xCD, Reissue, 2022, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160128.jpgsave_picture_160128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160128.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:5E955A48B67C91EE1144264D65F433476907E7CF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160129.jpgsave_picture_160129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160129.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:C05DEAEBDD59A438F918976AC0649F2C1F8F5397
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160130.jpgsave_picture_160130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160130.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:A235C4F5E373117B26EA764AB0624C59570037D5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160131.jpgsave_picture_160131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160131.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ CJ Burnett - Heat in the Streets (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160132.jpgsave_picture_160132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160132.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:0EF2EE39888B92233E507FBE3CDD3199A9559B89
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160133.jpgsave_picture_160133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160133.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ iStatistica Pro 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160134.jpgsave_picture_160134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160134.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:3466305F9B03421F73A50D70F75427B9829E68DA
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160135.jpgsave_picture_160135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160135.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ DearMob iPhone Manager 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160136.jpgsave_picture_160136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160136.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:8D45FF065018A7B6323B8CD01E4F2B7B8E1CE65F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160137.jpgsave_picture_160137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160137.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:E591049D8628A95D525370F0CCAD1AA4A9F99A5A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160138.jpgsave_picture_160138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160138.jpg" />
 </div>
 
 

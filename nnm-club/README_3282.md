@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105693.jpgsave_picture_105693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DD8CA5466AA038F2BCBB5699B7A6581B3DB079CC
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105694.jpgsave_picture_105694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105694.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C1CEF81712517A1A139BAD7DA8E9E754CEF130C2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105695.jpgsave_picture_105695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D1471C8DD39C7FC0C2B81E0C087C6DD6B168A6E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105696.jpgsave_picture_105696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105696.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Го�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105697.jpgsave_picture_105697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105697.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Razzmattazz - Rock Or Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105698.jpgsave_picture_105698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105698.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The Chickens - Drink My Wine: The Smooth Soul Sessions (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105699.jpgsave_picture_105699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105699.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Kid Andersen & Lisa Andersen - Spirits and Soul 2CD)(2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105700.jpgsave_picture_105700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105700.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:422E36E876A0AAB4F653A49A39EE001C2962C194
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105701.jpgsave_picture_105701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105701.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:7A165CCCB92EC04327E4988378AF0B66EC2AEF68
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105702.jpgsave_picture_105702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105702.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ John Haydock - Standing in the Shadow of the Blues (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105703.jpgsave_picture_105703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105703.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:AD5CB409C5DED0838ACCDBE64B91DA27CB0FF23D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105704.jpgsave_picture_105704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105704.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:AD5CB409C5DED0838ACCDBE64B91DA27CB0FF23D
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105705.jpgsave_picture_105705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105705.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:234DA0997A8805C41F50A2D5A853E95EF5D687F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105706.jpgsave_picture_105706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105706.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:D04DE241F61BABA43BF689F60D6912784480B97F
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105707.jpgsave_picture_105707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105707.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Michael Fortunati - 2 Albums (1987, 1988) LP [MP3|320 Kbps] <Electronic, Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105708.jpgsave_picture_105708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105708.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Frank Sinatra - Ring-A-Ding Ding! (1961) 1998, Reprise Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105709.jpgsave_picture_105709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105709.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Shakatak - The Very Best of Shakatak 1988-2024 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105710.jpgsave_picture_105710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105710.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:E2A4C5F45EDBD0B396387A500328D796A75AEF51
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105711.jpgsave_picture_105711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105711.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:E96FB186DB6134DC2EAA5E9D95E254B8AB260FC7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105712.jpgsave_picture_105712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105712.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Ministry - Hopiumforthemasses (2024) [FLAC|Lossless|tracks + .cue] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105713.jpgsave_picture_105713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105713.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:ABFA795AA039AA647C3CD029ADB79F5AA29E6715
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105714.jpgsave_picture_105714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105714.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Grand - Second To None (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105715.jpgsave_picture_105715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105715.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Freakshow - A Reason Worth Dying For (2024) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105716.jpgsave_picture_105716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105716.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Motorhead - Hammered (2002) [WavPack|Lossless|image + .cue] <Heavy Metal, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105717.jpgsave_picture_105717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105717.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:8F580CBA8D59DA6331FA8FE53C784033CAB1D720
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105718.jpgsave_picture_105718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105718.jpg" />
 </div>
 
 

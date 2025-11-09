@@ -6,7 +6,7 @@ Far Cry: BMS Russian Weapons Pak (2023) [Ru] (1.1) Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42467.jpgsave_picture_42467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42467.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Overlord: Raising Hell (2007) [Ru] (1.4/dlc) Repack ArchangeL
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43299.jpgsave_picture_43299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43299.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FlatOut: Ultimate Carnage (2008) [Ru/Multi] (1.0) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43489.jpgsave_picture_43489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43489.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bully (2008) [Ru/En] (1.2) Repack R.G. Catalyst [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43590.jpgsave_picture_43590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43590.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Far Cry (2004) [Ru/En] (1.04) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43613.jpgsave_picture_43613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43613.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Spyro 2: Ripto’s Rage! (1999) [Ru] (2.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43641.jpgsave_picture_43641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43641.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Xenonauts: On The Edge / Ксенонавты: на грани (2015) [Ru] (4.0)
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43677.jpgsave_picture_43677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43677.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Flatout 2 (2006) [Ru/Multi] (1.2) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43723.jpgsave_picture_43723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43723.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Spyro the Dragon (1998) [Ru/Multi] (2.0) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43741.jpgsave_picture_43741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43741.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Xenonauts: XNT - Into Darkness (2017) [En] (6.0) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43819.jpgsave_picture_43819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43819.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Xenonauts Soviet Edition (2015) [Ru/En] (0.35.1) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44138.jpgsave_picture_44138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44138.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Xenonauts: Arms Race / Ксенонавты: гонка вооружений (20
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44241.jpgsave_picture_44241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44241.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Spyro: Enter the Dragonfly (2002) [Ru/Multi] (1.2) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44261.jpgsave_picture_44261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44261.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Action SuperCross (1997) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44952.jpgsave_picture_44952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44952.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последни
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44956.jpgsave_picture_44956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44956.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый во�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44964.jpgsave_picture_44964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44964.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Far Cry: Far Cry Irina Go 2 (2022) [Ru/En] (1.0) Repack/Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45008.jpgsave_picture_45008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45008.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46227.jpgsave_picture_46227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46227.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nancy Drew: Danger on Deception Island / Нэнси Дрю. Туманы ост�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46311.jpgsave_picture_46311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46311.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46428.jpgsave_picture_46428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46428.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46758.jpgsave_picture_46758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46758.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47273.jpgsave_picture_47273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47273.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ STAR WARS: Battlefront (2015) [Ru/Multi] (1.0.7.64833) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47305.jpgsave_picture_47305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47305.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Deer Avenger 4: The Redneck Strikes Back / Месть Оленя 4 (2001) [Ru/En
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47563.jpgsave_picture_47563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47563.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ realMyst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47872.jpgsave_picture_47872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47872.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Flatout (2005) [Ru/Multi] (1.01) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47972.jpgsave_picture_47972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_47972.jpg" />
 </div>
 
 

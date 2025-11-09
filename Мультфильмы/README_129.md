@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251744.jpgsave_picture_251744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251744.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:66EA5DD27AF81F4E981220993D7839D85D6A7FDB
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251772.jpgsave_picture_251772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251772.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:A69B7D8060878486139171DD03337839B6F4CCCC
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251909.jpgsave_picture_251909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251909.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B51DCF1D7403CD2EAD773E83C56C43D5EB05257D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251925.jpgsave_picture_251925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251925.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:485EC19ACA301F6BC3F86D0AD6598198E3D3C3EB
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251990.jpgsave_picture_251990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251990.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:CCB543360B4ACFCDC12E0EE8FBB13F7EF67AF3C7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252207.jpgsave_picture_252207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252207.jpg" />
 </div>
 
 

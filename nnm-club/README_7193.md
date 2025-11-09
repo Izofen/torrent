@@ -6,7 +6,7 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245973.jpgsave_picture_245973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245973.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ IceCream Ebook Reader Pro 6.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245974.jpgsave_picture_245974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245974.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9ED07FD48B31C736AB0D081C2B3805706AF2ED49
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245975.jpgsave_picture_245975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245975.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2B7211C9D06DA181AA46DB070DAE29096AA39EEC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245976.jpgsave_picture_245976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245976.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Epic Games, Harrison Moore | Paragon Character Texturing Pipeline (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245977.jpgsave_picture_245977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245977.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Bootstrap Studio 6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245978.jpgsave_picture_245978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245978.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ One Commander Pro 3.37.1.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245979.jpgsave_picture_245979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245979.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:1AEC5BBBD275565ABF10247F08ADD9B836F25378
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245980.jpgsave_picture_245980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245980.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:FD27758A7BF1F349E35B4E2EF592A7E7A259200B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245981.jpgsave_picture_245981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245981.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ EdgeView 2 v2.915 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245982.jpgsave_picture_245982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245982.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:0E2FCAC4B27BC43C8427036C92988EF32E6C035E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245983.jpgsave_picture_245983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245983.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:527D28D83E27A4BF77735653F3386B24B97E5ED9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245984.jpgsave_picture_245984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245984.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:A26A358F8A34BEE53278DE42BB4232D283E07A79
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245985.jpgsave_picture_245985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245985.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:49C428A99CCF3E1CBC69A71B9E625CBEE8FE6AC4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245986.jpgsave_picture_245986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245986.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Wondershare PDFelement 9.4.7.2144 RePack by elchupacabra + OCR Plugin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245987.jpgsave_picture_245987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245987.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ FolderSizes 9.5.422 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245988.jpgsave_picture_245988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245988.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:D4777E045C3AE3308169978441F2D8B0A9649111
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245989.jpgsave_picture_245989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245989.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:2E666D418CEBA92F7AFF02550C5E2FA9C0761C8D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245990.jpgsave_picture_245990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245990.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Project Office X Pro 1.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245991.jpgsave_picture_245991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245991.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA – Русский шансон часть 4 (1997) [MP3|320 Kbps] <Шанс�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245992.jpgsave_picture_245992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245992.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Alexander Popov - Adagio (2021) Singles [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245993.jpgsave_picture_245993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245993.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:F5A2B7116D65E80B2877DF378DF36CC1F22462A1
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245994.jpgsave_picture_245994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245994.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ FanControl V150 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245995.jpgsave_picture_245995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245995.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:04DE51AF465766BA209F876411BC016A9575CF92
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245996.jpgsave_picture_245996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245996.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Affinity Publisher 2 v.2.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245997.jpgsave_picture_245997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245997.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Harry Hmura - Goin’ Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245998.jpgsave_picture_245998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245998.jpg" />
 </div>
 
 

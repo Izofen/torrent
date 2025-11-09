@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251695.jpgsave_picture_251695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251695.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Finger Eleven - Last Night On Earth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251696.jpgsave_picture_251696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251696.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:57E877519F64A1339E5804BB24DE625206398892
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251697.jpgsave_picture_251697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251697.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:49E42994F6FA2224D33491F536A912B53C6A5BAD
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251698.jpgsave_picture_251698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251698.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8843ED6D8AE6ED0F20223EE7C564CA460B3B609A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251699.jpgsave_picture_251699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251699.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251700.jpgsave_picture_251700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251700.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ DELTARUNE (2025) [Ru/Multi] (1.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251701.jpgsave_picture_251701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251701.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:DDE74123D282FE23182721E6A2489B688F32658B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251702.jpgsave_picture_251702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251702.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Secrets of Salem 2: The Phantom Cab / Секреты Салема 2: Призр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251703.jpgsave_picture_251703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251703.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Alcatrazz - Prior Convictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251704.jpgsave_picture_251704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251704.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ RADIO TAPOK - БЛИЦКРИГ (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251705.jpgsave_picture_251705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251705.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ RADIO TAPOK - БЛИЦКРИГ (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251706.jpgsave_picture_251706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251706.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Second Sun (2025) [En] (1.0.5b) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251707.jpgsave_picture_251707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251707.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C99A68CB5D35018C1C29A15E930BF82E141972A2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251708.jpgsave_picture_251708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251708.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Capture One 23 Enterprise 16.7.1.3218 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251709.jpgsave_picture_251709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251709.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ YT Downloader 9.18.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251710.jpgsave_picture_251710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251710.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:8BAB450F93E154F65350102068FCC411FBD11F4D
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251711.jpgsave_picture_251711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251711.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Process Lasso Pro 16.1.0.46 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251712.jpgsave_picture_251712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251712.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:1FD1D19B0FD949C50C1F06C9BA1DF69A649472EF
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251713.jpgsave_picture_251713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251713.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251714.jpgsave_picture_251714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251714.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:164128E204CEFE4B2C8839B0A8746858A948C2D1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251715.jpgsave_picture_251715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251715.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:3763FF52F0864D52220E6D92F5D7C763053EBAD1
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251716.jpgsave_picture_251716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251716.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:628E53BAB7563894F9B6625E0E00E5471F8319BE
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251717.jpgsave_picture_251717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251717.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E0772BB007BC76EB486E05CE0F901DA6E49E92E7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251718.jpgsave_picture_251718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251718.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:F29E5F4547A0F292B7CCAF911ECE07FCCA4110F2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251719.jpgsave_picture_251719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251719.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:E93A42E9AD67769165427E7CBA0608D3E73C9911
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251720.jpgsave_picture_251720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251720.jpg" />
 </div>
 
 

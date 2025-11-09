@@ -6,7 +6,7 @@ VA - Хозяйка Бара.Сборник Лучшего Шансона - (200
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133441.jpgsave_picture_133441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133441.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:DEBA70DD095BF82A46B839FD98B43766FC8E4786
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133442.jpgsave_picture_133442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133442.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:EE4BD0055C9DF2DE122DB8057FAF84E80E96797C
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133444.jpgsave_picture_133444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133444.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:6D0A84A068D50153250006B450246163FE06C41C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133445.jpgsave_picture_133445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133445.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:7B5131DB13F4B5241683DDECECD45D00D3460110
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133447.jpgsave_picture_133447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133447.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:8670A80D4ABD65AB44127E8757CFA0CA177BB66C
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133449.jpgsave_picture_133449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133449.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:F0E7D82D883B34FD7FB26776A3019A5EF7FA810E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133450.jpgsave_picture_133450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133450.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Network Security Scanner for Mac 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133451.jpgsave_picture_133451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133451.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Kenny G - Innocence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133453.jpgsave_picture_133453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133453.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Hekasoft Backup & Restore 0.20 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133454.jpgsave_picture_133454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133454.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ MediaInfo for Mac 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133455.jpgsave_picture_133455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133455.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:CBE8A9B38BA723CD608C1F81E2520B2556E0A8C5
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133456.jpgsave_picture_133456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133456.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:CBE8A9B38BA723CD608C1F81E2520B2556E0A8C5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133457.jpgsave_picture_133457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133457.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:3698395E033DFAF5A51003DD9D562C945CE749C9
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133459.jpgsave_picture_133459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133459.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:8981307560EAF2E649C0D2F822711E0A36D9AF08
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133460.jpgsave_picture_133460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133460.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Handy Start Menu 1.80 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133461.jpgsave_picture_133461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133461.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Handy Start Menu 1.80 [Русский]
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133462.jpgsave_picture_133462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133462.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:DEC593C4FD60A510DE66C9C53E9DFFFCE609D094
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133463.jpgsave_picture_133463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133463.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:1249B131A23BAF4D8096CFB0DF273F422A7475B5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133464.jpgsave_picture_133464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133464.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:FF9CB9DC165D539D25A9B16DA32BB42DE699744D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133465.jpgsave_picture_133465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133465.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:631DC7460546F751CDAE6A0360C2F1FF0C3C52AD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133466.jpgsave_picture_133466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133466.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ AnyGo 6.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133467.jpgsave_picture_133467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133467.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Ingenious / Ingenious. Все гениальное просто [Ru] (L) 2007
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133468.jpgsave_picture_133468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133468.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ YT Saver Video Downloader & Converter for Mac 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133469.jpgsave_picture_133469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133469.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Universal Viewer Pro 6.5.3 + Portable + Plugins [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133470.jpgsave_picture_133470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133470.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Wondershare PDFelement Pro OCR 10.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133471.jpgsave_picture_133471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133471.jpg" />
 </div>
 
 

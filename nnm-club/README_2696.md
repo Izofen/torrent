@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70846.jpgsave_picture_70846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70846.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Process Lasso Pro 15.1.0.19 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70847.jpgsave_picture_70847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70847.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TuneIn Radio Pro v37.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70848.jpgsave_picture_70848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70848.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D2368BD403336ACDED42DAA38AA7703239A64F01
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70849.jpgsave_picture_70849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70849.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E4AF1A4932D59C997514BCBD91D60FDA3714351F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70850.jpgsave_picture_70850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70850.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:005BFAC69735B18ED7F655B11F9C4DA1AB8C5659
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70851.jpgsave_picture_70851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70851.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Text Editor Pro 31.4.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70852.jpgsave_picture_70852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70852.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F08BFBF764F6775CDD0029DC54B9FB72004C42A1
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70853.jpgsave_picture_70853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70853.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:17BDD6302700E7E6375CB5CBACA9ED00B4436406
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70854.jpgsave_picture_70854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70854.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:15D00BC7B24E7FAACD9C7452396DBA67D9936BE8
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70855.jpgsave_picture_70855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70855.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:20B8ABE77A8FC2E925BF4CB9CFAC0EA5FE7DA3D3
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70856.jpgsave_picture_70856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70856.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:427CBF3CE50D85F5392D7597F811E1333A0F51F2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70857.jpgsave_picture_70857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70857.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8F34ACA2DDDA3E762FCB70110E40119210565232
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70858.jpgsave_picture_70858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70858.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Music News For Forum vol.061 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70859.jpgsave_picture_70859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70859.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:26A6FD96DD7769922952A9E217CF8F16B0A8A1FC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70860.jpgsave_picture_70860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70860.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ GiliSoft Screen Recorder 12.8 [Multi/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70861.jpgsave_picture_70861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70861.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:7008436C3AEAFD13969D5A2F601B0FB9D5511D96
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70862.jpgsave_picture_70862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70862.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ YT Downloader 9.11.21 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70863.jpgsave_picture_70863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70863.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ PictureThis - Plant Identification v5.1.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70864.jpgsave_picture_70864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70864.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:8E3A38F5578BFF32655B58180D6BE27B40CA9F2D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70865.jpgsave_picture_70865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70865.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:5404B9F3E38FA75996386B80C0125519FAAC2335
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70866.jpgsave_picture_70866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70866.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Nessa Barrett - Aftercare (2024) Deluxe, 2025, Warner Records [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70867.jpgsave_picture_70867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70867.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:961322A342252EEBD7437289AD476EF938CB1012
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70868.jpgsave_picture_70868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70868.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:FD8D4CBB77A8EE86BA83E41990E65592162045F2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70869.jpgsave_picture_70869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70869.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Free Wheeling Blues - Train Ain't Gonna Stop (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70870.jpgsave_picture_70870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70870.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Tom & His Free Mockingbirds - All Shades of Blues & Dreams (2025) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70871.jpgsave_picture_70871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70871.jpg" />
 </div>
 
 

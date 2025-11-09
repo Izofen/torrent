@@ -6,7 +6,7 @@ Storm Orchestra - Get Better (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67661.jpgsave_picture_67661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67661.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cold Iron - Return To Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67662.jpgsave_picture_67662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67662.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Marilyn Manson - In The Air Tonight (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67690.jpgsave_picture_67690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67690.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:3DB05F48FD03858E5652B81B669DF165C75EF845
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67724.jpgsave_picture_67724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67724.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Darkness - Easter is Cancelled (2019) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67751.jpgsave_picture_67751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67751.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67752.jpgsave_picture_67752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67752.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67753.jpgsave_picture_67753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67753.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67754.jpgsave_picture_67754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67754.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67756.jpgsave_picture_67756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67756.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67757.jpgsave_picture_67757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67757.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67759.jpgsave_picture_67759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67759.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Powe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67762.jpgsave_picture_67762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67762.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Juno Francis - Melancholia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67763.jpgsave_picture_67763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67763.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Insolate - Full Disclosure (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67764.jpgsave_picture_67764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67764.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67768.jpgsave_picture_67768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67768.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Crow's Flight - The Dark Horizon (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67770.jpgsave_picture_67770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67770.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67772.jpgsave_picture_67772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67772.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mentalist - Earthbreaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67777.jpgsave_picture_67777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67777.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67802.jpgsave_picture_67802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67802.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Elvenking - Reader Of The Runes - Luna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67806.jpgsave_picture_67806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67806.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Destinity - Ascension (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Deat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67824.jpgsave_picture_67824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67824.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Within Destruction - Animetal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67869.jpgsave_picture_67869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67869.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67870.jpgsave_picture_67870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67870.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67875.jpgsave_picture_67875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67875.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Alex Okami - Strange As Angels (2025) [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67882.jpgsave_picture_67882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67882.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Sunwalter - Rebuilding The Universe (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67885.jpgsave_picture_67885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67885.jpg" />
 </div>
 
 

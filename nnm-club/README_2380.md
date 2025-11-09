@@ -6,7 +6,7 @@ OfficeSuite Pro + PDF 14.3.51288 Extra Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62247.jpgsave_picture_62247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62247.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ AMD Radeon Software Adrenalin Edition 24.3.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62248.jpgsave_picture_62248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62248.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:26725FDE3A8F77C6D6EAC8D4AC9566AB653F5EFE
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62249.jpgsave_picture_62249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62249.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:875490E105838747B455862DF5D670FF38BF87F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62250.jpgsave_picture_62250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62250.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:210984783AD8B1B85FF434A9DA7769B3A7826CF5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62251.jpgsave_picture_62251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62251.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62252.jpgsave_picture_62252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62252.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Process Lasso Pro 14.0.1.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62253.jpgsave_picture_62253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62253.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:BECF954E2F09566E17B60C8C2D3B9B5221702B48
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62254.jpgsave_picture_62254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62254.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Perfectly Clear WorkBench 4.6.0.2645 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62255.jpgsave_picture_62255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62255.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ PIDKey Lite 1.64.4 b40 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62256.jpgsave_picture_62256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62256.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Blur Photo v6.2 Mod by Dymonyxx [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62257.jpgsave_picture_62257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62257.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:B115ED57166B403D58984BB0AD4D62CDDE749354
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62258.jpgsave_picture_62258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62258.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:17E8A77904F44D25E7A9754F20CACE2D76FEDB55
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62259.jpgsave_picture_62259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62259.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:1849563C61D999829D85636A532BD35732FA6C0C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62260.jpgsave_picture_62260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62260.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:022E91232253627A0ACD1D60A7FB5BDFFB83171C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62261.jpgsave_picture_62261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62261.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ The Cadet Files: Scene Unseen (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62262.jpgsave_picture_62262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62262.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Adobe Acrobat Pro 24.001.20615 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62263.jpgsave_picture_62263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62263.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ uTorrent Pro 3.6.0 Build 47028 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62264.jpgsave_picture_62264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62264.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Blade Prince Academy (2024) [Multi] (1.0) Repaclk FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62265.jpgsave_picture_62265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62265.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:C4F899E05694A5685AD91A5F2A0C826DAC9E8C42
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62266.jpgsave_picture_62266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62266.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:A0747C9CA18BBAEA0BD4666E3D6DEEEC10245515
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62267.jpgsave_picture_62267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62267.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Korn (Jonathan Davis) - Studio Albums (16 releases) (1994-2022) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62268.jpgsave_picture_62268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62268.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:975522801195F2D11115D9F03DE89BC096B0B21D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62269.jpgsave_picture_62269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62269.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ BlueStacks App Player 5.21.103.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62270.jpgsave_picture_62270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62270.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:CEEE2391B0123D6BE897A6AD20BF572C6F0EB0EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62271.jpgsave_picture_62271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62271.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:4FFEDC55372941314860F2457E8B7DD69C9BB7AE
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62272.jpgsave_picture_62272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62272.jpg" />
 </div>
 
 

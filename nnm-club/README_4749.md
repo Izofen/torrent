@@ -6,7 +6,7 @@ VA - Deep House: Soft Session (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148628.jpgsave_picture_148628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148628.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:039515B23949C5C46E47F6D5D7D69A6869430D86
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148629.jpgsave_picture_148629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148629.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:039515B23949C5C46E47F6D5D7D69A6869430D86
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148632.jpgsave_picture_148632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148632.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Windows System Control Center 2.5.0.4 Portable by Alecs962 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148633.jpgsave_picture_148633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148633.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:3CA7781DAB4844F14737DF2D756C22447A2CD276
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148635.jpgsave_picture_148635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148635.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Billboard Year End Hot 100 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148636.jpgsave_picture_148636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148636.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:C4354B865D4C9B58795E8D41C9AE9A71E1AF7CB7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148637.jpgsave_picture_148637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148637.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Any DVD Converter for Android 4.5.8 Portable by PortableAppZ [Multi/Русски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148638.jpgsave_picture_148638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148638.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ DVD to Android Ripper + Android Video Converter + Youtube Downloader + YouTube A
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148639.jpgsave_picture_148639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148639.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Friday Night: EDM Dance Party (2021) [MP3|320 Kbps] <Dance, Electro, Club, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148640.jpgsave_picture_148640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148640.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Movist 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148641.jpgsave_picture_148641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148641.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ FXPHD, Victor Perez | NUK313 Photorealism in Compositing with NUKE Case Studies 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148642.jpgsave_picture_148642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148642.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:258ADBBE30C8F5ABCD18C836E5E96682493BF417
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148644.jpgsave_picture_148644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148644.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Khepra - Cosmology Divine (2016) [MP3|320 Kbps] <Oriental, Symphonic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148646.jpgsave_picture_148646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148646.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ FileZilla 3.46.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148647.jpgsave_picture_148647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148647.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:451DBFECDB93839C701F5D4154EF06B3182A982C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148648.jpgsave_picture_148648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148648.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:9EB875E3F69D1D10E9DEB537145E6384B541F4B4
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148649.jpgsave_picture_148649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148649.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Blops - Blops (aka Marzo, aka Locomotora) (1973) 2006, Shadoks Musi [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148650.jpgsave_picture_148650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148650.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - EDM Friday Party (2021) [MP3|320 Kbps] <EDM, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148651.jpgsave_picture_148651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148651.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ WiFi Scanner 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148653.jpgsave_picture_148653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148653.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:B4BC80CD1F6F26AADE6B06849D3E6D445B08DA3D
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148654.jpgsave_picture_148654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148654.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:D4D3E1E1E256DE2CB631D74D5FF74171E7852864
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148655.jpgsave_picture_148655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148655.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, M
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148656.jpgsave_picture_148656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148656.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Topaz Photo AI 2.1.2 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148657.jpgsave_picture_148657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148657.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Def Leppard: История группы / Def Leppard: Group Story (2016) HDTV 
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148658.jpgsave_picture_148658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148658.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ TunesKit iBook Copy 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148659.jpgsave_picture_148659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148659.jpg" />
 </div>
 
 

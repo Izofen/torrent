@@ -6,7 +6,7 @@ Crystal Tears - Choirs Of Immortal (2006) [WavPack|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235191.jpgsave_picture_235191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235191.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Before The Dawn - Stormbringers (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235194.jpgsave_picture_235194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235194.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Godless Descent - Hazy Path of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235199.jpgsave_picture_235199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235199.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Ikarie - Arde (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235206.jpgsave_picture_235206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235206.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Wardress - Metal 'Til The End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235217.jpgsave_picture_235217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235217.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Loengreen - Огненные цветы (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235223.jpgsave_picture_235223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235223.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Frozen Tears - Mysterious Time (2000) [WavPack|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235235.jpgsave_picture_235235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235235.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Night Demon - Outsider (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235242.jpgsave_picture_235242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235242.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Various Artists - Fighting Myself New Rock Bangers (2023) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235250.jpgsave_picture_235250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235250.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Necrotesque - The Perpetuated Festering (2023) [FLAC|Lossless|WEB-DL|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235264.jpgsave_picture_235264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235264.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Neanderthal - Rise (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235275.jpgsave_picture_235275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235275.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Argento Metal - Psicosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235286.jpgsave_picture_235286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235286.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Silent Scream - Warcry (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235289.jpgsave_picture_235289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235289.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Exit Stage Left - Appleberry Trees (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235296.jpgsave_picture_235296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235296.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ The Banishment - Machine and Bone (2023) [FLAC|Lossless|WEB-DL|tracks] <Industri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235298.jpgsave_picture_235298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235298.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Roads - Simple Man (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235303.jpgsave_picture_235303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235303.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:00D537F6ECC52E60E06F60B3270B2FD86BD7F3F5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235312.jpgsave_picture_235312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235312.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Fogg - Dancin' To The Music: The Singles And More (2023) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235321.jpgsave_picture_235321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235321.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Wyatt Earp - Gods & Bullets (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235323.jpgsave_picture_235323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235323.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Gorod - The Orb (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235330.jpgsave_picture_235330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235330.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ The Heavy - AMEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235331.jpgsave_picture_235331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235331.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Dirty Rose - Rock & Roll Is My Religion (2021) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235332.jpgsave_picture_235332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235332.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Cattle Decapitation - Terrasite (2023) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235333.jpgsave_picture_235333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235333.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Among These Ashes - Dominion Enthroned (2022) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235345.jpgsave_picture_235345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235345.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Oxido - Breaking Down The Walls (1990) Reissue, 2022, Minotauro [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235349.jpgsave_picture_235349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235349.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Old Dirty Buzzard - What a Weird Hill to Die On (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235354.jpgsave_picture_235354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235354.jpg" />
 </div>
 
 

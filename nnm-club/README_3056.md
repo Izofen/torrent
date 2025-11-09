@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97166.jpgsave_picture_97166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97166.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A54BF0D0B5D0CA4A3B221C9524E6C3E3586B7789
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97169.jpgsave_picture_97169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97169.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8CF971E376909B1696AEF3976166832DA64B71E5
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97170.jpgsave_picture_97170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97170.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:59E92645E3A2BF5CD4B8F36344CFC2F1F7121D04
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97172.jpgsave_picture_97172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97172.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D52D6B84A70CD50086050B696621D3A3AADD5946
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97175.jpgsave_picture_97175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97175.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:A46A09050035DF889B85E37B836FCF1D6974FF4B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97177.jpgsave_picture_97177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97177.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F91E4096F46F1D3C4A1CD29A23A7643ACDED5138
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97178.jpgsave_picture_97178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97178.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:19EFACF6E6383B20A1780C3C524281A529174B04
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97180.jpgsave_picture_97180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97180.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:D36C88C595D7CC67A4FC35FC17DB736517343AA1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97181.jpgsave_picture_97181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97181.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:3A6A76E9B51918A4448780CEDA75EE326574BC71
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97185.jpgsave_picture_97185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97185.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:A72AE32A359965A3DD95FA23026AB1FE5201044F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97186.jpgsave_picture_97186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97186.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:3C6D0ADAEF14737A6D227FCD414E686163543BA9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97188.jpgsave_picture_97188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97188.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Super Electro. Сборник клубных суперхитов (3CD) (20
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97189.jpgsave_picture_97189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97189.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Ретро Дискотека глазами диджеев Vol-2 (2012) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97193.jpgsave_picture_97193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97193.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:20397A5DC9F01E6ACF0A6E0C2C64D308FFC440B9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97197.jpgsave_picture_97197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97197.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Madmen & Poets - Scandinavian Sunday (2010) 2CD [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97198.jpgsave_picture_97198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97198.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ VA - Trance hits vol 2 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97200.jpgsave_picture_97200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97200.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:8BE2A4D4B66CF7F6A5C0A4C355A83CE817A90E22
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97201.jpgsave_picture_97201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97201.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Whisky Bar - Дура... (2008) [MP3|320 кб/с]<Funk, Punk, R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97202.jpgsave_picture_97202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97202.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Braincell - Psychedelicious EP (2012) [MP3|320 кб/с]<Psy / Full On>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97203.jpgsave_picture_97203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97203.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:D13BFF22A39680593AF72CC620A264C31A5FF82F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97206.jpgsave_picture_97206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97206.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Dancing Astronaut Radio presents Axis - Episode 01-04 (2012) [MP3|320 кб/с]<E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97207.jpgsave_picture_97207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97207.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:54451919754A8AE4510522E4153998D3282FE746
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97208.jpgsave_picture_97208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97208.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97210.jpgsave_picture_97210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97210.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97213.jpgsave_picture_97213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97213.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97214.jpgsave_picture_97214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97214.jpg" />
 </div>
 
 

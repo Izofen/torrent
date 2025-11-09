@@ -6,7 +6,7 @@ VA - ЕвроХит Топ 40 Europa Plus 13.12.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167393.jpgsave_picture_167393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167393.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MWeb Pro 4.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167394.jpgsave_picture_167394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167394.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ditto Clipboard Manager 3.24.220.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167395.jpgsave_picture_167395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167395.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Самые новые песни о любви 11 (2025) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167396.jpgsave_picture_167396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167396.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ AIMP 5.10 Build 2417 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167397.jpgsave_picture_167397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167397.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:A2AD3F4BCF5C652FCA4394CECC5EB9F650262FD4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167398.jpgsave_picture_167398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167398.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Allegorithmic Substance Alchemist 2019.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167399.jpgsave_picture_167399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167399.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3C9E9D2365AD84FA70168A60B314AB6C742F4C9C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167400.jpgsave_picture_167400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167400.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ EdgeView 4.3.7[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167401.jpgsave_picture_167401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167401.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Viogression - Passage (1992) [WavPack|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167402.jpgsave_picture_167402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167402.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:8E824222B3C555B451870E11993CBA440AC2464E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167403.jpgsave_picture_167403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167403.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ AIMP 5.10 Build 2417 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167404.jpgsave_picture_167404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167404.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ WinUtilities Professional 15.78 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167405.jpgsave_picture_167405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167405.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:77E038E88EBE61C68F2993FA02AEBEB2FE6EA7C5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167406.jpgsave_picture_167406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167406.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:75F9DCEC86E61697F398275C18FC68FCC71B2973
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167407.jpgsave_picture_167407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167407.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:CA140B35EF03FF3A3382B5328A478681D9A07A4E
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167408.jpgsave_picture_167408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167408.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:DAD5F1572848DCB8453A2BEFDD3DB70C705F17E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167409.jpgsave_picture_167409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167409.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:E9721C36CD871E2572A7536055ED0F7ADBA42D04
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167410.jpgsave_picture_167410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167410.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ HitPaw Video Converter 2.6.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167411.jpgsave_picture_167411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167411.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Survivalist: invasion PRO v0.0.431 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167412.jpgsave_picture_167412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167412.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C1DBB68614C3EAE846F1FA1CFD324389C586A27C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167413.jpgsave_picture_167413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167413.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Самые новые песни о любви 10 (2025) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167414.jpgsave_picture_167414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167414.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Phil K Pres: Y4K - Distinctive Breaks (2005) [FLAC|Lossless]<Progressive Br
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167415.jpgsave_picture_167415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167415.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Spectrasonics Omnisphere Software 2.8.2c (x64) RePack by vkDanilov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167416.jpgsave_picture_167416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167416.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:078B9A22E09583A23633E56E2ED7CB0C25483D1A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167417.jpgsave_picture_167417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167417.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:1F7C8BC528A5440D9FA1F7AE88F9E0B3E7C577CC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167418.jpgsave_picture_167418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167418.jpg" />
 </div>
 
 

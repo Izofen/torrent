@@ -6,7 +6,7 @@ Granny Remake (2023) [Ru/Multi] (3.5.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43398.jpgsave_picture_43398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43398.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Assassin's Creed (2008) [Ru/En] (1.0.2) Repack dixen18 [Director's Cut Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43402.jpgsave_picture_43402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43402.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43408.jpgsave_picture_43408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43408.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bioshock Dilogy / Дилогия Bioshock (2007-2010) [Ru/En] (1.1/1.1/dlc) Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43409.jpgsave_picture_43409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43409.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43416.jpgsave_picture_43416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43416.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Roadwarden (2022) [En] (1.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43422.jpgsave_picture_43422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43422.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ METAL DOGS (2023) [Multi] (1.5.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43423.jpgsave_picture_43423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43423.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Slipstream (2018) [En] (1.3.3-r6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43425.jpgsave_picture_43425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43425.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dead Space: Trilogy (2008-2013) [Ru/En] (1.0.0.222/1.0/1.0.1) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43428.jpgsave_picture_43428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43428.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Edge of Sanity (2024) [Ru/Multi] (1.1.1/dlc) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43441.jpgsave_picture_43441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43441.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.2.1474/dlc) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43444.jpgsave_picture_43444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43444.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BAKERU (2024) [Multi] (1.0) Repack FitGirl [Soundtrack Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43447.jpgsave_picture_43447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43447.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43469.jpgsave_picture_43469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43469.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Demon's Mirror (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43475.jpgsave_picture_43475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43475.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Turbo Sliders Unlimited (2022) [En] (1.00/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43478.jpgsave_picture_43478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43478.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Scen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43480.jpgsave_picture_43480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43480.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43485.jpgsave_picture_43485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43485.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics (2024) [Ru/Multi] (1.0) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43496.jpgsave_picture_43496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43496.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ I Am Your Beast (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43501.jpgsave_picture_43501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43501.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Far Cry 2 (2008) [Ru/En] (1.03) Repack dixen18 [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43507.jpgsave_picture_43507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43507.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Son and Bone (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43508.jpgsave_picture_43508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43508.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Stardiver (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43509.jpgsave_picture_43509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43509.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Vampire: The Masquerade - Reckoning of New York (2024) [Multi] (1.0.1.1147) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43510.jpgsave_picture_43510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43510.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ EVOTINCTION (2024) [Multi] (build 15675746/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43523.jpgsave_picture_43523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43523.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.4(1)) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43524.jpgsave_picture_43524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43524.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43533.jpgsave_picture_43533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43533.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53563.jpgsave_picture_53563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53563.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5DAF894F51C7BD63EF53EF695E58D430B2DD33BF
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53564.jpgsave_picture_53564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53564.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53565.jpgsave_picture_53565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53565.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Corpse Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53566.jpgsave_picture_53566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53566.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Cuisineer (2023) [Multi] (1.1.3909) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53567.jpgsave_picture_53567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53567.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3124B0219A2ACE4069A220BD12077F3165CAE0FE
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53568.jpgsave_picture_53568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53568.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ aCalendar+ Calendar & Tasks v2.8.3 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53569.jpgsave_picture_53569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53569.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:60DB0CEE3BBD9A95B42DB5821F067A08E2DCA25B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53570.jpgsave_picture_53570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53570.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:25FFAB9367E0B10F6BE6B9F79B4B8DD69CF0EAE1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53571.jpgsave_picture_53571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53571.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4B74FB844C27BA9F4CAD9ECFA8B1C21D0EE4DADB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53572.jpgsave_picture_53572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53572.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:7CEC5E063A32FD33975D61E583CBE489DA9ACA74
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53573.jpgsave_picture_53573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53573.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:5845ACBB9280BDDCBE3C34FA01E7A8E36A55260C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53574.jpgsave_picture_53574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53574.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6036406AAF53A4DECEEAF543AD32FA7CC0F7907A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53575.jpgsave_picture_53575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53575.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53576.jpgsave_picture_53576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53576.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:41F2F33689C57F7D3C246CE2650A8ADB12A2419B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53577.jpgsave_picture_53577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53577.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:AB07A50C1AB4694F164BC093FB62F7CC525A3F2D
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53578.jpgsave_picture_53578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53578.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ uTorrent Pro 3.6.0 Build 47116 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53579.jpgsave_picture_53579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53579.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:15A4A2EE3BFB2076E0C4315B19AF814A92C1F16F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53580.jpgsave_picture_53580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53580.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (14397396) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53581.jpgsave_picture_53581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53581.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:F062C0296DE3A10DB10B7DEBF2D896A30031CBB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53582.jpgsave_picture_53582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53582.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ I Am Alive (2012) [Ru/Multi] (1.0) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53583.jpgsave_picture_53583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53583.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:8841A04025EDB91851DFFC7ABCCDB35081889703
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53584.jpgsave_picture_53584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53584.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Topaz Photo AI 3.0.5 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53585.jpgsave_picture_53585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53585.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:C523CF879640AF0D9E5EB31C1B2FA07F5225BFF5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53586.jpgsave_picture_53586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53586.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:23DF21C64955E34712D56820B7130D5E31EF932B
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53587.jpgsave_picture_53587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53587.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Windows 11 4in1 23H2 22631.3593 by SmokieBlahBlah 2024.05.31 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53588.jpgsave_picture_53588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53588.jpg" />
 </div>
 
 

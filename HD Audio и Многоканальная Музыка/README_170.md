@@ -6,7 +6,7 @@ Electric Gypsy - Dragoons Wander At Night (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117371.jpgsave_picture_117371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117371.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ahmed Mouici - Tribute To Goldies, Vol II (Pinte de blues production) (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117372.jpgsave_picture_117372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117372.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:CEAC49E378F5A1B97D6C6A1D9EC284BCAFCFD29B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117378.jpgsave_picture_117378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117378.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Honeymoon Suite - Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117383.jpgsave_picture_117383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117383.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Birds of Vale - Limbo (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117399.jpgsave_picture_117399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117399.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Pain of Salvation - Remedy Lane (2002) Reissue, 2014, Inside Out Music [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117433.jpgsave_picture_117433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117433.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Pain of Salvation - The Perfect Element- Part I (2000) Anniversary Mix, 2020, In
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117434.jpgsave_picture_117434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117434.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Chris Shooter - Big Fat Bloke With A Hat (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117438.jpgsave_picture_117438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117438.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Witherfall - What Have You Done? (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117578.jpgsave_picture_117578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117578.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Testament - Studio Albums (14 releases) (1987-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117589.jpgsave_picture_117589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117589.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Italian Romantic Piano Jazz Academy, Sexy Lovers Music Collection, Romantic Even
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117600.jpgsave_picture_117600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117600.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Cafe Chill Jazz Background, Jazz Music Lovers Club, Jazz Erotic Lounge Collectiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117606.jpgsave_picture_117606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117606.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Smooth Jazz Music Ensemble, Background Instrumental Music Collective - A Cup of 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117622.jpgsave_picture_117622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117622.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Positive Music Universe, Most Relaxing Music Academy - Relaxing Sunday Brunch: S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117627.jpgsave_picture_117627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117627.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jazz Sax Lounge Collection, Magical Memories Jazz Academy - Best Sexy Saxophone 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117648.jpgsave_picture_117648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117648.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Romantic Moods Academy - Happy Valentine's Day 2024 (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117656.jpgsave_picture_117656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117656.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Lyna Mahyem - Mon âme (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul/Funk/R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117776.jpgsave_picture_117776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117776.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Seth James - Lessons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117780.jpgsave_picture_117780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117780.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Die Sterne - Grandezza (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117789.jpgsave_picture_117789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117789.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Iolanda Lomuscio - Jazzscape Harmony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117918.jpgsave_picture_117918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117918.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Crush++ - Power Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117920.jpgsave_picture_117920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117920.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Gregory Aigersson - White Morning & Valentine Coffee (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117922.jpgsave_picture_117922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117922.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117928.jpgsave_picture_117928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117928.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117933.jpgsave_picture_117933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117933.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ The Pineapple Thief - It Leads To This (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117949.jpgsave_picture_117949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117949.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Emanuele Uva - Harbor Harmonies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117954.jpgsave_picture_117954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117954.jpg" />
 </div>
 
 

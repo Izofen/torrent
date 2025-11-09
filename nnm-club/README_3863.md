@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120860.jpgsave_picture_120860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120860.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E11C0A09484724A958A5F983951DA71820D17415
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120861.jpgsave_picture_120861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120861.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ White Skull - Studio Albums (12 releases) (1995-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120862.jpgsave_picture_120862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120862.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Rare | Артбук по игре Sea of Thieves / The Art of Sea of Thieves (20
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120863.jpgsave_picture_120863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120863.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ JetBrains DataGrip for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120864.jpgsave_picture_120864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120864.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ RIN: The Last Child (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120865.jpgsave_picture_120865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120865.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ FITLAB (ФИТЛАБ) | Школа МП. Техминимум (2021) WEB-DL [RU]
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120866.jpgsave_picture_120866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120866.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Windows 10 Debloater 2.6.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120868.jpgsave_picture_120868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120868.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:10C836DDA6450B4643334D9BEFDD1335A930C212
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120869.jpgsave_picture_120869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120869.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:936BEB5D6519D8A79EFA5C1CD86EAC2649218850
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120871.jpgsave_picture_120871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120871.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Windows 11 Debloater 2.0.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120872.jpgsave_picture_120872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120872.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EF73C2808F860652653B30A423BA988D4D271937
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120873.jpgsave_picture_120873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120873.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:FAE5710BF19306A9A735AB76DF721CB6A3A7ED07
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120874.jpgsave_picture_120874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120874.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ IObit Uninstaller Pro 13.3.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120875.jpgsave_picture_120875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120875.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:C8A7BAFCA36FB0AF2863FC58D6A59DC7F7D890EC
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120876.jpgsave_picture_120876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120876.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:D0249E3A975096CF46A995F2AC5307939BCDAFB8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120877.jpgsave_picture_120877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120877.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ The Source (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120878.jpgsave_picture_120878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120878.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:94BDFEFB4A71E6B6F919520CDBC8C7BB3FB2CB64
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120879.jpgsave_picture_120879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120879.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:B7327C23C4118D8BD29DB4C2B37F7B082483BE33
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120880.jpgsave_picture_120880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120880.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ AIDA64 Extreme Edition 7.00.6723 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120881.jpgsave_picture_120881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120881.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Navicat Premium 16.3.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120882.jpgsave_picture_120882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120882.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ KMPlayer 2024.1.25.16 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120883.jpgsave_picture_120883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120883.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Udemy, David Nixon | Unreal Engine 5: The Intermediate Course (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120884.jpgsave_picture_120884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120884.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Snappy Driver Installer Origin R760 | Драйверпаки 24.00.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120885.jpgsave_picture_120885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120885.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:BFECD8898245F7D718BE5564A29D97EE03F0D724
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120886.jpgsave_picture_120886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120886.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Udemy, Alexandr Sochirca | Руководство по GitHub Actions (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120887.jpgsave_picture_120887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120887.jpg" />
 </div>
 
 

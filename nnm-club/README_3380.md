@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108241.jpgsave_picture_108241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108241.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9EB229EF4A6F22EF950C774E92E024A74079030F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108242.jpgsave_picture_108242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108242.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9C660D952E73DA29B4CC209647544D85A88E927C
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108243.jpgsave_picture_108243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108243.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AccuWeather - прогноз погоды 20.3-2-google Lite-Mod by LITEAPKS [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108244.jpgsave_picture_108244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108244.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ R-Wipe & Clean 20.0.2459 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108245.jpgsave_picture_108245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108245.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ OneCommander Pro 3.83.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108246.jpgsave_picture_108246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108246.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Future Funk Squad - SIX (2024) [FLAC|Lossless|WEB-DL|tracks] <BreakBeat, Breaks,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108247.jpgsave_picture_108247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108247.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ EPIK - AI Photo & Video Editor 5.0.1 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108248.jpgsave_picture_108248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108248.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3725D6EBCF987F17253E2052CD4B111DB1C41BBD
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108249.jpgsave_picture_108249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108249.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:1CC25A562235838AD9BF0898B65463C9107B2DBF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108250.jpgsave_picture_108250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108250.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Samsas Traum - Kalk (2024) Underground-Edition, 2024, Trisol [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108251.jpgsave_picture_108251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108251.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Muggsy Spanier - 1949 - 1954 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108252.jpgsave_picture_108252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108252.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108253.jpgsave_picture_108253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108253.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Hippotraktor - Stasis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108254.jpgsave_picture_108254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108254.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108255.jpgsave_picture_108255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108255.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:61ABA920E5405FCFBDB069553EA78A7A1EFA2318
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108256.jpgsave_picture_108256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108256.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108257.jpgsave_picture_108257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108257.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Escarlathia - Escarlathia (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108258.jpgsave_picture_108258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108258.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108259.jpgsave_picture_108259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108259.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:BED16278A0C99999F562754A3BAC344A089E0DDB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108260.jpgsave_picture_108260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108260.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ LImperatrice - Pulsar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <nu disco, fr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108261.jpgsave_picture_108261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108261.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108262.jpgsave_picture_108262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108262.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Evergrey - Theories Of Emptiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108263.jpgsave_picture_108263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108263.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108264.jpgsave_picture_108264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108264.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108265.jpgsave_picture_108265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108265.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108266.jpgsave_picture_108266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108266.jpg" />
 </div>
 
 

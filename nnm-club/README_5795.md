@@ -6,7 +6,7 @@ Paul McFedries | HTML, CSS, & JavaScript All-in-One For Dummies (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180620.jpgsave_picture_180620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180620.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:74017917C95166EEEBA3B10B9A53BEECE5F32582
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180623.jpgsave_picture_180623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180623.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ F-Secure Freedome VPN 2.55.431.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180624.jpgsave_picture_180624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180624.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma Про-уро
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180626.jpgsave_picture_180626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180626.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:5D3D55383603C353F0B97A9D7BECA10E46C16CB9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180628.jpgsave_picture_180628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180628.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:61C639718DA725CC8D9E90A895A3456BD9FC6D7B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180632.jpgsave_picture_180632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180632.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:BE9B9EC225E0D9289650291C17FE7B4B4ACB3783
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180634.jpgsave_picture_180634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180634.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Wu Liuqi | Scissor Seven | Killer Seven | Киллер Севен  [ТВ-1] [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180639.jpgsave_picture_180639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180639.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:C19668C3F6C1E6D6F39676943F519527223C5096
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180643.jpgsave_picture_180643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180643.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Paint.NET 5.0.10 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180644.jpgsave_picture_180644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180644.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Adobe Photoshop 2023 24.0.1.112 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180645.jpgsave_picture_180645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180645.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:CE11603353510D9ED73309D7497BC561D8E9407C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180646.jpgsave_picture_180646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180646.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:1D48C350B4343E64DCDAC44394B3399FB5B6DAB1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180647.jpgsave_picture_180647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180647.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:F8957BD0018AC0C85BD2841F0AA2F49082252A25
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180648.jpgsave_picture_180648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180648.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:17808301C56D72ACC23C79F7CBF12BEA26B8F60A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180649.jpgsave_picture_180649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180649.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:D644A422EF668068D1006F066A43DD773469CE4B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180652.jpgsave_picture_180652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180652.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:279026C7C55A170D4C270751A4BF58551553C10E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180655.jpgsave_picture_180655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180655.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Alexandre F Malavasi Cardoso | Enterprise Applications with C# and .NET (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180657.jpgsave_picture_180657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180657.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Remote Desktop Manager Enterprise 2022.3.24.0 Portable by FC Portables [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180658.jpgsave_picture_180658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180658.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:FF6A70A494A59B811E81251544FA64E2AC86B9BC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180660.jpgsave_picture_180660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180660.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:C10FB41FC6E437BDA301BB59B313BD9811C3FEBE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180663.jpgsave_picture_180663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180663.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ NirLauncher Package 1.30.6 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180665.jpgsave_picture_180665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180665.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ EZ CD Audio Converter 11.2.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180668.jpgsave_picture_180668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180668.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2AD1E724E244EAE3703147260E52AC065C7F0C1F
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180671.jpgsave_picture_180671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180671.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Telegram Desktop 4.10.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180673.jpgsave_picture_180673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180673.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:4FF271346CAFBF86D2FB1BD402999EFCB9307E46
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180677.jpgsave_picture_180677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180677.jpg" />
 </div>
 
 

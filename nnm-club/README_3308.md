@@ -6,7 +6,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106369.jpgsave_picture_106369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106369.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4B780C90132F01F58A8C963065A2C64F2AED8FB9
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106370.jpgsave_picture_106370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106370.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:B65CB5B418CB2B2F1868FCF0970027D42CF7934B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106371.jpgsave_picture_106371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106371.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:50DDDE68C1938FC50B94279D77540C4E6CA59BDE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106372.jpgsave_picture_106372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106372.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106373.jpgsave_picture_106373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106373.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Santa Ana Winds - Final Rendezvous (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106374.jpgsave_picture_106374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106374.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3E0897FBFEEF3A972228B81DA90B2F3A8A1CDF37
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106375.jpgsave_picture_106375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106375.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:0D486C64F78A50E1FC3D4EE91EA8E745DF5EF349
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106376.jpgsave_picture_106376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106376.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:F686146A02732C24B77B8BE9509E3F53ADE7E00B
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106377.jpgsave_picture_106377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106377.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:4CDEF844269801FEFDBAE09789E34AF0B59D8011
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106378.jpgsave_picture_106378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106378.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:970A8E38423524F2339F8D7BF9302D1BFEFDB6C2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106379.jpgsave_picture_106379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106379.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:11083ED2BB1EF3D9901BE73B7C5855684189E0E8
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106380.jpgsave_picture_106380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106380.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Adobe InCopy 2024 19.5.0.84 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106381.jpgsave_picture_106381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106381.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ E. Voigts, R.M. Auer et al (еditors) | Artificial Intelligence - Intelligent Ar
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106382.jpgsave_picture_106382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106382.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Autorun Organizer 5.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106383.jpgsave_picture_106383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106383.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:211B44E974086AC68E4921B686C9EBC6361861B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106384.jpgsave_picture_106384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106384.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:3FD4868D3A90372C1FDDF85930C4DF50B348945A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106385.jpgsave_picture_106385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106385.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:FAB4F0717FB9DD87B277ABD61DE5D990DAE73028
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106386.jpgsave_picture_106386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106386.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ S. Haghsheno, G. Satzger | Kunstliche Intelligenz im Bauwesen (2024) [PDF] [DE]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106387.jpgsave_picture_106387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106387.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Tarja - Best of: Living the Dream: Tarja's Non-Rock Specials (2024) [FLAC 24/44.
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106388.jpgsave_picture_106388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106388.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:8CBF2BA839BA51522268DAA07EA1523223CF7616
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106389.jpgsave_picture_106389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106389.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Scooter - Live in Hamburg (2010) BDRip [H.265/2160p] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106390.jpgsave_picture_106390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106390.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:1418371F70FBBB21EC14EDFD4B09E3926FD3A375
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106391.jpgsave_picture_106391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106391.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ DP Animation Maker 3.5.30 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106392.jpgsave_picture_106392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106392.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:D6AEE6DA9EABCF17ED80DCA8CCBDEE2B80F155F9
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106393.jpgsave_picture_106393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106393.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ File & Image Uploader Donated 8.4.4 Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106394.jpgsave_picture_106394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106394.jpg" />
 </div>
 
 

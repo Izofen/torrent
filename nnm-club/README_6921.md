@@ -6,7 +6,7 @@ Magnifier Plus with Flashlight 4.5.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237744.jpgsave_picture_237744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237744.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Fireplace Chill, Vol. 3 (2020) [AAC|~320 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237745.jpgsave_picture_237745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237745.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kohnerah - Ominous Ubiquitous (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237746.jpgsave_picture_237746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237746.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:5443DA3816918294A09E99A92CB54BF8B220ADD4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237747.jpgsave_picture_237747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237747.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Haken - Fauna (2023) 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237748.jpgsave_picture_237748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237748.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237749.jpgsave_picture_237749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237749.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Rock the Bob - Get Hot (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock'nRoll>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237750.jpgsave_picture_237750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237750.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Nat "King" Cole - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237751.jpgsave_picture_237751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237751.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Fireplace Chill, Vol. 4 (2020) [AAC|~324 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237752.jpgsave_picture_237752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237752.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Myntra - Genesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237753.jpgsave_picture_237753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237753.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:7E35E8260E925D1D4B350903BF9E573113AABE67
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237754.jpgsave_picture_237754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237754.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:FC8855EDEABC84244C993F3D452A191A1D8E9434
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237755.jpgsave_picture_237755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237755.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:9D081E1B6D8B18375C9C57F2418B4BDD203EAD97
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237756.jpgsave_picture_237756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237756.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:8BAEB22FCB39F500E15E58A981A8DD4E00FB5D47
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237757.jpgsave_picture_237757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237757.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ColorWell 7.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237758.jpgsave_picture_237758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237758.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Clipboard Manager 2.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237759.jpgsave_picture_237759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237759.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Epica - Omega (2021) [AAC|~345 Kbps] <Symphonic Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237760.jpgsave_picture_237760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237760.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ SSH Config Editor Pro 2.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237761.jpgsave_picture_237761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237761.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Total - 4 albums + 7 singles + Bonus (2002-2021) [MP3|128-320 kbps] <Alternative
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237762.jpgsave_picture_237762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237762.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:4DE5E1AD8CFCBECB106DAB58AC26DA55230EBF73
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237763.jpgsave_picture_237763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237763.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:28C0438C70A9AF252A4E8FDC0F3DCCC8302572AC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237764.jpgsave_picture_237764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237764.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ NCH Crescendo Masters 6.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237765.jpgsave_picture_237765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237765.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:2D3188183FCB86F29CC150FA4627B2368D257FCE
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237766.jpgsave_picture_237766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237766.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:632A1F1B38FB153DDAB22AEF6057B415BC6F4ECB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237767.jpgsave_picture_237767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237767.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Danas Rising - Morgengrauen (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237768.jpgsave_picture_237768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237768.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Smooth Jazz n Chill 6 (2021) [AAC|~347 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237769.jpgsave_picture_237769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237769.jpg" />
 </div>
 
 

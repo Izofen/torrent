@@ -6,7 +6,7 @@ Roxanne - Stereo Typical (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235818.jpgsave_picture_235818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235818.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tokyo - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, New Wave>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235819.jpgsave_picture_235819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235819.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VTC Radio - Lactose / Дорожное радио 6.8 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235820.jpgsave_picture_235820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235820.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A23446DBC3EDE31FED0717032C3EE3DC3D0C086B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235821.jpgsave_picture_235821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235821.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:EBAD3BEEF6910A71A331CDA14094404E80C8B680
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235822.jpgsave_picture_235822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235822.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Filmage Screen-Screen Recorder 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235823.jpgsave_picture_235823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235823.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:1E96E39F0EC13DF89427E6A7EB0F99A887C19883
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235824.jpgsave_picture_235824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235824.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Downcast 2.9.63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235825.jpgsave_picture_235825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235825.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:B0D47FA4B1CCCCBA611453EF0482DAF9B98FD378
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235826.jpgsave_picture_235826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235826.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Otu - Moonic Of A Down (2022) [MP3|320 kbps] <Sludge, Drone, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235827.jpgsave_picture_235827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235827.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Joplin 2.10.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235828.jpgsave_picture_235828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235828.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ CCleaner 6.00.9727 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235829.jpgsave_picture_235829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235829.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:2AD43A333352AB9BACDFC7DD1DC70679FAA8A9E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235830.jpgsave_picture_235830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235830.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Arlen Roth, Jerry Jemmott - Super Soul Session! (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235831.jpgsave_picture_235831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235831.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Deathspell Omega - The Synarchy of Molten Bones (2016) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235832.jpgsave_picture_235832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235832.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Hypno5e - Sheol (2023) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Avantgarde-Metal, Progr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235833.jpgsave_picture_235833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235833.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ MarsEdit 4 v4.4.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235834.jpgsave_picture_235834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235834.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Audacity 3.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235835.jpgsave_picture_235835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235835.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:7F465D600C36EF28F25FA3E68EC033DDF8AD4478
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235836.jpgsave_picture_235836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235836.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ RTG. Мраморный карьер Рускеала (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235837.jpgsave_picture_235837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235837.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:10EB9DBE305CF5AA0EA135C4067959D02AD3434B
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235838.jpgsave_picture_235838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235838.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Enrico Rava & Fred Hersch - The Song Is You (2022) ECM Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235839.jpgsave_picture_235839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235839.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Veiled Alpha - Beyond the Mask (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235840.jpgsave_picture_235840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235840.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Author 6.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235841.jpgsave_picture_235841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235841.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:8524C312131A931B60CAD57FC5D8F3343D1A8F51
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235842.jpgsave_picture_235842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235842.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Psilocybe Larvae - Non-Existence (2008) [FLAC|Lossless|image + .cue] <Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235843.jpgsave_picture_235843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235843.jpg" />
 </div>
 
 

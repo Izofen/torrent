@@ -6,7 +6,7 @@ Clipboard Master 5.8.3.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31501.jpgsave_picture_31501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31501.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PowerISO 9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31502.jpgsave_picture_31502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31502.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinContig 5.0.3.1 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31504.jpgsave_picture_31504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31504.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ PowerISO 9.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31740.jpgsave_picture_31740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31740.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ KMSoffline 2.4.7 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32170.jpgsave_picture_32170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32170.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ FreeCommander XE 2025 donor v920 x64 & public v921 x32 + portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32442.jpgsave_picture_32442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32442.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6F27A412FB73C969E37CE4472F18C6B2712885DE
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32767.jpgsave_picture_32767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32767.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ The Bat! Professional 11.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32876.jpgsave_picture_32876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32876.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ GadgetPack (ex 8GadgetPack) 38.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33083.jpgsave_picture_33083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33083.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Defender Tools 1.15 b10 Portable by Ratiborus [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33223.jpgsave_picture_33223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33223.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Notepad3 6.24.1221.1 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33381.jpgsave_picture_33381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33381.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ YTD Video Downloader Ultimate 7.6.4.1 RePack (& Portable) by elchupacabra [Multi
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33409.jpgsave_picture_33409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33409.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NIUBI Partition Editor 10.1.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33791.jpgsave_picture_33791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33791.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FontExpert 2025 20.0 Release 2 (x64) [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34078.jpgsave_picture_34078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34078.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FontExpert 2025 20.0 Release 2 RePack (& Portable) by TryRooM [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34116.jpgsave_picture_34116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34116.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Macrium Reflect Server Plus v 7.3.5672 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34198.jpgsave_picture_34198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34198.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ AMD Ryzen Master 2.14.2.3341 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34345.jpgsave_picture_34345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34345.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ NekoRay / NekoBox 4.0.1 portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34374.jpgsave_picture_34374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34374.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Auslogics Disk Defrag Pro 12.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34481.jpgsave_picture_34481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34481.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ FileSeek Pro  + Portable + MSI 7.0.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34522.jpgsave_picture_34522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34522.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Clipboard Fusion Pro + Portable + MSI 6.2.0 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34540.jpgsave_picture_34540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34540.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Revo Uninstaller Pro 5.3.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34721.jpgsave_picture_34721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34721.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Run-Command 6.23 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35342.jpgsave_picture_35342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35342.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ ClipClip Pro 2.4.5928 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35351.jpgsave_picture_35351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35351.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ CMWTAT Digital Edition 2.7.2.0 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35597.jpgsave_picture_35597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35597.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Abelssoft PC Fresh 2025 v11.01.58277 Portable by zeka.k [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35652.jpgsave_picture_35652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35652.jpg" />
 </div>
 
 

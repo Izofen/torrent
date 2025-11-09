@@ -6,7 +6,7 @@ Red Hat Enterprise Linux 9.3 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62455.jpgsave_picture_62455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62455.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:CA83D0A604318C4E594575F60B97302F59A5092B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62456.jpgsave_picture_62456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62456.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Commander One PRO Pack 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62457.jpgsave_picture_62457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62457.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:642E0EA4023BBB0926DB56366DF9452BAD2B9CD0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62458.jpgsave_picture_62458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62458.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4AA18ED9913C2CBC4E6198A17525E88DD20B8D14
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62459.jpgsave_picture_62459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62459.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2FD53007049A673663FA36533D063DE86F584D1C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62460.jpgsave_picture_62460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62460.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:E26DE125F9FB2B0707F712913AB64DB9ADD925DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62461.jpgsave_picture_62461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62461.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AR Ruler App: Линейка Рулетка v2.7.11 Mod by srajawwal09 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62462.jpgsave_picture_62462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62462.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ UniBook - Аудиокниги v0.9.6 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62463.jpgsave_picture_62463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62463.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.4.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62464.jpgsave_picture_62464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62464.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:468A15189BF49403E8CCD96B87FC6C223C8063A9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62465.jpgsave_picture_62465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62465.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:AEF86B170EB12A4C9094A774925728C90958C4A6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62466.jpgsave_picture_62466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62466.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Freemake Video Converter 4.1.13.170 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62467.jpgsave_picture_62467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62467.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Tor Browser Bundle 13.0.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62468.jpgsave_picture_62468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62468.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Ubuntu 23.10.1 (Mantic Minotaur) [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62469.jpgsave_picture_62469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62469.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:A3E9114D3CCE6D1720B9FD9BF9D83E5B2E92EA8D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62470.jpgsave_picture_62470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62470.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:B0A0FF512522A0E8A9655CC9355B002C4A0B6BB0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62471.jpgsave_picture_62471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62471.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Microsoft Windows 11 [10.0.22631.3296], Version 23H2 (Updated March 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62472.jpgsave_picture_62472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62472.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ openmediavault 7.0-32 [x86_64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62473.jpgsave_picture_62473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62473.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ RAR for Android v7.00 build 122 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62474.jpgsave_picture_62474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62474.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BBC: Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62475.jpgsave_picture_62475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62475.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Microsoft Windows 10 [10.0.19045.4170], Version 22H2 (Updated March 2024) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62476.jpgsave_picture_62476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62476.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ MX Linux 23.2 [i386 / AMD64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62477.jpgsave_picture_62477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62477.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:07375ED72741E03D172082C80F1DE488D9DA51ED
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62478.jpgsave_picture_62478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62478.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:07375ED72741E03D172082C80F1DE488D9DA51ED
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62479.jpgsave_picture_62479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62479.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Left Behind (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62480.jpgsave_picture_62480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62480.jpg" />
 </div>
 
 

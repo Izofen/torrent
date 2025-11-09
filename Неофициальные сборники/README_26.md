@@ -6,7 +6,7 @@ VA - Electronic Afterimages (2024) [MP3|320 Kbps] <Electronic, Synthwave, Retrow
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42528.jpgsave_picture_42528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42528.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Trance In Motion Vol.380 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42539.jpgsave_picture_42539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42539.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Galactic Synthwave (2024) [MP3|320 Kbps] <Synthetic, Space, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42553.jpgsave_picture_42553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42553.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - My Live In Blue (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42554.jpgsave_picture_42554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42554.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - compilation musical kaleidoscope part 3 (2024) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42556.jpgsave_picture_42556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42556.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Electronic Wonderland (2024) [MP3|320 Kbps] <Electronic, Synthwave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42566.jpgsave_picture_42566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42566.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Compilation part 124 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42716.jpgsave_picture_42716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42716.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Tribal Fusion Harmonie (2024) 2CD [MP3|320 Kbps] <Enigmatic, New Age, Elect
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42733.jpgsave_picture_42733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42733.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Autumn Dance Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42767.jpgsave_picture_42767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42767.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Maneskin - Коллекция (2017-2024) [MP3|320 Kbps] <Rock, Pop-Rock, Glam R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42773.jpgsave_picture_42773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42773.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Radio Tapok - Дискография (2016-2024) [MP3|320 Kbps] <Rock, Punk Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42798.jpgsave_picture_42798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42798.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Music News For Forum vol.025 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42821.jpgsave_picture_42821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42821.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Compilation part 123 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42916.jpgsave_picture_42916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42916.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VA - Compilation part 122 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42919.jpgsave_picture_42919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42919.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Queens of the Stone Age - Compilation (2024) [MP3|320 Kbps] <Hard Rock, Stoner R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42926.jpgsave_picture_42926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42926.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - compilation musical kaleidoscope part 2 (2024) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42979.jpgsave_picture_42979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42979.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Music News For Forum vol.024 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43037.jpgsave_picture_43037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43037.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Kontor Top of the Clubs Vol. 100 (2024) [MP3|~245 Kbps (V0)] <Electronic, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43153.jpgsave_picture_43153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43153.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - TOP Non-Stop 2000-2009 - Deep House. Part 4 (2024) [MP3|192-320 Kbps] <Deep
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43162.jpgsave_picture_43162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43162.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Trance In Motion Vol.379 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43232.jpgsave_picture_43232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43232.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Music News For Forum vol.023 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43272.jpgsave_picture_43272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43272.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ VA - Rock, the best (2024) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43407.jpgsave_picture_43407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43407.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Pop Releases Of The Summer (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43558.jpgsave_picture_43558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43558.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - compilation musical kaleidoscope (2024) [MP3|320 Kbps] <Electronic, Instrum
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43604.jpgsave_picture_43604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43604.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Pink Floyd - Gilmour Age Compilation (2024) [MP3|320 Kbps] <Progresive Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43623.jpgsave_picture_43623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43623.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VA - Music News For Forum vol.022 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43656.jpgsave_picture_43656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43656.jpg" />
 </div>
 
 

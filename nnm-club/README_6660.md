@@ -6,7 +6,7 @@ AutoPowerOptionsOK 5.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227362.jpgsave_picture_227362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B6B55B29F8BEF2EA2B2ECDDEE500E829B97B0EE0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227374.jpgsave_picture_227374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227374.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Power Music Workout - Workout Top Songs 2023 - Summer Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227416.jpgsave_picture_227416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227416.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EB77DF66631C86BD4CDBEA0970EF0CDA7071D0F9
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227422.jpgsave_picture_227422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227422.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A24F3769F5F9B5BCBC3312F2CB7A534EC7D73221
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227431.jpgsave_picture_227431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227431.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9FC18DFD7E2DC65CE96EF90E3A5457EF174B71FF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227440.jpgsave_picture_227440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227440.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:CAE97C30D140D67BD1C277B6F07B0CE1B550CE41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227451.jpgsave_picture_227451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227451.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Uninstall Tool 3.7.3 Build 5716 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227459.jpgsave_picture_227459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227459.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Maria Daines - I Believe in You (2023) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227466.jpgsave_picture_227466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227466.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Macrorit Data Wiper 6.9.5 Pro / Unlimited / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227472.jpgsave_picture_227472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227472.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Perfectly Clear WorkBench 4.6.0.2581 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227477.jpgsave_picture_227477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227477.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Billy Idol - Billy Idol (1982) 2CD, Expanded Edition, 2023, Capitol Catalog MKT 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227483.jpgsave_picture_227483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227483.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:533D7A6039BD547C692499C72D896E1A367FB8CD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227489.jpgsave_picture_227489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227489.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:7EA1126C5A156D8AAC371CFFC213E281C0D03F52
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227498.jpgsave_picture_227498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227498.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Q-Dir 11.31 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227505.jpgsave_picture_227505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227505.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:4C419124F00BDD27A2FB4EF67F00420F6301E18B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227511.jpgsave_picture_227511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227511.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:26C23483A46044FD0EAF8347F837AA2D0FA542E8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227517.jpgsave_picture_227517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227517.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Sweet - Give Us A Wink (Alternative Mixes & Demos) (2022)  [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227523.jpgsave_picture_227523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227523.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Seattle Opera - Der Ring des Nibelungen (2014) [FLAC|24/96|tracks|WEB-DL] <Class
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227533.jpgsave_picture_227533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227533.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Molina, Talbot, Lofgren, Young - All Roads Lead Home (2023) [FLAC|Lossless|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227536.jpgsave_picture_227536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227536.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ YT Downloader 9.2.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227550.jpgsave_picture_227550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227550.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:CA70A859A78706D8B814001FABD2D83E01EB9A1A
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227561.jpgsave_picture_227561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227561.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:F7CEB7C3EFC1BDA76CF33B6863BEEBE26B60415D
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227611.jpgsave_picture_227611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227611.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Andrew Gold - The Fraternal Order Of The All Greetings From Planet Love (1997) R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227618.jpgsave_picture_227618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227618.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ StaxRip 2.24.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227627.jpgsave_picture_227627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227627.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Andrea Berg (Andrea Zellen) - 2 Albums (2022-2023) [MP3|320 Kbps] <Dance Pop, Sc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227636.jpgsave_picture_227636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227636.jpg" />
 </div>
 
 

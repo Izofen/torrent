@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116835.jpgsave_picture_116835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116835.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Amba Shepherd - Superrlativ Collection II (2024) [FLAC 16/44.1; 24/44.1; 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116836.jpgsave_picture_116836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116836.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:845D3022A11735657F6A260550BC97EA2E54D968
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116837.jpgsave_picture_116837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116837.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Folder Icons 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116838.jpgsave_picture_116838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116838.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ BusyCal 2024.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116839.jpgsave_picture_116839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116839.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ The Runaway Wild - Wild Night (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116840.jpgsave_picture_116840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116840.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Corvus - Immortals (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116841.jpgsave_picture_116841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116841.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Iridient Developer for Mac 4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116842.jpgsave_picture_116842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116842.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Geo22 - Knightcore (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116843.jpgsave_picture_116843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116843.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Stardust - Kingdom of Illusion (2023) [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116844.jpgsave_picture_116844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116844.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ BusyContacts 2024.1.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116845.jpgsave_picture_116845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116845.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:5B502BD91A873516C91F794C63B72B1D31FEE8A7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116846.jpgsave_picture_116846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116846.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116847.jpgsave_picture_116847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116847.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Svend Asmussen - June Night (1983) 1993, Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116848.jpgsave_picture_116848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116848.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116849.jpgsave_picture_116849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116849.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Desktop Stickers 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116850.jpgsave_picture_116850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116850.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ For I Am King - Crown (2024) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116851.jpgsave_picture_116851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116851.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Swanee - Bushido (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116852.jpgsave_picture_116852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116852.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Photo Studio PRO v2.7.3.2306 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116853.jpgsave_picture_116853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116853.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:6C221EF944AAAB00678D0EA30574939F102F13E5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116854.jpgsave_picture_116854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116854.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Erotic Jazz Music Ensemble - Midnight Intimacy: Gentle Caresses, Intimate Moment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116855.jpgsave_picture_116855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116855.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ U.F.O. - Covenant (2000) Remaster, 2024, Cherry Red Records [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116856.jpgsave_picture_116856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116856.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ S Club - Say Goodbye / Love Ain’t Gonna Wait For You (2003) Reissue, Remastere
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116857.jpgsave_picture_116857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116857.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:E889036A502C790614EB27D58FE25E548EF2DC89
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116858.jpgsave_picture_116858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116858.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:77C669DF2949981AA8CE8C42BF3A9653802DD93C
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116859.jpgsave_picture_116859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116859.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:D8A28FEE09699AD3EC1C1D232F906B01334CDC62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116860.jpgsave_picture_116860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116860.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Little Villains - Battle of Britain (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233362.jpgsave_picture_233362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233362.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Yes - Mirror To The Sky (2023) 2xCD [FLAC|Lossless|image + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233363.jpgsave_picture_233363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233363.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B663E6298C343C2AA92193FFB0D1C51AB6700AA1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233364.jpgsave_picture_233364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233364.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233365.jpgsave_picture_233365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233365.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:96B9BC2D879A2BC3214A35774286B997B8B4C225
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233366.jpgsave_picture_233366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233366.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:37740AB574A37B793F76F8B3FF4EF8FE47735811
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233367.jpgsave_picture_233367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233367.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Yes - Mirror To The Sky (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233368.jpgsave_picture_233368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233368.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Dato 4.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233369.jpgsave_picture_233369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233369.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:729B73906DFF731718C197395BD25C528D86CCAB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233370.jpgsave_picture_233370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233370.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:6DD72E7E939148F022B31F7182122F528CD0BE77
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233371.jpgsave_picture_233371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233371.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:F02A3302FCCC0839EF075783D8A0117554BBF0A1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233372.jpgsave_picture_233372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233372.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Astalon: Tears of the Earth (2021) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233373.jpgsave_picture_233373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233373.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:F8438097A2FC4130223F09B339B1791BB8D5F4F0
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233374.jpgsave_picture_233374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233374.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Harm - a song you can't feel anymore (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233375.jpgsave_picture_233375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233375.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ The Necromancers - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233376.jpgsave_picture_233376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233376.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:35E4E24CFA45F5484AD8261A64F90069F7D5866D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233377.jpgsave_picture_233377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233377.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:6A08690A9D49D980ECC69B7B4B3666E068ECD31C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233378.jpgsave_picture_233378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233378.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:778844FB2432D9098DBC8AAF5EF868C4D129B97B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233379.jpgsave_picture_233379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233379.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:1448055083239D0CE04F499F2ECC41A266CCE33E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233380.jpgsave_picture_233380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233380.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ TunesKit Audio Capture 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233381.jpgsave_picture_233381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233381.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Stallion - Rise And Ride (2014) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233382.jpgsave_picture_233382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233382.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Coastwise - 2 Albums (2022-2023) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233383.jpgsave_picture_233383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233383.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1905) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233384.jpgsave_picture_233384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233384.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:9D47CC6039D3F5387452223B5A01A8465C4EC8FB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233385.jpgsave_picture_233385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233385.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:85939E1F1C14B10D58ECE2517B2699E9869E9FDD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233386.jpgsave_picture_233386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233386.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:DA79F6465682CED1B0940AA59B5CFF0B3CA2123D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233387.jpgsave_picture_233387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233387.jpg" />
 </div>
 
 

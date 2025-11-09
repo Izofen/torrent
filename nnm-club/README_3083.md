@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98567.jpgsave_picture_98567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98567.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Vanced Tube v5.5.80.103 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98568.jpgsave_picture_98568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98568.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DCDADCAE49549C43E8D6C24E0F8DC8C4F7BBBD89
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98569.jpgsave_picture_98569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98569.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ DJ Boyko - NO SLEEP! Episode 191 (30 марта 2012) [MP3|320 кб/с]<Electro 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98571.jpgsave_picture_98571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98571.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Windows 11 (v25h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98573.jpgsave_picture_98573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98573.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ magnet:?xt=urn:btih:1EC97E2D88111595985B1ACEB0FABD070AB0840F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98574.jpgsave_picture_98574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98574.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Windows 11 (v25h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98575.jpgsave_picture_98575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98575.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:17FE78C3150F37F7D44E58E890E5260E2F203154
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98577.jpgsave_picture_98577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98577.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:06EE209B28D97A38C75BA125DFEE7BFEACE3F83B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98579.jpgsave_picture_98579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98579.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Titan Quest II (2025) [Ru/En] (0.2.0-public.102611+win.1879) Repack Let'sРlay [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98581.jpgsave_picture_98581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98581.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98583.jpgsave_picture_98583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98583.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Hopelezz - Black Souls Arrive (2012) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98584.jpgsave_picture_98584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98584.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Kitchen Timer / Кухонный мульти-таймер v5.2.2 GP Mod by Alex
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98585.jpgsave_picture_98585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98585.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:C2C1FAA4E602417854075C43EE87A1756FCA2A56
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98587.jpgsave_picture_98587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98587.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Carter Faith - Cherry Valley (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98589.jpgsave_picture_98589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98589.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Lemongrass - Journey Backwards (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98591.jpgsave_picture_98591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98591.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Taylor Swift - The Life of a Showgirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98593.jpgsave_picture_98593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98593.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:AB95FE375DDECD0EE6B590A098035B1890EF397D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98594.jpgsave_picture_98594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98594.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Re: Minimal Firewall 2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98595.jpgsave_picture_98595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98595.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Solitude - Tied To The Anchor (2012) [MP3|256 кб/с]<Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98596.jpgsave_picture_98596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98596.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:E47C968E2E651ED8D2CEE31A0EB87485C0EA6237
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98597.jpgsave_picture_98597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98597.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:B55F74C68B4A02BE12D8C95A0684808F84A757D6
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98599.jpgsave_picture_98599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98599.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Dimension Act - Manifestation Of Progress (2012) [MP3|320 кб/с]<Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98600.jpgsave_picture_98600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98600.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Lola Young - I’m Only F**king Myself (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98601.jpgsave_picture_98601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98601.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ FK - Музыка сильных (Mixtape) (2012) [MP3|320 кб/с]<Rap, Hip-Hop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98602.jpgsave_picture_98602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98602.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:C7F4466947AA1AF2216606F2117ED77FDB44EFD6
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98603.jpgsave_picture_98603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98603.jpg" />
 </div>
 
 

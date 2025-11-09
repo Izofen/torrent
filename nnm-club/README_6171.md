@@ -6,7 +6,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193867.jpgsave_picture_193867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193867.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Delete.On.Reboot 3.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193868.jpgsave_picture_193868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193868.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9208E20D02D3BF4FA644BB2586F6FD491EC28DE4
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193869.jpgsave_picture_193869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193869.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ashampoo WinOptimizer 26.00.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193870.jpgsave_picture_193870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193870.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Railroad Corporation (2019) [Ru/Multi] (1.1.13418/dlc) Scene Rune [Deluxe Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193871.jpgsave_picture_193871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193871.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ MacDroid Pro 1.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193872.jpgsave_picture_193872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193872.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:39FB3B6DB3A84493806652DAE5DA3AA8051B07D6
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193873.jpgsave_picture_193873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193873.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Opera One 102.0.4880.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193874.jpgsave_picture_193874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193874.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Adobe Acrobat Reader 2023.003.20284.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193875.jpgsave_picture_193875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193875.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Android Studio Giraffe | 2022.3.1 Patch 1 Build #AI-223.8836.35.2231.10671973 + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193876.jpgsave_picture_193876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193876.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:BD4A4D4B091CFD4D9789A5E09936BEF116CFA160
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193877.jpgsave_picture_193877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193877.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:FE776CC423B8EA7120500AFAD910556D7DD9C916
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193878.jpgsave_picture_193878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193878.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Alice Cooper - Road (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193879.jpgsave_picture_193879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193879.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:ED9C542A65E842A371F96489A511752BB353A5F0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193880.jpgsave_picture_193880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193880.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, D
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193881.jpgsave_picture_193881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193881.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ ThisIsMyFile 4.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193882.jpgsave_picture_193882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193882.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:DD9A8D0E30865ED126ED4910656B73244E3EAA43
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193883.jpgsave_picture_193883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193883.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Defender Remover Portable 12.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193884.jpgsave_picture_193884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193884.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:B2A07984C9077E5E890AEF2AFF7C4BDF255CFFEE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193885.jpgsave_picture_193885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193885.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:60F1FE10B7DF758A3140904AC7E9FD5ACB87E846
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193886.jpgsave_picture_193886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193886.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Jean-Michel Jarre & Nina Kraviz - Sex In The Machine Take 2 (2023) Single [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193887.jpgsave_picture_193887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193887.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Topaz Video AI 3.4.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193888.jpgsave_picture_193888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193888.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Vovsoft Hide Files 8.2 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193889.jpgsave_picture_193889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193889.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ U.D.O. - Touchdown (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193890.jpgsave_picture_193890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193890.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ NVIDIA GeForce Desktop Game Ready 537.13 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193891.jpgsave_picture_193891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193891.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ QR & Barcode Scanner / Сканер QR и штрих- кодов 2.5.39 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193892.jpgsave_picture_193892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193892.jpg" />
 </div>
 
 

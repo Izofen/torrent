@@ -6,7 +6,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101675.jpgsave_picture_101675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101675.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:65E05E6312DFCFE511DDAB8F0B7BF93D43610788
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101678.jpgsave_picture_101678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101678.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C78CB2956A4217304F5D1F72F61E944B72D4FD80
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101679.jpgsave_picture_101679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101679.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:F0BE245C86B0A264D9F3ACD21F53A6F1BBC83CC4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101680.jpgsave_picture_101680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101680.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Tricky & Marta - Out the Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Ele
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101681.jpgsave_picture_101681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101681.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:15EF5120EFF18EA1087818546D2FF6767CBCBF19
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101682.jpgsave_picture_101682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101682.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101683.jpgsave_picture_101683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101683.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:6C58CBFF27032DE16251DA2BAFF75DF4EF3408C3
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101685.jpgsave_picture_101685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101685.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:390E7872270A6B88040DA1F31382BE26081D06F1
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101686.jpgsave_picture_101686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101686.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:90486DCF6684E3CD488060D74AEC879CB65398EC
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101687.jpgsave_picture_101687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101687.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101688.jpgsave_picture_101688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101688.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101689.jpgsave_picture_101689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101689.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:82682029315FF12B7EB7F05FDAF281DFF902F33F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101691.jpgsave_picture_101691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101691.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:8123EDA86860F74838C959D0373147F512F7777D
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101692.jpgsave_picture_101692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101692.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:6B5137AED63C3E3ECAAFCB51E6CBCED06F4CFD61
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101693.jpgsave_picture_101693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101693.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Shark Tale / Подводная братва [3+] (L) [Ru] (2005)
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101698.jpgsave_picture_101698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101698.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:BD1E81E85BB7FCEEF786C62821932E764748EA31
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101702.jpgsave_picture_101702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101702.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ui Kits - UI8 - Financial Forecasting Mobile App UI Kit - Thriftly [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101703.jpgsave_picture_101703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101703.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:7D11E8364F4552B5D0547C92F53358308AD1FCEC
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101706.jpgsave_picture_101706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101706.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:781F22980A7E698BA7F3C1168D1D679F21F9809D
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101709.jpgsave_picture_101709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101709.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Hot Rod Frankie - Stitched together (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101711.jpgsave_picture_101711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101711.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mare Incognitum - Тени грехов (2025) [MP3|320 Kbps] <Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101713.jpgsave_picture_101713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101713.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Feel My Vibe - Feel My Vibe (2025) [MP3|320 Kbps] <Electronic, Easy listening, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101715.jpgsave_picture_101715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101715.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Vladar - The Angel of the Abyss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101716.jpgsave_picture_101716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101716.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Native James - Confessions Of A Sinner (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101717.jpgsave_picture_101717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101717.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Italo Disco Dance Party Collection Part 4 (2025) CDr, Compilation [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101718.jpgsave_picture_101718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101718.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149458.jpgsave_picture_149458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149458.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:865F778991335DDEBB2057E0F89909C62B092A4C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149459.jpgsave_picture_149459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149459.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:26DC2347E6EE669C42CFF05CB422435368F811CE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149461.jpgsave_picture_149461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149461.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Клубная кайфовая вечеринка (2015) [MP3|128-320 кб
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149462.jpgsave_picture_149462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149462.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:3F652FAA303AFD633FE766ECC4FCB18A37C24F01
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149463.jpgsave_picture_149463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149463.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Wise Windows Key Finder 1.0.1.12 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149464.jpgsave_picture_149464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149464.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:C69DD370A535F2B2AE575794548C869792CEF65C
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149465.jpgsave_picture_149465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149465.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2564435966E0404ED30EDEF202BAB098C9B33CE2
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149467.jpgsave_picture_149467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149467.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:6ADE1F5C495FBD690875BE89767D594941881D0E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149468.jpgsave_picture_149468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149468.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:263A7B37EA24ACCB63A23C4DE74E73296092C96C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149469.jpgsave_picture_149469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149469.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ MAGIX Video Pro X10 16.0.1.242 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149470.jpgsave_picture_149470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149470.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Nitrous Oxide Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149471.jpgsave_picture_149471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149471.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:66AA3C68EA286D6E8CEEE000F8F87AE41C1E5950
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149472.jpgsave_picture_149472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149472.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:0E717A744466CE5534E749208C9D68A77884B4ED
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149475.jpgsave_picture_149475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149475.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:25F7E1D4F75B6E17F075E7DA1AF6677477228CA6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149476.jpgsave_picture_149476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149476.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Gil Evans Orchestra - Blues In Orbit (1969, 1971) 2009, Enja Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149477.jpgsave_picture_149477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149477.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:403F65704F44ECDF243EF9605C41ADC991FC1AA9
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149478.jpgsave_picture_149478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149478.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:CF43B601856977BA3C343BE3DA8E3029706178CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149479.jpgsave_picture_149479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149479.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Полигон Records. Всё самое лучшее 2020 [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149481.jpgsave_picture_149481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149481.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:7F47F31D564213DFF946E6DB4CBBBBBBC4567ACB
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149482.jpgsave_picture_149482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149482.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:EA00551EBE3ABD47DBEE128E304231971B05CE26
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149484.jpgsave_picture_149484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149484.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:80517772B66A92F478543445213DEAC50C07CBBB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149485.jpgsave_picture_149485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149485.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:4CC7D5434290CE3D7894A9C3F9CB382133779ABE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149486.jpgsave_picture_149486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149486.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Lacrimosa - Leidenschaft (2021) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149487.jpgsave_picture_149487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149487.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Kyau & Albert Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossles
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149488.jpgsave_picture_149488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149488.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:3CC7E836533910E654694C346F25C1A30587016E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149490.jpgsave_picture_149490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149490.jpg" />
 </div>
 
 

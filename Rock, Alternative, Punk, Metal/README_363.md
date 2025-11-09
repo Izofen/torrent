@@ -6,7 +6,7 @@ Greta Van Fleet - Starcatcher (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207327.jpgsave_picture_207327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207327.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bitter Velvet - Unleashed Fears (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207432.jpgsave_picture_207432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207432.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:82D46BB0F0DD1D3ECB0D1DD6D41C6487FC6F6246
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207509.jpgsave_picture_207509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207509.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:7EF425AB2C207FCD85A51D70FE25855FAF40D011
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207512.jpgsave_picture_207512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207512.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Rush - Pinkpop (live) (1979) Reissue, 2023, Cult Legends [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207514.jpgsave_picture_207514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207514.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Eric Clapton - Rarities 1983-2022 (2023) [FLAC|Lossless|image + .cue] <Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207544.jpgsave_picture_207544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207544.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Eagles - Beacon Theatre, New York 1974 (2016) Reissue, 2023, Zip City [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207684.jpgsave_picture_207684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207684.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Blur - The Ballad Of Darren (2023) [FLAC|24/44.1|tracks|WEB-DL] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207711.jpgsave_picture_207711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207711.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Marius Danielsen - War of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207763.jpgsave_picture_207763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207763.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207839.jpgsave_picture_207839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207839.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:610BA731C3A37F27D15C0EDED7A7D6C0C65C0899
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208015.jpgsave_picture_208015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208015.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Elvis Presley - Integral 1954-1962 (2023) 6CD, Diggers Factory [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208108.jpgsave_picture_208108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208108.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Coventrate - Roots of all Evil (2019) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208186.jpgsave_picture_208186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208186.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Rock Retro Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208235.jpgsave_picture_208235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208235.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Saint Agnes - Bloodsuckers (2023) [MP3|320 Kbps] <Nu-Metal, Rapcore, Female Voca
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208267.jpgsave_picture_208267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208267.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blur - The Ballad Of Darren (2023) Deluxe Edition [FLAC|Lossless| tracks+.cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208281.jpgsave_picture_208281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208281.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - 100% ROCK: The Greatest Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208294.jpgsave_picture_208294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208294.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:4C5A4A9572D1A26B2095431D6AC1835476CD1F46
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208303.jpgsave_picture_208303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208303.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Tool - Lollapalooza In Texas (2020) [MP3|320 Kbps] <Alternative & Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208359.jpgsave_picture_208359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208359.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Blur - The Ballad Of Darren (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208763.jpgsave_picture_208763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208763.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ A Dark Halo - Omnibus One (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208778.jpgsave_picture_208778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208778.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Scream Maker - Land Of Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208799.jpgsave_picture_208799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208799.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Nothing But Thieves - Dead Club City (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208975.jpgsave_picture_208975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208975.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Powerwolf - Interludium (2023) 2 x CD [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209048.jpgsave_picture_209048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209048.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:2F42AFF4CEAD7F38EA5B59D686BCBD6B87386CF2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209065.jpgsave_picture_209065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209065.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:26C08207CAA6CF64CD23872D0ADAD148C3B28C8B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209066.jpgsave_picture_209066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209066.jpg" />
 </div>
 
 

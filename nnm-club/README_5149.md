@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160612.jpgsave_picture_160612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160612.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:362D8EF40D7363C405A280008CF41BC1C07DBBEE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160613.jpgsave_picture_160613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160613.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F12C27B6D32DDA8A9328989E5071A6B1E1CED580
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160614.jpgsave_picture_160614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160614.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FB872F8A76A70950E2FE4884A55BB5C146C8E553
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160615.jpgsave_picture_160615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160615.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ dict.cc+ Wörterbuch 12.0.4 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160616.jpgsave_picture_160616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160616.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:29BEB24D2D716D386F596A8AA58A44E0F33F3359
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160617.jpgsave_picture_160617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160617.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ NetLimiter 5.3.5.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160618.jpgsave_picture_160618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160618.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:24E4B82082D61604CA894EC86948D9DA6AABAC07
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160619.jpgsave_picture_160619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160619.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ doPDF 11.9.434 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160620.jpgsave_picture_160620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160620.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ IObit Smart Defrag Pro 9.2.0.323 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160621.jpgsave_picture_160621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160621.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:D102C7CEE0146AAB2AF0C8D31E29F8D34C2683AB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160622.jpgsave_picture_160622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160622.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:1F1CCA231AC10C001269AB42148848C404BB7181
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160623.jpgsave_picture_160623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160623.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ K-Lite Codec Pack Update 17.9.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160624.jpgsave_picture_160624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160624.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Strangerland - Echoes From The Past (2023) [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160625.jpgsave_picture_160625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160625.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Luke Morley - Songs From The Blue Room (2023) Japanese Edition [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160626.jpgsave_picture_160626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160626.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:B3DFAB84F3E8125D1DB0E09E94EF874DA0A7B1F1
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160627.jpgsave_picture_160627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160627.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160628.jpgsave_picture_160628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160628.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:1B271498896F48E4F69A57FEAA739066C1F2D39B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160629.jpgsave_picture_160629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160629.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Alt SwitchER 21.5 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160630.jpgsave_picture_160630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160630.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:9B476EF447A849AECF392BFBAF49C5BB33264D63
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160631.jpgsave_picture_160631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160631.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:BADBF20C66858C673415B59A91A1C0D935AF1A81
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160632.jpgsave_picture_160632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160632.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Wise Disk Cleaner 11.0.5.819 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160633.jpgsave_picture_160633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160633.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:17B570FD918F5914B09228C8715BF4C375ABCF57
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160634.jpgsave_picture_160634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160634.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Cliff Richard - Cliff with Strings - My Kinda Life (2023) [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160635.jpgsave_picture_160635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160635.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160636.jpgsave_picture_160636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160636.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Hit News Vol. 9 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160637.jpgsave_picture_160637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160637.jpg" />
 </div>
 
 

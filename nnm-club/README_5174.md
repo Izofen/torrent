@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161270.jpgsave_picture_161270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161270.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161271.jpgsave_picture_161271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161271.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C7EFE7D194FB17442F8EB3A44EB203643A91CC2B
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161272.jpgsave_picture_161272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161272.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2491363FED9306FFAD98F06D89132B2DC2E866C8
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161273.jpgsave_picture_161273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161273.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:080176BA92945EA47DD8D00E87BE3E1EE48737D8
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161274.jpgsave_picture_161274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161274.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7405018E47A884AA485F08B90A5080DB53618829
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161275.jpgsave_picture_161275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161275.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:211E2019DC77AFCB7915D71B1350AECB0F3B039D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161276.jpgsave_picture_161276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161276.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:9DF887AF66EC5ED32FED5F9E76D67887C513EF98
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161277.jpgsave_picture_161277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161277.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:ED3DBB73CB72C3FD33DA1A1AF15785CF860FF4B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161278.jpgsave_picture_161278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161278.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ DMG Canvas 4.0.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161279.jpgsave_picture_161279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161279.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Photos Exif Editor 2.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161280.jpgsave_picture_161280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161280.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:EF6BB09CE6716BD841E0F55FD26DD3A40399AB5B
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161281.jpgsave_picture_161281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161281.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Icecream Video Editor Pro 3.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161282.jpgsave_picture_161282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161282.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:273546E7BAA90069CF19C2B777E7708D1680814C
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161283.jpgsave_picture_161283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161283.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:6E653EBA65CDB683BC040223C4539C79E58A8C9F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161284.jpgsave_picture_161284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161284.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:4C038A1FC239D4E57646D480678A25FA166BFB22
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161285.jpgsave_picture_161285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161285.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B8EA44F338422B1652E06614FB64CC804898F541
 >>Для открывших Интернет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161286.jpgsave_picture_161286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161286.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:B8EA44F338422B1652E06614FB64CC804898F541
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161287.jpgsave_picture_161287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161287.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:22AAA701B7C62449C5B09C8DA36D6A97EA04088D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161288.jpgsave_picture_161288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161288.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:1751F7A251238BA1BB23E28835BD1890AC55352C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161289.jpgsave_picture_161289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161289.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Chicago - Chicago Christmas Complete (2023) Remaster [FLAC 24/192|24/96|24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161290.jpgsave_picture_161290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161290.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ PhotoSweeper X 3.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161291.jpgsave_picture_161291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161291.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Luis Rodriguez and Nathalie Aarts - Rhythm of My Heart (extended mix) (2023) [FL
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161292.jpgsave_picture_161292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161292.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:55783121402E1B395F1448A1A3C0E83D071A190A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161293.jpgsave_picture_161293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161293.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:26095D53874900D0CD62CE45C973DC32C3419882
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161294.jpgsave_picture_161294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161294.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Velvet Velour - Pleiades (2020) EP [MP3|320 Kbps] <Darkwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161295.jpgsave_picture_161295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161295.jpg" />
 </div>
 
 

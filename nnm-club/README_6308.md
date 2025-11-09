@@ -6,7 +6,7 @@ Muv-Luv Alternative The Animation | Мав-Лав: Альтернатива [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197623.jpgsave_picture_197623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197623.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197624.jpgsave_picture_197624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197624.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:95149C9423C2A2CB6840743593EBF7A4A2556280
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197625.jpgsave_picture_197625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197625.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:15ACF238118CB8563A8F859A991A04B6E8510B06
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197626.jpgsave_picture_197626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197626.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:64F9BD0BB55D43D60EDDA4931F9CF38732F85A0D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197627.jpgsave_picture_197627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197627.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0512F771E4823A984EB9CB36443B49A45379B0FA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197628.jpgsave_picture_197628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197628.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ WinRAR 6.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197629.jpgsave_picture_197629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197629.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:059E0FE2FFD67DA496C050D52BFFE589D69D30DD
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197630.jpgsave_picture_197630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197630.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:123B363914B6E33A12AF3EA88148F83361E44379
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197631.jpgsave_picture_197631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197631.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Atomic Heart, Vol.2 (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197632.jpgsave_picture_197632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197632.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4FE96DB97F3A20878711581EA8E44FCBA1FE700F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197633.jpgsave_picture_197633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197633.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:8DAB5782F2417DA282D8F5A4C64A71BB8A701FF4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197634.jpgsave_picture_197634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197634.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:BE35CB4827F00665420B92550661C22D4A6E778D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197635.jpgsave_picture_197635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197635.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:A2A135D06D8E116C45CB6AA30585B87C4A27D9C3
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197636.jpgsave_picture_197636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197636.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:03C9BF1F339E63F8CE6175CD7766465516999713
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197637.jpgsave_picture_197637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197637.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Abelssoft SSD Fresh Plus 2023 12.08.47803 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197638.jpgsave_picture_197638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197638.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:8C6D659E4380DC44536799FBE09DF3DE36E19F45
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197639.jpgsave_picture_197639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197639.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ AnyMP4 Video Converter Ultimate 8.5.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197640.jpgsave_picture_197640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197640.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197641.jpgsave_picture_197641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197641.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:55ABE762F6CB633D33D79B7D2A7D742111BCE6AA
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197642.jpgsave_picture_197642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197642.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:3349B806ECCDE7F25CE8EA33D4AC48B41D4DA8D2
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197643.jpgsave_picture_197643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197643.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:C4636756592CC3F238F665433CE0A0CF1D465B02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197644.jpgsave_picture_197644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197644.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ PSY2.0 | Основы сексуального здоровья (2023) WEB-DL [A
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197645.jpgsave_picture_197645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197645.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Edge Blocker Portable 1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197646.jpgsave_picture_197646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197646.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:E5E038E775C62444ECD61C74E2F9E8F7708BE1BC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197647.jpgsave_picture_197647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197647.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:08EE464866AFC65182C954FEF33A828CA4DF46AC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197648.jpgsave_picture_197648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197648.jpg" />
 </div>
 
 

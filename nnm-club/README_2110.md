@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55227.jpgsave_picture_55227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55227.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:15E27EBE813F95AEC5463590116EA370D3F9F943
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55228.jpgsave_picture_55228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55228.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ THE KING OF FIGHTERS XV (15) (2022) [Ru/Multi] (2.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55229.jpgsave_picture_55229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55229.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FastStone Capture 10.5 Final RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55230.jpgsave_picture_55230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55230.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F7BFEA64A8D4B22DF6DEDD31CF237439A71A11BC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55231.jpgsave_picture_55231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55231.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Spotify  1.2.37.701 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55232.jpgsave_picture_55232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55232.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ LosslessCut 3.61.1 Standalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55233.jpgsave_picture_55233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55233.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:DABB0623C5CEC90E73C0810178DF38376BFE80AA
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55234.jpgsave_picture_55234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55234.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:D9C5B75C2F4E2F2832F5FB3B287026DF2A75A47E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55235.jpgsave_picture_55235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55235.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0AD81FE264AEE49B447236CAA6179E15CAB7C44D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55236.jpgsave_picture_55236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55236.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:25697AC33D0A400A7292802D3860875BE7EC7C81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55237.jpgsave_picture_55237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55237.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:D8F9EAF1B8E941687FF03F3E68A1F67821238DB3
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55238.jpgsave_picture_55238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55238.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:1CD20E756BAEF3B10B073C8E16CB7ABBD8CD6BBD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55239.jpgsave_picture_55239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55239.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:E6273BD1520DD8C57B16027C7653D846C51280DE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55240.jpgsave_picture_55240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55240.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - РАДИО БАТЯ - 011 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55241.jpgsave_picture_55241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55241.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:718F4F3FAAAB2E982FE4C773AB8EC8D1118F6CBB
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55242.jpgsave_picture_55242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55242.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:9B89C44F7C9646830F2D0E79D2EE824E1B3FC729
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55243.jpgsave_picture_55243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55243.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:9B89C44F7C9646830F2D0E79D2EE824E1B3FC729
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55244.jpgsave_picture_55244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55244.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Foxit PDF Editor Pro 13.1.2.22442 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55245.jpgsave_picture_55245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55245.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7BE4F996753ACDEA6EB1D08762EA02DBB7ED4A66
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55246.jpgsave_picture_55246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55246.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:3AD86D40962A1E0BC1B161925539FB6DFCC8F503
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55247.jpgsave_picture_55247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55247.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Dream Engines: Nomad Cities (2024) [Ru/Multi] (1.0.544) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55248.jpgsave_picture_55248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55248.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:CF5CDB46052856400B339F83F308BAAF90354305
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55249.jpgsave_picture_55249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55249.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ qBittorrent 4.6.5 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55250.jpgsave_picture_55250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55250.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55251.jpgsave_picture_55251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55251.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Total Commander 11.03 (22.05.2024) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55252.jpgsave_picture_55252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55252.jpg" />
 </div>
 
 

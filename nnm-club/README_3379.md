@@ -6,7 +6,7 @@ PowerDirector – Video Editor v14.1.0 b2406061 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108215.jpgsave_picture_108215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108215.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CB91C410ABFD81E01AC07320F49870DC8ED4445F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108216.jpgsave_picture_108216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108216.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2CBB11375D80A2FB9CD87611897CA786B83100AB
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108217.jpgsave_picture_108217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108217.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FontViewOK 8.43 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108218.jpgsave_picture_108218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108218.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E9AA2F4ED09641140675EA7B09F3318BBB0F11F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108219.jpgsave_picture_108219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108219.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9851CAFBFE1AA7E45664738E82FED4E3440757FE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108220.jpgsave_picture_108220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108220.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:516384B4E6180B0B2AEF9ED45A078F0F28104C39
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108221.jpgsave_picture_108221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108221.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:445A797E5933064AB7414B40B4A38DB7F5002216
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108222.jpgsave_picture_108222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108222.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6302487DAAE3D8AF49E77564A3EFBCAB0DD3AE69
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108223.jpgsave_picture_108223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108223.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:71C90A85984A955DEAC6DB9A8BFD98ACDA18D438
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108224.jpgsave_picture_108224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108224.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Classical & Baroque Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108225.jpgsave_picture_108225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108225.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Endangered Reign - The Forester Awakens (2024) [MP3|320 Kbps] <Power, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108226.jpgsave_picture_108226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108226.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ PrivaZer Pro 4.0.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108227.jpgsave_picture_108227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108227.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Today Weather - Прогноз погоды 2.2.2-6.070624 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108228.jpgsave_picture_108228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108228.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AccuWeather - прогноз погоды 20.3-2-google Mod by LITEAPKS [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108229.jpgsave_picture_108229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108229.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Terminal Zero - Brace for the End (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108230.jpgsave_picture_108230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108230.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ SnapEdit - ИИ фоторедактор / SnapEdit - AI Photo Editor 6.4.4 Mod 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108231.jpgsave_picture_108231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108231.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Newfangled Audio - Recirculate 1.1.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108232.jpgsave_picture_108232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108232.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ventusky: Прогноз погоды 35.2 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108233.jpgsave_picture_108233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108233.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:21021A5046A5BED685390F01AE8EEB7B6300B4D1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108234.jpgsave_picture_108234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108234.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ StaxRip 2.40.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108235.jpgsave_picture_108235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108235.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:4B9A2E726265126223881BAD9FAE5F9BA5281EC2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108236.jpgsave_picture_108236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108236.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Telegram Desktop 5.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108237.jpgsave_picture_108237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108237.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Eventide - Ensemble Bundle 2.18.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108238.jpgsave_picture_108238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108238.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:24A77786157E08F97EEEACC59A6BE898562D3ED6
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108239.jpgsave_picture_108239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108239.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:7ED35E333F3F8E835293654BB25D23838DAAB314
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108240.jpgsave_picture_108240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108240.jpg" />
 </div>
 
 

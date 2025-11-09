@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162264.jpgsave_picture_162264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162264.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Olyphant - Destinies of the Soul (2020) [MP3|320 Kbps] <Progressive Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162266.jpgsave_picture_162266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162266.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:2AFC0D767AD06BC8AE85590855809D0E7EB00FA8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162267.jpgsave_picture_162267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162267.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Inter Galactic: Best Of Future House (2021) [MP3|320 Kbps] <House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162268.jpgsave_picture_162268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162268.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162269.jpgsave_picture_162269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162269.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:624FB3842FA37B1CBED1D5287C26A2BC6145BC48
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162270.jpgsave_picture_162270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162270.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:2AED114F5A4E3295D5E76AEB9F9ACB8E41BF6BAB
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162271.jpgsave_picture_162271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162271.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:919F38D55DB33650C483E6D4743327C06D34175C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162272.jpgsave_picture_162272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162272.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:D5AE5C6604F5426E778B23DD8EBF2FF445043A73
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162273.jpgsave_picture_162273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162273.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - A Voice From Real Life: Country Folk Music (2021) [MP3|320 Kbps] <Country, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162274.jpgsave_picture_162274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162274.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ The Glass Beads - Therapy (2020) [MP3|~245 Kbps (V0)] <Alternative, Coldwave>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162275.jpgsave_picture_162275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162275.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:3A0010188DB9E4B0396F98FA4089B8FC9FC0CAC8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162276.jpgsave_picture_162276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162276.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:431DDF3373ED6AE139BECAABCBBA6DC556860C84
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162277.jpgsave_picture_162277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162277.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VideoProc Vlogger for Mac 1.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162278.jpgsave_picture_162278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162278.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162279.jpgsave_picture_162279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162279.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Pharaux - Birdsongs of the Manic Vol. I (2020) [FLAC|Lossless|tracks + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162280.jpgsave_picture_162280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162280.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Reyvi - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162281.jpgsave_picture_162281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162281.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Drunken Buddha - II (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Classic Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162282.jpgsave_picture_162282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162282.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Topaz Gigapixel AI 6.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162283.jpgsave_picture_162283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162283.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:25B31BD0F4F99777C387CE34FE236D5D1C8009B5
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162284.jpgsave_picture_162284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162284.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - National Pop Dance Music (Vol.28) (2021) [MP3|320 Kbps] <Pop, Dance, Schlag
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162285.jpgsave_picture_162285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162285.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ D-Beats - Favorites Collection (2025) [MP3|320 Kbps] <Pop, Dance, Electronic, Ot
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162286.jpgsave_picture_162286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162286.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Beatport Tech House: Sound Pack #212 (2020) [MP3|320 Kbps] <Tech House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162287.jpgsave_picture_162287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162287.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Electro House: Neon Plasma Party (2021) [MP3|320 Kbps] <Electro House, Danc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162288.jpgsave_picture_162288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162288.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Topaz Photo AI 2.1.0 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162289.jpgsave_picture_162289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162289.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:09E608216E6EE1F2B507AE5B32DFB5051675F37F
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162290.jpgsave_picture_162290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162290.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 11 PRO 24H2 26100.2314 Update 9 by Ghost Spectre [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36547.jpgsave_picture_36547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36547.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B72413783D155734057A665D5A20AF3149D63E07
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36548.jpgsave_picture_36548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36548.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AA813BA17DACF03AA6793B690E490A7D29CD65AC
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36549.jpgsave_picture_36549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36549.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:77CED7852F8B5116F6EA2B99C6F72C4FC40D70D0
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36550.jpgsave_picture_36550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36550.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - То, что доктор прописал 2 Remix NNM (2024) [MP3|320 Kbps
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36551.jpgsave_picture_36551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36551.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Frank Walker - Live @ Mainstage, Veld Music Festival, Canada (2024-08-03) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36552.jpgsave_picture_36552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36552.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:7A6B687456E88FCFFE38BAE4D84670B0A3511E5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36553.jpgsave_picture_36553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36553.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:7A6B687456E88FCFFE38BAE4D84670B0A3511E5E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36554.jpgsave_picture_36554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36554.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Smoothies - November Night Grooves: Velvet Soul (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36555.jpgsave_picture_36555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36555.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Frank Sinatra - A Voice On Air (1935 – 1955) 4CD, 2015, Legacy [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36556.jpgsave_picture_36556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36556.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Opeth - The Last Will And Testament (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36557.jpgsave_picture_36557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36557.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Redbone - Ten songs for you (2024) [MP3|320 Kbps] <Pop Rock, Singer & Songwriter
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36558.jpgsave_picture_36558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36558.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Black Sheep - A Wolf in Sheep’s Clothing (1991) [FLAC|Lossless|tracks + .cue] 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36559.jpgsave_picture_36559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36559.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Xandria - Universal Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36560.jpgsave_picture_36560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36560.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:88FF8D9DE12DE34CFF4E478F70B800318F4BF47D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36561.jpgsave_picture_36561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36561.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Saturday Night Satan - All Things Black (2024) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36562.jpgsave_picture_36562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36562.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ TRUST X - На краю вечности (2011) [FLAC|Lossless|image + .cue] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36563.jpgsave_picture_36563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36563.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Wrecked - Sleeping with Knives (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36564.jpgsave_picture_36564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36564.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Ind
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36565.jpgsave_picture_36565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36565.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Widespread Panic - Hailbound Queen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36566.jpgsave_picture_36566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36566.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:C9B855A24F3307E75E9679A761D6E7F8FED9A940
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36567.jpgsave_picture_36567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36567.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Space 92 - Live @ Drumcode, Awakenings, Gashouder, ADE, Netherlands (2024-10-17)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36568.jpgsave_picture_36568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36568.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Emmy Meli - Hello Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36569.jpgsave_picture_36569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36569.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Alexander Aruca - October Wind (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36570.jpgsave_picture_36570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36570.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:82B7B4910A2DBF036FB9F44B504CAA4FCCEB83C7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36571.jpgsave_picture_36571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36571.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ HI-LO & Space 92 - Mixmag Crane Sessions, Amsterdam Dance Event, Netherlands (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36572.jpgsave_picture_36572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36572.jpg" />
 </div>
 
 

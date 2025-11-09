@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22595.jpgsave_picture_22595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22595.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Arch Enemy - Blood Dynasty (2025) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22596.jpgsave_picture_22596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22596.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Firefox Browser ESR 115.22.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22597.jpgsave_picture_22597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22597.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - SYNTHPOP NOSTALGIA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22598.jpgsave_picture_22598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22598.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:24D7CF1AF072BB9E55CAFE26961ACD095BCEAA2F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22599.jpgsave_picture_22599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22599.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7418089138AF7D3A1E7CB2BBB0E43825022FBC1F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22600.jpgsave_picture_22600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22600.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Benediction - Studio Albums (10 releases) (1990-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22601.jpgsave_picture_22601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22601.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Uli Jon Roth & Electric Sun - Earthquake (1979) Remastered, 2023, Alpha Experium
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22602.jpgsave_picture_22602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22602.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:1663A3231A80C6D93BC3BD1F802B3D839F48499A
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22603.jpgsave_picture_22603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22603.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:5C72CCA4A9052C1FDAC26C0B970DDE7B63CD8AA3
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22604.jpgsave_picture_22604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22604.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:D8C7275CFC120954BFE5F7B7A91C468585CAC2DA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22605.jpgsave_picture_22605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22605.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:BDE3F9CA96E776AB8A40327B982EFB2A7C7ED6E5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22606.jpgsave_picture_22606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22606.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:59F078E741A96D4E13380984417E63B1D3B3026C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22607.jpgsave_picture_22607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22607.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:F3AF19673D7A1010A50FECB3AE1D928063AA4391
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22608.jpgsave_picture_22608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22608.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Minecraft в кино / A Minecraft Movie (2025) TS [H.264/1080p] [звук с T
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22609.jpgsave_picture_22609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22609.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Minecraft в кино / A Minecraft Movie (2025) TS [H.264/1080p] [звук с T
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22610.jpgsave_picture_22610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22610.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ RAM Saver Professional 25.4.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22611.jpgsave_picture_22611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22611.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Train Yard Builder (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22612.jpgsave_picture_22612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22612.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:996823E47C7E52716B0A0202D917985407584AF4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22613.jpgsave_picture_22613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22613.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:803BA0180AAFE291FDAA695AA85EE64B2865FBB1
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22614.jpgsave_picture_22614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22614.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:A9D0924A23A65FACEE52BC2663C09D1DC921649D
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22615.jpgsave_picture_22615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22615.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:A0FDFC5C6885549DC01367D47C1761AF0CED2487
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22616.jpgsave_picture_22616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22616.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Virballs (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22617.jpgsave_picture_22617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22617.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ IObit Uninstaller Pro 14.2.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22618.jpgsave_picture_22618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22618.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Master PDF Editor 5.9.89 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22619.jpgsave_picture_22619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22619.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:9464E03A52FA1C76866043E09BC33F0B5F310A01
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22620.jpgsave_picture_22620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22620.jpg" />
 </div>
 
 

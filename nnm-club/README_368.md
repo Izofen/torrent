@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9720.jpgsave_picture_9720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9720.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A812D453A12C00E8DCD6A75BB4539088D95B82E5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9721.jpgsave_picture_9721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9721.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5DC1458790E7555B26468EB1BA94C5DCFC50F486
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9722.jpgsave_picture_9722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9722.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:F62FA72C6A8A9E4F2C01785003CC20D710E52372
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9723.jpgsave_picture_9723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9723.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:95F958222B26FA9331CE2B4069B7B926C296F9F1
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9724.jpgsave_picture_9724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9724.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Eguana - Mindflow (2025) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9725.jpgsave_picture_9725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9725.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:EDAA4B74F60C8A889191DDAC407C0030D7C2D23F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9726.jpgsave_picture_9726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9726.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DFE418BC92C8EAD6BE7AD3F71077999028FBED3A
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9727.jpgsave_picture_9727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9727.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:1BE7DED51BF0BF5C947D0E1602001B15D3DE1A98
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9728.jpgsave_picture_9728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9728.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:D0B157B19757F5511E7FB66FCC0AAACD1A6E5468
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9729.jpgsave_picture_9729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9729.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:6045EEE1CA82E89E17F5012AEC1AF08570732D42
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9730.jpgsave_picture_9730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9730.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:712EF475239F1AFB3F415A1F77D2749C6FCAEDD0
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9731.jpgsave_picture_9731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9731.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:59654B1CF9E9133E074186854FAEE24393A63353
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9732.jpgsave_picture_9732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9732.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Lanpirot | Нахаловка (Книга 1) (2025) [MP3, Вадим Ерофе�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9733.jpgsave_picture_9733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9733.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:3EFB8B47F04EEDEAA0A79FD64310D8E888700A5C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9734.jpgsave_picture_9734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9734.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Dirty Dancing (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9735.jpgsave_picture_9735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9735.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:41E6A6AC44F2EABC5802E2A0FD5BE9F1373C20A6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9736.jpgsave_picture_9736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9736.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:E0A86699E40DAEE0842B5666BFE81D44BBAD7F6A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9737.jpgsave_picture_9737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9737.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Lanpirot | Позывной Хоттабыч (Книга 9). Исчадие Кр
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9738.jpgsave_picture_9738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9738.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9739.jpgsave_picture_9739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9739.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:1E2D2D9F70A1A0EC6EA45B3F67DD73E42A1F2D29
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9740.jpgsave_picture_9740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9740.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Summer Full of Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9741.jpgsave_picture_9741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9741.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:5E8B9759F185E05B3292C137777458D460ED83E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9742.jpgsave_picture_9742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9742.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:1D1CDA166E229820E18B99FC50157EA58840EDC2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9743.jpgsave_picture_9743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9743.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:EA470B0576252ED6A1E343174D2E8C46257ED5EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9744.jpgsave_picture_9744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9744.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Bossa Nova Summer Beach Relax 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9745.jpgsave_picture_9745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9745.jpg" />
 </div>
 
 

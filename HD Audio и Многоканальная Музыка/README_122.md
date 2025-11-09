@@ -6,7 +6,7 @@ Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106536.jpgsave_picture_106536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106536.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ John Summit - Comfort In Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106564.jpgsave_picture_106564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106564.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ J Use - Whispers in the Moonlight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106572.jpgsave_picture_106572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106572.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Enri Zavalloni - Organ Express (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106573.jpgsave_picture_106573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106573.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Ken Peplowski - At Mezzrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106574.jpgsave_picture_106574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106574.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Joe Tatton Trio - Galáctico (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106575.jpgsave_picture_106575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106575.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ AdrianoMaria - Night And Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106576.jpgsave_picture_106576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106576.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Jonas Johansen, Lennart Ginman, Thor Madsen - Adventure (2024) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106578.jpgsave_picture_106578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106578.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Sylvan - Back To Live (2024) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo-Prog>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106580.jpgsave_picture_106580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106580.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Hami Cho - My Season (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106583.jpgsave_picture_106583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106583.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Kucka - Can You Hear Me Dreaming? (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106591.jpgsave_picture_106591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106591.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Bay City Rollers - 2 Albums (1974, 1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106594.jpgsave_picture_106594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106594.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Eric Ladish - Songs from In Between (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106595.jpgsave_picture_106595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106595.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Status Quo - Official Archive Series Vol. 1: Live in Amsterdam 2010 (2023) New M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106599.jpgsave_picture_106599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106599.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008 (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106600.jpgsave_picture_106600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106600.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Testament - The New Order (1988) Remastered, 2024, Nuclear Blast [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106619.jpgsave_picture_106619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106619.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Testament - The Legacy (1987) Remastered, 2024, Nuclear Blast [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106620.jpgsave_picture_106620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106620.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Phish - Evolve (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Psy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106621.jpgsave_picture_106621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106621.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Grand River and Abul Mogard - In uno spazio immenso (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106622.jpgsave_picture_106622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106622.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Travis - L.A. Times (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soft rock, Britp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106624.jpgsave_picture_106624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106624.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Seth - La France des Maudits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106627.jpgsave_picture_106627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106627.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ John Lennon - Mind Games (1973) The Ultimate Collection, 2024, UMC [FLAC 24/192|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106651.jpgsave_picture_106651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106651.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Van Halen - For Unlawful Carnal Knowledge (1991) Expanded Edition, 2024, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106663.jpgsave_picture_106663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106663.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Clairo - Charm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bedroom Pop, Dream Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106678.jpgsave_picture_106678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106678.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Palace - Reckless Heart (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <AOR/Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106689.jpgsave_picture_106689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106689.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Mr. Big - Ten (2024) with bonus track [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106691.jpgsave_picture_106691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106691.jpg" />
 </div>
 
 

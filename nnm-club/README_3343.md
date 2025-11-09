@@ -6,7 +6,7 @@
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107279.jpgsave_picture_107279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107279.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A4F8AC4C54E5EBC7B1D6496A28F95DD2026BD127
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107280.jpgsave_picture_107280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107280.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ NetLimiter 5.3.16.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107281.jpgsave_picture_107281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107281.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Paper Trail (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107282.jpgsave_picture_107282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107282.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Muna - Live at The Greek Theatre in Los Angeles (2024) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107283.jpgsave_picture_107283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107283.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:943AE12846AD3BE7BD2647D05333E5FA227E987E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107284.jpgsave_picture_107284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107284.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107285.jpgsave_picture_107285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107285.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Channel Tres - Head Rush (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electrón
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107286.jpgsave_picture_107286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107286.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Hourglass - Voids and Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107287.jpgsave_picture_107287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107287.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Anita O'Day - Live In Tokyo (1975) 1994, Venus Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107288.jpgsave_picture_107288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107288.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Louis Prima - 1944 - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107289.jpgsave_picture_107289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107289.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Slam 420 - Bloated Exploded OG Gluttony (2020) [FLAC|Lossless|image + .cue] <Sla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107290.jpgsave_picture_107290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107290.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pryne - Gargantuan (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107291.jpgsave_picture_107291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107291.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Kevin Casteel - Shadows of the Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107292.jpgsave_picture_107292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107292.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Anita O'Day - An Evening With Anita O'Day (1956) 1990, Polygram [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107293.jpgsave_picture_107293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107293.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107294.jpgsave_picture_107294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107294.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:085A9BE255B996B1880E8BDF6BC88DFC6C07DB73
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107295.jpgsave_picture_107295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107295.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Matador - Сквозь тень времен (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107296.jpgsave_picture_107296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107296.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 04 (2024) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107297.jpgsave_picture_107297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107297.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Markus Schulz - Global DJ Broadcast Sunrise Set (2024-06-27) [MP3|320 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107298.jpgsave_picture_107298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107298.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Trance Fusion Vol. 04 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107299.jpgsave_picture_107299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107299.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Armin van Buuren - A State Of Trance 1179 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107300.jpgsave_picture_107300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107300.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107301.jpgsave_picture_107301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107301.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107302.jpgsave_picture_107302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107302.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Redux Selection Vol. 7 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107303.jpgsave_picture_107303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107303.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ MEDUZA & Alec Monopoly - Live @ Our House Pre-Party, Cafe Mambo Ibiza, Spain (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107304.jpgsave_picture_107304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107304.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Wikisound | Ableton live 11 с нуля до эксперта (2021) WEB-DL [RU]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251773.jpgsave_picture_251773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251773.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EBE1E498B34CA00D6403AB93757D29375724B4F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251774.jpgsave_picture_251774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251774.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6AF8E73E3E5CB8E9E3D71731FFFC2C99AA9890D8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251775.jpgsave_picture_251775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251775.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4182E185B66CC663BB1DC038321D9BC1467FC7CA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251776.jpgsave_picture_251776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251776.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3C5848C0AB1AD434879EA68AA8DA14DCE0E61660
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251777.jpgsave_picture_251777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251777.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:12CF14615F419635F038724FBF5FF6D6FF8C0E33
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251778.jpgsave_picture_251778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251778.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Any Video Downloader Pro 9.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251779.jpgsave_picture_251779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251779.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B2FB350CD2EEEEAFB1C4408B53CCD6A698BDF73B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251780.jpgsave_picture_251780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251780.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ SnowRunner (2020) [Ru/Multi] (24.0/dlc) Repack Other s  [3-Year Anniversary Edit
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251781.jpgsave_picture_251781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251781.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:247F3FDCC52AF127506DC31AABB413E1309B2C3A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251782.jpgsave_picture_251782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251782.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wise Program Uninstaller 3.2.7.271 RePack (& portable) by elchupacabra [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251783.jpgsave_picture_251783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251783.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:6036C849853FECE20CB7A47E1548E4333F0B31B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251784.jpgsave_picture_251784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251784.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wise Care 365 Pro 7.3.2.716 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251785.jpgsave_picture_251785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251785.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Second Sun (2025) [En] (1.021) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251786.jpgsave_picture_251786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251786.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Remini / Улучшение Фото v3.7.246.202202009 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251787.jpgsave_picture_251787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251787.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:9BD6EEEA43804C1E5CA0E89DCBB229C521BFA470
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251788.jpgsave_picture_251788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251788.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Rise Eterna II (2) (2025) [Multi] (20251003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251789.jpgsave_picture_251789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251789.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251790.jpgsave_picture_251790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251790.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ PDF-XChange Editor Plus 10.7.5.403 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251791.jpgsave_picture_251791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251791.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:6B5E80D43D095D7509931DEEDDED52A7292179E2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251792.jpgsave_picture_251792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251792.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.0.8) License GOG [Part 3]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251793.jpgsave_picture_251793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251793.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Portrait Painter v1.17.21 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251794.jpgsave_picture_251794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251794.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251795.jpgsave_picture_251795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251795.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251796.jpgsave_picture_251796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251796.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251797.jpgsave_picture_251797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251797.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3D2ED90D7E2A8CDD4D26F278A0365BC3E9D289AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251798.jpgsave_picture_251798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251798.jpg" />
 </div>
 
 

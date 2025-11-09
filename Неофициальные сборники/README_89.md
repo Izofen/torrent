@@ -6,7 +6,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155673.jpgsave_picture_155673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155673.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - German Top 100 Single Charts 20.12.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155682.jpgsave_picture_155682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155682.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155683.jpgsave_picture_155683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155683.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - German Top 100 Single Charts 17.12.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155696.jpgsave_picture_155696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155696.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Essentials Rap Hits Releases (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155698.jpgsave_picture_155698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155698.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155699.jpgsave_picture_155699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155699.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Dark Beats: French Rap (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155744.jpgsave_picture_155744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155744.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Light Music Bass Best (2017) [MP3|192-320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155785.jpgsave_picture_155785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155785.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Billboard Hot 100 Singles Chart 22.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155856.jpgsave_picture_155856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155856.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Хитовая зима №1 (2015) [MP3|256-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156096.jpgsave_picture_156096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156096.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - С Новым Годом ННМ! (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156170.jpgsave_picture_156170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156170.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Зимняя свежая 30-тка Vol. 2 (2019) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156181.jpgsave_picture_156181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156181.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - 50 Latin Hits 2016 (2016) [MP3|320 Kbps] <Pop, Latino>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156418.jpgsave_picture_156418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156418.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Empire Records - Guitar Pro (2016) [MP3|320 Kbps] <Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156458.jpgsave_picture_156458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156458.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Музыка На Новогодний Корпоратив От Зайце
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156523.jpgsave_picture_156523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156523.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Dance Paradise: December Party (2016) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156544.jpgsave_picture_156544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156544.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Tomorrow Never Dies (2015) [MP3|320 кб/с] <Altrnative, Indie Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156595.jpgsave_picture_156595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156595.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Latin Favourites Baila Conmigo (2016) [MP3|320 Kbps] <Urban, Reggaeton, Dem
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156692.jpgsave_picture_156692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156692.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Music News vol.58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156736.jpgsave_picture_156736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156736.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Top Club 40 - December 2015 (2015) [MP3|320 кб/с] <Dance, Club 40, Elect
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156854.jpgsave_picture_156854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156854.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Music News vol.57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156904.jpgsave_picture_156904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156904.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Новогодний народный хит (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157058.jpgsave_picture_157058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157058.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Новогодний хоровод Vol.2 (2018) [MP3|192-320 Kbps] <Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157103.jpgsave_picture_157103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157103.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - ЕвроХит Топ 40 Europa Plus 20.12.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157160.jpgsave_picture_157160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157160.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Acoustic Chillout Album (2015) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157217.jpgsave_picture_157217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157217.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ VA - Red Oxitocin: Sound Neuroleptics (2018) [MP3|320 Kbps] <Deep House, Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157233.jpgsave_picture_157233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157233.jpg" />
 </div>
 
 

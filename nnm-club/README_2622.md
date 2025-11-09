@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68922.jpgsave_picture_68922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68922.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A2978659ED497DA00D4E5E16B0B528C28C048E15
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68923.jpgsave_picture_68923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68923.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Selena Gomez - I Said I Love You First (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68924.jpgsave_picture_68924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68924.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Vandenberg - Heading For A Storm (1983) Reissue, Repress, 1991, ATCO Records [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68925.jpgsave_picture_68925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68925.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:BA54974D7DE3346CCDDC6875754DDEF6E1168964
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68926.jpgsave_picture_68926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68926.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:72CC469EFC837CA8E27CF791F122FC3EA70A3BDE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68927.jpgsave_picture_68927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68927.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Nightwish - Imaginaerum (2011) [DSD128|24/44,1|tracks|Vinyl-Rip] <Symphonic Powe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68928.jpgsave_picture_68928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68928.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - Future Dance Exciters 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68929.jpgsave_picture_68929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68929.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Uplifting Only Top 15: March 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68930.jpgsave_picture_68930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68930.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:E530AE9D97C84F2E6A8D57DE20442465F788038E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68931.jpgsave_picture_68931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68931.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|W
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68932.jpgsave_picture_68932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68932.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Trance Horizons, Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68933.jpgsave_picture_68933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68933.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Pop Evil - What Remains (2025) [FLAC 24/48, 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68934.jpgsave_picture_68934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68934.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:0DF962A3C8B14D1F061F18710F204FDE0B2EDE4F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68935.jpgsave_picture_68935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68935.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:B4ECC2C830C80669C2F9E9CC07A2EC50F3122168
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68936.jpgsave_picture_68936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68936.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:93D6FD4444C1D5F2D59614257CD58F061546FFB4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68937.jpgsave_picture_68937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68937.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D3BB22314F6DA724BB897FF79D53BE6D3C52856B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68938.jpgsave_picture_68938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68938.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - Rewind - 29 Italo Disco Classics (1997) 2CD [FLAC|Lossless|tracks+.cue] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68939.jpgsave_picture_68939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68939.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:A6E19193EE1B55BEB54B6AB905D709B206C7D5C0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68940.jpgsave_picture_68940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68940.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ StaxRip 2.46 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68941.jpgsave_picture_68941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68941.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - DJ Dance Rarities of the 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68942.jpgsave_picture_68942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68942.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:6F287C77B8CFFDBA86BA3F0DB924ABB928B1B52A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68943.jpgsave_picture_68943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68943.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:0A9796341E81A39F0FDB2B2E0886DEBFDE8792B4
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68944.jpgsave_picture_68944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68944.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:DC29BCDEFB25ADEC29C0E460010BCBCBA5874B12
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68945.jpgsave_picture_68945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68945.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:CA0AB4C1001B47FC877F8B68E474D22914C7CE52
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68946.jpgsave_picture_68946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68946.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:2E7AC6AC099E8E66052F297A05C89BE5385865E7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68947.jpgsave_picture_68947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68947.jpg" />
 </div>
 
 

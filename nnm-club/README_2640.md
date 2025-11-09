@@ -6,7 +6,7 @@ W.A. Production - Detroubler 1.0.0 VST, VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69390.jpgsave_picture_69390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69390.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Plugin Alliance & Kiive Audio - XTComp 1.0.2 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69391.jpgsave_picture_69391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69391.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C31EE7C4DF24F4AAAC1DE947E39312F7615C31A9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69392.jpgsave_picture_69392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69392.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:02BDC3D016AF954608AB462A1FA25F2532BE5C6E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69393.jpgsave_picture_69393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69393.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Armin van Buuren - A State Of Trance 1216 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69394.jpgsave_picture_69394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69394.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Ibiza Nights 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69395.jpgsave_picture_69395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69395.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:60E88A22ECD89718F9730C4FE8F3A3A512A5A555
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69396.jpgsave_picture_69396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69396.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Tierra Santa - Todos Somos Uno (2023) 2 x CD [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69397.jpgsave_picture_69397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69397.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:F00423344AFB71C0077BEAC518E113815DD1222F
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69398.jpgsave_picture_69398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69398.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:BB401614CBE8E141C4D1D3A9D40FC73CA1C1F5DF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69399.jpgsave_picture_69399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69399.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Sentenced - North From Here (1993) Reissue, 2009, 	Century Media [FLAC|24/96|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69400.jpgsave_picture_69400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69400.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:D7C4217F949E17F13F253737210D4124E05CB6FD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69401.jpgsave_picture_69401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69401.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Wrath of the Machines - Blood and Oil (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69402.jpgsave_picture_69402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69402.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Ori Uplift - Uplifting Only Episode 631 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69403.jpgsave_picture_69403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69403.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:EFEE435AC59F0E2E6ACACEBDA0FA43C8AED134C6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69404.jpgsave_picture_69404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69404.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Darghl - Satan Obscure. Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69405.jpgsave_picture_69405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69405.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Seventh Storm - Maledictus (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progress
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69406.jpgsave_picture_69406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69406.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:11AE5B0D3663E69980224660A739910366C09EF1
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69407.jpgsave_picture_69407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69407.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Athiel - Maw of the Curse (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69408.jpgsave_picture_69408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69408.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Impurity - The Eternal Sleep (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69409.jpgsave_picture_69409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69409.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Sentenced - Shadows of the Past (1991) Released, 2011, Century Media [FLAC|24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69410.jpgsave_picture_69410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69410.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Bud Powell - The Definitive Bud Powell (1947 - 1953) 2002, Blue Note [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69411.jpgsave_picture_69411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69411.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Legion of the Damned - The Poison Chalice (2023) [FLAC|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69412.jpgsave_picture_69412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69412.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Art Pepper - Timeless (1952, 1953) 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69413.jpgsave_picture_69413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69413.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - Rewind - 29 Italo Disco Classics (1997) 2CD [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69414.jpgsave_picture_69414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69414.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:0C7DA615F00DFCD0D2C58CE47C7A91565A3C3497
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69415.jpgsave_picture_69415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69415.jpg" />
 </div>
 
 

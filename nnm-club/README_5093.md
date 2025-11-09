@@ -6,7 +6,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159130.jpgsave_picture_159130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159130.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Software-testing.ru, Ольга Назина | Регулярные выраже
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159131.jpgsave_picture_159131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159131.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D11CE9F7114F5D566DB93DE68F3B222CD8829B1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159132.jpgsave_picture_159132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159132.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:0CA8E52D38929E7D084FF119A645DED0F2C381EB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159133.jpgsave_picture_159133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159133.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C7EA3F96AF9150AB6AA026296362D8555312ACB2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159134.jpgsave_picture_159134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159134.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:6FB9A6EF3A8A0E2AD883F77FA80FC2235F7C3E19
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159135.jpgsave_picture_159135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159135.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:135CBBD68CA3B54DF4542C95E6B1C2A1850B0B22
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159136.jpgsave_picture_159136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159136.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Udemy, Akhil Vydyula | The Complete 2023 SQL Bootcamp : Go from Zero to Hero (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159137.jpgsave_picture_159137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159137.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:10130F8AE7A65EB29A0FD6AE752DCDC2021CEAFB
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159138.jpgsave_picture_159138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159138.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:98C9A23122BDB026D3E51195DBEAC257C23CE5AD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159139.jpgsave_picture_159139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159139.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:3B424A8E464537949E70C2BF71CB08679FFF3C08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159141.jpgsave_picture_159141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159141.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:387D12CA973B691FF3379CDF39A0D2FCF5EB6F41
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159142.jpgsave_picture_159142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159142.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Utawarerumono: Futari no Hakuoro / Прославленный: Два белых
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159143.jpgsave_picture_159143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159143.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:81F183AD685A4B2DEC1A9A7570E027C14928ECA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159144.jpgsave_picture_159144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159144.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:CE9722E1A7F373A4BC479069B17936F96A04594A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159145.jpgsave_picture_159145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159145.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159146.jpgsave_picture_159146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159146.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Domestika, Liya | Manga Illustration with Procreate (2023) WEB-DL [DE / RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159147.jpgsave_picture_159147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159147.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:DEFC5E405A5540749B5CD2716943BE42A0FAE407
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159148.jpgsave_picture_159148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159148.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Space Tail: Every Journey Leads Home (2022) [Multi] (1.0.2r9/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159149.jpgsave_picture_159149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159149.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Find my kids / Где мои дети v2.6.89-google Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159150.jpgsave_picture_159150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159150.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159151.jpgsave_picture_159151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159151.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Reflection Of A Dream (2023) [MP3|320 Kbps] <Progressive, Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159152.jpgsave_picture_159152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159152.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ VA - Techno Universe (2023) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159153.jpgsave_picture_159153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159153.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:DCC39A2DAFA398ED8697E2A756BF1060898C2987
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159154.jpgsave_picture_159154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159154.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:06666DB286BC4B04DBCEA2A3EBFCDBFD17395EDD
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159155.jpgsave_picture_159155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159155.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ My TTS: Text-to-Speech v1.1.6 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159156.jpgsave_picture_159156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159156.jpg" />
 </div>
 
 

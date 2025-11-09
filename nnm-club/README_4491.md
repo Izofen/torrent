@@ -6,7 +6,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140453.jpgsave_picture_140453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140453.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:39FEA2C2BB924413BDFC1472C6DBC92110F7434E
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140454.jpgsave_picture_140454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140454.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E9B8A15EABC7C74C0DA48783BF49E36495543AA8
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140455.jpgsave_picture_140455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140455.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Master of Typing 3 - Practice 15.13.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140456.jpgsave_picture_140456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140456.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:687AC570A5DF9E4C3BDC9F17EA44BC0874BB3E9D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140460.jpgsave_picture_140460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140460.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:2230A5CF9D266040C69EAF3B7E3610E80819410E
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140461.jpgsave_picture_140461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140461.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ SeaMonkey 2.53.10.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140462.jpgsave_picture_140462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140462.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:685870168645C3F3A70F48CA5A21788BBBF240B6
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140463.jpgsave_picture_140463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140463.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A53356C2782A6506A71A9F452517D134976ADF1F
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140464.jpgsave_picture_140464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140464.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Emerald Rage - Valkyrie (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140465.jpgsave_picture_140465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140465.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:BD765F79C273D4BB9C3E7825E48E2F886C135430
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140466.jpgsave_picture_140466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140466.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:926515BCA884164A41251B2ED7F21F09276A09F9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140468.jpgsave_picture_140468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140468.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:6865296D5E6F50104AD4A058A3795BB7662C909E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140469.jpgsave_picture_140469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140469.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:61795C7A308D3204631D9D79CCEA82DA43B8486A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140470.jpgsave_picture_140470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140470.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:A077CE872C5685D03E91C88F5C149627C9191539
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140471.jpgsave_picture_140471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140471.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:13AE7C589AC28B05455C1A500C69E12C2790F5EE
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140472.jpgsave_picture_140472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140472.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Greta Van Fleet - The Battle at Garden’s Gate (2021) [AAC|~332 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140474.jpgsave_picture_140474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140474.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E66EA1A568FF799EC10B794BA8B1AC030C5828CD
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140475.jpgsave_picture_140475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140475.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:1B341E3DB1326648DE62453D594286B48EF210D0
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140476.jpgsave_picture_140476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140476.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:4047A34B8A791C5A29D977EA54D3C0B0166DB003
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140477.jpgsave_picture_140477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140477.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:6082AEAC9F8B5234CA6903C7F11908FF07659604
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140478.jpgsave_picture_140478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140478.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Big Something - Headspace (2023) [FLAC 24/44.1, 24/96|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140479.jpgsave_picture_140479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140479.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Shinmai Maou no Testament / The testament of sister new devil / Клятва о�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140480.jpgsave_picture_140480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140480.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:8700A047A8DCEE1F0BF1DD90DF518A50080BAEDE
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140482.jpgsave_picture_140482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140482.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:5D0FBACA16C317D5ED1F32966B4B29884F47473A
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140483.jpgsave_picture_140483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140483.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:F54CEEBBE044D932FE3EC7E338608E7C17EB3735
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140485.jpgsave_picture_140485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140485.jpg" />
 </div>
 
 

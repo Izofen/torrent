@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124311.jpgsave_picture_124311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124311.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F5F4331FDDE38E4144749418DE0563BF5F51834E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124312.jpgsave_picture_124312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124312.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:245C70492DD93726526A0619D29BCE4CB7CB4F3F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124313.jpgsave_picture_124313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124313.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D3719ACC751A3F32D264A134379CA4DEA453E715
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124314.jpgsave_picture_124314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124314.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D631583920D47E76027881D8D50F55A6F3A69730
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124315.jpgsave_picture_124315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124315.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124316.jpgsave_picture_124316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124316.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:06B0BFA258C9D49942463C357D2289ADE01DC350
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124317.jpgsave_picture_124317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124317.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:3AB7B6AA98AD828985763D8A447206BCAF536251
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124318.jpgsave_picture_124318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124318.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:CD8C1862F055D2572BC1247DE02A1E92715DF31C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124319.jpgsave_picture_124319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124319.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124320.jpgsave_picture_124320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124320.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:675326D0338B40FB08A748CA27870EF9CC342503
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124321.jpgsave_picture_124321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124321.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:0D52DB647085FBC67E4C3C0C74CF0C10A1D201DC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124322.jpgsave_picture_124322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124322.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:D9B3BB0B24FE92389EC6F90FCB16CEBC95D836F0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124323.jpgsave_picture_124323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124323.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:F84890CD30F5BBAAA4F9F373E4B4FC123B116EDB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124324.jpgsave_picture_124324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124324.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:ED87D612F23C25D78A257F5978CD0AA613E20599
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124325.jpgsave_picture_124325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124325.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:C3D7ED616A660B3E2475599F91B204CAD2CAFEDC
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124326.jpgsave_picture_124326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124326.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ DGM - Life (2023) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124327.jpgsave_picture_124327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124327.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:66FE8EAD0E8CA6F25479A05B6E34E83D7CC930D4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124328.jpgsave_picture_124328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124328.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E64C8C6C96007174B77310EF95BD5A5C002304CD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124329.jpgsave_picture_124329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124329.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:EFFAA33965EBB05484D3BB673D8E628AFF2D1F7C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124330.jpgsave_picture_124330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124330.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Opera GX 105.0.4970.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124331.jpgsave_picture_124331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124331.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:DC1EC3E0BAFF19E7C09D3C25FFD257F94D0A546C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124332.jpgsave_picture_124332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124332.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:3AD79DFACDA1D24F80D2C441B76849551EAEB887
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124333.jpgsave_picture_124333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124333.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Trance Anthems 2024 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124334.jpgsave_picture_124334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124334.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Spirit Adrift - Ghost At The Gallows (2023) [FLAC|Lossless|image + .cue] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124335.jpgsave_picture_124335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124335.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Sandboxie 5.67.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124336.jpgsave_picture_124336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124336.jpg" />
 </div>
 
 

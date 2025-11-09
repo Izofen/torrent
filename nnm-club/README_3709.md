@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116809.jpgsave_picture_116809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116809.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kerish PC Doctor 4.95 (Акция COMSS от 2024-02-19) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116810.jpgsave_picture_116810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116810.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DF0361AF43FDCE71E798E704FD8B53B9ED781533
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116811.jpgsave_picture_116811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116811.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:48AC517DE5E0E980458461A0BDAFA0E7F6A714F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116812.jpgsave_picture_116812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116812.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:615E065FE7BC5D85E3D0DDB7449723B62B24C70B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116813.jpgsave_picture_116813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116813.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:615E065FE7BC5D85E3D0DDB7449723B62B24C70B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116814.jpgsave_picture_116814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116814.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:AAD36E69691F88389B07A6FD35C94E835C49AA03
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116815.jpgsave_picture_116815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116815.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:D6DFC4C127324EEC6A63A90EFC39C5EAB44885F6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116816.jpgsave_picture_116816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116816.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Adobe InDesign 2024 19.2.0.46 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116817.jpgsave_picture_116817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116817.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:E5B3FA16B46D3B1BAE55CB35E051093DA7A606F6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116818.jpgsave_picture_116818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116818.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116819.jpgsave_picture_116819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116819.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SnippetsLab 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116820.jpgsave_picture_116820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116820.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ iBarcoder 3.14.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116821.jpgsave_picture_116821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116821.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bonestorm - Under The Sight Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116822.jpgsave_picture_116822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116822.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Barry Harris Trio - Plays Tadd Dameron & Thelonious Monk (1975 - 1984) 2008, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116823.jpgsave_picture_116823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116823.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Joshua Redman, Ron Miles, Scott Colley, Brian Blade - Still Dreaming (2018) None
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116824.jpgsave_picture_116824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116824.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Sujin - Save Our Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116825.jpgsave_picture_116825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116825.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Chimeras - Silent Cries in the Stifling Haze (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116826.jpgsave_picture_116826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116826.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dick Haymes - The Name's Haymes! (1958) 2015, Sepia Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116827.jpgsave_picture_116827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116827.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sundrifter - An Earlier Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116828.jpgsave_picture_116828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116828.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116829.jpgsave_picture_116829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116829.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116830.jpgsave_picture_116830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116830.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Deaf & Dumb - Evildarkrooted... Total Dumb (2013) Compilation [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116831.jpgsave_picture_116831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116831.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Donald Byrd - At The Half Note Cafe, Vol. 2 (1960) 1987, Blue Note [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116832.jpgsave_picture_116832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116832.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:E29D0B127A93C9434970DA1E3CF47AB7A3D5BFD8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116833.jpgsave_picture_116833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116833.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:C49421CBD50801E1B2D0B71D30BB2EFDDD1204CC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116834.jpgsave_picture_116834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116834.jpg" />
 </div>
 
 

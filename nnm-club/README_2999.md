@@ -6,7 +6,7 @@ Mac Blu-ray Player 2.1.0 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90352.jpgsave_picture_90352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90352.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mac Blu-ray Player является первым в мире универсал�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90353.jpgsave_picture_90353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90353.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:296D04D59578AC68D9410617364FCCDD7DDDCFF6
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90355.jpgsave_picture_90355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90355.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:296D04D59578AC68D9410617364FCCDD7DDDCFF6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90356.jpgsave_picture_90356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90356.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B07ACECCF207FCA63936DE3F0A448A7A62DDC20B
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90357.jpgsave_picture_90357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90357.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Paragon NTFS for Mac OS X 9.5.3 [Eng/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90358.jpgsave_picture_90358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90358.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Хиты с Катушек (1-54 Выпуск) (2004) [MP3|192 kbps]<Pop>
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90359.jpgsave_picture_90359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90359.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VA - Хиты с Катушек (1-54 Выпуск) (2004) [MP3|192 kbps]<Pop>
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90361.jpgsave_picture_90361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90361.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:36863ABEEDE318C91697336E7ABE73F806BD21C8
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90362.jpgsave_picture_90362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90362.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Autodesk Inventor Professional 2013 (x86, x64) (Русский, Английск
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90363.jpgsave_picture_90363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90363.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Autodesk® Inventor® – это семейство машиностроител
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90364.jpgsave_picture_90364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90364.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Autodesk® Inventor® – это семейство машиностроител
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90370.jpgsave_picture_90370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90370.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Autodesk® Inventor® – это семейство машиностроител
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90371.jpgsave_picture_90371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90371.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Linux GamePack 12.04 (L) [Русский] (2012)
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90373.jpgsave_picture_90373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90373.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Running Wild - Shadowmaker (2012) [FLAC|Lossless]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90375.jpgsave_picture_90375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90375.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Running Wild - Shadowmaker (2012) [FLAC|Lossless]<Heavy Metal>
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90376.jpgsave_picture_90376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90376.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ BitTorrent 7.6.1 Build 27098 + Portable [Multi(Rus)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90377.jpgsave_picture_90377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90377.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ BitTorrent - клиентская программа пиринговой сет
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90379.jpgsave_picture_90379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90379.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90380.jpgsave_picture_90380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90380.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Kreuzweg Ost - 3 albums (2001-2012) [FLAC|Lossless] <Martial Industrial, Neoclas
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90382.jpgsave_picture_90382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90382.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:EAD7A20268F0757BAE9C44E9BDC5C2EF9029775E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90384.jpgsave_picture_90384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90384.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90386.jpgsave_picture_90386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90386.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:AA3F7BC619FC3E992E29E65E6C143CA179483F27
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90389.jpgsave_picture_90389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90389.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:9C839EFB28FAE8AEEAF452F0441B3A77B2EEF507
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90392.jpgsave_picture_90392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90392.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Fantasy wallpapers 001
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90397.jpgsave_picture_90397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90397.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Greatest Ever! Prog Rock (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90399.jpgsave_picture_90399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90399.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ JetBrains Clion 2023.1.5 for Mac Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207657.jpgsave_picture_207657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207657.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Psiphon 3 build 179 (30.07.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207658.jpgsave_picture_207658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PDF24 Creator 11.13.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207660.jpgsave_picture_207660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207660.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:09A8AC94424D1B8509CD0836CB4DAC0291E75D6D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207662.jpgsave_picture_207662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207662.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Hudozhnik Online, Екатерина Бердюгина | Анатомия ко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207666.jpgsave_picture_207666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207666.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ FastCopy 5.2.5 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207667.jpgsave_picture_207667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207667.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:996D4CBE327C0B4CEF434DB8999174E009A1565B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207668.jpgsave_picture_207668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207668.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ HashMyFiles 2.44 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207669.jpgsave_picture_207669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207669.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8C7096EC058FC82B472D3E0F1F1A1DB3FB5D954D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207674.jpgsave_picture_207674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207674.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:7ED57BC0A1B48E9AC32DB63763BB9D5C135261DA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207675.jpgsave_picture_207675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207675.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpgsave_picture_207678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207683.jpgsave_picture_207683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207683.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Eagles - Beacon Theatre, New York 1974 (2016) Reissue, 2023, Zip City [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207684.jpgsave_picture_207684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207684.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:CA15BF6964C430DE9D49317E7050624EC049657A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207686.jpgsave_picture_207686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207686.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:E1A9DA00C561D65F449F47DDC66F0A8BA4D3502E
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207690.jpgsave_picture_207690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207690.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Hex Editor Neo Ultimate 7.35.00.8564 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207693.jpgsave_picture_207693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207693.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ DoYourData Start Menu Pro 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207696.jpgsave_picture_207696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207696.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:D3E87A00D15C76D597F0E3DE0332D1A38780F87E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207697.jpgsave_picture_207697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207697.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:F2347B3C91DB546EC071E7EF73A4CCCCFD1FBFD0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207700.jpgsave_picture_207700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207700.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Prodigy - The Fat Of The Land 25th Anniversary - Remixes (2023) [FLAC|Lossle
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207701.jpgsave_picture_207701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207701.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Трибьют Валерии (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207704.jpgsave_picture_207704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207704.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:8A959E8F36EC21D0D0C2A5A752736028342B4F37
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207708.jpgsave_picture_207708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207708.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:BC7077A58B91CE1DB3FDA282C1C9C46871FEDADC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207710.jpgsave_picture_207710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207710.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Blur - The Ballad Of Darren (2023) [FLAC|24/44.1|tracks|WEB-DL] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207711.jpgsave_picture_207711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207711.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Wondershare Repairit 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207714.jpgsave_picture_207714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207714.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:380828FDFAB05BA6A17C954F8B8469387FA854AC
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207716.jpgsave_picture_207716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207716.jpg" />
 </div>
 
 

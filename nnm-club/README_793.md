@@ -6,7 +6,7 @@
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20946.jpgsave_picture_20946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20946.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2D1E661CFC6DC8DF26AEC7551D4B7BB9895480A0
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20947.jpgsave_picture_20947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20947.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A3E68F28EC4A776609A9D17FFA3D8E95F28AE144
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20948.jpgsave_picture_20948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20948.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.0 #39095/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20949.jpgsave_picture_20949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20949.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FFF0D8BA6B052D5C0A2B8689726D6CC1EDEB2BB2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20950.jpgsave_picture_20950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20950.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Vampire Hunters (2023) [Ru/Multi] (1.3.0.CL11455) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20951.jpgsave_picture_20951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20951.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:B4C28069FA4838F6C32FEEDA984F6450BA3BA7FF
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20952.jpgsave_picture_20952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20952.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:7FB08434751A62F7B508C95ABE5BDC00FD5F5C67
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20953.jpgsave_picture_20953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20953.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:759ACA6CB10AE97ACEC65C910A95091122B8D047
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20954.jpgsave_picture_20954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20954.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack FitGirl [Ultimate 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20955.jpgsave_picture_20955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20955.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:B510157F5992F84E1A362DDAFC4C67C2C11AC934
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20956.jpgsave_picture_20956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20956.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:042BDC0A09C93B54EF8B3D9FFAF41D51DC34424F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20957.jpgsave_picture_20957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20957.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20958.jpgsave_picture_20958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20958.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:C21199E5141DDE66AE81B10185873A6AABFE05A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20959.jpgsave_picture_20959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20959.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:C30AB9F4EE11B874C043AD23147323FBCE5FCEBF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20960.jpgsave_picture_20960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20960.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:49A2866945D180E13F7D3D008576D9B0C6A03D0F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20961.jpgsave_picture_20961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20961.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:D66D15F25CC614237F58071BF30E0ED6F9396066
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20962.jpgsave_picture_20962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20962.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ UBOAT (2019) [Ru/Multi] (2025.1.1 Patch 1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20963.jpgsave_picture_20963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20963.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Smart Reading | Саморазвитие на 100% 10 важных книг в �
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20964.jpgsave_picture_20964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20964.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:F842D1666D72E0D0C88F2CCB0B37B1BCCCD50DDD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20965.jpgsave_picture_20965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20965.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Echoes of Yi : Samsara (2025) [Ru/Multi] (16,270) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20966.jpgsave_picture_20966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20966.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20967.jpgsave_picture_20967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20967.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:13AC45DCEDC0DBF3CE061B5C4FBF31841B4861A0
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20968.jpgsave_picture_20968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20968.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:B6F99F18ACCB556F8A9D2B01EAF69AEB2EEAACEE
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20969.jpgsave_picture_20969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20969.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Mod Pack для X3: Albion Prelude и X3: Terran Conflict (2016-2023) [Ru/En] (1
 >>32
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20970.jpgsave_picture_20970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20970.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:7A7AD832BDAF87D7B4359993E11E21111A53EA4D
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20971.jpgsave_picture_20971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20971.jpg" />
 </div>
 
 

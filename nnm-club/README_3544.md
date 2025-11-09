@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112519.jpgsave_picture_112519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112519.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cycling'74 Max 8.6.2 + RNBO U2B [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112520.jpgsave_picture_112520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112520.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B114A9171672EEA87671DB003297707239231EEE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112521.jpgsave_picture_112521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112521.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B114A9171672EEA87671DB003297707239231EEE
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112522.jpgsave_picture_112522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112522.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Skype 8.115.0.217 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112523.jpgsave_picture_112523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112523.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:249F1B309607708B22B28DD37963A6BEF14559DA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112524.jpgsave_picture_112524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112524.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Togu Audio Line - TAL-Pha 1.1.8 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112525.jpgsave_picture_112525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112525.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:ACD92F70798E3BBA9225C13B250DB74775C6FFDB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112526.jpgsave_picture_112526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112526.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:DB5355F4544DBD5E740A8253C74A5DC7903A0B8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112527.jpgsave_picture_112527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112527.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ StaxRip 2.37.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112528.jpgsave_picture_112528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112528.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112529.jpgsave_picture_112529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112529.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Norman Brown - It Hits Different (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112530.jpgsave_picture_112530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112530.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Wynton Marsalis - Sweet Release & Ghost Story (1999) Columbia [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112531.jpgsave_picture_112531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112531.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:922B882014D8E69E9A8F531A7DFDD78931A5AAAF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112532.jpgsave_picture_112532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112532.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:1B9374FB777A9BAC03EA783A109212EC4A94E065
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112533.jpgsave_picture_112533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112533.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112534.jpgsave_picture_112534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112534.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112535.jpgsave_picture_112535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112535.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:EC7C66701081AE9C3A06DB3D28F7637A6FC847A7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112536.jpgsave_picture_112536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112536.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ TONSTURM - DopplerPRO 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112537.jpgsave_picture_112537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112537.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Togu Audio Line - TAL-J-8 1.8.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112538.jpgsave_picture_112538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112538.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sante DICOM Viewer Pro 14.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112539.jpgsave_picture_112539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112539.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kdenlive 24.02.1 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112540.jpgsave_picture_112540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112540.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Chromium 123.0.6312.87 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112541.jpgsave_picture_112541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112541.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:AB354D192ECBED04F35DF7920B08E00A58954736
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112542.jpgsave_picture_112542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112542.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:0F5AF3534AC86A44D618ECDEE755F19370E15080
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112543.jpgsave_picture_112543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112543.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:A297DB2834682FFE9C2F592F921E627FC1717712
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112544.jpgsave_picture_112544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112544.jpg" />
 </div>
 
 

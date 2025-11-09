@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113507.jpgsave_picture_113507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113507.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52B83A52FF3EE50EF4DB195C7E02E0E05F879217
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113508.jpgsave_picture_113508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113508.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ System Toolkit 6.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113509.jpgsave_picture_113509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113509.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RSS Guard 4.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113510.jpgsave_picture_113510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113510.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dragonforce - Warp Speed Warriors (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113511.jpgsave_picture_113511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113511.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:B16F3CDF2164BE5FC3780F9E6B8FE2DBD754297B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113512.jpgsave_picture_113512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113512.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113513.jpgsave_picture_113513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113513.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Ubuntu*Pack 20.04 MATE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113514.jpgsave_picture_113514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113514.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Ubuntu*Pack 20.04 Unity (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113515.jpgsave_picture_113515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113515.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Ubuntu*Pack 20.04 DDE (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113516.jpgsave_picture_113516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113516.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113517.jpgsave_picture_113517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113517.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113518.jpgsave_picture_113518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113518.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Microsoft Visual Studio 2022 Enterprise 17.9.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113519.jpgsave_picture_113519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113519.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Fun Fun - Double Fun (1987) Reissue, 2023, ESonCD [FLAC|Lossless|image + .cue] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113520.jpgsave_picture_113520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113520.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Chillhop Essentials Spring (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113521.jpgsave_picture_113521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113521.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ubuntu*Pack 20.04 Budgie (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113522.jpgsave_picture_113522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113522.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:D7312847B66281CAEC4A6D562CE5BA0427F26C8B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113523.jpgsave_picture_113523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113523.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ PDFCreator 5.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113524.jpgsave_picture_113524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113524.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:44EFCA2A280C6F8CC6BC56F71C13396444DB1085
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113525.jpgsave_picture_113525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113525.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Musify for Mac 3.5.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113526.jpgsave_picture_113526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113526.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Andy Lindquist - Unravel the Gravel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113527.jpgsave_picture_113527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113527.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:BD3B7F541A3C76808E1741D89C3E5EB2C38E5083
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113528.jpgsave_picture_113528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113528.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113529.jpgsave_picture_113529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113529.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:DA3C6C8F97FB97331223D093F38350C9AFEF4B66
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113530.jpgsave_picture_113530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113530.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Gene Harris Quartet - Another Night In London (1996) 2010, Resonance Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113531.jpgsave_picture_113531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113531.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Sonny Stitt - No Greater Love (1981) 2001, TKO Magnum Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113532.jpgsave_picture_113532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113532.jpg" />
 </div>
 
 

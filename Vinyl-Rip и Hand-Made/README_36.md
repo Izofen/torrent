@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113826.jpgsave_picture_113826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113826.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113827.jpgsave_picture_113827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113827.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:1806501DB310E439618365EECA7B6C15C330B054
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113828.jpgsave_picture_113828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113828.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Зем
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113855.jpgsave_picture_113855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113855.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Paul Anka - Paul Anka (1991) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113870.jpgsave_picture_113870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113870.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113875.jpgsave_picture_113875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113875.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Shylmagoghnar - Studio Albums (3 releases) (2014-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113888.jpgsave_picture_113888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113888.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113894.jpgsave_picture_113894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113894.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Для вас, женщины! Деловая женщина (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113898.jpgsave_picture_113898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113898.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:5A51DA18CE547C93F9EB9C7F779BB758908DAC2E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113925.jpgsave_picture_113925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113925.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113952.jpgsave_picture_113952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113952.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Дум
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113958.jpgsave_picture_113958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113958.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113963.jpgsave_picture_113963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113963.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - With love to children (С любовью к детям) (1991) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113973.jpgsave_picture_113973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113973.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113987.jpgsave_picture_113987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113987.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Emerson, Lake & Palmer - Trilogy (1972) 1990-е [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113997.jpgsave_picture_113997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113997.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:018E67962A302C3D49C479902155EFD3BE49917E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114018.jpgsave_picture_114018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114018.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:39ED83346B49088FF2ADF07D0BC7F29EC076C01F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114020.jpgsave_picture_114020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114020.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Ivo Linna - Поёт Иво Линна (1983) [FLAC 24/192|Lossless|tracks] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114032.jpgsave_picture_114032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114032.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Jimmy Goings & Santa Esmeralda - Green Talisman (1982) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114033.jpgsave_picture_114033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114033.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Solitude Aeturnus - Hour of Despair (2007) hand made remaster [FLAC 16/44.1|Loss
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114102.jpgsave_picture_114102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114102.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:CA2FC63CE1C1277C0DD28CD8872CC0437D4B0D97
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114120.jpgsave_picture_114120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114120.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк и Пауэлл (1986) 1988 [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114124.jpgsave_picture_114124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114124.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114145.jpgsave_picture_114145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114145.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114149.jpgsave_picture_114149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114149.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ magnet:?xt=urn:btih:C9B0338FA0BE02B97BBC4303B65333763CE2B661
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114153.jpgsave_picture_114153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114153.jpg" />
 </div>
 
 

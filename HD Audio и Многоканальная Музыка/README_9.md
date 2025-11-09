@@ -6,7 +6,7 @@ Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6239.jpgsave_picture_6239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6239.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Geoff Mann, Herbie Mann - Underground (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6241.jpgsave_picture_6241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6241.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Felice Lionetti - True (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6243.jpgsave_picture_6243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6243.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Greg Chako - Comfort Food (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6244.jpgsave_picture_6244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6244.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Bob Forte - Quarter Till Midnight (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6245.jpgsave_picture_6245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6245.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Adegoke Steve Colson & Iqua Colson - Glow: Music for Trio... Add Voice (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6246.jpgsave_picture_6246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6246.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Heber Ataza - Viajando (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6247.jpgsave_picture_6247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6247.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Greenberg Group - More Swans! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6248.jpgsave_picture_6248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6248.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Helloijan - Senja di Pantai Morib (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6262.jpgsave_picture_6262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6262.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fabia Mantwill Orchestra - IN.SIGHT (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6264.jpgsave_picture_6264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6264.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Three Days Grace - Alienation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6278.jpgsave_picture_6278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6278.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ John Fogerty - Legacy: the Creedence Clearwater Revival years (John's Version) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6299.jpgsave_picture_6299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6299.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Three Days Grace - Studio Albums (8 releases) (2003-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6367.jpgsave_picture_6367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6367.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jack The Joker - The Devil To Pay In The Backlands (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6396.jpgsave_picture_6396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6396.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6413.jpgsave_picture_6413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6413.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Rise Against - Ricochet (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6414.jpgsave_picture_6414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6414.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Myrath - Reflections: Best Of (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6415.jpgsave_picture_6415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6415.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Deftones - Private Music (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Nu-Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6425.jpgsave_picture_6425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6425.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Blackbriar - Studio Albums (6 releases) (2017-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6475.jpgsave_picture_6475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6475.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6484.jpgsave_picture_6484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6484.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6498.jpgsave_picture_6498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6498.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6505.jpgsave_picture_6505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6505.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Dashiell Royston - Soul and Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6582.jpgsave_picture_6582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6582.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ JP LeBlanc - All In My Blood / Je l'ai dans l'sang (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6583.jpgsave_picture_6583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6583.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Heaven Shall Burn - Studio Albums (11 releases) (1998-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6584.jpgsave_picture_6584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6584.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Kellen Brixton - Mindstate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6585.jpgsave_picture_6585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6585.jpg" />
 </div>
 
 

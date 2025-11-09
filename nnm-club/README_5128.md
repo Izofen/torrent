@@ -6,7 +6,7 @@ Macrorit Disk Scanner 6.1.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160060.jpgsave_picture_160060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160060.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:59079DC0F10237591249D0BF11F86084231FA80A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160062.jpgsave_picture_160062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160062.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Aiseesoft HEIC Converter 1.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160063.jpgsave_picture_160063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160063.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:12506D7849058D37BE52E89BD28650E79E066147
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160064.jpgsave_picture_160064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160064.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Advanced Installer 20.2 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160065.jpgsave_picture_160065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160065.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9064C96E2BFBFA092077697B01618B5DCE5109F2
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160066.jpgsave_picture_160066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160066.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A59AE07161A48D29475B398F5895C9BF567BBBB2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160067.jpgsave_picture_160067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160067.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2A06B0D7741B2974A52E9FB9FAA0D85470F5D3BA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160068.jpgsave_picture_160068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160068.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Start11 Version 2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160069.jpgsave_picture_160069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160069.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - THE BEST OF EFFECTIVE RECORDS 2022 (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160070.jpgsave_picture_160070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160070.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:182F22F51E3684D57A4BBB3B104EF52DA0A77D2F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160071.jpgsave_picture_160071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160071.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:EF07F81279DD5B2B2DFA4BC7351AD37FE86EBE5C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160072.jpgsave_picture_160072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160072.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:2BCEE4BCAC080D0D300655D52ABC04296191E196
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160073.jpgsave_picture_160073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160073.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Start11 Version 2.0 BETA 1.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160074.jpgsave_picture_160074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160074.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:7A094BAD1F18A1C9DBC1933955DFE4297D7E8472
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160075.jpgsave_picture_160075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160075.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:7462303003BD2ADF469FCE501B6B0873775226A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160076.jpgsave_picture_160076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160076.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:157DA1F5185C365B0B0161B28949B12769F43259
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160077.jpgsave_picture_160077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160077.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:B9A6763F500192E75EBC3C68431710B71CF09E13
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160078.jpgsave_picture_160078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160078.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ MAGIX Samplitude Pro X7 Suite 18.2.0.22559 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160079.jpgsave_picture_160079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160079.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:91E1CE08A5C1B5177BBF8C18CD5573EF892DBA58
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160080.jpgsave_picture_160080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160080.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:95D208A5744C0F76B50B2527E1752DD3712068D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160081.jpgsave_picture_160081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160081.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Sandboxie plus 1.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160082.jpgsave_picture_160082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160082.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1F0F6768439BB6CEE11B82260EB70FA1E0AC6974
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160083.jpgsave_picture_160083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160083.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ TunesKit iPhone Unlocker 2.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160084.jpgsave_picture_160084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160084.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Frank Zappa - Waka/Wazoo (2022) 4 x CD, Box Set, Compilation, Reissue, Remastere
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160085.jpgsave_picture_160085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160085.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:FF298CFD12CC02A502E06E00203646BF418C42EA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160086.jpgsave_picture_160086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160086.jpg" />
 </div>
 
 

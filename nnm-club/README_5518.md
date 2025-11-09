@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170436.jpgsave_picture_170436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170436.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Jojo Effect - Spreading Rhythm (2022) [FLAC|Lossless|WEB-DL|tracks] <Future Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170437.jpgsave_picture_170437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170437.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - A Strangely Isolated Place 2019 (2019) ASIP [FLAC 2.0|44.1/24|tracks|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170438.jpgsave_picture_170438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170438.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:DA0A650B40BF14FBC31011ADAD8188DDBEF3A0AF
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170439.jpgsave_picture_170439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170439.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ WinTools.net Premium 20.12.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170440.jpgsave_picture_170440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170440.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Caffeinated 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170441.jpgsave_picture_170441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170441.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Memoria Avenue - Memoria Avenue (2021) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170442.jpgsave_picture_170442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170442.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Ashampoo Burning Studio 21.0.0.33 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170443.jpgsave_picture_170443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170443.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:22C4AA779C7C036D2637FEFDEDA7C39288D45EE9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170444.jpgsave_picture_170444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170444.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:7C659FF6D656E85FEA48A500D12D9021759C21DB
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170445.jpgsave_picture_170445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170445.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:83BB40461F339D67E43250F8966AAB269D0775BF
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170446.jpgsave_picture_170446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170446.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:44126FE10F18A5A9D4ED468552E4AD336AB31C82
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170447.jpgsave_picture_170447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170447.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Project Office Pro 9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170448.jpgsave_picture_170448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170448.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ End - The Sin of Human Frailty (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170449.jpgsave_picture_170449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170449.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Skype 8.55.0.123 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170450.jpgsave_picture_170450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170450.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Quick Brain / Упражнения для мозга v2.5.9 [Ru/Multi] (обно
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170451.jpgsave_picture_170451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170451.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ MenuBar Stats 3 v3.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170452.jpgsave_picture_170452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170452.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:EDA71FE5302AA987CB6B95EFB6D75C8050C8C886
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170453.jpgsave_picture_170453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170453.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:A2E2AC66D08CAF92A41B7109837D0D1566FD1A56
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170454.jpgsave_picture_170454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170454.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Levitated - Trance Essentials Vol. 3 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170455.jpgsave_picture_170455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170455.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ W.E.B. - Into Hell Fire We Burn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Extr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170456.jpgsave_picture_170456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170456.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ MaxCommander 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170458.jpgsave_picture_170458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170458.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:65B5C1DA642927779F72E883D6286B5C6484C0CE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170459.jpgsave_picture_170459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170459.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:65BF2D9445D23B13E417A663C7C7309E28EB5D30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170460.jpgsave_picture_170460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170460.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Slugdge - Esoteric Malacology (2018) [WavPack|Lossless|image + .cue] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170461.jpgsave_picture_170461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170461.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170462.jpgsave_picture_170462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170462.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174079.jpgsave_picture_174079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174079.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Gothic Sky - Последние Слова Покаяния (2023) [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174080.jpgsave_picture_174080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174080.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BetterTouchTool 4.212 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174081.jpgsave_picture_174081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174081.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:FD730A8551DB2A60C6C437CBA4BB1003BEEB40BB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174082.jpgsave_picture_174082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174082.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Manzanita Blues - Cobalt (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174083.jpgsave_picture_174083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174083.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:75F402BF4C58E0AB40F30D7262A8F9F2AA59BBDF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174084.jpgsave_picture_174084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174084.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ AnyDesk 6.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174086.jpgsave_picture_174086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174086.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Arabs In Aspic - 3 Albums (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174087.jpgsave_picture_174087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174087.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:8A98B8A791040B64DB6DB1C9CBD8362241974292
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174089.jpgsave_picture_174089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174089.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:8601602BE4A4ABE20C3C9714512D3390A28EDDDA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174090.jpgsave_picture_174090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174090.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Jon Balke & Siwan - Hafla (2022) [FLAC|Lossless|tracks + .cue] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174092.jpgsave_picture_174092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174092.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:9ABA220C0D1C6DC4A262EF2D88BE55F72A6A3851
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174093.jpgsave_picture_174093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174093.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:3689042F030915FB3D6F65BDD877A008F5C6F800
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174094.jpgsave_picture_174094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174094.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:5B03352529F3529A28EDD304105566DF52978B71
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174095.jpgsave_picture_174095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174095.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:0F8A2591470F08A82E71B19FC97E9B7F76F3F720
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174096.jpgsave_picture_174096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174096.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Living Dead Girl - Exorcism (2021) Deluxe Edition, 2023, Buried Alive Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174097.jpgsave_picture_174097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174097.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Circus Maximus - Nine Live (2019) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174098.jpgsave_picture_174098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174098.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:5AA2071C4D8FD155BE8C444488496D923484334F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174099.jpgsave_picture_174099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174099.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Русская народная колыбельная песня (2001) [M
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174100.jpgsave_picture_174100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174100.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Lee Shot William - Southern Soul Icon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174101.jpgsave_picture_174101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174101.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Wendigo - Темный ритуал (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174103.jpgsave_picture_174103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174103.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Symantec Endpoint Protection 14.3 RU1 3384 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174104.jpgsave_picture_174104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174104.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:C29318E09BB83C58C325F20EF2807F21DDD872D5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174105.jpgsave_picture_174105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174105.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:976DFFFD81EF3E4B973B0DCBDED68D9D2B4B666D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174106.jpgsave_picture_174106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174106.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:8EEA1FE0856046FD0D766B46E7D364F3D2DCCD29
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174107.jpgsave_picture_174107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174107.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Carmela Blues Trio - Blend (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Gospel>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174108.jpgsave_picture_174108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174108.jpg" />
 </div>
 
 

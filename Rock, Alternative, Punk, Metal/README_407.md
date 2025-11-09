@@ -6,7 +6,7 @@ Exmortus - The Sound Of Steel (2018) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234010.jpgsave_picture_234010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234010.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Memoria - Memoria (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234022.jpgsave_picture_234022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234022.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Billy Talent - Live at Festhalle Frankfurt (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234025.jpgsave_picture_234025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234025.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Moodoid - Primadonna Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234031.jpgsave_picture_234031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234031.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:D23A6E592A7EC5F59E08C65EA88D47B54A2794C5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234040.jpgsave_picture_234040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234040.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Kinks - Soap Opera (1975) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234047.jpgsave_picture_234047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234047.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Reckless - T.M.T.T.80 (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234048.jpgsave_picture_234048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234048.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Stormwarning - Stormwarning (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234055.jpgsave_picture_234055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234055.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Space Vacation - White Hot Reflection (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234056.jpgsave_picture_234056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234056.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Armored Dawn - Viking Zombie (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234060.jpgsave_picture_234060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234060.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Exmortus - In Hatred's Flame (2008) [FLAC|Lossless|image + .cue] <Death Metal, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234061.jpgsave_picture_234061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234061.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Tysondog - Midnight (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234063.jpgsave_picture_234063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234063.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Outer Head - Delirium (2023) [MP3|320 Kbps] <Psych Doom, Stoner, 70's>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234067.jpgsave_picture_234067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234067.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ American Grim - 1947 (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Rap 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234069.jpgsave_picture_234069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234069.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Exmortus - Ride Forth (2016) [FLAC|Lossless|image + .cue] <Death Metal, Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234072.jpgsave_picture_234072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234072.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Metasphaera - Metasphaera (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234075.jpgsave_picture_234075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234075.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Greenbeard - 7 Albums (2014-2022) [MP3|320 Kbps, V0] <Stoner Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234080.jpgsave_picture_234080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234080.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Soap Opera - Back On Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234082.jpgsave_picture_234082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234082.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Somali Yacht Club - The Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234087.jpgsave_picture_234087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234087.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Terra Black - All Descend (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner, Da
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234088.jpgsave_picture_234088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234088.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Chapter - Delusion of Consciousness (2022) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234089.jpgsave_picture_234089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234089.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Hempress - Masters Of The Trade (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234093.jpgsave_picture_234093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234093.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Memoriam - Rise To Power (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234096.jpgsave_picture_234096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234096.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Satan's Host - This Legacy Will Never Die (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234101.jpgsave_picture_234101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234101.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jake Stack & The Unincorporated - Heavy Is the Head (2023) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234102.jpgsave_picture_234102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234102.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sideless - Choose the Way (2022) [MP3|320 Kbps] <Heavy Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234110.jpgsave_picture_234110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234110.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Patti Parks - Come Sing With Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122771.jpgsave_picture_122771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122771.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Chronicles, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122772.jpgsave_picture_122772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122772.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Electronic compilation part 42 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122773.jpgsave_picture_122773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122773.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:27DE65D452C70D58A7002E42A643E59B05056E53
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122774.jpgsave_picture_122774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122774.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:EC999F195330A701578746B0E66A76B97FD7D113
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122775.jpgsave_picture_122775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122775.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:E7830BC54BF0EF7DEC7169EE432A06EC4DDC5CF5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122776.jpgsave_picture_122776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122776.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:BE07CDF4EE68782E84B247483B9ED7AEC1E8135C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122777.jpgsave_picture_122777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122777.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:983E445AAEADD3E3E2CB56389BC06D6F7C1DE15E
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122778.jpgsave_picture_122778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122778.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:5FD3BB083E23852B99106381919137F7D555480D
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122779.jpgsave_picture_122779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122779.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:89BA8A2B9AC0E804E12944BC12DE79D4E3983D90
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122780.jpgsave_picture_122780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122780.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:F1562AB371B74647B9F91252A9C16918ADCC2512
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122781.jpgsave_picture_122781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122781.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Draw.io 22.1.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122782.jpgsave_picture_122782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122782.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:64F22720618B99D4530485F02895E4C9BAF55FAF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122783.jpgsave_picture_122783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122783.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:3872622E4F220BD40DBA5ADFAC526465D60B669E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122784.jpgsave_picture_122784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122784.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Burn the Witch #0.8: Don't Judge a Book by Its Cover | Сжечь ведьму (
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122785.jpgsave_picture_122785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122785.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Chris Rea - The Blue Cafe (1998) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122786.jpgsave_picture_122786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122786.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:95A499703A95C11A009B16FC4355413CDB865CFD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122787.jpgsave_picture_122787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122787.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VidCoder 9.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122788.jpgsave_picture_122788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122788.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Fort Rock Fest (2024) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122789.jpgsave_picture_122789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122789.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Overlorde - Awaken the Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122790.jpgsave_picture_122790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122790.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:AE9F0BB96F4CBDDAA394E786B9F1B86492C09254
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122791.jpgsave_picture_122791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122791.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:E1DF782F19A358CD59CF23BF6F5B3FBE753BA69C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122792.jpgsave_picture_122792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122792.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:FC31E52722AF4919F18766E8081BF018ADDEFEE5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122793.jpgsave_picture_122793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122793.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:28851D44C623C73DB32102ACB5AAB5897366E54D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122794.jpgsave_picture_122794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122794.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ IObit Driver Booster Pro 11.2.0.46 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122795.jpgsave_picture_122795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122795.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Macrorit Partition Expert 8.1.3 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122796.jpgsave_picture_122796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122796.jpg" />
 </div>
 
 

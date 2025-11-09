@@ -6,7 +6,7 @@ VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85877.jpgsave_picture_85877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85877.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85879.jpgsave_picture_85879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85879.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ Mario Biondi And The Unexpected Glimpses - Due (2011) [FLAC|Lossless]<Jazz, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85880.jpgsave_picture_85880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85880.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Tito Rodriguez - Indian Spirit Meditation. Only Instrumental (2008) [MP3|320 к�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85881.jpgsave_picture_85881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85881.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85883.jpgsave_picture_85883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85883.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85884.jpgsave_picture_85884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85884.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ SAM CoDeC Pack & SAM DeCoDeR Pack 2012 v4.05 Final[Best]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85885.jpgsave_picture_85885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85885.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - From Russia With Italo Disco (2012) [FLAC|Lossless]<Italo Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85886.jpgsave_picture_85886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85886.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - From Russia With Italo Disco (2012) [FLAC|Lossless]<Italo Disco>
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85887.jpgsave_picture_85887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85887.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:712C77AACA50A40FA5959C47957EF30BB08F244B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85888.jpgsave_picture_85888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85888.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:6F5D1C50A04AADB673CA3574D71066E8947C5213
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85889.jpgsave_picture_85889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85889.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Дискотека Бездна Original 50/50 vol. 3 (2012) [MP3|128-320 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85891.jpgsave_picture_85891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85891.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:A520584EA4957F78BDFC4E0A532DF0095FAA3531
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85892.jpgsave_picture_85892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85892.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:A520584EA4957F78BDFC4E0A532DF0095FAA3531
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85894.jpgsave_picture_85894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85894.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ DJ Boomer - DA BASS 9 (2005) [FLAC|Lossless]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85900.jpgsave_picture_85900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85900.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ N/A2005Жанр: Drum & BassПродолжительность: 01:16:54
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85902.jpgsave_picture_85902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85902.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:ADC3FC78ACDBE6FB547E678DF1AE0991E02FF9A6
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85903.jpgsave_picture_85903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85903.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:ADC3FC78ACDBE6FB547E678DF1AE0991E02FF9A6
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85907.jpgsave_picture_85907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85907.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Serenity - 3 альбома (2007 - 2011) [FLAC|Lossless]<Progressive Metal,Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85908.jpgsave_picture_85908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85908.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Serenity - 3 альбома (2007 - 2011) [FLAC|Lossless]<Progressive Metal,Symp
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85909.jpgsave_picture_85909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85909.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:E6DB7713CA88518DE6E7BEC6DFE88C88CFC13BCA
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85912.jpgsave_picture_85912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85912.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:753B881436E423AD8E488494B1CFD4BA3601E71F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85914.jpgsave_picture_85914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85914.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:753B881436E423AD8E488494B1CFD4BA3601E71F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85915.jpgsave_picture_85915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85915.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ MVP Loops - Fret: Pro RnB & Pop Guitar Loops (Wav, Aiff, RX2)[английски
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85917.jpgsave_picture_85917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85917.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Fret Pro RnB & Pop Guitar Loops - Петли акустических, элек�
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85918.jpgsave_picture_85918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85918.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ magnet:?xt=urn:btih:0660C64D55A4C928DB20069F3E5B0331A376BC02
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85920.jpgsave_picture_85920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85920.jpg" />
 </div>
 
 

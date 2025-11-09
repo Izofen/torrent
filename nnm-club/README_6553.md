@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209148.jpgsave_picture_209148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209148.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Just Color Picker 5.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209149.jpgsave_picture_209149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209149.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2EAD00503A5754DEAB83712ABC6B8583B2A80982
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209152.jpgsave_picture_209152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209152.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpgsave_picture_209153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ TaskSchedulerView 1.73 Portable [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209154.jpgsave_picture_209154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209154.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:FC498C6BD684895CAA00D74AEE6FD033B7B401B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209157.jpgsave_picture_209157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209157.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:9752A069B84F91AE3EFBD739546B476571706A38
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209160.jpgsave_picture_209160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209160.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ SoundSwitch 6.7.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209161.jpgsave_picture_209161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209161.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9FF0394493063090A54F26A2184916865063D0D2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209162.jpgsave_picture_209162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209162.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Transcend SSD Scope 4.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209163.jpgsave_picture_209163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209163.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:520203D347BA1855803CD20936A3D7DCB34DE730
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209167.jpgsave_picture_209167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209167.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209168.jpgsave_picture_209168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209168.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Music News vol.279 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209171.jpgsave_picture_209171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209171.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209173.jpgsave_picture_209173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209173.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Mandelbulber 2.30.0  + Standalone [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209174.jpgsave_picture_209174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209174.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Firefox Browser 115.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209176.jpgsave_picture_209176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209176.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ SupRemo 4.10.0.2065 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209178.jpgsave_picture_209178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209178.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ PSPad 5.0.7 Build 775 + Portable [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209180.jpgsave_picture_209180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209180.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Auslogics BoostSpeed 13.0.0.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209183.jpgsave_picture_209183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209183.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Microsoft .NET 7.0.9 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209185.jpgsave_picture_209185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209185.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Mirillis Action! 4.35.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209186.jpgsave_picture_209186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209186.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ HomeBank 5.6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209189.jpgsave_picture_209189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209189.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:4FB44BE074BF8FBFD77620D894EF074BD5D01A82
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209190.jpgsave_picture_209190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209190.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:82151EA1E69CA975D9498D6909404C1A885B2B8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209193.jpgsave_picture_209193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209193.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Melodies of the Ocean: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209195.jpgsave_picture_209195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209195.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Topaz Video AI 3.3.4 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209197.jpgsave_picture_209197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209197.jpg" />
 </div>
 
 

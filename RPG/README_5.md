@@ -6,7 +6,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10018.jpgsave_picture_10018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10018.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10110.jpgsave_picture_10110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10110.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10170.jpgsave_picture_10170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10170.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10180.jpgsave_picture_10180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10180.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10245.jpgsave_picture_10245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10245.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.9.2) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10291.jpgsave_picture_10291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10291.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.4.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10337.jpgsave_picture_10337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10337.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10449.jpgsave_picture_10449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10449.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10456.jpgsave_picture_10456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10456.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10590.jpgsave_picture_10590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10590.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10635.jpgsave_picture_10635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10635.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10641.jpgsave_picture_10641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10641.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Rangers In The South (2025) [Ru/Multi] (3.0.3) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10715.jpgsave_picture_10715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10715.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dark Envoy (2023) [Ru/Multi] (1.7.1.73935) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10730.jpgsave_picture_10730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10730.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.3/dlc) Repack FitGirl [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10821.jpgsave_picture_10821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10821.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10837.jpgsave_picture_10837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10837.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10919.jpgsave_picture_10919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10919.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10943.jpgsave_picture_10943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10943.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10991.jpgsave_picture_10991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10991.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11018.jpgsave_picture_11018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11018.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Legendary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11064.jpgsave_picture_11064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11064.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11147.jpgsave_picture_11147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11147.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11267.jpgsave_picture_11267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11267.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11338.jpgsave_picture_11338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11338.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11339.jpgsave_picture_11339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11339.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11732.jpgsave_picture_11732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11732.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ RadioBOSS Advanced 4.6.5.919 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84391.jpgsave_picture_84391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84391.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ Playlist Generator - автоматический (   Читать дальше
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84394.jpgsave_picture_84394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84394.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:47F74E45E2B57876E0792E568B38334766FE7E38
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84395.jpgsave_picture_84395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84395.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ DG Win&Soft Free SoftPack 2012 (Март)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84396.jpgsave_picture_84396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84396.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows Хр/Vista/ Win7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84398.jpgsave_picture_84398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84398.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Windows Хр/Vista/ Win7
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84402.jpgsave_picture_84402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84402.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Windows Хр/Vista/ Win7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84405.jpgsave_picture_84405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84405.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Windows Хр/Vista/ Win7
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84406.jpgsave_picture_84406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84406.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kaspersky Internet Security 2013 (Technology Preview) 13.0.0.2489 Beta [Русс
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84407.jpgsave_picture_84407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84407.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Kaspersky Internet Security 2013 (Technology Preview) 13.0.0.2489 Beta [Русс
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84409.jpgsave_picture_84409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84409.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Heroes of Might and Magiс III Complete / Герои меча и магии 3 П
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84410.jpgsave_picture_84410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84410.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:99AAF326F4725FECE8B56840A9B91F4D3F9C7E02
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84411.jpgsave_picture_84411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84411.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:99AAF326F4725FECE8B56840A9B91F4D3F9C7E02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84412.jpgsave_picture_84412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84412.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:FB8793129ED17016ED534E731667FFC03302A3CF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84413.jpgsave_picture_84413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84413.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ KeyGen Music (origins) - 3139 треков (2000-2012) [xm, .it, .mod, .mo3, .s3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84415.jpgsave_picture_84415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84415.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ CPU-Control 2.1 [en\ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84416.jpgsave_picture_84416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84416.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ CorelDraw Graphics Suite X6 16.0.0.707 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84418.jpgsave_picture_84418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84418.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ CorelDRAW Graphics Suite X6 - новый графический пакет, по
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84419.jpgsave_picture_84419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84419.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:03C1DC7FEF14297E8E6CC4B51D1D1859FFDFC2D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84420.jpgsave_picture_84420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84420.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:03C1DC7FEF14297E8E6CC4B51D1D1859FFDFC2D7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84421.jpgsave_picture_84421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84421.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:E11CA117069FE217C45C20E4B79FBC773C79EE37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84422.jpgsave_picture_84422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84422.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:E11CA117069FE217C45C20E4B79FBC773C79EE37
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84423.jpgsave_picture_84423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84423.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E11CA117069FE217C45C20E4B79FBC773C79EE37
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84425.jpgsave_picture_84425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84425.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ KeyGen Music(MP3) - 3139 треков (2000-2012) [MP3|192 кб/с]<8bit>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84426.jpgsave_picture_84426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84426.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:27131E4E7B94487944A5977DBB6BB45EEBA23388
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84429.jpgsave_picture_84429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84429.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Beauty And The Beast Compilation (2012) [MP3|320 кб/с]<Symphonic, Black,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84431.jpgsave_picture_84431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84431.jpg" />
 </div>
 
 

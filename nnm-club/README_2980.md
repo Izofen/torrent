@@ -6,7 +6,7 @@ Antonio Vivaldi, Antonio Salieri, Gioacchino Rossini, Antonio Paskulli - Works f
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88986.jpgsave_picture_88986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88986.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:C723C52BA03CBD37A35AF029727EA4E541A5F5AA
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88988.jpgsave_picture_88988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88988.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:C723C52BA03CBD37A35AF029727EA4E541A5F5AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88990.jpgsave_picture_88990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88990.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:525C19A9F5586195308C7B63965D921759A90E0B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88991.jpgsave_picture_88991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88991.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:D208EE5177AD04EDD7C99E456AF64898F948C403
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88993.jpgsave_picture_88993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88993.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:68C7E116CD2D258A8BB2F3D0D022504562D8ACEB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88994.jpgsave_picture_88994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88994.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:68C7E116CD2D258A8BB2F3D0D022504562D8ACEB
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88995.jpgsave_picture_88995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88995.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:D03B3EC124E0BBB5BE5FF11DAE8FB21A63B70B41
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88999.jpgsave_picture_88999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88999.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:D03B3EC124E0BBB5BE5FF11DAE8FB21A63B70B41
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89001.jpgsave_picture_89001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89001.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:17FD81F99A3C0CBA5CA213796F132C9748389981
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89004.jpgsave_picture_89004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89004.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Monsters / Монстрики (P) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89005.jpgsave_picture_89005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89005.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:0A9905DEC38B5E236BC82231D5F4EAA12886D1B5
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89006.jpgsave_picture_89006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89006.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:753DB8ABF2A398C6B1308F29BF8DC9E8052825E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89008.jpgsave_picture_89008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89008.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:753DB8ABF2A398C6B1308F29BF8DC9E8052825E2
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89010.jpgsave_picture_89010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89010.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Protect My Disk 6.3.0 [english]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89013.jpgsave_picture_89013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89013.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Protect My Disk 6.3.0 [english]
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89015.jpgsave_picture_89015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89015.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Jascha Heifetz - The Heifetz Collection (1994) Vol.16 Beethoven Violin Sonatas /
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89017.jpgsave_picture_89017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89017.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:AF5C202A00BE56861B651A3ADE38DF6ED3AD6F19
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89020.jpgsave_picture_89020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89020.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:EE756703828A80CE9551AED36CB716B50693E1B5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89023.jpgsave_picture_89023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89023.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Chakra (Arch + KDE) 2012.04 [i686 + x86-64] (2xDVD+2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89024.jpgsave_picture_89024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89024.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:114F3D598364D65AC067A05C7622B425D25692C0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89028.jpgsave_picture_89028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89028.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:114F3D598364D65AC067A05C7622B425D25692C0
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89029.jpgsave_picture_89029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89029.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:E43F61A43385681542E215C229D285535613129C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89030.jpgsave_picture_89030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89030.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:CF15820D4CB7BA8D40FFC2D306A8B1318EC27B5E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89033.jpgsave_picture_89033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89033.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:38D2370A5DEABBE7677D33C13EAA0C18C708D099
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89034.jpgsave_picture_89034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89034.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:966A31D0FBBD39306DDFB059775BAEB7BCF03E1A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89036.jpgsave_picture_89036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89036.jpg" />
 </div>
 
 

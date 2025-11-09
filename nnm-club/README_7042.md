@@ -6,7 +6,7 @@ Kinetic - The Chains That Bind Us (2004) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241296.jpgsave_picture_241296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241296.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7BC4EC00514C589C07B7AE1E9EF30A90C00AEA28
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241297.jpgsave_picture_241297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241297.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Paste Queue (Multi Clipboard) 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241298.jpgsave_picture_241298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241298.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ save2pc Ultimate 5.6.5.1627 RePack (& Portable) by TryRooM [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241299.jpgsave_picture_241299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241299.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Richard Wright - Wet Dream (1978) Japanese Edition, Reissue, 1994, Sony Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241300.jpgsave_picture_241300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241300.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Darking - Steal The Fire (2015) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241301.jpgsave_picture_241301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241301.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Michael Davis - Hip-Bone Big Band (2016) Hip-Bone Music [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241302.jpgsave_picture_241302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241302.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:E836F7A6086767D1836CCC7DB48CB793489833ED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241303.jpgsave_picture_241303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241303.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ SideFX, Adrien Lambert | Ultimate Terrain Workflow (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241304.jpgsave_picture_241304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241304.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Dave Brubeck Quartet - Complete 1958 Berlin Concert (2008) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241305.jpgsave_picture_241305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241305.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ ImageRanger Pro Edition 1.7.1.1527 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241306.jpgsave_picture_241306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241306.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ VA - String Pop (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241307.jpgsave_picture_241307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241307.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Minecraft Dungeons (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.20 / DLC] [Ru/Mult
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241308.jpgsave_picture_241308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241308.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:DCD4786221432FE44BD39FF759459F4578D83180
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241309.jpgsave_picture_241309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241309.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Auto Highlight 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241310.jpgsave_picture_241310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241310.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241311.jpgsave_picture_241311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241311.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:268C9047D398FE4EE27C87C9A7C542D339BD2BC4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241312.jpgsave_picture_241312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241312.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 5 - Fontana. Гонка (2017) H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241313.jpgsave_picture_241313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241313.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Fatal Portrait - Adventum (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241314.jpgsave_picture_241314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241314.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Gwen Stefani - Love.Angel.Music.Baby. (2004) 15th Anniversary Edition, 2020, Int
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241315.jpgsave_picture_241315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241315.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:50061CA8ABCCC9051BFD9A0C287066F3E075C109
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241316.jpgsave_picture_241316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241316.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Sagath - Necrotica 2 (Remix Pack) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241317.jpgsave_picture_241317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241317.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ ISO Workshop 11.4 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241318.jpgsave_picture_241318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241318.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Cynthesis - ReEvolution (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241319.jpgsave_picture_241319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241319.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:60D304C9BF48936024E261EE0F05DF20E608BE77
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241320.jpgsave_picture_241320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241320.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Extreme Sports Music Vol 5 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241321.jpgsave_picture_241321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241321.jpg" />
 </div>
 
 

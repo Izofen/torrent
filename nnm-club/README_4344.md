@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135064.jpgsave_picture_135064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135064.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3F66E9DC7FD1E869C44258C4292D7573007A6302
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135065.jpgsave_picture_135065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135065.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ English with Lucy | English Grammar Challenge (2022) WEB-DL [AD] [EN / EN Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135067.jpgsave_picture_135067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135067.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DB6EDE9F69FE00BA9D1D43B75E3098E6002B01B8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135069.jpgsave_picture_135069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135069.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:907ADDF52E5C84E78919A38A6ADA5F604A93AB0A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135072.jpgsave_picture_135072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135072.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:70E85959AD1C93FCB3B28332B5137457FAEDC909
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135073.jpgsave_picture_135073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135073.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:22CDAC17BF252CBB2BD7AC0F20E7037797C1CE82
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135075.jpgsave_picture_135075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135075.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1DF450FF7C59580A2CC427C0EDDBE677270992E9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135077.jpgsave_picture_135077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135077.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:A96C41545FA3D704E41DF44E4D0A52699A914839
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135078.jpgsave_picture_135078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135078.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Planet VPN 2.1.26.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135079.jpgsave_picture_135079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135079.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Warhammer 40.000: Space Marine [Ru/En/Multi9] (Steam-Rip/1.0.156.0/13 DLC) 2011 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135080.jpgsave_picture_135080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135080.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ English With Lucy | The Idioms Challenge (2022) WEB-DL [AD] [EN / EN Sub]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135081.jpgsave_picture_135081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135081.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:A3081614815D64F97694AD044AE54585BBF6F0D1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135083.jpgsave_picture_135083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135083.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:B2C16D9BC8B90CC5AC50B0E2A8DA8259AAE3C90B
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135084.jpgsave_picture_135084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135084.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:52D889B20A3D00E8A45BC4FC3D737B60A3910A44
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135087.jpgsave_picture_135087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135087.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:B18DA99A3741B13226659C6058ED1BAD6A56CC19
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135089.jpgsave_picture_135089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135089.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ DefenderKiller 1.4/11.0.3 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135091.jpgsave_picture_135091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135091.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ English With Lucy | The Vocabulary Expansion Challenge (2023) WEB-DL [AD] [EN / 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135093.jpgsave_picture_135093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135093.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ English with Lucy | The Phrasal Verbs Challenge (2022) [unpacked] [AD] [EN]
 >>Иностранные языки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135095.jpgsave_picture_135095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135095.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:D8E705556FC20440806CC9D8E86295515F19FD16
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135098.jpgsave_picture_135098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135098.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:E50EFEA96967D64C0328A3A0EF250FD95A185EEE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135101.jpgsave_picture_135101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135101.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:5B95D2499B75D9F9829B51BF0B0A149D2E977D59
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135102.jpgsave_picture_135102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135102.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ AEJuice | I Want To Learn It All Bundle (2021) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135103.jpgsave_picture_135103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135103.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Profileschool, Артур Орлов | Основы создания музык�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135104.jpgsave_picture_135104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135104.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:C308F03BFF495890EA11D2E8B37754C698258941
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135105.jpgsave_picture_135105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135105.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:0D6C142B51D296C318AF00A1C22909AE2E672BDE
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135106.jpgsave_picture_135106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135106.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Severed Angel - Skyward (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110398.jpgsave_picture_110398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110398.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ghost on Mars - Out of Time and Space (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110402.jpgsave_picture_110402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110402.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FM - Old Habits Die Hard (2024) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110404.jpgsave_picture_110404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110404.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Black Tusk - The Way Forward (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110448.jpgsave_picture_110448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110448.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Invalid Yellow - Hendecagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110450.jpgsave_picture_110450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110450.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Amiensus - Reclamation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110451.jpgsave_picture_110451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110451.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Azaab - Summoning the Cataclysm (2022) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110452.jpgsave_picture_110452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110452.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Emitt Rhodes - The Emitt Rhodes Recordings 1969-1973 (2009) 2CD [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110453.jpgsave_picture_110453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110453.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Thalia - The River Of Books (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110455.jpgsave_picture_110455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110455.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Acid Machine - Mushrooms (2024) [MP3|320 Kbps] <doommetal, stoner>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110456.jpgsave_picture_110456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110456.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Exiled on Earth - Vertenbra (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110463.jpgsave_picture_110463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110463.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Double Horse - Diablerie (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Occu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110464.jpgsave_picture_110464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110464.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Tanshuman Das - Progress Report (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110465.jpgsave_picture_110465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110465.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ascia - The Wandering Warrior (2024) [MP3|320 Kbps] <Stoner Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110472.jpgsave_picture_110472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110472.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Sonic Tapestry - Into the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110477.jpgsave_picture_110477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110477.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Eve To Adam - Locked and Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110484.jpgsave_picture_110484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110484.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Apenheart - Realizer (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Jaz
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110485.jpgsave_picture_110485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110485.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sleazy Town - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110486.jpgsave_picture_110486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110486.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Amon Duul II - Yeti (1970) Japanese Edition, Reissue, Remastered, 2005, Belle An
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110487.jpgsave_picture_110487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110487.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C1904BA50363A58F4ADE3487066CB8F35208D082
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110488.jpgsave_picture_110488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110488.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Burning Black - Resilience of a Broken Heart (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110489.jpgsave_picture_110489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110489.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ ACOD - Versets Noirs (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110490.jpgsave_picture_110490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110490.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Vesperian Sorrow - Awaken The Greylight (2024) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110491.jpgsave_picture_110491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110491.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Alchemist - Equilibrium (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110492.jpgsave_picture_110492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110492.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Matney & Stevie Salas - The Red Neck & The Red Man (2024) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110513.jpgsave_picture_110513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110513.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Amerikan Kaos - Armageddon Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110514.jpgsave_picture_110514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110514.jpg" />
 </div>
 
 

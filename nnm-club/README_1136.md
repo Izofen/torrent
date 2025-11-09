@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29891.jpgsave_picture_29891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29891.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Dance Classics Gold (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29892.jpgsave_picture_29892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29892.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5547D1426BAC27CFEF3FEDCB5DDCBC88DA1E0ED0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29893.jpgsave_picture_29893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29893.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Italo Dance Classics Volume 4 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29894.jpgsave_picture_29894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29894.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Winter Vibes DeepHouse & Nu Disco 2024 (2025) [MP3|320 Kbps] <House, Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29895.jpgsave_picture_29895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29895.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:1AB080E066D0C23D52F869B9C742F5B4FDF5495E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29896.jpgsave_picture_29896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29896.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:E03D63BFEFD23328749A91A6BC9E3A9E7A2A8A63
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29897.jpgsave_picture_29897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29897.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:14F903C0126E550EC0F2B0F013A1E8A84DA79B93
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29898.jpgsave_picture_29898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29898.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:0421589987DE372D627FDC73DE816FDF4D5E2659
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29899.jpgsave_picture_29899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29899.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:318FA46EEC5AF1C39E1B965D4A45D7BE1DCA67E4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29900.jpgsave_picture_29900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29900.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mogwai - The Bad Fire (2025) [FLAC|Lossless|Web-DL|tracks] <Post-Rock, Shoegaze,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29901.jpgsave_picture_29901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29901.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:F2FC1506F61EA2496DB36CA4FFEFEB8B58895F55
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29902.jpgsave_picture_29902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29902.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Armin van Buuren - A State Of Trance 1209 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29903.jpgsave_picture_29903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29903.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Deep-House Hunters, Vol. 3 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29904.jpgsave_picture_29904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29904.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Dance Classics Gold (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29905.jpgsave_picture_29905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29905.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Soniq Circus - Cursed Cruise (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29906.jpgsave_picture_29906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29906.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Jack Lancaster & Robin Lumley - Peter And The Wolf (1975) [MP3|320 Kbps] <Progre
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29907.jpgsave_picture_29907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29907.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:5CD785FD205DCDA83642227D7F94C53646D16EBD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29908.jpgsave_picture_29908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29908.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:6210E1B852B918BF5CE7F19A9D8B7C65C4B48CDC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29909.jpgsave_picture_29909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29909.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Sable (2021) [Ru/Multi] (4.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29910.jpgsave_picture_29910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29910.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:7344213C3E20103CA7C6340ABB163FE31C8C1138
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29911.jpgsave_picture_29911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29911.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.8.9 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29912.jpgsave_picture_29912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29912.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:69D519D9381FEA8FA88D4ABD72AA2315AEB4E76B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29913.jpgsave_picture_29913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29913.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Music News For Forum vol.057 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29914.jpgsave_picture_29914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29914.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Gallery Plus: Photo Vault v2.3.37 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29915.jpgsave_picture_29915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29915.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Dream Dance Vol. 96 - The Annual (2025) [MP3|320 Kbps] <Trance, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29916.jpgsave_picture_29916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29916.jpg" />
 </div>
 
 

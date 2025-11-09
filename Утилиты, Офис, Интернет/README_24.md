@@ -6,7 +6,7 @@ Google Chrome 141.0.7390.55 Stable + Enterprise [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41022.jpgsave_picture_41022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41022.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Glary Utilities Pro 6.32.0.36 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41023.jpgsave_picture_41023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41023.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Driver Easy Pro 7.1.0.2641 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41024.jpgsave_picture_41024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_41024.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Opera GX 114.0.5282.84 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41185.jpgsave_picture_41185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41185.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Ant Download Manager Pro 2.14.1 Build 88711 (x32) / Build 88710 (x64) RePack (& 
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41249.jpgsave_picture_41249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41249.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Macrorit Partition Expert Pro 8.2.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41482.jpgsave_picture_41482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41482.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Wise Data Recovery Pro 6.2.0.517 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41504.jpgsave_picture_41504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41504.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ O&O Defrag Professional 29.0 Build 11110 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41510.jpgsave_picture_41510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41510.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Bandizip 7.36 Build 68355 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41516.jpgsave_picture_41516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41516.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Eassos DiskGenius Professional 5.6.1.1580 RePack (& Portable) by elchupacabra [M
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41535.jpgsave_picture_41535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41535.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ KMS_VL_ALL v53 + AIO Portable 53 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41551.jpgsave_picture_41551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41551.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ IObit Smart Defrag Pro 10.1.0.419 Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41565.jpgsave_picture_41565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41565.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ ReNamer Pro 7.6 + Standalone (Portable) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41591.jpgsave_picture_41591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41591.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ ReNamer Pro 7.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41607.jpgsave_picture_41607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41607.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BurnAware Professional 18.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41635.jpgsave_picture_41635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41635.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ZD Soft Screen Recorder 12.0.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41765.jpgsave_picture_41765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41765.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ ZD Soft Screen Recorder 12.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41789.jpgsave_picture_41789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41789.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Vit Registry Fix Pro 14.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42050.jpgsave_picture_42050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42050.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Vit Registry Fix Pro 14.9.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42113.jpgsave_picture_42113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42113.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Veeam Agent 6.2.0.121 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42132.jpgsave_picture_42132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42132.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ FontLab 8.4.2.8950 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42237.jpgsave_picture_42237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42237.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ AMD Ryzen Master 2.13.1.3097 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42258.jpgsave_picture_42258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42258.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ WinBin2Iso 6.36 Build 001 + Portable [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42320.jpgsave_picture_42320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42320.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ QuickMemoryTestOK 4.82 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42343.jpgsave_picture_42343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42343.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Opera GX 113.0.5230.135 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42431.jpgsave_picture_42431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42431.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Noi AI Browser Multitool 0.4.0 Portable by Sitego [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43295.jpgsave_picture_43295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43295.jpg" />
 </div>
 
 

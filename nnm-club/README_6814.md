@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234331.jpgsave_picture_234331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234331.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6B3EBCB55D5B0DA19D8CF9F1AF475C99E68F7188
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234332.jpgsave_picture_234332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234332.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B46C1DEC8AD3051EE81F2C139DDBDDDB58F73F33
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234333.jpgsave_picture_234333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234333.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ StartAllBack 3.4.0.4400 StartIsBack++ 2.9.17 (2.9.1 for 1607) StartIsBack+ 1.7.6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234334.jpgsave_picture_234334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234334.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ JustStream PRO 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234335.jpgsave_picture_234335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234335.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ SyncBird Pro 3.9.7[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234336.jpgsave_picture_234336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234336.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CB92F02493523051AF2851A4A89608EA767A42E2
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234337.jpgsave_picture_234337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234337.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ uTorrent Pro 3.5.5 Build 46514 Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234338.jpgsave_picture_234338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234338.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ ADDicted! - Прозрение (2022) [MP3|320 Kbps] <Punk Rock, Alternative Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234339.jpgsave_picture_234339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234339.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:C3FF98AE2E7CA323E59427992011C8436DBE62DE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234340.jpgsave_picture_234340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234340.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:8D17EB4CADF1C9473745B7985CF74C2301D46F77
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234341.jpgsave_picture_234341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234341.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Omni Toolbox 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234342.jpgsave_picture_234342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234342.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Papik & Sea Breeze - West Coast Rendez Vous (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234343.jpgsave_picture_234343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234343.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Pepakura Designer 5.0.14 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234344.jpgsave_picture_234344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234344.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:33C45885002985ED0441B424A964851CC208998A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234345.jpgsave_picture_234345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234345.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Enterclass, Сергей Курбатов | Весенняя зелень (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234346.jpgsave_picture_234346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234346.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:CE1BDBB8DF029E7CB1F00E1D547AAD690EFE37AD
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234347.jpgsave_picture_234347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234347.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:11E75D18B99751A4CB9E00DAA35463F76E68E7F0
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234348.jpgsave_picture_234348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234348.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Omni Downloader 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234349.jpgsave_picture_234349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234349.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:6E4FC9131D7DF6464812B31D8F6853735C7B14D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234350.jpgsave_picture_234350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234350.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Strawberry 1.0.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234351.jpgsave_picture_234351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234351.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Path Finder 2155 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234352.jpgsave_picture_234352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234352.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ TweakPower 2.038 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234353.jpgsave_picture_234353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234353.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:81BB0A4A92C27CBF47DCE2E0CF6FCA0D1BF9BDEB
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234354.jpgsave_picture_234354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234354.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:9F546E88D27303430DFCC94D742E9C9E825DC693
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234355.jpgsave_picture_234355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234355.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Texifier 1.9.20 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234356.jpgsave_picture_234356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234356.jpg" />
 </div>
 
 

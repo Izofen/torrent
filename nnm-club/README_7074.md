@@ -6,7 +6,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242189.jpgsave_picture_242189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242189.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DEBB88E4C83B341E92D1B85F54BA2DABDF99372E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242190.jpgsave_picture_242190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242190.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9E2FFF68EA78947436035EA1A7816B299E7F43AF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242191.jpgsave_picture_242191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242191.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Razorbats - Hit Crazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242192.jpgsave_picture_242192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242192.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242193.jpgsave_picture_242193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242193.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:F4AD04C121AD55CCD779A5F7B3426D392DF983E1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242194.jpgsave_picture_242194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242194.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Palace - Reject the System (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242195.jpgsave_picture_242195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242195.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:3B0F19A64B8B7F0D15ABB772579A95DB4B48ED29
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242196.jpgsave_picture_242196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242196.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3B0F19A64B8B7F0D15ABB772579A95DB4B48ED29
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242197.jpgsave_picture_242197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242197.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Topaz Video AI 3.2.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242198.jpgsave_picture_242198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242198.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Joe Williams - A Man Ain't Supposed To Cry (1958) 1998, Roulette [APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242199.jpgsave_picture_242199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242199.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Ocean Of Grief - Pale Existence (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242200.jpgsave_picture_242200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242200.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Johan Tronestam - Androids (2022) [MP3|320 Kbps] <Berlin-School, Space Music>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242201.jpgsave_picture_242201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242201.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Everything But The Girl - Fuse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242202.jpgsave_picture_242202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242202.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:8270FD8FF9716B9B3C4AAFDB7590C5FDC6238793
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242203.jpgsave_picture_242203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242203.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Translatium 11.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242204.jpgsave_picture_242204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242204.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ File Cabinet Pro 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242205.jpgsave_picture_242205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242205.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:499C53BAD5C0D35B0D12774416397E0AD1116CC4
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242206.jpgsave_picture_242206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242206.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ghostblade - Machine Made God (2023) [FLAC|Lossless|WEB-DL|tracks] <Metallic Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242207.jpgsave_picture_242207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242207.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ The Oscar Peterson Trio - The Oscar Peterson Trio Plays 1964 (2004) Universal [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242208.jpgsave_picture_242208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242208.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Van Stephenson - China Girl (1981) Deluxe Edition, 2023, MelodicRock Classics [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242209.jpgsave_picture_242209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242209.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:30AF91C10C8EE6C8A80EC890B0390BB323050420
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242210.jpgsave_picture_242210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242210.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:410C0EB15A333BF24314E426CF332807992921F5
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242211.jpgsave_picture_242211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242211.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:2D26EC4E88F10240BE86D6AF9644785C9BA87232
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242212.jpgsave_picture_242212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242212.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - My Intimate Lounge World (Essential Deluxe Selection of Buddha Erotic Downb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242213.jpgsave_picture_242213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242213.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242214.jpgsave_picture_242214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242214.jpg" />
 </div>
 
 

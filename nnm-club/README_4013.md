@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124893.jpgsave_picture_124893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124893.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C2B0DBB468CC5F3236DF64DAC05A8E06979B66BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124894.jpgsave_picture_124894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:651DC81B5A3E118AEFDA183B7C1D1C2B6FD5C045
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124895.jpgsave_picture_124895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124895.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Harvard Business Review (HBR) | Управление персоналом (2020)
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124896.jpgsave_picture_124896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124896.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8CC8A0017B7C7D91BF6D0B32425CE68584EF332F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124897.jpgsave_picture_124897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124897.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - 100 Hits Great British Songs (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124898.jpgsave_picture_124898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124898.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Harvard Business Review (HBR) | Переговоры (2020) [MP3, Андрей �
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124899.jpgsave_picture_124899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124899.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:E5E17B5D8F83CB2269744E9D7F42790C9F1292F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124900.jpgsave_picture_124900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124900.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.6.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124901.jpgsave_picture_124901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124901.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:9523112B6FFC821736882FD35CC96B68D9B6979F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124902.jpgsave_picture_124902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124902.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:9AA54FD69FA0EA2193A43B8DD32EE5E60138BD5E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124903.jpgsave_picture_124903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124903.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:B4EB95956BA35D637392473B7AAB2B28B276660D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124904.jpgsave_picture_124904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124904.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:E5F4A52AFCC29FAF3C84E77971F30F7D28CD235F
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124905.jpgsave_picture_124905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124905.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Eguana, Qeight - Call Of The Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124906.jpgsave_picture_124906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124906.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Eguana - Connect (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124907.jpgsave_picture_124907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124907.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Harvard Business Review (HBR) | Переосмысление роли HR (2021) 
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124908.jpgsave_picture_124908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124908.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:BCD31736D6FF377E9C900661C71F71A5917C41CC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124909.jpgsave_picture_124909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124909.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:A2ACD8402E1A8B17F5DE36F9AA23CE6F500587BD
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124910.jpgsave_picture_124910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124910.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Jjos - Compilation (2023) [MP3|320 Kbps] <Electro. Chill Out. Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124911.jpgsave_picture_124911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124911.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:075D99319C016CF1B46FB58860A8A8AEE3DCFD50
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124912.jpgsave_picture_124912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124912.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:2DDAA9332EF0A2F002A8C03C702CD2B708D92072
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124913.jpgsave_picture_124913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124913.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:34B638FE0898D22168CD4928F861A1D1BF7D6A60
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124914.jpgsave_picture_124914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124914.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:517A42DE39584E42928B52F33AD390D2D487CC91
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124915.jpgsave_picture_124915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124915.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Harvard Business Review (HBR) | Управление командой (2017) [PD
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124916.jpgsave_picture_124916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124916.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:8F1B5A1CC687487B56FA1C4472586FCE34DE9B7F
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124917.jpgsave_picture_124917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124917.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:12F04E5789BDD89049CD94D4BF29050B0C9E9DF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124918.jpgsave_picture_124918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124918.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hydra - Rock The World (1976) Reissue, 2010, Crossroad Productions [MP3|320 кб
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228567.jpgsave_picture_228567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228567.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:34D9C0E792A7AEC0DE4224C30C5AE1741651F89F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228581.jpgsave_picture_228581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228581.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Annalist - Artemis (1995) [FLAC|Lossless|image+.cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228584.jpgsave_picture_228584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228584.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Korn - Untitled (2007) Deluxe, 2023, Tempo Music [MP3|320 Kbps] <Nu Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228588.jpgsave_picture_228588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228588.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:5E5F451CCB267F567A041D02B7137E1CD3426218
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228599.jpgsave_picture_228599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228599.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Anna Fiori - Magna Mater (2013) 10th Anniversary, Remixed & Remastered, 2023, An
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228608.jpgsave_picture_228608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228608.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Cavalera Conspiracy - 2 Albums (2023) [FLAC|24/48|tracks|WEB-DL] <Groove Thrash 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228617.jpgsave_picture_228617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228617.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ U.D.O. - The Legacy (2022) 2CD, Compilation [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228623.jpgsave_picture_228623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228623.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Little Feat - Dixie Chicken (1973) 2CD, Deluxe Edition, Remaster, 2023, Rhino - 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228627.jpgsave_picture_228627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228627.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228637.jpgsave_picture_228637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228637.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Anna Fiori - Magna Mater (2013) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228646.jpgsave_picture_228646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228646.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Feuerschwanz - Fegefeuer (2023) Digital Deluxe Album [FLAC|24/44,1|tracks|WEB-DL
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228654.jpgsave_picture_228654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228654.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Lacuna Coil - Comalies XX (2022) [MP3|320 Kbps] 2CD <Gothic Metal, Alternative M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228672.jpgsave_picture_228672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228672.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Axeheart - Through The Seas And Time (2022) [MP3|320 Kbps] <Heavy Viking Metal, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228689.jpgsave_picture_228689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228689.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Dorian Wilde - Smell My Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228708.jpgsave_picture_228708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228708.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sinking Season - The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228716.jpgsave_picture_228716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228716.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Anna Fiori - Magna Mater (2013) 10th Anniversary, Remixed, Remastered, 2023, Ann
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228723.jpgsave_picture_228723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228723.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Evangelist (Ævangelist) - Harmony Of The Sinister (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228731.jpgsave_picture_228731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228731.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ PistonFist - Redline (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228741.jpgsave_picture_228741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228741.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Sevendust - Truth Killer (2023) [FLAC|Lossless|tracks + .cue] <Industrial Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228757.jpgsave_picture_228757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228757.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Tony Valentino - Dirty Water Revisited (2023) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228766.jpgsave_picture_228766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228766.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Imperialist - Zenith (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228785.jpgsave_picture_228785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228785.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Nothing More - Spirits (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Progress
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228830.jpgsave_picture_228830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228830.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:3BC63E801E5B7958F6DB4EBF8C39C08435ADA128
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228889.jpgsave_picture_228889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228889.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:1A12751E60D8113C9341D669F0B87CD4968512BE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228897.jpgsave_picture_228897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228897.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Queensryche - Digital Noise Alliance (2022) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228903.jpgsave_picture_228903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228903.jpg" />
 </div>
 
 

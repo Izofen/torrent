@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20086.jpgsave_picture_20086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20086.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Extreme Picture Finder 3.68.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20087.jpgsave_picture_20087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20087.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B9FFBF7207F204C4627AE814E36E17539E386820
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20088.jpgsave_picture_20088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20088.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9D8C9B1961FBB1B2D07C51874C90C39621F5B1C1
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20089.jpgsave_picture_20089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20089.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:86FACD65CF4717D8DE11602D6069969B142A9962
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20090.jpgsave_picture_20090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20090.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Avorion (2020) [Ru/Multi] (2.5.7/dlc) Repack Pioneer
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20091.jpgsave_picture_20091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20091.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:9F3A01863859E7E815444BBADBEB4B827B3B2CCD
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20092.jpgsave_picture_20092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20092.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:1EC41CF487FBEBF0A437B4C2C7EDFB30E90C6BF7
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20093.jpgsave_picture_20093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20093.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Adobe Illustrator 2025 29.5.0.137 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20094.jpgsave_picture_20094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20094.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:9C9D7FCAC0762D9A35578AF107CEC67CC03C19E8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20095.jpgsave_picture_20095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20095.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:281ACFD6B13DB3F6514F97886569328893B1F79B
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20096.jpgsave_picture_20096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20096.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Adobe Photoshop 2025 26.6.0.14 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20097.jpgsave_picture_20097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20097.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:61193993AD89B06380F97791E816C7A7C0071112
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20098.jpgsave_picture_20098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20098.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:2498EC16E5358F6F0FF1D626C597FEAAA5283A6D
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20099.jpgsave_picture_20099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20099.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:81B3E73A714338816D8B605E907D33D23826ED63
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20100.jpgsave_picture_20100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20100.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:6D98C1CC4E1059DFA4CE4D9BE439F0A8A875ED81
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20101.jpgsave_picture_20101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20101.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:532A03019537B3AFA99273E5DB1DA6847E897281
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20102.jpgsave_picture_20102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20102.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Adobe Photoshop 2025 26.6.0.14 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20103.jpgsave_picture_20103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20103.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20104.jpgsave_picture_20104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20104.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ True Fear: Forsaken Souls Part 3 (2025) [Ru/Multi] (1.1.1:11) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20105.jpgsave_picture_20105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20105.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Internet Download Manager 6.42 Build 34 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20106.jpgsave_picture_20106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20106.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:FD3EE07AB2853022209DC84996A23A71ADCF3B88
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20107.jpgsave_picture_20107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20107.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:8BE546E173B5A1CE65C5DFDE45E1C6C6F5662A08
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20108.jpgsave_picture_20108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20108.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Adobe InDesign 2025 20.3.0.60 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20109.jpgsave_picture_20109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20109.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ World of Goo 2 v1.0.25042604 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20110.jpgsave_picture_20110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20110.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20111.jpgsave_picture_20111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20111.jpg" />
 </div>
 
 

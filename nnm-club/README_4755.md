@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148815.jpgsave_picture_148815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148815.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hank Mobley - Newark 1953 (2012) 2CD, Uptown Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148816.jpgsave_picture_148816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148816.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:3CD700C5494B8CBCA404694F3B871598D92BBF84
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148818.jpgsave_picture_148818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148818.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Diagrams 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148819.jpgsave_picture_148819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148819.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс. С нуля
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148820.jpgsave_picture_148820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148820.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:FA54C6527F9CE2B04242FE840994299751386CA2
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148822.jpgsave_picture_148822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148822.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Timer RH PRO  2.10 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148823.jpgsave_picture_148823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148823.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148824.jpgsave_picture_148824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148824.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:78CBB92BF23D63025446D6F5BBD25E1D05A7E723
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148826.jpgsave_picture_148826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148826.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:F470F77AF3531891059E15245A460AD5419B75EB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148827.jpgsave_picture_148827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148827.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:4E035E7C6E52AB40AAB0D4D0650AE7D0B136DFB6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148829.jpgsave_picture_148829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148829.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ mirethMusic 4.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148830.jpgsave_picture_148830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148830.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Willard Grant Conspiracy - Untethered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148831.jpgsave_picture_148831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148831.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:354D6177B619A8D72482862CE5EBDA46C14A6BD6
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148832.jpgsave_picture_148832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148832.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Slidepad 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148833.jpgsave_picture_148833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148833.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:6274330DF170D3B6BA6A4AD7E3E2FA5F87B460DC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148834.jpgsave_picture_148834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148834.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148835.jpgsave_picture_148835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148835.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Apeaksoft Android Toolkit 1.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148836.jpgsave_picture_148836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148836.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:D94D8D57E48A3F56D4D177FA07D79065945CE890
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148837.jpgsave_picture_148837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148837.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ ScreenFloat-Better Screenshots 1.5.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148838.jpgsave_picture_148838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148838.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ J.J.Johnson - The Columbia Albums Collection 1956-1961 (2017) 4CD, Enlightenment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148839.jpgsave_picture_148839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148839.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Curio Professional 13.1.1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148840.jpgsave_picture_148840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148840.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:2CE1E7C8AA4F432BD94FA46D15B9D7BB638639CE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148841.jpgsave_picture_148841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148841.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:CA510346204C0CD175F7179D906C64D37FB4E6EB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148842.jpgsave_picture_148842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148842.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Christophe Wallemme - Om Project (2017) Bonsai Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148843.jpgsave_picture_148843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148843.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:C1BD25F1AFA5F99888827A30B3D1B55CFF32C694
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148844.jpgsave_picture_148844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148844.jpg" />
 </div>
 
 

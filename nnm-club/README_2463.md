@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64788.jpgsave_picture_64788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64788.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:212C23CBEF925156FDD98177AFEDA686308E8995
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64789.jpgsave_picture_64789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64789.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0A52C40D2A9B446F65D0CE63556941E3372A276C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64790.jpgsave_picture_64790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64790.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0023EDE3927FE4B03383937B70A004126065EEAE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64791.jpgsave_picture_64791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64791.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EB19128BB9832003B221404DD8C0CE7930FA8B18
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64792.jpgsave_picture_64792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64792.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Zayden Fleet - Lone Star Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64793.jpgsave_picture_64793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64793.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:CD9ACEA6F615FC696049073A8750CDACD04C5A5D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64794.jpgsave_picture_64794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64794.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ In Theory - Retribution (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64795.jpgsave_picture_64795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64795.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:8555F49B76B4260054800E969B82474F769CD3F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64796.jpgsave_picture_64796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64796.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:FC5A9D295D0F04AB47E56751A955C3C70C410993
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64797.jpgsave_picture_64797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64797.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:84D2D4BEB175536EB38D00952AF6DDEAA706699C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64798.jpgsave_picture_64798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64798.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Pharaoh Rumor - Vintage Blues Express (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64799.jpgsave_picture_64799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64799.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Cyfurcat - 1.0.0 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64800.jpgsave_picture_64800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64800.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Koko Taylor - Crown Jewels (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64801.jpgsave_picture_64801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64801.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Lowland Blues - Lowland Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64802.jpgsave_picture_64802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64802.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Lightnin' Malcolm - Turnt Up On Loud (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64803.jpgsave_picture_64803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64803.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Mastodon - Crack The Skye (2009) Reissue, Remastered, 2024, Reprise Records, Del
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64804.jpgsave_picture_64804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64804.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Roscoe Bowie and the Federal City Swingers - Relationships (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64805.jpgsave_picture_64805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64805.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Firefox Browser ESR 115.26.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64806.jpgsave_picture_64806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64806.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:DB1CF61632F8F7F6F607639DC0DA447EF0640D7A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64807.jpgsave_picture_64807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64807.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:E3F0B5BC39A1AEC0A903ADEB04BAAA2FD3283C8E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64808.jpgsave_picture_64808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64808.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Lounge Avenue, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64809.jpgsave_picture_64809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64809.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:87AA79C6D30F08E7C2E40F79511690606ECC9AE2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64810.jpgsave_picture_64810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64810.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Lounge Avenue, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64811.jpgsave_picture_64811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64811.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:2550297F9EBFB2D20F26B16B4B9629A33C988300
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64812.jpgsave_picture_64812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64812.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:4EC2500112AD6391FC5C2CC3C9958DD2EE68D05E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64813.jpgsave_picture_64813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64813.jpg" />
 </div>
 
 

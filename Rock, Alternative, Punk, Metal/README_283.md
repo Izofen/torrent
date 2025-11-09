@@ -6,7 +6,7 @@ Doro - Conqueress - Forever Strong and Proud (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171034.jpgsave_picture_171034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171034.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Alessiee - Дежавю (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171044.jpgsave_picture_171044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171044.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Theatres Des Vamires - Moonlight Waltz (2011) [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171049.jpgsave_picture_171049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171049.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Black Heaven - History (2009) 2CD [FLAC|Lossless|image + .cue] <Darkwave, Gothic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171061.jpgsave_picture_171061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171061.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dokken - Heaven Comes Down (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171063.jpgsave_picture_171063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171063.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Nosferatu - Anthology (2006) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171065.jpgsave_picture_171065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171065.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ In This Moment - Godmode (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171067.jpgsave_picture_171067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171067.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171074.jpgsave_picture_171074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171074.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gabriel Agudo - New Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171075.jpgsave_picture_171075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171075.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Nervosa - Jailbreak (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171076.jpgsave_picture_171076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171076.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lord Vampyr - The Vampire's Legacy (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171078.jpgsave_picture_171078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171078.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Saviour Machine - Saviour Machine II (1994) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171080.jpgsave_picture_171080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171080.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Theatres Des Vamires - Vampyrisme... (2002) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171081.jpgsave_picture_171081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171081.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Gaslight Anthem - History Books (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171084.jpgsave_picture_171084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171084.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Manbryne - Interregnum: O probie wiary i jarzmie zwatpienia (2023) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171085.jpgsave_picture_171085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171085.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Vision Bleak - Timeline - An Introduction To The Vision Bleak (2016) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171088.jpgsave_picture_171088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171088.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Assumption - Absconditus (2018) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171089.jpgsave_picture_171089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171089.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Saviour Machine - Legend Part I (1997) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171090.jpgsave_picture_171090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171090.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Vision Bleak - The Deathship Has A New Captain (2004) 10th Anniversary Editi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171091.jpgsave_picture_171091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171091.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Saviour Machine - Legend Part II (1998) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171092.jpgsave_picture_171092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171092.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Theatres Des Vamires - Anima Noir (2009) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171094.jpgsave_picture_171094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171094.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Saviour Machine - Saviour Machine I (1993) [FLAC|Lossless|image + .cue] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171095.jpgsave_picture_171095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171095.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:E40299A58B5B3F971A1BF33D85C132D9BBF113CF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171152.jpgsave_picture_171152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171152.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Queen - News Of The World (1977) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171160.jpgsave_picture_171160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171160.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Greatest Rock Of All Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171167.jpgsave_picture_171167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171167.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Queen - Sheer Heart Attack (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171181.jpgsave_picture_171181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171181.jpg" />
 </div>
 
 

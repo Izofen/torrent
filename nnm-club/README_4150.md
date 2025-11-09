@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128492.jpgsave_picture_128492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128492.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5E5243BF50EB640BEFEF107F60FCB79C22673969
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128493.jpgsave_picture_128493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128493.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:193CB2ACA44F6648D9AC058D8FC3076191E5AEC8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128494.jpgsave_picture_128494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128494.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:221C8EFCAF5A97F11BFD3C82E9266946892FC9F6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128495.jpgsave_picture_128495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128495.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MX Player Pro v1.74.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128496.jpgsave_picture_128496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128496.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A4FDE1F7C5F14D3D074711F0095246976BDEA091
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128497.jpgsave_picture_128497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128497.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F244D6767C57CA4506F22847C0D3D999C3A8BA55
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128498.jpgsave_picture_128498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128498.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C5943B5356FDFB2DB05831C7AB582D32747EC6D2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128499.jpgsave_picture_128499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128499.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A25ED9410992ACFCB387712AEA58E10231CF4435
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128500.jpgsave_picture_128500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128500.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:6C87E453A404FFBCAE16D42315D0B46D72ACB4C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128501.jpgsave_picture_128501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128501.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:AFBD7D081C6242D60F2620816EC7A49CCD67C19C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128502.jpgsave_picture_128502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128502.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ OBS Studio 30.0.2 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128503.jpgsave_picture_128503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128503.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:30694B8D9E65EBA905EBF006EEADB306AB181B12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128504.jpgsave_picture_128504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128504.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Adobe Premiere Pro 2024 24.1.0.85 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128505.jpgsave_picture_128505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128505.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:D09D9B37F63EC753BE17F2D96C0FE5BB560BE925
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128506.jpgsave_picture_128506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128506.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Need for Speed: Most Wanted (2005) [Ru/Multi] (1.3) Repack Decepticon [Black Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128507.jpgsave_picture_128507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128507.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Adobe After Effects 2024 24.1.0.78 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128508.jpgsave_picture_128508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128508.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:C33890EBAFE518711E51A0BD3CE7D54E8DC3FEDD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128509.jpgsave_picture_128509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128509.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:CC6570209A1D99AF18206D99820D8BC650DFD5BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128510.jpgsave_picture_128510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128510.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:3A6F931C887C4ED050ACFBCE52D49E90883DA139
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128511.jpgsave_picture_128511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128511.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:0162F59797AB1A06661F54171567BC111FB7C3DD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128512.jpgsave_picture_128512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128512.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:1C9DB03C7B9663D46BBDEC6764EEF33E4977B90C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128513.jpgsave_picture_128513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128513.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack Decepticon [Collector's Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128514.jpgsave_picture_128514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128514.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:B27411D8F197E65944B181F1E6544BDD5795A36D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128515.jpgsave_picture_128515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128515.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ The KMPlayer 4.2.3.6 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128516.jpgsave_picture_128516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128516.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:FF407E778E3F7D7689F4BFC51C9187AB016B4EC0
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128517.jpgsave_picture_128517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128517.jpg" />
 </div>
 
 

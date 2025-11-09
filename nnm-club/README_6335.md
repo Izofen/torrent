@@ -6,7 +6,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198392.jpgsave_picture_198392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198392.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kalacheva School, Вероника Калачева | Акварель Про 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198393.jpgsave_picture_198393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198393.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9F5709670722BDD4495D70B0483667277B10F523
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198395.jpgsave_picture_198395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198395.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5CB19143855FD8CFF8F0A9477F80AA713399A89D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198396.jpgsave_picture_198396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198396.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:926AFEF150E0B069ECB9FFF6C90C657F7FFF366C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198398.jpgsave_picture_198398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198398.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:459D3E8E94D5FEAD1DC539C47693F1A7777DDA2E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198399.jpgsave_picture_198399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198399.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198400.jpgsave_picture_198400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198400.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:02B7B3A1E1485DA9312E1430814890B51E40A5D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198402.jpgsave_picture_198402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198402.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:35B9F05C9E4203177D7E301104AD0DA57C41109B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198403.jpgsave_picture_198403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198403.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:30B95CDF255BCDAA3CD74904C4162ACDEA2A530B
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198405.jpgsave_picture_198405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198405.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:6BFA2ABECBB42CEB8874534672C80FDF0A38FCCB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198407.jpgsave_picture_198407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198407.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:62B8DB58414802B4C4F85FCBB6BFEC0933F9F7D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198408.jpgsave_picture_198408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198408.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ V.A. - Pop Nostalgia (Popular Songs From The Past Revisited) Vol. 1 / Vol. 2 (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198409.jpgsave_picture_198409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198409.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:6BCC5877961896D7840850A8C8C50C700532DF1F
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198410.jpgsave_picture_198410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198410.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:DC37CF62A7429F13DD4B965B28C05E2AAF546E99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198411.jpgsave_picture_198411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198411.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:70A949CB91AD724A9100FC804FED324D8CA99948
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198412.jpgsave_picture_198412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198412.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Windows 10.0.19044.2965, Version 21H2 (Updated May 2023) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198413.jpgsave_picture_198413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198413.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:AAB93BE809B9E54B413071EDD4B7FDFAF4C0D592
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198414.jpgsave_picture_198414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198414.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:24E785E81F8D3F6A60AF94BE875E8845F86B9E51
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198415.jpgsave_picture_198415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198415.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:40512BC90B839D802C1B22571A7CD9EDE9D27BB6
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198416.jpgsave_picture_198416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198416.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:16BA08624E3B089859CF32EEC350EFA4407FC655
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198417.jpgsave_picture_198417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198417.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - A State Of Trance 2023 (Mixed by Armin van Buuren) (2023) [MP3|320 Kbps] <T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198419.jpgsave_picture_198419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198419.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:047F62A98CCBC4ED36577614F327EC481CD7E464
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198420.jpgsave_picture_198420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198420.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Microsoft Windows 11 [10.0.22000.1936], Version 21H2 (Updated May 2023) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198421.jpgsave_picture_198421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198421.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Display Driver Uninstaller 18.0.6.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198422.jpgsave_picture_198422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198422.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ KMPlayer 4.2.2.77 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198423.jpgsave_picture_198423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198423.jpg" />
 </div>
 
 

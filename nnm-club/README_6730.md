@@ -6,7 +6,7 @@ VA - Nothing But... Trancetopia, Vol. 06 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231447.jpgsave_picture_231447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231447.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ King Crimson - The Condensed 21st Century Guide To King Crimson 1969 - 2003 (200
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231448.jpgsave_picture_231448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231448.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Sorcia - Lost Season (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231449.jpgsave_picture_231449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231449.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Critical Defiance - No Life Forms (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231450.jpgsave_picture_231450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231450.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ magnet:?xt=urn:btih:273990F274D7CE975A6746085AFE8DE7F14D592B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231451.jpgsave_picture_231451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231451.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ RAR for Linux 6.22 [x32, x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231453.jpgsave_picture_231453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231453.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Aiseesoft DVD Creator 5.2.38 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231454.jpgsave_picture_231454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231454.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:E5C73B5CBB7A795DDCA5075FB0C4F0DFC14F44EF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231455.jpgsave_picture_231455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231455.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:4ECF1DC26D011C4FC96F2FBD5904265F2069AD5E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231457.jpgsave_picture_231457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231457.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Integrity Pro 12.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231458.jpgsave_picture_231458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231458.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:4A30B5D1C89AD96FD32CD3ED1E8CD31D80970BEA
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231460.jpgsave_picture_231460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231460.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Smart Driver Manager Pro 6.4.970 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231461.jpgsave_picture_231461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231461.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Icecream Video Editor Pro 3.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231462.jpgsave_picture_231462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231462.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:E2EA616EDB059879C223CE59E227829C80D6DD6D
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231463.jpgsave_picture_231463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231463.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - 2Rock Club Hits Vol. 4 (2023) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231464.jpgsave_picture_231464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231464.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Booze Control - Forgotten Lands (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231465.jpgsave_picture_231465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231465.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:80620F2FFD5831E0172EF71449C4AB5DE756D4DC
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231467.jpgsave_picture_231467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231467.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:9074AB83034808A7B8D80A9C4B078017FA4C81D4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231469.jpgsave_picture_231469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231469.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Brave Browser 1.56.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231470.jpgsave_picture_231470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231470.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Java SE Development Kit 11.0.19 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231471.jpgsave_picture_231471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231471.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:E86C9074555D06B81EFE9882EEEBE413FD0D2DB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231474.jpgsave_picture_231474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231474.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Megattack - 2 Albums (1987-2023) [FLAC|Lossless|WEB-DL|tracks] <hard rock, heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231475.jpgsave_picture_231475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231475.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - 10 Years Of Suanda Music - Mixed by Tycoos (2023) [MP3|320 Kbps] <Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231476.jpgsave_picture_231476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231476.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Никита Богословский•Три года ты мне сни�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231477.jpgsave_picture_231477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231477.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Voidceremony - Threads of Unknowing (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231479.jpgsave_picture_231479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231479.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Google Chrome 114.0.5735.91 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231480.jpgsave_picture_231480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231480.jpg" />
 </div>
 
 

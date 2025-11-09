@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152121.jpgsave_picture_152121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152121.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ O. D. Davey - Some Waking Woman (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152123.jpgsave_picture_152123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152123.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:25BC670FBFD57D05950E4D176796BDEE26A7A119
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152125.jpgsave_picture_152125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152125.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Everything 1.4.1.924 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152126.jpgsave_picture_152126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152126.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:13D12CD1ED286BCC341C729A8767BC5DD8E53770
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152127.jpgsave_picture_152127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152127.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Imperial Triumphant - Spirit Of Ecstasy (2022) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152128.jpgsave_picture_152128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152128.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ IOQuake3 (Quake III Arena) (2009) [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152129.jpgsave_picture_152129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152129.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:473BA24642E4C146354F914FFA07A4EEEBE70865
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152130.jpgsave_picture_152130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152130.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Orianthi - Violet Journey (2006) Not On Label, Australia [MP3|320 Kbps] <Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152133.jpgsave_picture_152133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152133.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:F277EF627C49D08C61823D8FD92BD336859F78A2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152135.jpgsave_picture_152135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152135.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:DC02EED63D6B515579486B52021D51250C6DB244
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152136.jpgsave_picture_152136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152136.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:7A5BD68D327574B1059C5112A4D81E8F727A943F
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152137.jpgsave_picture_152137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152137.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:10EBC6BB0D510E5F76A6D7EF3DCDCD4F35BCE9B5
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152139.jpgsave_picture_152139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152139.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshin
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152141.jpgsave_picture_152141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152141.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:C2BC3B82BA26EA3008A9A9BB47C7C5A5DCAD92F1
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152143.jpgsave_picture_152143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152143.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:D8B02751D6F7EBB4026188885CF88EFAAB144DBD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152144.jpgsave_picture_152144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152144.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:890020B30D531C84016188FEFF3D681F8719A7F8
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152145.jpgsave_picture_152145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152145.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VueScan Pro 9.7.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152146.jpgsave_picture_152146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152146.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:D2B5E48AC4B4B8E4D5F876C77F114E60792A8A5B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152148.jpgsave_picture_152148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152148.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:F1E87627C427DD3796EC86B7B876B12260254507
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152149.jpgsave_picture_152149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152149.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Animal Planet: Летающие челюсти. Прогулка с белыми
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152151.jpgsave_picture_152151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152151.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Ventoy 1.0.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152152.jpgsave_picture_152152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152152.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Capsula - Sense of a Drop (2009) Waveform Records [FLAC|Lossless|tracks+.cue] <P
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152153.jpgsave_picture_152153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152153.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Combo Cleaner Antivirus Premium 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152154.jpgsave_picture_152154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152154.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:FC9D15BE0A407BA5B595D8D0E3F79B560923D039
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152155.jpgsave_picture_152155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152155.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ IObit Driver Booster Pro 3.1.1.457 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152156.jpgsave_picture_152156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152156.jpg" />
 </div>
 
 

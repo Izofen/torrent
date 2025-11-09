@@ -6,7 +6,7 @@ Bandle Tale: A League of Legends Story (2024) [Ru/Multi] (1.068p/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116107.jpgsave_picture_116107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116107.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:316BB60C28397C67C5ADD132CF32000DB9BCC18D
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116108.jpgsave_picture_116108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116108.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:95887557120FD56B1031942F6AE118ABD8DD393E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116109.jpgsave_picture_116109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116109.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (15.02.2024) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116110.jpgsave_picture_116110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116110.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:65A02207FC739694161E5966D03FEBA9084F60F3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116111.jpgsave_picture_116111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116111.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6399279D09C2202B1253B4D1D3DC4F989946CE1B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116112.jpgsave_picture_116112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116112.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5B8FEF6881451C125BDC51E3475905DFC6C6BF46
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116113.jpgsave_picture_116113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116113.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:4394FA486499889651A9F666CCF53A88E669AC06
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116114.jpgsave_picture_116114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116114.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:9B0555B579482E4825CA99A55A5B12F3551098B3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116115.jpgsave_picture_116115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116115.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Forgiveness (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116116.jpgsave_picture_116116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116116.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:A11E9AEEF908A432BEE071C3C882D180A6071238
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116117.jpgsave_picture_116117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116117.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:883FF17B71E3E826E25819AA440B8AF266C37723
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116118.jpgsave_picture_116118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116118.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:FCF527F8D407D06B5FF3FDF5F1ACABDAE7984270
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116119.jpgsave_picture_116119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116119.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:379874A14CEB09DCB2F674692E190D22B66EE7E8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116120.jpgsave_picture_116120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116120.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:379874A14CEB09DCB2F674692E190D22B66EE7E8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116121.jpgsave_picture_116121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116121.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Universal TV Remote / Универсальный ТВ пульт v2.6.3 Mod by d
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116122.jpgsave_picture_116122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116122.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:1AC9B33992527BFD65B9EEAC1BB94022A8D5C55F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116123.jpgsave_picture_116123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116123.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:59BA8C7F9BA3A2E741AEE409AC64E140678D8D87
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116124.jpgsave_picture_116124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116124.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Killer Instinct (2017) [Ru/Multi] (3.11.3111.1.294202/dlc) Repack dixen18 [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116125.jpgsave_picture_116125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116125.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:C0DFCF504C2C00387CA9F55E4840DE9E40435343
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116126.jpgsave_picture_116126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116126.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ GoodbyeDPI 0.2.2 Launcher 6.9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116127.jpgsave_picture_116127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116127.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:8A5F57DD8A5BA4B4D9EE28C446B419805506FA75
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116128.jpgsave_picture_116128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116128.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:AFC8D7BC8CC907E6F9F6465C8657D7CEE511D44E
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116129.jpgsave_picture_116129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116129.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:ABC8B3125CFA315E682138AF14C55D7381C05E97
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116130.jpgsave_picture_116130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116130.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Garmin: TOPO Active Russia v.5.00 [Ru]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116131.jpgsave_picture_116131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116131.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:EFC447BDBA02B38D1C9910DF9237301452DD33CB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116132.jpgsave_picture_116132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116132.jpg" />
 </div>
 
 

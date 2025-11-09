@@ -6,7 +6,7 @@ River City Girls 2 (2022) [Ru/Multi] (1.1.3/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28729.jpgsave_picture_28729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28729.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28732.jpgsave_picture_28732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28732.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5/dlc) Repack Let'sРlay [Digital Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28745.jpgsave_picture_28745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28745.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28747.jpgsave_picture_28747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28747.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ReSetna (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28789.jpgsave_picture_28789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28789.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.00/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28802.jpgsave_picture_28802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28802.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28820.jpgsave_picture_28820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28820.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Asterigos Curse of the Stars (2022) [Ru/Multi] (01.09.0000/dlc) Repack Let'sРla
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28833.jpgsave_picture_28833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28833.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28836.jpgsave_picture_28836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28836.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wreckfest (2018) [Ru/Multi] (1.0o/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28845.jpgsave_picture_28845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28845.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Retro City Rampage DX (2014) [Multi] (2.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28864.jpgsave_picture_28864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28864.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28892.jpgsave_picture_28892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28892.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (Build 17103742/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28893.jpgsave_picture_28893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28893.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28897.jpgsave_picture_28897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28897.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.130.1.0/dlc) Repack DjDI [Digital Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28909.jpgsave_picture_28909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28909.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Metal Savior Black (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28913.jpgsave_picture_28913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28913.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28914.jpgsave_picture_28914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28914.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Foundation (2019) [Ru/Multi] (1.10.2.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28916.jpgsave_picture_28916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28916.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Deliver Us Mars (2023) [Ru/Multi] (2.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28917.jpgsave_picture_28917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28917.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28925.jpgsave_picture_28925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28925.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28926.jpgsave_picture_28926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28926.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28939.jpgsave_picture_28939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28939.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Eternal Strands (2025) [Multi] (1.0.12.8195) Scene FAiRLiGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28941.jpgsave_picture_28941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28941.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28943.jpgsave_picture_28943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28943.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cryptical Path (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28967.jpgsave_picture_28967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28967.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28976.jpgsave_picture_28976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28976.jpg" />
 </div>
 
 

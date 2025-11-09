@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87261.jpgsave_picture_87261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87261.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Weather Clock 4.4 Repack [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87262.jpgsave_picture_87262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87262.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Weather Clock - преобразит ваши часы в трее, добави
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87264.jpgsave_picture_87264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87264.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:7684D492580ABF4FAEE731A1AA32E9685BD8A254
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87265.jpgsave_picture_87265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87265.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VMware Workstation Technology Preview 2012 8.1 Build 646643 [Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87269.jpgsave_picture_87269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87269.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VMware Workstation — известная программа для виртуа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87273.jpgsave_picture_87273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87273.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VMware Workstation — известная программа для виртуа
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87274.jpgsave_picture_87274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87274.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:EBAF147CA4DCADD473981CD4F7B494624C426FC8
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87275.jpgsave_picture_87275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87275.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:04283D5C9990D8F245D7E4A7F42941E786739007
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87276.jpgsave_picture_87276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87276.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Deadly 30 (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87277.jpgsave_picture_87277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87277.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:B4F68DB5E9FCF771188391B9D31E5AEF50181350
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87278.jpgsave_picture_87278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87278.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:8770FB222A98F21A9C5FA225B7BAF2E1054B9D90
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87279.jpgsave_picture_87279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87279.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Crysis 2 Limited Edition + DirectX 11 Upgrade Pack + High-Res Texture Pack [Ru/E
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87280.jpgsave_picture_87280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87280.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ SOFTPIR WPIConstructor v.04.12 (x32/x64/ML/RUS/XP/Vista/7)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87281.jpgsave_picture_87281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87281.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ SOFTPIR WPIConstructor v.04.12 (x32/x64/ML/RUS/XP/Vista/7)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87282.jpgsave_picture_87282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87282.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:3360CB35F1AC2B6BADF697F492302757D093C7B4
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87283.jpgsave_picture_87283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87283.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ RAGE предлагает сыграть за традиционно безым�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87284.jpgsave_picture_87284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87284.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Gran Turismo 3 A-spec (RePack/Emul) [Ru/En] 2001 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87285.jpgsave_picture_87285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87285.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Lenovo S-Series recovery DVD Windows 7 Starter SP1 x86 RUS 6.1 6.1 (сборка
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87286.jpgsave_picture_87286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87286.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Windows 7x86x64 Ultimate UralSOFT v.4.4.12 (2012) (Rus)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87287.jpgsave_picture_87287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87287.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Windows 7x86x64 Ultimate UralSOFT v.4.4.12 (2012) (Rus)
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87290.jpgsave_picture_87290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87290.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Microsoft Toolkit 2.3.2 Stable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87291.jpgsave_picture_87291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87291.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru/En] (RePack) 2012 | R.G. Ori
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87292.jpgsave_picture_87292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87292.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Disney Universe [WineSkin]
 >>Kinder Games для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87294.jpgsave_picture_87294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87294.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Multi Flash Kit by Core-2(Набор утилит для работы с фле�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87296.jpgsave_picture_87296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87296.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Windows 7 Ultimate x86 v.04.2012 (Иваново) 04.2012 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87297.jpgsave_picture_87297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87297.jpg" />
 </div>
 
 

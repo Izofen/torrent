@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192994.jpgsave_picture_192994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192994.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Thammuz - Sons of the Occult (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192995.jpgsave_picture_192995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192995.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:474940A42CA68FE3125579009471722E5E86CE61
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192996.jpgsave_picture_192996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192996.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:48CC8E02E0E3BBA357FD01E7F9FDD6C1F40A8BAC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192997.jpgsave_picture_192997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192997.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:BFC608A8722ECAC2F700A2994054C85C87406CED
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192998.jpgsave_picture_192998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192998.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Silver Phantom - Crimson Cabaret (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192999.jpgsave_picture_192999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192999.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Death And The Labyrinth (folk metal) (2023) 2CD [MP3|320 Kbps] <Metal, Paga
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193000.jpgsave_picture_193000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193000.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Vulture - Dealin' Death (2021) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193001.jpgsave_picture_193001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193001.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ DIGI Clock Widget Plus 3.3.2 (build 25412) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193002.jpgsave_picture_193002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193002.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Hostage - MEMENTO MORI (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193003.jpgsave_picture_193003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193003.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:1403D42B22004F88E016E72CA14EBC276137073F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193004.jpgsave_picture_193004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193004.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ October Ends - PHASES (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193005.jpgsave_picture_193005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193005.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:6E7126C7E644C2E7BC43B93A9A1E490CFA01F613
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193006.jpgsave_picture_193006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193006.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Fallujah - Undying Light (2019) [FLAC|Lossless|tracks + .cue] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193007.jpgsave_picture_193007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193007.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:D5B0A18FDA174A7A878A2E48480D46D0C2CF9C3B
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193008.jpgsave_picture_193008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193008.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:1C07C2B625FC248335157932EE9AF8C1C8996544
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193009.jpgsave_picture_193009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193009.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lost Souls - Closeyoureyesanditwonthurt (1996) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193010.jpgsave_picture_193010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193010.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Blood Of Christ - Iesvs·nazarenvs·rex·ivdaeorvm (2012) Compilation, Dismal Re
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193011.jpgsave_picture_193011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193011.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:90D5B3BB71B0EC3A8E999504E7E21F5D87EC2E2C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193012.jpgsave_picture_193012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193012.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:158ABFA67152ED1A723A2DB326B4D78855F4BF7A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193013.jpgsave_picture_193013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193013.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:A693EA16B7BD5A23BAA01C504483F0E8EB144AE6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193014.jpgsave_picture_193014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193014.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:304EF2F8BE271CAA1379F3311A18EB7B88DD32DA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193015.jpgsave_picture_193015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193015.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ CamScanner 6.48.1.2308290000 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193016.jpgsave_picture_193016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193016.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:1E2A2D93CFF8B88AA27A1A4FC4A4BE49F89D27F5
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193017.jpgsave_picture_193017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193017.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Benediction - The Grotesque - Ashen Epitaph (1994) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193018.jpgsave_picture_193018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193018.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Dr. Acula - Dr. Acula (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193019.jpgsave_picture_193019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193019.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Alene Misantropi - Absence of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Depres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111047.jpgsave_picture_111047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111047.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B02CDD1BDF3D7FC89C688568BF466EE932642FB7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111050.jpgsave_picture_111050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111050.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Thirsty Moon - Starchaser (1981) LP [MP3|320 Kbps] <Pop-rock, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111051.jpgsave_picture_111051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111051.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Billy Morrison - The Morrison Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111054.jpgsave_picture_111054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111054.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lyndsy Says - Lindsy Says (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111058.jpgsave_picture_111058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111058.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ends With A Bullet - The Game (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111061.jpgsave_picture_111061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111061.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Savage Wizdom - Who's Laughing Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111068.jpgsave_picture_111068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111068.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Deviated Instinct - Husk (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Crust Punk, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111074.jpgsave_picture_111074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111074.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Deviated Instinct - Liberty Crawls to the Sanctuary of Slaves (2013) EP [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111076.jpgsave_picture_111076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111076.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ L.a. Guns - Black Diamonds (2024) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111084.jpgsave_picture_111084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111084.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Zuider Zee - Collection (1975-2018) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111109.jpgsave_picture_111109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111109.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Angel Witch - Angel Witch (1980) Reissue, Remastered, Universal [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111111.jpgsave_picture_111111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111111.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Preacher - The Final Attack (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111113.jpgsave_picture_111113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111113.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111123.jpgsave_picture_111123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111123.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:1A974EB4266945C0D192A1FF10BAA776875C2B87
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111129.jpgsave_picture_111129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111129.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Bongripper - Empty (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111142.jpgsave_picture_111142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111142.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dee_Waste - Всем, кто остался (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111154.jpgsave_picture_111154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111154.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Junkyard Drive - Look At Me Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111155.jpgsave_picture_111155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111155.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Escape The Fate - Out Of The Shadows 2.0 (2023) Deluxe Edition, 2024, Big Noise 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111162.jpgsave_picture_111162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111162.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Whitecross - Fear No Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111168.jpgsave_picture_111168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111168.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kid Nebraska - Loud and Rude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111169.jpgsave_picture_111169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111169.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Korpiklaani - Rankarumpu (2024) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111177.jpgsave_picture_111177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111177.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:8C3F84165B651FDAA9CAB8FBE13B4F6F1EAAE121
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111182.jpgsave_picture_111182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111182.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Nocturna - Of Sorcery And Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111183.jpgsave_picture_111183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111183.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:33EF5E809F555D7868349597F9C7481E03ED2535
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111184.jpgsave_picture_111184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111184.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Deviated Instinct - Welcome To The Orgy (2006) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111200.jpgsave_picture_111200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111200.jpg" />
 </div>
 
 

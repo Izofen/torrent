@@ -6,7 +6,7 @@ Bound By Blades (2022) [Multi] (1.7.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181340.jpgsave_picture_181340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181340.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Christmas Wonderland 13 (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181618.jpgsave_picture_181618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181618.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ NASCAR Arcade Rush (2023) [En] (1.0.0.2/dlc) Scene Tenoke [Project-X Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181790.jpgsave_picture_181790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181790.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BIT.TRIP RERUNNER (2023) [Multi] (20230927) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181886.jpgsave_picture_181886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181886.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:32F69DE315A08896E0C6D26737C74E8A6FF83E1D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181896.jpgsave_picture_181896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181896.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182046.jpgsave_picture_182046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182046.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (53106) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182090.jpgsave_picture_182090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182090.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (208081) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182112.jpgsave_picture_182112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182112.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182201.jpgsave_picture_182201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182201.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ BIT.TRIP Presents... Runner2: Future Legend of Rhythm Alien (2013) [En] (2.0.0.3
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182212.jpgsave_picture_182212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182212.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ BIT.TRIP BEAT (2009) [En] (2.0.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182311.jpgsave_picture_182311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_182311.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bendy and the Dark Revival (2022) [En] (1.0.0.0215) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182713.jpgsave_picture_182713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182713.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182868.jpgsave_picture_182868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182868.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183333.jpgsave_picture_183333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183333.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183420.jpgsave_picture_183420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183420.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Rabat Protocol: Metal Rhapsody (2023) [Multi] (20230802) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183464.jpgsave_picture_183464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183464.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183497.jpgsave_picture_183497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183497.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mystery Case Files 24: The Last Resort (2022) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183619.jpgsave_picture_183619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183619.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183850.jpgsave_picture_183850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183850.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184233.jpgsave_picture_184233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184233.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Hidden Object Secrets: Family Revenge (2023) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184533.jpgsave_picture_184533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184533.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (7.3.0/dlc) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184725.jpgsave_picture_184725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184725.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184767.jpgsave_picture_184767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184767.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184832.jpgsave_picture_184832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184832.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Royal Romances: Battle of the Woods / Королевские романы: Би�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185033.jpgsave_picture_185033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185033.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Paranormal VHS (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185043.jpgsave_picture_185043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185043.jpg" />
 </div>
 
 

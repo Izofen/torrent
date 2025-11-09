@@ -6,7 +6,7 @@ Max Shin - 2 Albums (2023) [MP3|320 Kbps] <Punk, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191006.jpgsave_picture_191006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191006.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:50F5369C036DDEC005E261AE9A53A22DF3840FA1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191007.jpgsave_picture_191007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191007.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Stilgar - Живым Или Мёртвым (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191008.jpgsave_picture_191008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191008.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2641F4998E41AF80B0F54791EF45DD93F18821D5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191009.jpgsave_picture_191009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191009.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:50A650123862790D428397DDECD4C4AAB7E6824E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191010.jpgsave_picture_191010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191010.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Blackbird Angels - Solsorte (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191011.jpgsave_picture_191011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191011.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Entrails - An Eternal Time Of Decay (2022) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191012.jpgsave_picture_191012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191012.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Chris Warner | Артбук по комиксам Чужой и Хищник / A
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191013.jpgsave_picture_191013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191013.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone 2 (2002) CAMJazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191014.jpgsave_picture_191014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191014.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:F056FE93E4B00380FFEE8260C4CD84C77B5C4724
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191015.jpgsave_picture_191015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191015.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191016.jpgsave_picture_191016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191016.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:CD66BE5B12761F61A00413257C2AD9FE78EBF047
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191017.jpgsave_picture_191017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191017.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ R-Wipe & Clean 20.0.2376 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191018.jpgsave_picture_191018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191018.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:6923C4965BB83B77F260ABD549E53EDD23A991DC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191019.jpgsave_picture_191019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191019.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191020.jpgsave_picture_191020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191020.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Phase One Capture One Pro 22 15.4.2.10 Portable by conservator [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191021.jpgsave_picture_191021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191021.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:AD6CE6C400706396D572FB7A0935934BE4DC2E14
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191022.jpgsave_picture_191022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191022.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:16E5EBBE86FCE8368AD3D2949D831F499B1BB111
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191023.jpgsave_picture_191023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191023.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Dance Remixes 2022 Formentera Edition (2022) [MP3|320 Kbps] <Euro Dance, Cl
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191024.jpgsave_picture_191024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191024.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:F04833F57BC7F64981D21AD99D60917B07CC09D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191025.jpgsave_picture_191025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191025.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A9D4F3312707D7785F93C7BDDE43E775DAD0A15C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191026.jpgsave_picture_191026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191026.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:EB2D342F307CA55825C8768998A4EA4061357B54
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191027.jpgsave_picture_191027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191027.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191028.jpgsave_picture_191028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191028.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191029.jpgsave_picture_191029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191029.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Scene Rune [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191030.jpgsave_picture_191030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191030.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:33090F084D6EEB33740938C9FEE5A663C98FDDD5
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191032.jpgsave_picture_191032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191032.jpg" />
 </div>
 
 

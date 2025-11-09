@@ -6,7 +6,7 @@ Magnolia Black - Magnolia Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238643.jpgsave_picture_238643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238643.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Condemned-AD - Follow a Failing Leader (2022) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238644.jpgsave_picture_238644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238644.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Prey - Knights of the Revolution (2009) [WavPack|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238651.jpgsave_picture_238651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238651.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sinshrift - Sinshrift (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238658.jpgsave_picture_238658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238658.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Godflesh - Purge (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Experim
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238665.jpgsave_picture_238665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238665.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bravo Delta - Chrysalis (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238667.jpgsave_picture_238667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238667.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aggression - Fragmented Spirit Devils (2016) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238674.jpgsave_picture_238674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238674.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Murlocs - Calm Ya Farm (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238676.jpgsave_picture_238676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238676.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dark At Dawn - Of Decay And Desire (2003) [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238680.jpgsave_picture_238680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238680.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Forge the Sun - Heart of the Sunrise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238684.jpgsave_picture_238684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238684.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Def Leppard - High 'N' Dry (1981) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238690.jpgsave_picture_238690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238690.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Skreen 6 - Rockin' Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238692.jpgsave_picture_238692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238692.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lewis Capaldi - Broken By Desire To Be Heavenly Sent (2023) [FLAC 24/48|Lossless
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238693.jpgsave_picture_238693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238693.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rammstein - Zeit (2022) [MP3|320 Kbps] <NDH, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238697.jpgsave_picture_238697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238697.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ohtar - Euthanasia of Existence (2016) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238698.jpgsave_picture_238698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238698.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Preludium Fury - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238705.jpgsave_picture_238705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238705.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Abscess - Horrorhammer (2007) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238712.jpgsave_picture_238712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238712.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Perfect Storm - No Air (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238715.jpgsave_picture_238715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238715.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Pertness - Frozen Time (2012) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238718.jpgsave_picture_238718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238718.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wailin Storms - The Silver Snake Unfolds (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238720.jpgsave_picture_238720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238720.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Pertness - Metamorphosis (2018) [FLAC|Lossless|image + .cue] <Melodic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238722.jpgsave_picture_238722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238722.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Morgarten - Cry Of The Lost (2021) [FLAC|Lossless|image + .cue] <Folk Metal, Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238727.jpgsave_picture_238727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238727.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Fireforce - Rage of War (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238730.jpgsave_picture_238730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238730.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Pertness - From The Beginning To The End (2010) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238731.jpgsave_picture_238731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238731.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Angel Of Suicide - Suicide Symphony (2022) [FLAC|Lossless|WEB-DL|tracks] <Depres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238736.jpgsave_picture_238736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238736.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Anzv - Gallas (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238743.jpgsave_picture_238743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238743.jpg" />
 </div>
 
 

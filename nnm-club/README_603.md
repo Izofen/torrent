@@ -6,7 +6,7 @@ CalcKit: All-In-One Calculator / Всё-в-одном Калькулятор v7.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15990.jpgsave_picture_15990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15990.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:80F275D06BB90E27C011CD8ACB9BDDC7D4C6C7D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15991.jpgsave_picture_15991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15991.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:15500EF6CBA6DF10E81431E2D4CF2F660D327149
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15992.jpgsave_picture_15992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15992.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8B990707620DE8CC436CFB8B92D8104A9EE4B795
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15993.jpgsave_picture_15993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15993.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:474BAEC6433B7F891D190647FCBAF83A20C90ED0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15994.jpgsave_picture_15994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15994.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7FDB82A991351A056F43A3406A76AB986930F6FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15995.jpgsave_picture_15995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15995.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0AED13078F545189203F72D0B0158CDF28A494F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15996.jpgsave_picture_15996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15996.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:347C70F2E5A3471108B0E29B62FBE28B043DB677
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15997.jpgsave_picture_15997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15997.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:EDA6E9AC410B19B9E8ED7ADDCD111E6E71F72344
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15998.jpgsave_picture_15998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15998.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Sonible smart:reverb 2 1.0.1 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15999.jpgsave_picture_15999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_15999.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:C9796AACDF073CC27DDB1D853255644E2F90FB1D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16000.jpgsave_picture_16000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16000.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:C9796AACDF073CC27DDB1D853255644E2F90FB1D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16001.jpgsave_picture_16001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16001.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:21AF79B5E9DB400126678B8A4D8CDB299E9F30C4
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16002.jpgsave_picture_16002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16002.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:07134E98BB4F96A2F93AB2981BD7636DA7837BA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16003.jpgsave_picture_16003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16003.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:A4BEB6720EDE867D4AD1AA1B2A784918B40E9667
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16004.jpgsave_picture_16004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16004.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:BC402250AAA129BD6B845C08C3CCBF42B94DC136
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16005.jpgsave_picture_16005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16005.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (Build 18642542) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16006.jpgsave_picture_16006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16006.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:6CF045369685242FF2B2316F31A8F8723911725D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16007.jpgsave_picture_16007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16007.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:D6841C3B30CF7226B5C15E059358C8BB31D96216
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16008.jpgsave_picture_16008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16008.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Cataclismo (2024) [Ru/Multi] (1.0.3.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16009.jpgsave_picture_16009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16009.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:2B9CB855E5EC2A79344D211EEC881B7D54E3C5C1
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16010.jpgsave_picture_16010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16010.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:888759E76AFB81B54E6A989DAA6574D79C708CDF
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16011.jpgsave_picture_16011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16011.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:8F3D65DA3EBEFDEC82AB366136F6913F55476F48
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16012.jpgsave_picture_16012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16012.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16013.jpgsave_picture_16013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16013.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16014.jpgsave_picture_16014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16014.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16015.jpgsave_picture_16015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16015.jpg" />
 </div>
 
 

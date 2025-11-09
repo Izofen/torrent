@@ -6,7 +6,7 @@ I Am Your God - SINister (2023) [MP3|320 Kbps] <Melodic Death Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189386.jpgsave_picture_189386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189386.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:48555C231EE8FF47986C7C9FF52E17D0DC88C993
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189387.jpgsave_picture_189387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189387.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Garnetta Cromwell - Time To Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189388.jpgsave_picture_189388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189388.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Fresh Rock Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189389.jpgsave_picture_189389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189389.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:FDE2D4D7866003EDECDDA7D2C3A18D10A0F018FB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189390.jpgsave_picture_189390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189390.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:70126D575B70555B3AD8EF9C9F489816D68380CB
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189391.jpgsave_picture_189391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189391.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mick Kolassa - Essentially Not Serious (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189392.jpgsave_picture_189392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189392.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Jazz & Soul Season 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189393.jpgsave_picture_189393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189393.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:9FF6E1A2E00CC53B2F6DFDF62C6BB6A7C73136C5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189394.jpgsave_picture_189394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189394.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:5E18FA1AB525897C7147DEAF7D9F4CFC71B3E7CE
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189395.jpgsave_picture_189395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189395.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Meurtrieres - Ronde de Nuit (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189396.jpgsave_picture_189396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189396.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:BD621343C0C11C0EC3A6B86B7359783522A78686
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189397.jpgsave_picture_189397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189397.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ I Am Your God - The Resurrection (2020) [MP3|320 Kbps] <Melodic Death Metal, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189398.jpgsave_picture_189398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189398.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ OmniGraffle Pro 7.21.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189399.jpgsave_picture_189399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189399.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:8F319D34752806AFE0BCE4F62C4F58AF989DD73B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189400.jpgsave_picture_189400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189400.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ I Am Your God - SINister (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189401.jpgsave_picture_189401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189401.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:7ED197FB6EC6E880DA695448E8D86D35B8A026FC
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189402.jpgsave_picture_189402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189402.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Nintendo | Артбук по игре Splatoon / The Art of Splatoon (2017) [CBR
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189403.jpgsave_picture_189403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189403.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpgsave_picture_189404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189405.jpgsave_picture_189405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189405.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:1E2B6233F04AB7FE1A97DAF9AED16355E0052C37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189406.jpgsave_picture_189406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189406.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:715E1B487D892ED82BF4D69DB1342BA1EFADA281
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189407.jpgsave_picture_189407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189407.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:DA5837DBE9C99FBD22EA8CBF4D3C7360997A0355
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189408.jpgsave_picture_189408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189408.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:FF7EF365F48C5E0C14CEABA961BB725876842314
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189409.jpgsave_picture_189409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189409.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Jay-Jay Johanson - Labyrinth (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative P
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189410.jpgsave_picture_189410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189410.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Marina Pacowski - Inner Urge (2023) Summit Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189411.jpgsave_picture_189411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189411.jpg" />
 </div>
 
 

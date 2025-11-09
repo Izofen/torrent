@@ -6,7 +6,7 @@ Bitwig Studio 5.2.0 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48483.jpgsave_picture_48483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48483.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:238EA537C33E0172F4D9640EF0E01105A602376C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48484.jpgsave_picture_48484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48484.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B4BC02DCC40C467176F99BEEA485FF02E6A8FD38
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48485.jpgsave_picture_48485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48485.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:888803BE847A4C5FC0074D4582A13D07547C48F7
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48486.jpgsave_picture_48486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48486.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:5979716AD45E3E382D57EB7C743FF0E868EC7A5D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48487.jpgsave_picture_48487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48487.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:7169BC10015C76665F46BD21CD1A42492B6833D9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48488.jpgsave_picture_48488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48488.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:77FCAC81100A089AF056F180B03E55B592CA5BD8
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48489.jpgsave_picture_48489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48489.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ XXXIII Летние Олимпийские Игры 2024. Церемония о�
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48490.jpgsave_picture_48490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48490.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ THE ORIGIN: Blind Maid (2021) [Multi] (1.3.0) Repack FitGirl [Definitive Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48491.jpgsave_picture_48491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48491.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:FE26C954738B1DD7BF14EE9EC2229E83C2F6AB47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48492.jpgsave_picture_48492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48492.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:AA24752FDA944FA9D04AD2FA358601FBAD431DDD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48493.jpgsave_picture_48493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48493.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:C2CA564B462FE2B2223607B03FE20D961272534C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48494.jpgsave_picture_48494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48494.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ VA - Pop-Rock Dreamers (2024) [MP3|320 Kbps] <Indie, Alternative, Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48495.jpgsave_picture_48495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48495.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:14E0841E789764089A6888820B0686BF7E01B377
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48496.jpgsave_picture_48496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48496.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ NoMachine 8.13.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48497.jpgsave_picture_48497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48497.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:B8B371E222F5714FD88DDA0EF7E9E9EFFB45E061
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48498.jpgsave_picture_48498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48498.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:B45A547E270BECCE7631FB4A621C999FDEAF13B6
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48499.jpgsave_picture_48499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48499.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Bon Jovi - Forever (2024) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48500.jpgsave_picture_48500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48500.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:17249D4F06B69B6C0EBA87A9915DBD83F2745CF2
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48501.jpgsave_picture_48501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48501.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Downward (2017) [Multi] (2.0.2) Repack FitGirl [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48502.jpgsave_picture_48502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48502.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Let's School (2023) [Ru/Multi] (1.3.4.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48503.jpgsave_picture_48503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48503.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Totally Accurate Battle Simulator (2019) [Ru/Multi] (1.0/dlc) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48504.jpgsave_picture_48504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48504.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Pinball FX (2023) [Multi] (1.0.18/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48505.jpgsave_picture_48505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48505.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Exposure X7 7.2.0.25 (x64) Portable by conservator [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48506.jpgsave_picture_48506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48506.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:DE48DFA4567CF90780A4EA87D71A183E1AA759BC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48507.jpgsave_picture_48507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48507.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ DxO PhotoLab Elite 7.8.0 build 254 (x64) Portable by conservator [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48508.jpgsave_picture_48508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48508.jpg" />
 </div>
 
 

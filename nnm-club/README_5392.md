@@ -6,7 +6,7 @@ Zelbo - In My Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167074.jpgsave_picture_167074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167074.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2D3B64CCBB20EAF13BC7A6A41D5A04F8F8A003DE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167075.jpgsave_picture_167075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167075.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Новый год 2021 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167076.jpgsave_picture_167076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167076.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C9F3EEDD892749FFAE23DE6095E3B73E534641AB
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167077.jpgsave_picture_167077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167077.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Cap Outrun - High On Deception (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167078.jpgsave_picture_167078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167078.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:415A343FEFC53F7D300DA92FAB73169A77E7F170
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167079.jpgsave_picture_167079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167079.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F63E162AD38929C286222ECB99EE7E9B05868ACB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167080.jpgsave_picture_167080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167080.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - 90's Best Eurodance: New Years Edition 2021 (2020) [MP3|320 Kbps] <Eurodanc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167081.jpgsave_picture_167081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167081.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:7C15D5D8F4C62A328721660879687D37144BCEAD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167082.jpgsave_picture_167082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167082.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Chromium 118.0.5993.118 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167083.jpgsave_picture_167083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167083.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Defected Presents Most Rated Summer 2021 (2021) [AAC|~318 Kbps] <House, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167084.jpgsave_picture_167084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167084.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167085.jpgsave_picture_167085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167085.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:DC802C2FF92B46C8A5B0E239F1BE52CFA60B55ED
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167086.jpgsave_picture_167086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167086.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:A888ACECB445065FF8CC8E5D92D401586E15F431
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167087.jpgsave_picture_167087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167087.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Defected Presents Most Rated 2021 (2020) [AAC|~322 Kbps] <House, Nu Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167088.jpgsave_picture_167088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167088.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:87021E3A19FE92C8B1CC5D3C557FBAA63D1D5B62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167089.jpgsave_picture_167089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167089.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:79B4CCEBF51A437242646279AF74CFED278D7B05
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167090.jpgsave_picture_167090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167090.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:2C9178B6FDC2F6802411E4B6B7BC7C66D24C9C7A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167092.jpgsave_picture_167092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167092.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Racecorner - Radiostation (2021) [AAC|~365 Kbps] <Dub Techno, Deep Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167093.jpgsave_picture_167093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167093.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:DCD64FBAFA72718A0443D66DE0DE7EDC23838760
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167094.jpgsave_picture_167094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167094.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:3FFE767CA1E5BE1E29CBBA57849C4C07D2115F0E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167095.jpgsave_picture_167095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167095.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Caravan 3 (2020) [AAC|~321 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167096.jpgsave_picture_167096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167096.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Seal 1.10.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167097.jpgsave_picture_167097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167097.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:E7C4FF9F6DF8F917EB0B2A7D9937600480568439
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167098.jpgsave_picture_167098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167098.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Half-Life 2: Эпизод два v78 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167099.jpgsave_picture_167099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167099.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ OpenNumismat 1.9.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167100.jpgsave_picture_167100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167100.jpg" />
 </div>
 
 

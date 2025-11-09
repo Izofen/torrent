@@ -6,7 +6,7 @@ Kaspersky World 1.3.2.103 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84181.jpgsave_picture_84181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84181.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Serv-U File Server Gold Edition 11.3.0.0 [Multilingual]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84182.jpgsave_picture_84182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84182.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Madonna - MDNA (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84183.jpgsave_picture_84183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84183.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84184.jpgsave_picture_84184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84184.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84185.jpgsave_picture_84185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84185.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ ASUS Eee PC 1000H вспомогательный DVD-диск версия 1.0 [
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84186.jpgsave_picture_84186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84186.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ magnet:?xt=urn:btih:A46DDCE23C69640DF265990E91E01053D9A9DA5A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84188.jpgsave_picture_84188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84188.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84190.jpgsave_picture_84190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84190.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Autodesk AutoCAD 2013 (x64) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84191.jpgsave_picture_84191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84191.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84192.jpgsave_picture_84192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84192.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D34B7BE823D8BD9D853283B882CD6F009E98812D
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84193.jpgsave_picture_84193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84193.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E82BEC584018AA93083A3CBA0612E1C7064DF3AE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84194.jpgsave_picture_84194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84194.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:08E65D0442CA3CD6367BD6A96985DBD591609D94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84195.jpgsave_picture_84195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84195.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:EEF247917539E9DDA910A2B7D0666D75498823CB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84197.jpgsave_picture_84197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84197.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2C5A0831190F490B62CCD9A0FB56209E37CA5705
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84199.jpgsave_picture_84199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84199.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:2C5A0831190F490B62CCD9A0FB56209E37CA5705
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84200.jpgsave_picture_84200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84200.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:0EEF4EC0B7CD8535969AF328E4FD8DB2F4F2D0B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84201.jpgsave_picture_84201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84201.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:0EEF4EC0B7CD8535969AF328E4FD8DB2F4F2D0B0
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84202.jpgsave_picture_84202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84202.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:C3ADE9FF419AA44092280EA556F3B45B3169F1C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84203.jpgsave_picture_84203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84203.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Autodesk AutoCAD 2013 (x86) (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84204.jpgsave_picture_84204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84204.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Лучшие хиты дискотек 2000-х (Vol. 1,2) (2012) Refresh[MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84206.jpgsave_picture_84206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84206.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:849AF0FA8696DB5BE3CE112782E4F787C414D7C0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84207.jpgsave_picture_84207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84207.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Windows 8 Skin Pack for Windows 7 (x86/x64) 12.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84208.jpgsave_picture_84208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84208.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Windows 8 Skin Pack for Windows 7 (x86/x64) 12.0 [Русский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84209.jpgsave_picture_84209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84209.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Windows 8 Skin Pack for Windows 7 (x86/x64) 12.0 [Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84210.jpgsave_picture_84210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84210.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Wing Commander Saga: The Darkest Dawn [En] (P/1.0.2.7795) 2012
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84211.jpgsave_picture_84211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84211.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Xfer Records - Serum & SerumFX 1.36b3 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) Re
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202513.jpgsave_picture_202513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202513.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ PowerDirector Ultimate 21.1.2401.0 (x64) RePack by PooShock [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202533.jpgsave_picture_202533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202533.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ HitPaw Photo Enhancer 2.0.3.1 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202586.jpgsave_picture_202586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202586.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nik Collection by DxO 5.5.0.0 Portable by conservator [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202642.jpgsave_picture_202642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202642.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:448F42885019628C3B39D9CAB064031E8117BF50
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202732.jpgsave_picture_202732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202732.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202903.jpgsave_picture_202903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202903.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ ArtRage 6.1.3 RePack by OctaneS [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203490.jpgsave_picture_203490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203490.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Avid Sibelius Ultimate 2022.9 Build 1464 RePack by OctaneS [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204043.jpgsave_picture_204043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204043.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Avid Sibelius Ultimate 2019.5.0 Build 1469 RePack by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204059.jpgsave_picture_204059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204059.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D958B866D82999788F06082DCF3A2BAC9AAEE705
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204570.jpgsave_picture_204570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204570.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ The Foundry Nuke Studio 14.0v1 RePack by PooShock [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204607.jpgsave_picture_204607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204607.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ MAGIX Vegas Pro 20.0 Build 214 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204917.jpgsave_picture_204917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204917.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Adobe Illustrator 2023 27.0.0.602 RePack by PooShock [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205007.jpgsave_picture_205007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205007.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ vMix Pro 28.0.0.42 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205615.jpgsave_picture_205615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205615.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Adobe Illustrator 2026 30.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205616.jpgsave_picture_205616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205616.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Adobe Photoshop Lightroom Classic 2026 15.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205617.jpgsave_picture_205617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205617.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe Photoshop 2026 27.0.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205632.jpgsave_picture_205632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205632.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Imagine 2.3.0 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205648.jpgsave_picture_205648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205648.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The KMPlayer 4.2.3.25 repack by cuta (build 3) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205675.jpgsave_picture_205675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205675.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 Portable by conservator [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205687.jpgsave_picture_205687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205687.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:32C239D1969256BC96EC79AFE5A808FF941BFF97
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205690.jpgsave_picture_205690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205690.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Adobe Bridge 2026 16.0 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205764.jpgsave_picture_205764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205764.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Adobe InDesign 2026 21.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205778.jpgsave_picture_205778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205778.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Adobe InCopy 2026 21.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205810.jpgsave_picture_205810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205810.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Vegas Image 5.0.0 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206058.jpgsave_picture_206058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206058.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Pixarra TwistedBrush Blob Studio 5.04 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206184.jpgsave_picture_206184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206184.jpg" />
 </div>
 
 

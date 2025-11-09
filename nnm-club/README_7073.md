@@ -6,7 +6,7 @@
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242163.jpgsave_picture_242163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242163.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hookshot 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242164.jpgsave_picture_242164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242164.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:66F8C0E72BBCF7716AC8858C38640AF865695ED4
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242165.jpgsave_picture_242165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242165.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Medevil - Mirror In The Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242166.jpgsave_picture_242166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242166.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:86FA902D2476E409E21ADE8D5A2AB3F4499222B2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242167.jpgsave_picture_242167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242167.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:C3C4F82E8658A54D4A78BF6BC98B07F38BED69CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242168.jpgsave_picture_242168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242168.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:308F321744B643293782058C99B3468345273E63
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242169.jpgsave_picture_242169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242169.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:53BEAB5A145838DD5B9D8C5B132EF08908BCEE2B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242170.jpgsave_picture_242170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242170.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:783324305413B466D3AF46B736CC9C491E13DC63
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242171.jpgsave_picture_242171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242171.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Tom Scott - Them Changes (1990) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242172.jpgsave_picture_242172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242172.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:4C86858386142625F457DC068BBB8A38D594B663
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242173.jpgsave_picture_242173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242173.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ The Dust Coda - Mojo Skyline (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242174.jpgsave_picture_242174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242174.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ August Burns Red - Guardians (2020) [FLAC|Lossless|tracks] <Progressive Metalcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242175.jpgsave_picture_242175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242175.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:956B731C5844D797198FB9DECD15F49BD8D3A98B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242176.jpgsave_picture_242176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242176.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:1E1B5AD4CC4FCC3141238E24961CAAD30AD7407B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242177.jpgsave_picture_242177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242177.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Naughty Professor - Out On A Limb (2015) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242178.jpgsave_picture_242178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242178.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ StaxRip 2.2.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242179.jpgsave_picture_242179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242179.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ New Arcades - Until Now: The Decade Retrospective (2022) [MP3|320 Kbps] <Synthwa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242180.jpgsave_picture_242180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242180.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ SynthAttack + Basscalate - Discography 17 Releases (2015-2022) [MP3|320 Kbps] <H
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242181.jpgsave_picture_242181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242181.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Opera 97.0.4719.63 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242182.jpgsave_picture_242182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242182.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:A06DC9244726CCA0E6C358C8E03CE07A8C92D5FA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242183.jpgsave_picture_242183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242183.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Julio Barreto Cuban Quartet - Iyabo (2002) Pimienta Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242184.jpgsave_picture_242184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242184.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Nightrage - Insidious (2011) Japan [FLAC|Lossless|image + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242185.jpgsave_picture_242185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242185.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242186.jpgsave_picture_242186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242186.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - The Rock Collection - Rock Dreams (1992) 2CD Compilation [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242187.jpgsave_picture_242187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242187.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:DB8B2E4FA28811556E79C5AB71AB22A7086C343D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242188.jpgsave_picture_242188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242188.jpg" />
 </div>
 
 

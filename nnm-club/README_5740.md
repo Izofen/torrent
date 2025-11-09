@@ -6,7 +6,7 @@ Creation's End - A New Beginning (2010) [WavPack|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177471.jpgsave_picture_177471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177471.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0991F722BC310ADA60CC57A8C7043E46B3D385F3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177473.jpgsave_picture_177473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177473.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:308D01EAC62DE161EFD764C689EAEDB3EE585908
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177475.jpgsave_picture_177475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177475.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Principle 6 v.6.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177478.jpgsave_picture_177478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177478.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Van Halen - Dallas Live (1982) Broudcast, 2023, Golden Rain [MP3|320 Kbps] <Hard
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177481.jpgsave_picture_177481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177481.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Icecream Screen Recorder PRO 7.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177483.jpgsave_picture_177483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177483.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:0D9ABB974BEDC9AA00E329EB41CE9AD2B9527550
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177485.jpgsave_picture_177485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177485.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 2) (2023) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177487.jpgsave_picture_177487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177487.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Viber 21.1.0.6 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177489.jpgsave_picture_177489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177489.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:8308537FBB431DAB7D0B44E22595F6D781EE65AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177492.jpgsave_picture_177492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177492.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:9909196D4342F34A3819D3AD23348ADA885187D1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177493.jpgsave_picture_177493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177493.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ ExamDiff Pro Master Edition 14.0.1.14 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177496.jpgsave_picture_177496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177496.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ W10 Digital Activation v1.4.6 Portable Dark by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177497.jpgsave_picture_177497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177497.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ RarmaRadio Pro 2.75.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177499.jpgsave_picture_177499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177499.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:307E728949D930E77A74464A5BA911E6E58467AD
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177504.jpgsave_picture_177504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177504.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:7D181F432C2564CFFFF461B8257B490BE3648619
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177505.jpgsave_picture_177505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177505.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Dorian Electra - Fanfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177508.jpgsave_picture_177508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177508.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177509.jpgsave_picture_177509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177509.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Icecream Video Converter Pro 1.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177512.jpgsave_picture_177512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177512.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Will Jacobs, Ally Venable, Ashley Sherlock - Blues Caravan 2023 (Live) (2023) [F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177516.jpgsave_picture_177516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177516.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PIDKey Lite 1.64.4 b27 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177517.jpgsave_picture_177517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177517.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ ActionDirector - Видеоредактор v7.10.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177520.jpgsave_picture_177520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177520.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177521.jpgsave_picture_177521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177521.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:74F5701C70D7269E7007415681490898494F74F2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177523.jpgsave_picture_177523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177523.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:8E39C682F539956A848966040F363F491775F4E2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177528.jpgsave_picture_177528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177528.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:43A37A540F1AEC6D7DBE021F127B6CEB35287A4E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177529.jpgsave_picture_177529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177529.jpg" />
 </div>
 
 

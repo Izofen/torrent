@@ -6,7 +6,7 @@ VA - Prog Rock For Rookies (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189304.jpgsave_picture_189304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189304.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Roxy Music - The Thrill Of It All (1995) 4CD [MP3|320 Kbps] <Art Rock, Glam Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189305.jpgsave_picture_189305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189305.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:416FFC723E226CF98656EE14961036A2A28C3CCB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189306.jpgsave_picture_189306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189306.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:FEBC9C6802AD906AF2B2FFF59C55A40B60E0A2E1
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189307.jpgsave_picture_189307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189307.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Massive Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189308.jpgsave_picture_189308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189308.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.5.0 Stable + Portable + Standa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189309.jpgsave_picture_189309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189309.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:084A40148AC2A979779325F6C9BACAEB51745E9B
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189310.jpgsave_picture_189310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189310.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:F689E219A0C94716F8AC7AEDC77BB3C705254CF9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189311.jpgsave_picture_189311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189311.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:D98CAE9088A283A3FA074A17DF6052C2C84F8E8A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189312.jpgsave_picture_189312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189312.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:4C8205E9C5B1940B2A7B44E410232B66691AC494
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189313.jpgsave_picture_189313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189313.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:592EB895F94E886AB681EF81EDCDF10062524B31
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189314.jpgsave_picture_189314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189314.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:41BA10DA57AEC22EB5F6ABDF5BD3301F13915CE3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189315.jpgsave_picture_189315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189315.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Prog Rock For Rookies Vol.2 (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189316.jpgsave_picture_189316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189316.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:1376D4281C33C2D7AF452ED0091CD0A113F931C7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189317.jpgsave_picture_189317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189317.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E6DD9005D21024487E8CD056DAA9EB0F9F0EE28A
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189318.jpgsave_picture_189318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189318.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Firefox Browser ESR 115.2.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189319.jpgsave_picture_189319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189319.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:1C8A576F9A05EC34DABD4731B51A731D3C377D9A
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189320.jpgsave_picture_189320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189320.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:92C679AF2A00096D297D471C7A2170C52B1775E1
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189321.jpgsave_picture_189321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189321.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:FC9DD4A494E26E53A2BE4B1C43DC2484D638BAF7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189322.jpgsave_picture_189322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189322.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:49523D7FF3C0F5E05873C23594FC37BCD9BE8B49
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189323.jpgsave_picture_189323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189323.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:1043178C4009425AB29E7F0702E90D409EC0342F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189324.jpgsave_picture_189324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189324.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Jorge Gutierrez | Артбук по мультсериалу Майя и три 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189325.jpgsave_picture_189325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189325.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:60224C56FB8580A43D62BB4D6FF4DB79DD212471
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189326.jpgsave_picture_189326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189326.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189327.jpgsave_picture_189327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189327.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Guns N' Roses - Use Your Illusion (1991) 4CD, Super Deluxe, 2022, Guns N Roses P
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189328.jpgsave_picture_189328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189328.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:0519B7C12E14F4B727A27042302ACB317782D44D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189330.jpgsave_picture_189330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189330.jpg" />
 </div>
 
 

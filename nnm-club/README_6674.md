@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228979.jpgsave_picture_228979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228979.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:A8F2DB74E11390B2F97D4ACD6EC1A094767C7D8D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228980.jpgsave_picture_228980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228980.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CCDA5A6F14BE4D541182BAE40487B3F2A445F816
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228982.jpgsave_picture_228982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228982.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mindjet MindManager 2020 v20.1.238 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228983.jpgsave_picture_228983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228983.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:5E52486698668047C67C9FA11DFCA504513AAB81
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228984.jpgsave_picture_228984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228984.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ NGW: Поместье луговой собачки / Prairie Dog Manor (2019) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228986.jpgsave_picture_228986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228986.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Ahmed Romel ‎– The Manifesto (Blue Soho 10th Year Anniversary) (2020) [
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228988.jpgsave_picture_228988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228988.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:D890F07A91EE2E163D8AB7ADF558FAAF10C1E2D8
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228989.jpgsave_picture_228989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228989.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hellspike - Dynasties Of Decay (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228990.jpgsave_picture_228990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228990.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:36BAAF9E3595B7614A5FE88F98A1D5ECF69E1628
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228994.jpgsave_picture_228994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228994.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ LP (Laura Pergolizzi) - Heart to Mouth (2018) [MP3|320 Kbps] <Indie Rock, Pop Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228995.jpgsave_picture_228995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228995.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:CF0F34ED35934CA51692DC22B56F94E8B22617BB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228996.jpgsave_picture_228996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228996.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Perfect Plan - Brace For Impact (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228998.jpgsave_picture_228998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228998.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Fran Bow (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228999.jpgsave_picture_228999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228999.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:B5D238940B56349917DB64A1C8D684CC613E6AAB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229002.jpgsave_picture_229002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229002.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Any Video Converter Professional 6.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229003.jpgsave_picture_229003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229003.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:FEBCFEC3AA13E285E1C319246ED1325D2AAE8078
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229004.jpgsave_picture_229004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229004.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Sleeping With Sirens - Complete Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229005.jpgsave_picture_229005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229005.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - 100 Hits Winter 2021 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229009.jpgsave_picture_229009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229009.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Allegorithmic Substance Designer 2019.2.3 (build 2683) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229010.jpgsave_picture_229010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229010.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:417A076E328F0F95226538E2FC45FF91A12BF433
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229011.jpgsave_picture_229011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229011.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:DB0AF543429FF74138FAEA4126A5B8F947F73E4B
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229012.jpgsave_picture_229012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229012.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Icecream Screen Recorder Pro 7.14 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229015.jpgsave_picture_229015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229015.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ New Baccara - F.U.N. (1990) Japanese Edition [FLAC|Lossless|tracks + .cue] <Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229016.jpgsave_picture_229016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229016.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Aiseesoft Screen Recorder 2.1.66 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229018.jpgsave_picture_229018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229018.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:019E3200D09C9E79F2D52125E3D1E123F5FB0240
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229019.jpgsave_picture_229019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229019.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141562.jpgsave_picture_141562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141562.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A862E3F40A967493D2264F35DBDCB4BFBEE83966
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141563.jpgsave_picture_141563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141563.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1FEA9F8DE278B94941C715CDCE302A62319BA18D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141566.jpgsave_picture_141566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141566.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:436974C2E4CE747B68D236A84A968FF6ACCB5D51
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141567.jpgsave_picture_141567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141567.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:0C2D28B46080D1263DCDAE4D821303E1708766BF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141568.jpgsave_picture_141568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141568.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ cmiVFX.com | Arnold for Houdini (2015) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141569.jpgsave_picture_141569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141569.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F36F95B849384408B2AB299E84BDFC9792FCA24D
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141570.jpgsave_picture_141570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141570.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:F36F95B849384408B2AB299E84BDFC9792FCA24D
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141571.jpgsave_picture_141571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141571.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:CEFB3BD730DD9B9A7F9C5859327B31A22AA165BF
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141573.jpgsave_picture_141573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141573.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Discovery: Секс у тираннозавров / Tyrannosaurus sex (2010) HDT
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141574.jpgsave_picture_141574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141574.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:88F0381B53DCDF0FB3B141D377C05773631F8975
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141575.jpgsave_picture_141575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141575.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:EE1D92371184774D73B35E1EC3FBD95364B811D2
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141576.jpgsave_picture_141576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141576.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:84227D5C5DF3E70FDFF154056285FF67C9A3DFA5
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141578.jpgsave_picture_141578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141578.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:278C124FAB4150FAF1A92B11592BD1F86B54D005
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141580.jpgsave_picture_141580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141580.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Internet Download Manager 6.30 Build 3 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141581.jpgsave_picture_141581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141581.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Windows Firewall Control 6.9.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141582.jpgsave_picture_141582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141582.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:5EACE5A517EFF8D26CDF102BD874BD9366ED4A43
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141583.jpgsave_picture_141583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141583.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AA202E8A651F69BA29B34AD71400357F4B1F0F83
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141584.jpgsave_picture_141584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141584.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Volume Ace Pro v3.6.3 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141585.jpgsave_picture_141585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141585.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:155D00F4D722C2409639BF42054B089B43685F7B
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141586.jpgsave_picture_141586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141586.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:A6061D59C2080EE1B59A9C4DFC6D95CC5BADA700
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141587.jpgsave_picture_141587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141587.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Paragon Drive Copy 15 Professional 10.1.25.779 + Boot Medias [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141588.jpgsave_picture_141588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141588.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:B09C0330B181448DB22C9700BAC6C6A7AF404826
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141590.jpgsave_picture_141590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141590.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141592.jpgsave_picture_141592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141592.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Sengoku Night Blood | Ночная кровь эпохи Сенгоку [2017, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141593.jpgsave_picture_141593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141593.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:C1F200034BD3D2D7C901CF430CC695E72A223975
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141594.jpgsave_picture_141594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141594.jpg" />
 </div>
 
 

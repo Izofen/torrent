@@ -6,7 +6,7 @@ Zhaba - Brave New Trip (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227762.jpgsave_picture_227762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227762.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Not A Toy - Prblms (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Punk, I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227806.jpgsave_picture_227806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227806.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Anzhela Vopit - Атрибуты Восторга (2023) [MP3|320 Kbps] <Pop Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227814.jpgsave_picture_227814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227814.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Turkish Delight - Khalil Turk & Friends Vol.2 (2023) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227823.jpgsave_picture_227823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227823.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gunn - Truscinski - Nace - Glass Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227831.jpgsave_picture_227831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227831.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Fish - Clutching At Stars Live in The USA 2008 (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227846.jpgsave_picture_227846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227846.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Uncle Acid and the Deadbeats - Slaughter On First Avenue (Live) (2023) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227861.jpgsave_picture_227861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227861.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nightmare Screen - The Slumber (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227868.jpgsave_picture_227868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227868.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Dogs Of Neptune - Zero (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227875.jpgsave_picture_227875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227875.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Little Feat - Sailin' Shoes (1972) 2CD, Deluxe Edition, Remaster, 2023, Rhino - 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227882.jpgsave_picture_227882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227882.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ SoMaD - Story of Marion & Damiel (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227889.jpgsave_picture_227889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227889.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227896.jpgsave_picture_227896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227896.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Signs Of The Swarm - Amongst The Low And Empty (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227907.jpgsave_picture_227907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227907.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Dogs Of Neptune - 2 Albums (2016-2023) [MP3|320 Kbps] <Progressive Heavy Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227914.jpgsave_picture_227914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227914.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Abaddon - Statues of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227926.jpgsave_picture_227926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227926.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ James Rivera's Metal Wave - New Wave Gone Metal (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227932.jpgsave_picture_227932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227932.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Arkham Witch - Beer And Bullet Belts (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227938.jpgsave_picture_227938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227938.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Mutoid Man - Mutants (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Post-Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227948.jpgsave_picture_227948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_227948.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Kost - Warden (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228004.jpgsave_picture_228004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228004.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Herald the Apocalypse - They Don't Care About Us (2023) EP [MP3|320 Kbps] <Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228012.jpgsave_picture_228012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228012.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Infection Code - Intimacy (2007) [FLAC|Lossless|image + .cue] <Industrial, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228022.jpgsave_picture_228022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228022.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Ashtar - Wandering Through Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228030.jpgsave_picture_228030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228030.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:DDD499208694B0464B6CE0FAA297022891794ED9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228442.jpgsave_picture_228442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228442.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Paul Gilbert - The Dio Album (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Inst
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228508.jpgsave_picture_228508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228508.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ U.D.O. - The Legacy (Best Of) (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228534.jpgsave_picture_228534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228534.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Nolan Potter's Nightmare Band - Honey - Tales From the Library of the Occult (20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228551.jpgsave_picture_228551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228551.jpg" />
 </div>
 
 

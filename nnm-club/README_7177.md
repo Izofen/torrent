@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245555.jpgsave_picture_245555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245555.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ IceCream Ebook Reader Pro 6.28 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245556.jpgsave_picture_245556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245556.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ iStat Menus 6 v.6.63 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245557.jpgsave_picture_245557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245557.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Forces United - Hits From Metal Musicals vol.3 (2023) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245558.jpgsave_picture_245558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245558.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Bandicam 5.4.1.1914 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245559.jpgsave_picture_245559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245559.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Emily Remler - Retrospective, Vol. 2: Compositions (1991) Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245560.jpgsave_picture_245560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245560.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:7B7139B12F6A36000E7C5F5CBFF2942B33978661
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245561.jpgsave_picture_245561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245561.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Ola Englund - Starzinger (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245562.jpgsave_picture_245562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245562.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:2DAE1463A5CD51B287848E4A7A10259E6C3C0DE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245563.jpgsave_picture_245563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245563.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245564.jpgsave_picture_245564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245564.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245565.jpgsave_picture_245565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245565.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:EE612661BCDFAC5C9B0260B3D0BC7EEBE40C2046
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245566.jpgsave_picture_245566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245566.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Keep It 2.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245567.jpgsave_picture_245567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245567.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Kenziner - Phoenix (2020) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245568.jpgsave_picture_245568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245568.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:631DAB23044848A21A5A4F899303EB5C4A4DD75E
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245569.jpgsave_picture_245569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245569.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:5FB03582E1734815E90BEBC36F1B2DF9125C6558
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245570.jpgsave_picture_245570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245570.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:6181887B223EE477F941AB022E453FD68E423346
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245571.jpgsave_picture_245571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245571.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:22E0F16D3C01D9A8EE1E032564FF34FAA6FCFA77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245572.jpgsave_picture_245572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245572.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ pdfFactory Pro 8.35 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245573.jpgsave_picture_245573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245573.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Viber 19.7.0.2 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245574.jpgsave_picture_245574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245574.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Easy Data Transform 1.22.0 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245575.jpgsave_picture_245575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245575.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Graveworm - Scourge of Malice (2001) [FLAC|Lossless|image + .cue] <Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245576.jpgsave_picture_245576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245576.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Iron Mask - Diabolica (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245577.jpgsave_picture_245577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245577.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:16AF6F5AB12F22C36A6AB8B7317A8A1DB8A1C89D
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245578.jpgsave_picture_245578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245578.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:2DB4D56F3D5F90B0F8AD4DB626D08B22F90EB2D8
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245579.jpgsave_picture_245579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245579.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:99C1175077BCB31385AF0687878E3BF3A03CF41D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245580.jpgsave_picture_245580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245580.jpg" />
 </div>
 
 

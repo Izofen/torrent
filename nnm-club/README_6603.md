@@ -6,7 +6,7 @@ WiFi Explorer 3 Pro 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212024.jpgsave_picture_212024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212024.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DC3B968B97D6F85F7C8C980E51BDB65A99D2E412
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212028.jpgsave_picture_212028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212028.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6C5958A371C4907ABE2FE6BFF4F94A16686383CC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212030.jpgsave_picture_212030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212030.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:1D45AAD60343F1D86D161A0C3AF62397DB732FB1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212032.jpgsave_picture_212032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212032.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Topaz Photo AI 1.3.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212035.jpgsave_picture_212035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212035.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ YT Downloader 7.27.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212036.jpgsave_picture_212036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212036.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:50D9A67EF7655225BABED523FDCBDBE55EF23F8A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212037.jpgsave_picture_212037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212037.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:12442429A72EDF58078BD08B0EF338D1978087E5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212040.jpgsave_picture_212040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212040.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:876B0D5A2C8D13923BB800A90B830F5F0BCB034A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212041.jpgsave_picture_212041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212041.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:87CA56F79FF63FDB5E6BB07AA8EC721A0548CF0D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212044.jpgsave_picture_212044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212044.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VueScan Pro 9.8.05 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212045.jpgsave_picture_212045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212045.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Emsisoft Emergency Kit 2023.6.0.11952 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212048.jpgsave_picture_212048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212048.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Vidmore Player 1.0.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212050.jpgsave_picture_212050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212050.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:F4594EC6188D496321C6FD693332327AD7F9C934
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212053.jpgsave_picture_212053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212053.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Sweet - Легенды Зарубежного Рока (2000) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212054.jpgsave_picture_212054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212054.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Pop Blockbusters 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212056.jpgsave_picture_212056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212056.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Soft Organizer Pro 9.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212058.jpgsave_picture_212058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212058.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:B2215E180CFE365510B66099151D272EC1CF6B1D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212061.jpgsave_picture_212061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212061.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:C20C0D0562723CC85F5E2FBCCBDEEA3EFFB1F0F8
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212062.jpgsave_picture_212062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212062.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:D2221567A5293FB5A92E9F226926877196ED1B55
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212064.jpgsave_picture_212064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212064.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:DE343DB92AC47A1A0426F5CDDE179FC9064A120F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212067.jpgsave_picture_212067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212067.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Opera Crypto Browser 99.0.4788.65 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212068.jpgsave_picture_212068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212068.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:406051E4D156E7C080E3E5777A7E9FAF5A80354A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212069.jpgsave_picture_212069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212069.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Smart Driver Manager Pro 6.4.973 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212073.jpgsave_picture_212073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212073.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:B42410CC4B7F312F719ACE83CB833037EB7504FD
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212074.jpgsave_picture_212074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212074.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Roger Waters - The Lockdown Sessions (2022) 2023 [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212077.jpgsave_picture_212077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212077.jpg" />
 </div>
 
 

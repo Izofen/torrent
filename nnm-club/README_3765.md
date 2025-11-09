@@ -6,7 +6,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118270.jpgsave_picture_118270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118270.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Univers
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118271.jpgsave_picture_118271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118271.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Emin - Now or Never (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Singer-Songwriter
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118272.jpgsave_picture_118272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118272.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:7638C15D1FFAA37801039D50C9BF21AC78C6115C
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118273.jpgsave_picture_118273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118273.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FBackup 9.9.853 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118274.jpgsave_picture_118274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118274.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Sensual Piano Jazz: Restaurant Week 2024 (2023) [FLAC|Lossless|WEB-DL|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118275.jpgsave_picture_118275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118275.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Monkey's Audio 10.49 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118276.jpgsave_picture_118276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118276.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:114F8FB13DD7EE6DAB22D5754434428B541089DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118277.jpgsave_picture_118277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118277.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:114F8FB13DD7EE6DAB22D5754434428B541089DB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118278.jpgsave_picture_118278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118278.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Cinemagraph Pro 2.11 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118279.jpgsave_picture_118279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118279.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:18D2A2A9B91C968E62030718F5ECD89CA8795F66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118280.jpgsave_picture_118280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118280.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Laserdance - Strikes Back (2000) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118281.jpgsave_picture_118281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118281.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:80F70F8F55ED90E55B3B6AB4D2A805AEB1D781D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118282.jpgsave_picture_118282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118282.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:49B6B823609E44188917B4FD674BF895F8A6C199
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118283.jpgsave_picture_118283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118283.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:8116ADB946DAB8B3ED292BC98FDE85453A14A9A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118284.jpgsave_picture_118284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118284.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ doPDF 11.9.438 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118285.jpgsave_picture_118285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118285.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Laserdance - Trans Space Express (2018) [OGG Vorbis|480 Kbps] <Electronic, Space
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118286.jpgsave_picture_118286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118286.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:76DD91E33ED08F92CFC476CB91106D93D5EED2C5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118287.jpgsave_picture_118287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118287.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Laserdance Orchestra - Volume 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Spaces
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118288.jpgsave_picture_118288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118288.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Laserdance - Force Of Order (2016) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118289.jpgsave_picture_118289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118289.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Background Instrumental Music Collective, Romantic Music Center, Romantic Beats 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118290.jpgsave_picture_118290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118290.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.016.1439 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118291.jpgsave_picture_118291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118291.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Coffee Lounge Collection, Restaurant Jazz Music Collection, Romantic Restaurant 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118292.jpgsave_picture_118292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118292.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:9D2BDE65783C8FA757025A129FF3F16238420030
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118293.jpgsave_picture_118293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118293.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ AirBrush: ИИ Фоторедактор v6.2.1 Mod by ImanAlien [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118294.jpgsave_picture_118294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118294.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Песни И Романсы. Поют В. Трошин, З. Невская
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118295.jpgsave_picture_118295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118295.jpg" />
 </div>
 
 

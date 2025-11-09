@@ -6,7 +6,7 @@ NewFileTime 7.07 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207090.jpgsave_picture_207090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207090.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ HomeBank 5.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207093.jpgsave_picture_207093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207093.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:94BA2D91D3702843CD6EF57B670C8C2E7220B65B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207097.jpgsave_picture_207097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207097.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ JetBrains Rider for Mac 2023.1.4 Intel/Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207099.jpgsave_picture_207099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207099.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Dark City 8: Kyiv (2023) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207101.jpgsave_picture_207101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207101.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:711A375948E07BD8CAF8D21F0B536D8F88E9B85C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207102.jpgsave_picture_207102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207102.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:B772B06B3CC5FAA93550D7290E098E756B1839F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207105.jpgsave_picture_207105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207105.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:A068CBEFC0574DC16157B8E1A185519DEEDCEEE8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207107.jpgsave_picture_207107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207107.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:31049C410C5AA500BF7F31BD6F11D9586FBAD919
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207109.jpgsave_picture_207109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207109.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Tennis Manager 2023 (2023) [Multi] (3.0.725) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207113.jpgsave_picture_207113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207113.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:B1006BB2571DB68FC81F38AE61973675C30654D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207115.jpgsave_picture_207115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207115.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ ImgDrive Free 2.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207118.jpgsave_picture_207118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207118.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:F2CD5A38B3993D23626847873AE23A880D749614
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207120.jpgsave_picture_207120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207120.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:31BAD82707443318B87675D71DB24A229A98F635
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207121.jpgsave_picture_207121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207121.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E6DDB9886E511ADE09B682C128B404BBEB87A169
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207122.jpgsave_picture_207122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207122.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:E6DDB9886E511ADE09B682C128B404BBEB87A169
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207126.jpgsave_picture_207126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207126.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:F769AE3817D70147FAA756ACBF265836FF78CC1C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207127.jpgsave_picture_207127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207127.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:AEEEDE4E26D9426F190E35AF5A1378996D8474E1
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207131.jpgsave_picture_207131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207131.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Class of '09 (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207132.jpgsave_picture_207132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207132.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:FC67D39779D86C935FE336970201BCE0E499A648
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207134.jpgsave_picture_207134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207134.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:0358C1D93C43EE2387DBBFB297CA1C57C5296FF7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207135.jpgsave_picture_207135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207135.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.11.0.0/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207139.jpgsave_picture_207139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207139.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:FC503B92DE036E2B04581D6A5938C7E98649BBCB
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207140.jpgsave_picture_207140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207140.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:24671B5B73396890FB1D1BE105853FDB7F388A94
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207141.jpgsave_picture_207141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207141.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207143.jpgsave_picture_207143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207143.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:37D4CC1449A29073D838541227326E010AD3FF77
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207145.jpgsave_picture_207145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207145.jpg" />
 </div>
 
 

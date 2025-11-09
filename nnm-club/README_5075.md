@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158651.jpgsave_picture_158651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D6799D5B359C8FF89B0D8A4B5910D1591E2D35DD
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158652.jpgsave_picture_158652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158652.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Chris Brown - Royalty (2015) Deluxe Version [MP3|320 кб/с] <R&B, hip-hop, fun
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158653.jpgsave_picture_158653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158653.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:8169D1D7DD92810ED011C23027C9E43074DC9E6B
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158654.jpgsave_picture_158654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158654.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ BotRadio 1.3.0.2 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158655.jpgsave_picture_158655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158655.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Briefs 1.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158656.jpgsave_picture_158656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158656.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Starus Excel Recovery 2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158657.jpgsave_picture_158657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158657.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2BF67F355516DA3C33239F41061578D9BBBAE732
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158658.jpgsave_picture_158658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158658.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:D8BA098FBA3C8C48C312033EEC49D63473183073
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158659.jpgsave_picture_158659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158659.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Starus Office Recovery 2.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158660.jpgsave_picture_158660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158660.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VideoCacheView 2.95 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158661.jpgsave_picture_158661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158661.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Microsoft OneDrive 17.3.6281.1202 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158662.jpgsave_picture_158662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158662.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:C0EE594983A78AF4EF4435B71B3E89C1EC8CABE8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158663.jpgsave_picture_158663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158663.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Музыка Твоих Крыльев (Special Volume) (2006) [MP3|320 к�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158664.jpgsave_picture_158664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158664.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:756A49610F59A5C9657BC7B34A4A010A3E9667C8
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158665.jpgsave_picture_158665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158665.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E18074139FF240B34F90F134999540A816961F71
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158666.jpgsave_picture_158666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158666.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Starus FAT Recovery 2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158667.jpgsave_picture_158667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158667.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Mozilla Firefox 43.0.1 Final Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158668.jpgsave_picture_158668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158668.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:8A3809A24719F4AE03CA8BA4D7FE3E2D79B1F782
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158669.jpgsave_picture_158669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158669.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Le carton / Коробка (2004) DVDRip [H.264]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158670.jpgsave_picture_158670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158670.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:7C2E4B19C3195676E1D5F7327309B445F819F0F1
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158671.jpgsave_picture_158671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158671.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:638D249DA22A233C1292E267EEE59E33D38663FA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158672.jpgsave_picture_158672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158672.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:5767F673ED94E8B06CE2AFF1EEA2537D41909F17
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158673.jpgsave_picture_158673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158673.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:92DCABE246863928AE48CB842B708D96E68D23A4
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158674.jpgsave_picture_158674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158674.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Swift Typist 1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158675.jpgsave_picture_158675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158675.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ MEGA Sync Client 2.5.3 (2bc7f) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158676.jpgsave_picture_158676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158676.jpg" />
 </div>
 
 

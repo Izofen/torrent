@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155660.jpgsave_picture_155660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155660.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155661.jpgsave_picture_155661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155661.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:AD7221CEED2486ECA96984EDFFEA3FA4CAD16D32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155662.jpgsave_picture_155662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155662.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Opera GX 104.0.4944.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155663.jpgsave_picture_155663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155663.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A9FFDE36AEEC7BE57717A8DB8A47A74B83A99FC9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155664.jpgsave_picture_155664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155664.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155665.jpgsave_picture_155665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155665.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:52285EC9C0363881B35AFA069524E7B8893C15EF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155668.jpgsave_picture_155668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155668.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Aiseesoft Screen Recorder 2.9.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155670.jpgsave_picture_155670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155670.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:6C9DB32A22EDD1686E48F0E1DB1390D8BC33FB54
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155671.jpgsave_picture_155671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155671.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155673.jpgsave_picture_155673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155673.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ ToothFairy 2.6 (49)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155674.jpgsave_picture_155674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155674.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Q-Dir 7.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155675.jpgsave_picture_155675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155675.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:207F74D4B41C23891E535DC5D2141485DB0B5E56
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155676.jpgsave_picture_155676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155676.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:129C62448702A791ADDE503B5ADFD2E5202FBD7E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155677.jpgsave_picture_155677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155677.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:EBD01CBDF2941B1DB4F3C3342536D18CB900F0FC
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155678.jpgsave_picture_155678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155678.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Change MAC Address 2.9.0 Build 107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155679.jpgsave_picture_155679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155679.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Н�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155680.jpgsave_picture_155680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155680.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:692C229C49281B312E1A35BC6DA4262E5A90F665
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155681.jpgsave_picture_155681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155681.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - German Top 100 Single Charts 20.12.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155682.jpgsave_picture_155682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155682.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155683.jpgsave_picture_155683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155683.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:83FAC785216718A53E120B73E274E1FC79167843
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155685.jpgsave_picture_155685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155685.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:F3C842019F29167119CFEE21D12B3A3518625340
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155686.jpgsave_picture_155686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155686.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Swingrowers - Remote (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155687.jpgsave_picture_155687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155687.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Aiseesoft Mac PDF to ePub Converter 3.3.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155688.jpgsave_picture_155688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155688.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:CEC9E00A2E4561F01ACD757F88A96247331172EC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155689.jpgsave_picture_155689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155689.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:170DE7C707682B0D7613050BF1E0AB1968D2FCC2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155690.jpgsave_picture_155690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155690.jpg" />
 </div>
 
 

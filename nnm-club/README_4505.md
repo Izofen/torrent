@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140904.jpgsave_picture_140904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140904.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Sunshine Dance 9 (2017) [MP3|320 Kbps] <House, Euro-House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140905.jpgsave_picture_140905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140905.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CC1F1A83035FF38CD99CDA7E9C9ECED55940A2BD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140906.jpgsave_picture_140906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140906.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Scrollow 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140907.jpgsave_picture_140907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140907.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9F2AD3B12C3FBB038F609AFF996A7180848A5CA8
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140908.jpgsave_picture_140908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140908.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Народный Микс Новогодний (2015) [MP3|256-320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140909.jpgsave_picture_140909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140909.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8223E6F3030DC9DA0AC12859C8163BB0375815D8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140910.jpgsave_picture_140910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140910.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hard Disk Sentinel PRO 5.61.15 Build 11973 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140911.jpgsave_picture_140911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140911.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Risssing - Risssing (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Breaks, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140912.jpgsave_picture_140912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140912.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:24D6839085CDD45FA070545375BB6AD9CA59CCCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140913.jpgsave_picture_140913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140913.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Bob Holroyd - In Motion (2013) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140914.jpgsave_picture_140914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140914.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:221D64ECEFD18F422973DC69469BBACA925AAB21
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140916.jpgsave_picture_140916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140916.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Call of Duty Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Catalyst [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140917.jpgsave_picture_140917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140917.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140918.jpgsave_picture_140918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140918.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ iSoftPhone Pro 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140919.jpgsave_picture_140919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140919.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:B356205E05E3593873DC4327DD3C90030B574A65
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140920.jpgsave_picture_140920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140920.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sarkrista - Summoners of the Serpents Wrath (2017) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140921.jpgsave_picture_140921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140921.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:7EA00052E828A19D57D97261539002747A8782D1
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140924.jpgsave_picture_140924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140924.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:9276234A1564EDCCB8FD84F6268291B5C6AAC088
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140925.jpgsave_picture_140925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140925.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Torch Browser 45.0.0.10802 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140926.jpgsave_picture_140926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140926.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Stonehand - Без Права На Ошибку (2016) [FLAC|lossless|image + .c
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140927.jpgsave_picture_140927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140927.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Nadiwrath - Circle Of Pest (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140928.jpgsave_picture_140928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140928.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:C64D865DCD8781B67ED0383B77E0BD00FE612395
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140929.jpgsave_picture_140929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140929.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Agnitum Outpost Firewall PRO 8.0.4164.639.1856.489 Final [MULTi / Русский
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140930.jpgsave_picture_140930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140930.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Enen no Shouboutai Ni no Shou | Fire Force 2 | Пламенная бригада
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140931.jpgsave_picture_140931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140931.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:D6FAD5115D060ACEE2CE3C55FC942292037AB4D9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140932.jpgsave_picture_140932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140932.jpg" />
 </div>
 
 

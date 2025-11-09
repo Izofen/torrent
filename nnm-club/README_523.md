@@ -6,7 +6,7 @@ HiPER Calc Pro v11.1.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13885.jpgsave_picture_13885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13885.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:34DF333BAF4533424C265D4028376832790AEA89
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13886.jpgsave_picture_13886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13886.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8DF274BEC7F586EB1B6446E9AEF5C1AC1752D7DE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13887.jpgsave_picture_13887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13887.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Photo Lab PRO v3.13.63 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13888.jpgsave_picture_13888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13888.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D4A4B6BE49629549401A82AE3BDD502584A4E904
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13889.jpgsave_picture_13889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13889.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Joe Bonamassa - Trigger Finger (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13890.jpgsave_picture_13890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13890.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8FD783B489C606E1758AF41E27CDA53844E3E52E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13891.jpgsave_picture_13891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13891.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ inShot / Фото и видеоредактор v2.134.1492 Mod by Mixroot [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13892.jpgsave_picture_13892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13892.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Magic Eraser / Магический ластик v2.22.1 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13893.jpgsave_picture_13893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13893.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Display Driver Uninstaller 18.1.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13894.jpgsave_picture_13894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13894.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:C6703324F59158D1650E4A063FFFE763827B9E42
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13895.jpgsave_picture_13895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13895.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B0CA12C4B37C0D3C89D857CD4B4173CA6FF3D06D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13896.jpgsave_picture_13896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13896.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:7E026C72EF126123AA4C9AB0040BB81A2170501B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13897.jpgsave_picture_13897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13897.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13898.jpgsave_picture_13898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13898.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:619E4011F6A10E5AC0D8A884B9CB2B2CDC37388E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13899.jpgsave_picture_13899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13899.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.15 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13900.jpgsave_picture_13900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13900.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:9789A0918B59BD0C911CD2129DBBB2929B28CEBA
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13901.jpgsave_picture_13901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13901.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:1F93F79DE4E424CC8D5C7D10D1526638CE2B1AD6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13902.jpgsave_picture_13902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13902.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:7D0A5683C9F1568A351491C0490B28C330330DDF
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13903.jpgsave_picture_13903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13903.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:8C85C50AE23E23069B5A88819DBE56B3259AB3C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13904.jpgsave_picture_13904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13904.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:3EAD90E4B1A30722943BE1C5C9B749487B57A3A9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13905.jpgsave_picture_13905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13905.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:9FAD4B371C09CED64FA82D68BECFE2496B422CFA
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13906.jpgsave_picture_13906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13906.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827.5035232c.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13907.jpgsave_picture_13907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13907.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:18B29F52B208C00A7BE56E57548E908F23D52701
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13908.jpgsave_picture_13908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13908.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Tone Generator PRO v3.84 Mod by NURIK [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13909.jpgsave_picture_13909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13909.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:CA6BAF92196C6E8A6E725042C1977EC88A7358FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13910.jpgsave_picture_13910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13910.jpg" />
 </div>
 
 

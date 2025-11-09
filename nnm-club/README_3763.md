@@ -6,7 +6,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118218.jpgsave_picture_118218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118218.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118219.jpgsave_picture_118219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118219.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ GoodbyeDPI 0.2.2 Launcher 6.6 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118220.jpgsave_picture_118220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118220.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ CyberLink PowerDVD Ultra 23.0.1303.62 (x64) RePack by TheBig [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118221.jpgsave_picture_118221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118221.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:85783DF1BE9531EECB05B9A7BDD26EAC77ABEEC2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118222.jpgsave_picture_118222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118222.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:85783DF1BE9531EECB05B9A7BDD26EAC77ABEEC2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118223.jpgsave_picture_118223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118223.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:22E998642095B5B0B6F33CD9764451C57211A0ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118224.jpgsave_picture_118224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118224.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:65C78D4DD3BF6892452EEFEB55156945DAAE97C5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118225.jpgsave_picture_118225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118225.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:65C78D4DD3BF6892452EEFEB55156945DAAE97C5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118226.jpgsave_picture_118226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118226.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:D35F84CBF249EFBFB21BED3EEF4DF5614B6E4E91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118227.jpgsave_picture_118227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118227.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Sound Storm - Immortalia (2012) Japanese Edition [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118228.jpgsave_picture_118228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118228.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Lord Dying - Clandestine Transcendence (2024) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118229.jpgsave_picture_118229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118229.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Rotting Yellow - Fountains Beneath Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Dr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118230.jpgsave_picture_118230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118230.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Lacuna Coil - Delirium (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118231.jpgsave_picture_118231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118231.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ The Mountain King - Apostasyn (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118232.jpgsave_picture_118232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118232.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Stanley Cowell - Live at Maybeck Recital Hall, Vol. 5 (1990) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118233.jpgsave_picture_118233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118233.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Natalie Cole - Natalie Cole Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118234.jpgsave_picture_118234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118234.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:3EBA9DF508208B1958AECE3B11E29D7E265E761D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118235.jpgsave_picture_118235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118235.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118236.jpgsave_picture_118236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118236.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Keep It Trance Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118237.jpgsave_picture_118237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118237.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:589F578CC33875ECB4DED543EFC8C4D78A2BAFCF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118238.jpgsave_picture_118238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118238.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118239.jpgsave_picture_118239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118239.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Dark Haven - IV (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118240.jpgsave_picture_118240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118240.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Metropolitan Jazz Octet Featuring Dee Alexander - It's Too Hot For Words: Celebr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118241.jpgsave_picture_118241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118241.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:B95074A3AB9F992E6064DE7243F48CF53DBD5175
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118242.jpgsave_picture_118242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118242.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Patti Austin - Patti Austin Love Songs (2024) Compilation [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118243.jpgsave_picture_118243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118243.jpg" />
 </div>
 
 

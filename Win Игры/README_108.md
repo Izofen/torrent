@@ -6,7 +6,7 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30934.jpgsave_picture_30934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30934.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30956.jpgsave_picture_30956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30956.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ While We Wait Here (2024) [Ru/Multi] (Build 16641425) Repack FitGirl [Soundtrack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30960.jpgsave_picture_30960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30960.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wonder Boy: Asha in Monster World (2021) [Ru/Multi] (Build 8291740) Repack Let's
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30965.jpgsave_picture_30965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30965.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Fort Solis (2023) [Ru/Multi] (Build 16940110) Repack Let'sРlay [Terra Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30994.jpgsave_picture_30994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30994.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ JUMP! The Floor Is... (2025) [Ru/Multi] (build 16957809) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30998.jpgsave_picture_30998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30998.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Future Fragments (2024) [En] (1.0.4) Repack Let'sРlay [18+]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31004.jpgsave_picture_31004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31004.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Momodora Moonlit Farewell (2024) [Ru/Multi] (1.1f32) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31059.jpgsave_picture_31059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31059.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Carnival Of Souls (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31080.jpgsave_picture_31080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31080.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Book of Demons (2018) [Ru/Multi] (1.05.230215/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31087.jpgsave_picture_31087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31087.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Megaloot (2024) [Ru/Multi] (1.14) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31090.jpgsave_picture_31090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31090.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bloodstained Ritual of the Night (2019) [Ru/Multi] (1.06/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31095.jpgsave_picture_31095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31095.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31110.jpgsave_picture_31110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31110.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31113.jpgsave_picture_31113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31113.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Chocolate Factory Simulator (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31117.jpgsave_picture_31117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31117.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Construction Simulator 2 US (2018) [Ru/Multi] (0.9) License GOG [Pocket Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31140.jpgsave_picture_31140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31140.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Raccoon Roller (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31145.jpgsave_picture_31145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31145.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dropsy (2015) [Ru/Multi] (1.5) License GOG [Warm Damp Hug Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31163.jpgsave_picture_31163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31163.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31174.jpgsave_picture_31174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31174.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31184.jpgsave_picture_31184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31184.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31186.jpgsave_picture_31186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31186.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31192.jpgsave_picture_31192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31192.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Marko: Beyond Brave (2024) [Ru/Multi] (1.09) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31198.jpgsave_picture_31198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31198.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31205.jpgsave_picture_31205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31205.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31208.jpgsave_picture_31208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31208.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ FREEDOM WARS Remastered (2025) [Multi] (1.0/dlc) Repack FitGirl [Contribution Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31209.jpgsave_picture_31209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31209.jpg" />
 </div>
 
 

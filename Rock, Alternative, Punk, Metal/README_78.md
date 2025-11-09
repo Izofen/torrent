@@ -6,7 +6,7 @@ Overkill - Hello From Colombia 2023 (2024) [FLAC|Lossless|image + .cue] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71655.jpgsave_picture_71655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71655.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Devin Townsend - PowerNerd (2024) 2 x CD, Limited Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71657.jpgsave_picture_71657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71657.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Grave Digger - Bone Collector (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71664.jpgsave_picture_71664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71664.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Opeth - The Last Will And Testament (2024) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71665.jpgsave_picture_71665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71665.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Elvis Costello - King Of America & Other Realms (2024) Super Deluxe, Remaster, 2
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71669.jpgsave_picture_71669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71669.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Blood, Sweat & Tears - Sweet Dreams (Live Amsterdam 1970) (2025) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71670.jpgsave_picture_71670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71670.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Lethal X - 90 Tons Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71671.jpgsave_picture_71671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71671.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Dragonknight - Legions (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71672.jpgsave_picture_71672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71672.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Tokyo Blade - Time Is The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71673.jpgsave_picture_71673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71673.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E7986B0BE32DFD75CFD06CF348F9996A8A3FC3AF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71674.jpgsave_picture_71674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71674.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ The Big Deal - Electrified (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71690.jpgsave_picture_71690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71690.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Metal Church - The Final Sermon (2024) Japanese Edition, Live In Japan 2019 [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71696.jpgsave_picture_71696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71696.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Alter Bridge - One Day Remains (2004) Deluxe Edition, Reissue, 2024, Craft Recor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71697.jpgsave_picture_71697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71697.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Blood Incantation - Absolute Elsewhere (2024) 3xCD, Deluxe Edition, Limited Edit
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71699.jpgsave_picture_71699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71699.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Lunarway - Eternal Moments (2024) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71703.jpgsave_picture_71703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71703.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ DGM - Endless (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71705.jpgsave_picture_71705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71705.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Morbid Saint - Swallowed By Hell (2023) 2024, High Roller Records [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71707.jpgsave_picture_71707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71707.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Druknroll - My Dark Desires (2023) [FLAC|Lossless|image + .cue] <Groove Metal, M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71708.jpgsave_picture_71708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71708.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Unto Others - Never, Neverland (2024) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71709.jpgsave_picture_71709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71709.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Spencer Ezell - Ringside Seats (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71722.jpgsave_picture_71722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71722.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Opera Nera - The Tempest (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71723.jpgsave_picture_71723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71723.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Black Magick SS - Burning Bridges (2023) [FLAC|Lossless|image + .cue] <Black, Ps
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71738.jpgsave_picture_71738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71738.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Raging Fate - Mutiny (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71741.jpgsave_picture_71741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71741.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Crucial Velocity - Controller (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71742.jpgsave_picture_71742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71742.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ The Halo Effect - March of the Unheard (2025) (Limited Edition) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71752.jpgsave_picture_71752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71752.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Magnum - Live At KK's Steel Mill (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71766.jpgsave_picture_71766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71766.jpg" />
 </div>
 
 

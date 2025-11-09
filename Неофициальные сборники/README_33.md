@@ -6,7 +6,7 @@ VA - The Mysterious music of the World (2024) vol.2 [MP3|320 Kbps] <Enigmatic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54079.jpgsave_picture_54079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54079.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Gino Marinello Orchestra - Compilation (2024) [MP3|320 Kbps] <Instrumental, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54266.jpgsave_picture_54266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54266.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Electronic compilation part 84 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54267.jpgsave_picture_54267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54267.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bakhtin - This is Bakhtin (2024) [MP3|320 Kbps] <Pop, Rap, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54273.jpgsave_picture_54273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54273.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - The Mysterious music of the World (2024) vol.3 [MP3|320 Kbps] <Enigmatic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54291.jpgsave_picture_54291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54291.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Club&Dance Летние Треки Remix NNM (2024) [MP3|320 Kbps] <Club, D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54330.jpgsave_picture_54330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54330.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Record Super Chart 01.06.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54576.jpgsave_picture_54576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54576.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - The Mysterious music of the World vol.1 (2024) [MP3|320 Kbps] <Enigmatic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54685.jpgsave_picture_54685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54685.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Chris Spheeris - Compilation (2024) [MP3|320 Kbps] <Instrumental, New Age, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54687.jpgsave_picture_54687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54687.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Music News vol.383 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54770.jpgsave_picture_54770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54770.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Music News vol.382 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54771.jpgsave_picture_54771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54771.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - РАДИО БАТЯ - 012 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54809.jpgsave_picture_54809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54809.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Electronic compilation part 81 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54879.jpgsave_picture_54879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54879.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Electronic compilation part 82 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54885.jpgsave_picture_54885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54885.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sandra - Collection (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55152.jpgsave_picture_55152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55152.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Music News vol.381 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55188.jpgsave_picture_55188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55188.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - РАДИО БАТЯ - 011 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55241.jpgsave_picture_55241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55241.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Hiromi Sano - Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55298.jpgsave_picture_55298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55298.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Instrumental 79 Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55311.jpgsave_picture_55311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55311.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Best Road Trip Biker Music Rock Songs (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55333.jpgsave_picture_55333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55333.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Electronic compilation part 80 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55407.jpgsave_picture_55407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55407.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - РАДИО БАТЯ - 010 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55417.jpgsave_picture_55417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55417.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - РАДИО БАТЯ - 009 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55422.jpgsave_picture_55422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55422.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Music News vol.380 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55500.jpgsave_picture_55500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55500.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - РАДИО БАТЯ - 008 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55530.jpgsave_picture_55530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55530.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Music News vol.379 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55710.jpgsave_picture_55710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55710.jpg" />
 </div>
 
 

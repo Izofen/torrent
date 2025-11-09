@@ -6,7 +6,7 @@ VA - Bass Music Grooves 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117043.jpgsave_picture_117043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117043.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ QOwnNotes 24.2.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117044.jpgsave_picture_117044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117044.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Barry Harris Sextet - Bull's Eye! (1968) 2002, Original Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117045.jpgsave_picture_117045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117045.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Smart Converter Pro 3 v.3.1.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117046.jpgsave_picture_117046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117046.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Elektrikill - Propaganarchy! (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industri
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117047.jpgsave_picture_117047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117047.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Women in Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117048.jpgsave_picture_117048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117048.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:0A25F629A30C77C4067A6E5C141D1C567071C9CE
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117049.jpgsave_picture_117049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117049.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ NCH Express Burn Plus for Mac 12.02 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117050.jpgsave_picture_117050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117050.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:DDDCC2054BB58F454780DE83F934E812C74497FC
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117051.jpgsave_picture_117051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117051.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Billboard Top Pop Hits, 1961 (1994) [OGG Vorbis|480 Kbps] <Pop, Rock, Funk 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117052.jpgsave_picture_117052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117052.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:D650E26B468075164E1A88C28805037203AFD1A2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117053.jpgsave_picture_117053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117053.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Ultimate Chillout Ambient Lounge I (2024) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117054.jpgsave_picture_117054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117054.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Markus Schulz - Global DJ Broadcast Deeper Shades (2024-02-15) [MP3|320 Kbps] <P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117055.jpgsave_picture_117055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117055.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:EE97FFC24AADE2545D42054C94408A32AAA7FB6E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117056.jpgsave_picture_117056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117056.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:BE800CA045D84A7D3B0A7B8E3A6C255F4EF6C3B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117057.jpgsave_picture_117057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117057.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:E402246741CED42A26C7534A0F1E482B45853E53
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117058.jpgsave_picture_117058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117058.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ventusky: Прогноз погоды v31.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117059.jpgsave_picture_117059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117059.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:B4B72B28665C1024C12E569CD053E984419FFB8B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117060.jpgsave_picture_117060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117060.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ XYplorer 25.50.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117061.jpgsave_picture_117061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117061.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Jazz Sax Lounge Collection, Sexual Music Collection, Smooth Jazz Music Academy -
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117062.jpgsave_picture_117062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117062.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Celldweller - Celldweller (2003) Definitive Edition, 2024, FiXT [FLAC|Lossless|W
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117063.jpgsave_picture_117063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117063.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:67046FF7E6A14C504EF7D9D8C04817110BC42F38
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117064.jpgsave_picture_117064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117064.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:3F1C9BE09D525E982C83691034BFDE79B4F9F23D
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117065.jpgsave_picture_117065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117065.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:F9402A1911E65E970076B83601F3AB15FAE79729
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117066.jpgsave_picture_117066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117066.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Horary Chart / Астрология: Хорарная Карта v3.1.1 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117067.jpgsave_picture_117067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117067.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:245556024EC3F26286F9CC27CD3C67A15085F065
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117068.jpgsave_picture_117068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117068.jpg" />
 </div>
 
 

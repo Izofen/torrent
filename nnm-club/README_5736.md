@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177262.jpgsave_picture_177262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177262.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:39CB4EF510DABFA23DEA0DF0BDBC10B74A8DADA4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177264.jpgsave_picture_177264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177264.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Kenny Wayne Shepherd - Trouble Is... 25 (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177267.jpgsave_picture_177267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177267.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Any Video Downloader 8.7.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177268.jpgsave_picture_177268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177268.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0AAF0FC2ABF3DC97F9B1722F41592EB5183E52AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177271.jpgsave_picture_177271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177271.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ UltraSearch Professional 4.0.3.873 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177272.jpgsave_picture_177272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177272.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6EDECD89910B96FA6DE40F8421AA9F566C540F7E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177274.jpgsave_picture_177274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177274.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EA12C5620B0CBC5AE92AE8D4E2F2D67BEC53C0E7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177276.jpgsave_picture_177276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177276.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:57C5892A4C07D0E16B3B7AD22984DAF054F100DB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177278.jpgsave_picture_177278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177278.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B7F66C4FAF54068F1C498CE1C107D65AC5381804
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177280.jpgsave_picture_177280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177280.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:DCFCD9F9E3137D040E43A06830BA49851AE7D141
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177283.jpgsave_picture_177283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177283.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:7E11010580B789543614E6D519DDB38C7BAE0692
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177284.jpgsave_picture_177284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177284.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:E504C2ED801A918BF3EAC55451873738BC7D7D2E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177286.jpgsave_picture_177286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177286.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:E90FDB4B4D1AB0816F479AB94945796E7836935F
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177288.jpgsave_picture_177288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177288.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cableguys - ShaperBox 3 3.1.1 VST, VST 3, AAX (x64) RePack by TeamCubeadooby [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177291.jpgsave_picture_177291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177291.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:AE70B6257B2CC3CE7E97F6C3A6B889B51AC3314E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177292.jpgsave_picture_177292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177292.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Discovery: Тайна убийства Наполеона / The Napoleon Murder 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177294.jpgsave_picture_177294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177294.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:B1B08A96DAD82C352F8767EBF418814C8638C1DA
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177296.jpgsave_picture_177296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177296.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:CB78394801E3D52E41DF4377DFA748D2B128CD15
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177298.jpgsave_picture_177298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177298.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Image Exif Editor 5.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177302.jpgsave_picture_177302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177302.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:5B1AB60723E459299CF15F09A92FE2CACA3E17BF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177303.jpgsave_picture_177303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177303.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:F00620B38B445E141CA4DAB2E8E1B86CC5D4E40F
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177306.jpgsave_picture_177306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177306.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:BD83C62B4129BC3485051C216758A2FEA1E93AFE
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177307.jpgsave_picture_177307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177307.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:99E52328829ADECB9F428AC3655ABA1732C6E6FD
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177310.jpgsave_picture_177310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177310.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ ZHU - Musical Chairs Mixtape (Vol. 1) (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177311.jpgsave_picture_177311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177311.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:D33544E5368BBAA8FF1C548AF699B5B9AFC794C3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177314.jpgsave_picture_177314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177314.jpg" />
 </div>
 
 

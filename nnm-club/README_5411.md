@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167577.jpgsave_picture_167577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167577.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Estefania Cassingena Navone | Visual Studio Code for Developers 2023: Beg
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167578.jpgsave_picture_167578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167578.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Monica Zetterlund And The Thad Jones & Mel Lewis Orchestra - It Only Happens Eve
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167579.jpgsave_picture_167579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167579.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Export for iTunes 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167580.jpgsave_picture_167580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167580.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Deftones - White Pony (2000) 20th Anniversary Deluxe Edition, 2020, Reprise Reco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167581.jpgsave_picture_167581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167581.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:D63EF5B4B0E660E2D80351EC1298F869C1D97E9C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167582.jpgsave_picture_167582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167582.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:AF6A5B28DBFEF33985952A323A0A91EDD0FF6AF2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167583.jpgsave_picture_167583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167583.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Vengeance of Mr. Peppermint (2023) [En] (226) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167584.jpgsave_picture_167584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167584.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Best Hits of 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167585.jpgsave_picture_167585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167585.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167586.jpgsave_picture_167586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167586.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ aQuaLuna - Best of Destination Paradise (2020) [MP3|320 Kbps] <Progressive, Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167587.jpgsave_picture_167587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167587.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Sodom - Genesis XIX (2020) Japanese Edition, Special Edition, 2021 [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167588.jpgsave_picture_167588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167588.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:866D8F3EB1C8B5273BFFC9E35B99C1E784363DD6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167589.jpgsave_picture_167589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167589.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Death Worm™ Deluxe 2.0.054 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167590.jpgsave_picture_167590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167590.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ M3U Edit 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167591.jpgsave_picture_167591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167591.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:2AFEE6D3F1F038060A0AAE190B91AC0F5B9554D1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167592.jpgsave_picture_167592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167592.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Skynet 2019.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167593.jpgsave_picture_167593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167593.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:7E843829306D79D90242EE2FF457A4C85B679189
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167594.jpgsave_picture_167594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167594.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:54387ACD74F8AAFF85DF0D2D85BAB628555A5769
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167595.jpgsave_picture_167595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167595.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Rock Summer 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167596.jpgsave_picture_167596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167596.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:D59FFDCAF62AE3D2A90C5E00BBC35DE60EC2AB91
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167597.jpgsave_picture_167597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167597.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Rinly v1.6.0.12 [Ru] - Обрезать аудио, ТикТок рингтон�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167598.jpgsave_picture_167598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167598.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167599.jpgsave_picture_167599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167599.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:274F5F945CAE724C269081A5545F5ED866CE5191
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167600.jpgsave_picture_167600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167600.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:C479C944D98D54879C521E005F352B818C9EB87C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167601.jpgsave_picture_167601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167601.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Backbone Blues Band - Old New Borrowed Blues (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167602.jpgsave_picture_167602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167602.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107123.jpgsave_picture_107123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107123.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107124.jpgsave_picture_107124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107124.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107125.jpgsave_picture_107125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107125.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pulsar Modular Complete Effects Bundle 2024.7.2 VST3, AAX (x64) RePack by TCD [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107126.jpgsave_picture_107126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107126.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Topaz Gigapixel AI 7.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107127.jpgsave_picture_107127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107127.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:4BEF59F4D02D758E0A629D0D18266203F8CE0493
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107128.jpgsave_picture_107128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107128.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:E314A06A431AC19B1F061EE4A2B3B7E1C65E644D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107129.jpgsave_picture_107129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107129.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:E314A06A431AC19B1F061EE4A2B3B7E1C65E644D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107130.jpgsave_picture_107130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107130.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Skype 8.123.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107131.jpgsave_picture_107131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107131.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Buddy Daddies | Напарники-папаши | Папаши-дружбаны 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107132.jpgsave_picture_107132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107132.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Katie Knipp - Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107133.jpgsave_picture_107133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107133.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Bharti Bed (editor) | Inventions. Facts at Your Fingertips (2016) [PDF] [EN]
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107134.jpgsave_picture_107134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107134.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Lightnin' Rod & The Thunderbolts - Another Moment In Time (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107135.jpgsave_picture_107135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107135.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:0754700D3C3319854905EB5722106FD87E90B6C5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107136.jpgsave_picture_107136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107136.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:DCAC3F8EDD61D853ED626BDBE4CDD876534885BC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107137.jpgsave_picture_107137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107137.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Process Lasso Pro 14.2.0.32 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107138.jpgsave_picture_107138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107138.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Climie Fisher - 3 Albums (1988-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Sy
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107139.jpgsave_picture_107139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107139.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:F2D9D76E5978FD6116B7F5C3A021DACAF00E68B6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107140.jpgsave_picture_107140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107140.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:3713F5039004D1356E2430FB92C21B96477B1A00
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107141.jpgsave_picture_107141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107141.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:AFF34D01CACCFA3512CCF0595959628DCBFF1C9A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107142.jpgsave_picture_107142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107142.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MagicMouseTrails 3.96 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107143.jpgsave_picture_107143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107143.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Auslogics Driver Updater 1.26.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107144.jpgsave_picture_107144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107144.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:8601A43B862BBDEFF6A4B5338157968113E39FD2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107145.jpgsave_picture_107145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107145.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Process Lasso Pro 14.2.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107146.jpgsave_picture_107146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107146.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:321C34E875D956B1BD10513DCF6B24BFF60ADDA4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107147.jpgsave_picture_107147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107147.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:3262311A34C4DCA2F7A851BC20A604403F9B72DF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107148.jpgsave_picture_107148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107148.jpg" />
 </div>
 
 

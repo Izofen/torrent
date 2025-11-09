@@ -6,7 +6,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103436.jpgsave_picture_103436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103436.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:583416CEE56183B6631D3CDDF064C5A93F8A5D33
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103437.jpgsave_picture_103437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103437.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Danger Zone - Shut Up! (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103438.jpgsave_picture_103438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103438.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Гонка (27.10
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103439.jpgsave_picture_103439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103439.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Heartwind - Heartwind III (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103440.jpgsave_picture_103440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103440.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Unwanted Guest - Bonedead (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103441.jpgsave_picture_103441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103441.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:BB8E442DF3E1D1410E7FC865C02C10194A1308A2
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103442.jpgsave_picture_103442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103442.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:844AD852B766AC9FF0873770A4C600E161994A22
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103443.jpgsave_picture_103443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103443.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Halloween Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103444.jpgsave_picture_103444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103444.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Frank Sinatra - In The Wee Small Hours (1953 - 1955) 2019, State Of Art [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103445.jpgsave_picture_103445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103445.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Nothing But... Trancetopia Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103446.jpgsave_picture_103446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103446.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:EEDFD53DA36FB1E95E3D36F0A732FEF1509385D1
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103447.jpgsave_picture_103447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103447.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:423FB78BCE761793B12473B3687B72ECCAE98EF9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103448.jpgsave_picture_103448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103448.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Winding Road - Fill My Sails (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103449.jpgsave_picture_103449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103449.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:45DA726CC86E79E269EC8BE8348560639805F93F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103450.jpgsave_picture_103450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103450.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ MotoGP. Этап 18 из 20. Гран-при Таиланда. Спринт (26.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103451.jpgsave_picture_103451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103451.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Pinnacle Point - Winds Of Change (2017) [FLAC|Lossless|image + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103452.jpgsave_picture_103452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103452.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Miki Yamanaka - Chance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103453.jpgsave_picture_103453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103453.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:C638187635E77AF494A53D192DC37800AE65152D
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103454.jpgsave_picture_103454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103454.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Melinda Sullivan and Larry Goldings - Big Foot (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103455.jpgsave_picture_103455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103455.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Entering Polaris - Myths In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103456.jpgsave_picture_103456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103456.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Matt Panayides Trio - With Eyes Closed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103457.jpgsave_picture_103457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103457.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Melanie Scholtz - Seven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103458.jpgsave_picture_103458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103458.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Macade - Dialoghi (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103459.jpgsave_picture_103459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103459.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Lars Jansson & Erik Söderlind - What The Moment Brings (2024) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103460.jpgsave_picture_103460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103460.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Monkin' Around - 4 in 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103461.jpgsave_picture_103461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103461.jpg" />
 </div>
 
 

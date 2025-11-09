@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17269.jpgsave_picture_17269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:33F40CCFAA26ED5AAE685420A050B5CA531815AB
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17270.jpgsave_picture_17270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17270.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Brass Brigade (2019) [En] (1.0) Scene SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17271.jpgsave_picture_17271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17271.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Susan Rubin | Библиотека для начинающих: Цветные �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17272.jpgsave_picture_17272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17272.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:42636BD7777FD698792EA5C68531CD7A2C63A83A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17273.jpgsave_picture_17273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17273.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:42636BD7777FD698792EA5C68531CD7A2C63A83A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17274.jpgsave_picture_17274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17274.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hunter’s Journey: Tears of the Lake / Путь охотника: Слезы о
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17275.jpgsave_picture_17275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17275.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:91E21FF8F1BC166868BB3FEBF9F5A5AF3FEA6D93
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17276.jpgsave_picture_17276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17276.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - Любэ 35. Всё опять начинается. Трибьют (час
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17277.jpgsave_picture_17277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17277.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ MediaHuman YouTube Downloader 3.9.11 (2205) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17278.jpgsave_picture_17278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17278.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58728/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17279.jpgsave_picture_17279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17279.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина Cлужба До
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17280.jpgsave_picture_17280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17280.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ VA - Сказочный  том (2003-2024) [MP3|320 Kbps] <Folk rock, Post punk
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17281.jpgsave_picture_17281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17281.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:623545976C511D20CFDF440F782F7B329B20E94A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17282.jpgsave_picture_17282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17282.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7AB296F07BB277AAC3EF6B3CB1494647A6F872EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17283.jpgsave_picture_17283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17283.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (Build 18577240) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17284.jpgsave_picture_17284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17284.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ MediaHuman YouTube to MP3 Converter 3.9.11 (2205) RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17285.jpgsave_picture_17285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17285.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Display Driver Uninstaller 18.1.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17286.jpgsave_picture_17286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17286.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:DF8517D2EF066CC9E26E0C7DD1FEC33ED92B8BDE
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17287.jpgsave_picture_17287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17287.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:C3128B848EC338E08C726C354CD2299F0800F8EB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17289.jpgsave_picture_17289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17289.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:E5519C0A7BAC1E60D66FF2FF0EE19F1D36DC8701
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17290.jpgsave_picture_17290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17290.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:B0D5218D7FD6C37DAAA256D02F0CD71CE16858E4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17291.jpgsave_picture_17291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17291.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:806AEC569AD4E73DE7BF7D376223353320651BA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17292.jpgsave_picture_17292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17292.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3760D39B61D1427C5A3EDA31AAC44934DBA6CAFD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17293.jpgsave_picture_17293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17293.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:9F625B6CEC9611A7A19E35C8AEE5222392A780DA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17294.jpgsave_picture_17294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17294.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Dee Alexander - Songs My Mother Loves (2014) Blujazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17295.jpgsave_picture_17295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17295.jpg" />
 </div>
 
 

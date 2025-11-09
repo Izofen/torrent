@@ -6,7 +6,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9932.jpgsave_picture_9932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9932.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:66B859AC2C69E4203E8BDAC47DFB27F0EB45CD11
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9933.jpgsave_picture_9933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9933.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D4D21AF2A259ED0049041BFF67109E9918F58F89
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9934.jpgsave_picture_9934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9934.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9935.jpgsave_picture_9935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9935.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A83D83C1C648C51503C7CB9EC9DF98A52249FC47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9936.jpgsave_picture_9936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9936.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5485E5EA3F436675C28C6ED90EC99EDEC0593D0F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9937.jpgsave_picture_9937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9937.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B0718E8EE0CFEE8F9120614C76FF37E5E6B24329
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9938.jpgsave_picture_9938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9938.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:6EB39AEB9356D16598204EC0974EE0B57C921DF9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9939.jpgsave_picture_9939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9939.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2FFBC29769B527627328A6188C5598BD86E22252
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9940.jpgsave_picture_9940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9940.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:EE60E9EB08D986069FAD5D0ECEE4C5EDB626C612
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9941.jpgsave_picture_9941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9941.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:F0B99C0A4F47244FE15AFC8DAF6F962F1103F8B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9942.jpgsave_picture_9942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9942.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:FB7E43BEF171C2ED440EC500C6BFA56F6A8095D1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9943.jpgsave_picture_9943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9943.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:0315AC7BCED7651B88125AF85D2C7A6B9B7210FA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9944.jpgsave_picture_9944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9944.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:2EB26E60BD12664726052F91B6D5304EC6C82AA0
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9945.jpgsave_picture_9945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9945.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - Cafe Beach Chillout Summer Relax 2025 (Irma Cafe) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9946.jpgsave_picture_9946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9946.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ The B-Shakers - Kissed By The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9947.jpgsave_picture_9947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9947.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A197FD40DE0745555D37A5E651BBEB7AC5DE7B81
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9948.jpgsave_picture_9948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9948.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Synapse Audio - The Legend HZ 2.0.2 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9949.jpgsave_picture_9949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9949.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:72C2B545CFF35D697A7DDEE41B43A02EE3BA5043
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9950.jpgsave_picture_9950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9950.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9951.jpgsave_picture_9951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9951.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:F2ACC00C21EADC6F64FB29EF100222FE5DE2E929
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9952.jpgsave_picture_9952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9952.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:80E9E6BD0E9569B847D8700980A23F27793B7743
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9953.jpgsave_picture_9953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9953.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Folk Bitch Trio - Now Would Be A Good Time (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9954.jpgsave_picture_9954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9954.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:20C333D85260B76EB9385A0C051681AFCC95280D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9955.jpgsave_picture_9955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9955.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:DFB772A55FCC833B6DD9B4D152CB13A1B30281A3
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9956.jpgsave_picture_9956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9956.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:B050E7FA93B2DA1DC937ED72BA1DCFA513CD799B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9957.jpgsave_picture_9957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9957.jpg" />
 </div>
 
 

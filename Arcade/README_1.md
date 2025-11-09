@@ -6,7 +6,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.6/dlc) Repack Let'sРlay [Too Many Clothes Editio
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9269.jpgsave_picture_9269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9270.jpgsave_picture_9270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9270.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9347.jpgsave_picture_9347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9347.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9354.jpgsave_picture_9354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9354.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9378.jpgsave_picture_9378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9378.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Drill Core (2025) [Ru/Multi] (1.199.5.7.17.49506e6/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9463.jpgsave_picture_9463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9463.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Unravel Two (2018) [En] (1.0.0.47008) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9676.jpgsave_picture_9676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9676.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9794.jpgsave_picture_9794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9794.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Redneck Kentucky and the Next Generation Chickens / Куриное побоищ�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9818.jpgsave_picture_9818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9818.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Our War: Firepower Suppression (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9875.jpgsave_picture_9875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9875.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9922.jpgsave_picture_9922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9922.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Starmetal Crusaders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10173.jpgsave_picture_10173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10173.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kick'n Hell (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10177.jpgsave_picture_10177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10177.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rooftops & Alleys: The Parkour Game (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10250.jpgsave_picture_10250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10250.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dust Raiders (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10561.jpgsave_picture_10561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10561.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Strike Mission (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10926.jpgsave_picture_10926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10926.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ale & Tale Tavern (2024) [Ru/Multi] (1.5.8) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11371.jpgsave_picture_11371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11371.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Mad Restaurant People (2018) [Multi] (1.7.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11703.jpgsave_picture_11703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11703.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Grandma, No! (2025) [Ru/Multi] (20250522R) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12155.jpgsave_picture_12155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12155.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12336.jpgsave_picture_12336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12336.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (Build 19026706) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12385.jpgsave_picture_12385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12385.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Frog Jump (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12601.jpgsave_picture_12601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12601.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12823.jpgsave_picture_12823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12823.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Entropy Survivors (2024) [Ru/Multi] (1.5.1.23830) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12881.jpgsave_picture_12881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12881.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ POPUCOM (2025) [Ru/Multi] (1.0.1) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12958.jpgsave_picture_12958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12958.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Leftovers KO! (2025) [Multi] (1.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12985.jpgsave_picture_12985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12985.jpg" />
 </div>
 
 

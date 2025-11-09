@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15209.jpgsave_picture_15209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15209.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hellish Quart (2021) [Multi] (0.4391) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15210.jpgsave_picture_15210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15210.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:0BBD1E6D4155DE46F573C50E294425072AA6652F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15211.jpgsave_picture_15211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15211.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Death Roads: Tournament (2023) [Multi] (1.0.7.123) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15212.jpgsave_picture_15212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15212.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:AA8259DAD234F91426E4845069244F412BDAB338
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15213.jpgsave_picture_15213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15213.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:38B53649FE23D65A9F454F8B852C5BAA99E9AD14
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15214.jpgsave_picture_15214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15214.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Triumph - 16 Albums (1976 - 2015) 25 CD [FLAC|Lossless|tracks + .cue|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15215.jpgsave_picture_15215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15215.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack FitGirl [Overture Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15216.jpgsave_picture_15216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15216.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15217.jpgsave_picture_15217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15217.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15218.jpgsave_picture_15218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15218.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:283A1ACA054BF9448E15DEAA2D0234E46776F167
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15219.jpgsave_picture_15219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15219.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:29FDA4356FB142DE4A8CFE0757D0F4CCF0BF6747
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15220.jpgsave_picture_15220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15220.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15221.jpgsave_picture_15221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15221.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ LiveClasses, Антон Мартынов | Обзор возможностей D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15222.jpgsave_picture_15222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15222.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15223.jpgsave_picture_15223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15223.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:49239A213C40B3D2CDB8407027A7EAC4B6216F21
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15224.jpgsave_picture_15224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15224.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Albert Collins - 24 Albums (1969 - 2012) 32 CD [FLAC|Lossless|tracks + .cue|imag
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15225.jpgsave_picture_15225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15225.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ StartAllBack 3.9.10 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15226.jpgsave_picture_15226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15226.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:33D7E7EBA2C75133E45F4CB9CE80326BFA1E37CD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15227.jpgsave_picture_15227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15227.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Plus Messenger (Telegram+)  v11.12.0.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15228.jpgsave_picture_15228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15228.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:39DD106EFAB57B3EBDD4AEADDDE392074B853E2C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15229.jpgsave_picture_15229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15229.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:43E2FF67FAED070C9E71F2C5ACD73795170C60F8
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15230.jpgsave_picture_15230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15230.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:3AF7BD1315AC78D2D7A3AE2E943B27AD015BC69B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15231.jpgsave_picture_15231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15231.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15232.jpgsave_picture_15232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15232.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Epica: Live at The Symphonic Synergy (2024) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15233.jpgsave_picture_15233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15233.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Food.ru: пошаговые рецепты v02.04.01 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15234.jpgsave_picture_15234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15234.jpg" />
 </div>
 
 

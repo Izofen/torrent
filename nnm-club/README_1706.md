@@ -6,7 +6,7 @@ Anna Ermakova - Behind Blue Eyes (2024) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44713.jpgsave_picture_44713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44713.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Helloween - Pink Bubbles Go Ape (1991) Remaster, 2024, Noise Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44714.jpgsave_picture_44714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44714.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:B96EA26382A8E37C7E483CCB27D161D583B1B486
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44715.jpgsave_picture_44715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44715.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:09BF3E948087FA208AEFF0500238A491C5459C5B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44716.jpgsave_picture_44716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44716.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7C7C7A888A866FE8C5EE36DD5A4FC44713247D34
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44717.jpgsave_picture_44717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44717.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2EBADCC1D3878756E7E1E473AE1D4360B811AA32
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44718.jpgsave_picture_44718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44718.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ The Delta Blues Collective - Peace, Love, and Groove (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44719.jpgsave_picture_44719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44719.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Helloween - Chameleon (1993) Remaster, 2024, Sanctuary Records [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44720.jpgsave_picture_44720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44720.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:7216878CF46671A68A9E5482F7336C9B7F6EAB61
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44721.jpgsave_picture_44721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44721.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Redux Selection Vol. 9 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44722.jpgsave_picture_44722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44722.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Lyran Lions - Star Rider (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44723.jpgsave_picture_44723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44723.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ VA - Привет, менты! (Ништяк, браток!) (1998) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44724.jpgsave_picture_44724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44724.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:86298436CD2C2F51B9FA8D9DF307BB05598950C9
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44725.jpgsave_picture_44725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44725.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Helloween - Master of the Rings (1994) Remaster, 2024, Sanctuary Records [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44726.jpgsave_picture_44726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44726.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:F2F55F0F45DBF0032D0069652426A5160613BCFD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44727.jpgsave_picture_44727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44727.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Imagine Dragons - Loom (2024) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44728.jpgsave_picture_44728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44728.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Firefox Browser 130.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44729.jpgsave_picture_44729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44729.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 8 (2024) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44730.jpgsave_picture_44730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44730.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - ARABICA 2024 - Arabic Oriental Deep House Chillout Desert [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44731.jpgsave_picture_44731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44731.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:3A351CBD707CFC655BF3A53C84A0D8772F4C5351
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44732.jpgsave_picture_44732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44732.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ MediaHuman YouTube Downloader 3.9.9.95 (3008) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44733.jpgsave_picture_44733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44733.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:1775D6A813EAD29501F32B2BDCEE4B3DB955BD76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44734.jpgsave_picture_44734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44734.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Wondershare UniConverter Ultimate 15.7.0.41 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44735.jpgsave_picture_44735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44735.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:57133E14421ED9BA8A45D5F8AFA521821BE71E4E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44736.jpgsave_picture_44736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44736.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Opera GX 112.0.5197.115 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44737.jpgsave_picture_44737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44737.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:04A4E6885DAB6D9CA26B7637F40073C8EDE29327
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44738.jpgsave_picture_44738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44738.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Harmonic Tension - Roxy Vaine Yin Yang (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7026.jpgsave_picture_7026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7026.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Firstborne - Lucky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7027.jpgsave_picture_7027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7027.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Thurisaz - Studio Albums (6 releases) (2004-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7028.jpgsave_picture_7028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7028.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:2B42B41AC13B2F390DE248327652A0150734D2B0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7029.jpgsave_picture_7029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7029.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Motiff - Heading for the Weekend (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7030.jpgsave_picture_7030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7030.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Caden Morland - World Stays the Same (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7031.jpgsave_picture_7031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7031.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Byzantine - Studio Albums (8 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7032.jpgsave_picture_7032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7032.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ El Jetta - Monkeys Do What They See (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7033.jpgsave_picture_7033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7033.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Aaron Searle - In Idle Hours (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7034.jpgsave_picture_7034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7034.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kai Craig - A Time Once Forgotten (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7035.jpgsave_picture_7035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7035.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:27FE01AD6F54C516AECB5827104AB689CF9A50E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7036.jpgsave_picture_7036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7036.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Architects - Studio Albums (12 releases) (2006-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7037.jpgsave_picture_7037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7037.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:8A892276B5387AC3A070AE92593EC742A57CE13C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7038.jpgsave_picture_7038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7038.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:11248B0BBB53201CE554A5B567A1DC2FFA393E09
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7039.jpgsave_picture_7039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7039.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:23606EFBD46C2A61E93D6A5FA0023DE8AEB64B06
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7040.jpgsave_picture_7040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7040.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A45D522167F063658D143F5254A6100BFB8AC093
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7041.jpgsave_picture_7041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7041.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:BD9B00688CD31C7951FC71A247D1C0FBD7EEE512
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7042.jpgsave_picture_7042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7042.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - Soul and Funky Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Fu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7043.jpgsave_picture_7043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7043.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Filter - The Algorithm (Ultra Edition) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7044.jpgsave_picture_7044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7044.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Zayden Larkell - Endless Problems (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7045.jpgsave_picture_7045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7045.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Linkin Park - Living Things + (2012) E.U., 9362-49450-0, 2013 [FLAC|Lossless|ima
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7046.jpgsave_picture_7046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7046.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Kellan Broadridge - Craves It All (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7047.jpgsave_picture_7047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7047.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Linkin Park - A Thousand Suns + (2010) Brazil, 9362495889, AB0002000 Pressing, 2
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7048.jpgsave_picture_7048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7048.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:ABE85330BEEE4682DB56C7CEF3628E5BCA2AEDBE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7049.jpgsave_picture_7049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7049.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:6A6D4456DBB41D167CA4BCA838162BAC65DA2F7A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7050.jpgsave_picture_7050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7050.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:62FC5AE1F8E6924D5CE30E7CFD4B677DADACB374
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7051.jpgsave_picture_7051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7051.jpg" />
 </div>
 
 

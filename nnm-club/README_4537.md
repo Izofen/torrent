@@ -6,7 +6,7 @@ The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141960.jpgsave_picture_141960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141960.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:81351C217E07A5E55BA96D94B49D033794A9949E
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141961.jpgsave_picture_141961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141961.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DED4B036F358E2E3F88B7B3BA23E97D64D308FBE
 >>Авторские релизы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141962.jpgsave_picture_141962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141962.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:69B9A104F10637479E44952F23C4A03B6D0CEB86
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141963.jpgsave_picture_141963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141963.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Unclutter 2.1.24d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141964.jpgsave_picture_141964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141964.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VA - Лучшая Дискотека 80/90. (Зарубежный выпуск) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141965.jpgsave_picture_141965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141965.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:A30F613146E8E72CC7A59238173FA3A48AA280B6
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141967.jpgsave_picture_141967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141967.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:96016382C9555CB9013A535A64F06B3809B3C171
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141968.jpgsave_picture_141968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141968.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:C4497C7CB8E4437D2E93D113013B5CE7B1D0FDFC
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141969.jpgsave_picture_141969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141969.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:0CAE7C10231837C7715E6E47AD8F75007ED45E54
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141970.jpgsave_picture_141970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141970.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:E18E8A295C745A018B429A02C250FD00B01B3571
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141972.jpgsave_picture_141972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141972.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:EDB73127B50A8807AC9BB9C7E0E42996FBD65E2F
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141973.jpgsave_picture_141973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141973.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Eventide Ensemble Bundle v1.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141974.jpgsave_picture_141974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141974.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:47219519E950982D110C8FE9CB62B6C431D6035F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141975.jpgsave_picture_141975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141975.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141976.jpgsave_picture_141976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141976.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141977.jpgsave_picture_141977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141977.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:B1744F3CA45C1052370AED98C6DAF29D0C6CEB50
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141978.jpgsave_picture_141978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141978.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141979.jpgsave_picture_141979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141979.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:FD563FFCB71E180AEB20545A2B255474AEB5835C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141980.jpgsave_picture_141980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141980.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Californium (2016) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141981.jpgsave_picture_141981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141981.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Windows 7 Профессиональная SP1 x86 (OA CIS and GE) 6.1.7601.1751
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141982.jpgsave_picture_141982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141982.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141983.jpgsave_picture_141983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141983.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141985.jpgsave_picture_141985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141985.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:33506533A72D93A80B0DD207902691F8F6A365B1
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141986.jpgsave_picture_141986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141986.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:27F24E71D8325E955A2CAB74D40C38A141CFFAC0
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141987.jpgsave_picture_141987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141987.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:545ACA8B7C9143DFC3EB1888E927CB7DCA52B883
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141988.jpgsave_picture_141988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141988.jpg" />
 </div>
 
 

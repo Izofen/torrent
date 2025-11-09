@@ -6,7 +6,7 @@ Rhabstallion - Bat Shit Crazy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105556.jpgsave_picture_105556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105556.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lonely Fire - The Last Ride (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105571.jpgsave_picture_105571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105571.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nightsteel - Nightsteel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105576.jpgsave_picture_105576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105576.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Saga - Time's Up  (1986) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105581.jpgsave_picture_105581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105581.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eternal Storm - A Giant Bound To Fall (2024) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105583.jpgsave_picture_105583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105583.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lumen - Lumen & Orchestra (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105593.jpgsave_picture_105593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105593.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lumen - Lumen & Orchestra (2024) [MP3|320 Kbps] <Symphonic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105597.jpgsave_picture_105597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105597.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sex Magick Wizards - Death Grip (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrument
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105605.jpgsave_picture_105605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105605.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gods and Punks - Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105606.jpgsave_picture_105606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105606.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jim Peterik And World Stage - Roots & Shoots, Vol. 2 (2024) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105610.jpgsave_picture_105610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105610.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ In Aphelion - Reaperdawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105620.jpgsave_picture_105620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105620.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mister Misery - Mister Misery (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105621.jpgsave_picture_105621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105621.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:F44A4DD0CBB76AA24D7160A396B39D62A4DEFD28
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105626.jpgsave_picture_105626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105626.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Kryptos - The Coils Of Apollyon (2012) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105629.jpgsave_picture_105629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105629.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ministry - Hopiumforthemasses (2024) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105632.jpgsave_picture_105632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105632.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Category 7 - Category 7 (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105667.jpgsave_picture_105667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105667.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Razzmattazz - Rock Or Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105698.jpgsave_picture_105698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105698.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ministry - Hopiumforthemasses (2024) [FLAC|Lossless|tracks + .cue] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105713.jpgsave_picture_105713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105713.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Grand - Second To None (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105715.jpgsave_picture_105715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105715.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Freakshow - A Reason Worth Dying For (2024) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105716.jpgsave_picture_105716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105716.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Motorhead - Hammered (2002) [WavPack|Lossless|image + .cue] <Heavy Metal, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105717.jpgsave_picture_105717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105717.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Fred Guillemet Band - Hard 'N' Roll Stories (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105720.jpgsave_picture_105720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105720.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lazarus Dream - Imaginary Life (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105725.jpgsave_picture_105725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105725.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Tom Petty - Full Moon Fever (1989) LP [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105741.jpgsave_picture_105741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105741.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Atlantic - Another World (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105750.jpgsave_picture_105750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105750.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Little Richard Vs Bigbeat Kings - Tutti Frutti Reloaded (2009) [WavPack|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105753.jpgsave_picture_105753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105753.jpg" />
 </div>
 
 

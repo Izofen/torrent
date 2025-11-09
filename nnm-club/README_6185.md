@@ -6,7 +6,7 @@ Davinci Resolve Studio 18.5.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194251.jpgsave_picture_194251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194251.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:75F2DC63997B2770BF64027217A6FB09A7C28491
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194252.jpgsave_picture_194252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194252.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Breaking Benjamin - Dark Before Dawn (2015) [FLAC|Lossless|tracks + .cue] <Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194253.jpgsave_picture_194253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194253.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Microsoft Windows 11 [10.0.22000.2295], Version 21H2 (Updated August 2023) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194254.jpgsave_picture_194254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194254.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Adobe Audition 2023 23.6.0.61 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194255.jpgsave_picture_194255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194255.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:33DC1C2865A1E453D1C89693FC5D8AE9F0C17748
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194256.jpgsave_picture_194256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194256.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:2CEAFF17FD30ECDC9CC1EFDFF37AEFEFD73D91B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194257.jpgsave_picture_194257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194257.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Easy Cinematic Environments (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194258.jpgsave_picture_194258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194258.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:1A9C79EF7204C316E3C78F9D7F5B186B981229CE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194259.jpgsave_picture_194259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194259.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Ultimate Epic Battle Simulator 2 (2023) [En] (1.0fixed) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194260.jpgsave_picture_194260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194260.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VMware vCenter Converter Standalone 6.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194261.jpgsave_picture_194261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194261.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Blackmagic Design DaVinci Resolve Studio 18.5.1 Build 6 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194262.jpgsave_picture_194262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194262.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:06703EFCD6234F8F8E03FFF5A90069733F1DC499
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194263.jpgsave_picture_194263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194263.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Adobe Acrobat Pro 2023.003.20269 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194264.jpgsave_picture_194264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194264.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:0AA12B7681CF778747B5CE9D57B605FB9E737039
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194265.jpgsave_picture_194265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194265.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:86081434D57463578B6E66627449AB2B62D386B6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194266.jpgsave_picture_194266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194266.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A73232B62EB7A0D0EF23CC6439CEB3B657856AA5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194267.jpgsave_picture_194267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194267.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Infostart, Николай Бондаренко | Видеокурс «1C - Пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194268.jpgsave_picture_194268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194268.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Andrii Piatakha | Software Architecture and Clean Code Design in OOP (2022) WEBR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194269.jpgsave_picture_194269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194269.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Дискотека 2023 Dance Club Vol. 220 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194270.jpgsave_picture_194270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194270.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ The Gnomon Workshop, Sean Marino | Creating a Sci-Fi Pistol for Games (2023) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194271.jpgsave_picture_194271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194271.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:8066F88F59BB1FD9694D1699386B7A6F59621456
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194273.jpgsave_picture_194273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194273.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:2130DA0DB2323DB728FC437682A198FF70E9C2AA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194274.jpgsave_picture_194274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194274.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Snappy Driver Installer Origin R756 | Драйверпаки 23.08.0 / 23.08.2 [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194276.jpgsave_picture_194276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194276.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:4844AC4747CA5660D903F449A30A591568925506
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194277.jpgsave_picture_194277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194277.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:C0FFD0EDD79D4DD0F1E3F1A061BDCA1974EADB8D
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194278.jpgsave_picture_194278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194278.jpg" />
 </div>
 
 

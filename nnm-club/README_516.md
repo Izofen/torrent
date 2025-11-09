@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13695.jpgsave_picture_13695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13695.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Fort Firewall 3.18.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13696.jpgsave_picture_13696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13696.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:19C1119766378FEC1C4B48A1542333E505499564
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13697.jpgsave_picture_13697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13697.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FFAE82E404F9CC913173D93E203327389FB38158
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13698.jpgsave_picture_13698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13698.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ TikTok Private Plus v40.5.7 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13699.jpgsave_picture_13699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13699.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:DE265E21DF6A8AF78E91891E54C8D359DCC3EAB2
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13700.jpgsave_picture_13700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13700.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D9AB2BB82256251C72EE1A571039BC9DBB550B79
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13701.jpgsave_picture_13701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13701.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:5667497BED228D844A829DB8260EA907EB232E1D
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13702.jpgsave_picture_13702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13702.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Xreveal 2.8.0 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13703.jpgsave_picture_13703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13703.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13704.jpgsave_picture_13704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13704.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:F718F74EF79594F27777BE005CF23ABF5B0503D4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13705.jpgsave_picture_13705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13705.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:C4A1172A2229A9F805ADE6C4556C9FF1B309A38B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13706.jpgsave_picture_13706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13706.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:E009389B3EFFBD1768284DCBC7C0316677653FC9
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13707.jpgsave_picture_13707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13707.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:E6DA39B41E7430A25196521E7F50372B3780C05B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13708.jpgsave_picture_13708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13708.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Aharen-san wa Hakarenai 2 / Непостижимая Ахарэн-сан 2 [2025
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13709.jpgsave_picture_13709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13709.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:9FF787B4041D8729B4A92E253698FA75A7EB82E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13710.jpgsave_picture_13710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13710.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ GIMP 3.0.4 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13711.jpgsave_picture_13711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13711.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Wondershare UniConverter 16.5.5.288 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13712.jpgsave_picture_13712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13712.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:05048468D1557EDE3A97F31C2CAB4317E589674D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13713.jpgsave_picture_13713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13713.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:7C755CCA40B1490B3C1DAFCBD7170F9EA1CBC7EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13714.jpgsave_picture_13714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13714.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Maebashi Witches | Ведьмы Маэбаси [2025, TV, 12 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13715.jpgsave_picture_13715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13715.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:5AA27FFF37778B470D63BBE5883EF36844EB3266
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13716.jpgsave_picture_13716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13716.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:CFF9890C8A3EE72BC661F39F4FED71BE7307CA72
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13717.jpgsave_picture_13717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13717.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13718.jpgsave_picture_13718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13718.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Farm Manager World (2024) [Ru/Multi] (1.0.20250421.417) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13719.jpgsave_picture_13719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13719.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:D3F895FF348C7E276185690B99D9ECB06DA21F4F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13720.jpgsave_picture_13720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13720.jpg" />
 </div>
 
 

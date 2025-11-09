@@ -6,7 +6,7 @@ VA - No name compilation (2025) [MP3|320 Kbps] <Electronic, Easy listening, Inst
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250955.jpgsave_picture_250955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250955.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Morgan Luna - Compilation (2025) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250959.jpgsave_picture_250959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250959.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Инструментальная музыка (2012) vol. № 34 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250960.jpgsave_picture_250960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250960.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Кавказская Дискотека Опа-Опа! (2012) [MP3|256 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250992.jpgsave_picture_250992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250992.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ magnet:?xt=urn:btih:00677E64B7B16125FDDD7F5DD3A304C3FE4D54F9
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251013.jpgsave_picture_251013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251013.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251061.jpgsave_picture_251061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251061.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Зарубежные Новинки Vol.49 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251070.jpgsave_picture_251070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251070.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251117.jpgsave_picture_251117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251117.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251135.jpgsave_picture_251135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251135.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251145.jpgsave_picture_251145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251145.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Продвинутый Клубняк 50+50 (2012) [MP3|320 кб/с]<Pop,Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251150.jpgsave_picture_251150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251150.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251170.jpgsave_picture_251170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251170.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Инструментальная музыка (2012) vol. № 36 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251183.jpgsave_picture_251183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251183.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Инструментальная музыка (2012) vol. № 35 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251184.jpgsave_picture_251184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251184.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ The Millennium Collection - The Best Pop Music Of The 20th Century (1950-1998 20
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251321.jpgsave_picture_251321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251321.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - MAXI. Хитовые новинки MTV (2012) [MP3|256-320 кб/с]<Pop,Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251386.jpgsave_picture_251386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251386.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Правильная Рэпчина Часть 8 (2012) [MP3|256 кб/с]<�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251446.jpgsave_picture_251446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251446.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Hits Of The Moment (10.05.2012) (2CD)[MP3|320 кб/с]<House, Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251640.jpgsave_picture_251640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251640.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251668.jpgsave_picture_251668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251668.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy l
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251669.jpgsave_picture_251669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251669.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251672.jpgsave_picture_251672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251672.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - L’Amour Fané Compilation (2025) [MP3|320 Kbps] <Vocal, Easy listening, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251674.jpgsave_picture_251674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251674.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Music News For Forum vol.145 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251685.jpgsave_picture_251685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251685.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Не спи за баранкой 7 (Музыка в машину) (2023) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251834.jpgsave_picture_251834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251834.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - Понемногу отовсюду by Yuridar #M-N (1958-2020) Compilation
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252118.jpgsave_picture_252118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252118.jpg" />
 </div>
 
 

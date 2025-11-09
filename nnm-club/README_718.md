@@ -6,7 +6,7 @@ LazyMedia Deluxe v3.386 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18994.jpgsave_picture_18994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18994.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8960B224C43EAFE8262624820A7310BCA831DB05
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18995.jpgsave_picture_18995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18995.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Days Gone / Жизнь после (2021) [Ru/Multi] (1.07) Repack West4it
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18996.jpgsave_picture_18996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18996.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Days Gone / Жизнь после (2021) [Ru/Multi] (1.07) Repack West4it
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18997.jpgsave_picture_18997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18997.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F6F1F4B86EFFC088E484D68679591B36ED2531E4
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18998.jpgsave_picture_18998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18998.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E1E58B67E4E73A29AAD7E65DDBC81B6E29AA8717
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18999.jpgsave_picture_18999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18999.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:9CD779B463627D11DD7C44DCE7906E0D0214DAA0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19000.jpgsave_picture_19000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19000.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:9A00419E04E266037F04E3DA33918B529F278424
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19001.jpgsave_picture_19001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19001.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:31B488975E00F87E8060768E25596136C1FB2104
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19002.jpgsave_picture_19002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19002.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:58E8F4A72808B72D91694A013D09129EB46ECADC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19003.jpgsave_picture_19003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19003.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19004.jpgsave_picture_19004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19004.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:034BFBE5614EBB875640DD8BC7EFB2FDC1719E6B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19005.jpgsave_picture_19005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19005.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:EC9C927FD86645809EEDB45FA3A57E54BCE29DD0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19006.jpgsave_picture_19006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19006.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19007.jpgsave_picture_19007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19007.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3A8CCEEB67F4D675092BEF531D4702F36F586B6F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19008.jpgsave_picture_19008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19008.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:FE6B7C39358013C3C860A62832987DE77658306E
 >>20
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19009.jpgsave_picture_19009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19009.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:FE6B7C39358013C3C860A62832987DE77658306E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19010.jpgsave_picture_19010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19010.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Forza Horizon 5 (2021) [Ru/Multi] (1.683.258.0/dlc) Repack Wanterlude [Premium E
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19011.jpgsave_picture_19011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19011.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:0B0E0572874E8BC0731075D4E4097D28994C748A
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19012.jpgsave_picture_19012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19012.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Adobe Illustrator 2025 29.5.1.141 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19013.jpgsave_picture_19013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19013.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Adobe Photoshop Lightroom Classic 2024 14.3.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19014.jpgsave_picture_19014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19014.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Adobe InDesign 2025 20.3.1.73 RePack by KpoJIuK [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19015.jpgsave_picture_19015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19015.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Music News For Forum vol.083 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19016.jpgsave_picture_19016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19016.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:B55D22EBF74896A235C75A5234487D9413E3ABB1
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19017.jpgsave_picture_19017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19017.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:4C819F6E838DEC03DF8C1A5E2A0D02389B1C9CC8
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19018.jpgsave_picture_19018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19018.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Downtempo Reflection: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19019.jpgsave_picture_19019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19019.jpg" />
 </div>
 
 

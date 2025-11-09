@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164612.jpgsave_picture_164612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164612.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ M.S.L - Discography 4 Releases (2018-2019) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164613.jpgsave_picture_164613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164613.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8B8B08BF70E2414622617A8943E3CDBF81AA9F86
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164614.jpgsave_picture_164614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164614.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Codepoint for Mac 1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164615.jpgsave_picture_164615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164615.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:9FC0B7A0B0B02E85CA7292807F1DECDF8810F21E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164616.jpgsave_picture_164616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164616.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164617.jpgsave_picture_164617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164617.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ CheckBook Pro 2.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164618.jpgsave_picture_164618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164618.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Jettison 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164619.jpgsave_picture_164619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164619.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ EdgeView 4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164620.jpgsave_picture_164620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164620.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ DiskCatalogMaker 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164621.jpgsave_picture_164621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164621.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Edenbridge - ...Sunrise In Eden... (2000) [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164622.jpgsave_picture_164622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164622.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:5CCF9C50442BE4782661ADE193B49BF0ED279BED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164623.jpgsave_picture_164623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164623.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:00E3DB53A47F1737DED9158970542EC1EA3CDAA3
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164624.jpgsave_picture_164624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164624.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164625.jpgsave_picture_164625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164625.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:E0B270D54DBA971D723B5ADE1FE199078EEFF568
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164626.jpgsave_picture_164626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164626.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Edenbridge - Arcana (2001) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164627.jpgsave_picture_164627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164627.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ AnyMP4 DVD Creator for Mac 6.2.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164628.jpgsave_picture_164628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164628.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Viper FTP 5.5 (build 55012) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164629.jpgsave_picture_164629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164629.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:B176EA0C808B71A38ECE7C10F9C383EEEE346F6C
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164630.jpgsave_picture_164630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164630.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Toshiko Akiyoshi And Charlie Mariano - East & West 1963 (1997) BMG [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164631.jpgsave_picture_164631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164631.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164632.jpgsave_picture_164632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164632.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:FAC181D6C2799E1EEE963940B938267A02B47933
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164633.jpgsave_picture_164633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164633.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Folder Tidy 2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164634.jpgsave_picture_164634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164634.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ EverWeb 3 v3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164635.jpgsave_picture_164635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164635.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Erroll Garner - 1946-1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164636.jpgsave_picture_164636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164636.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AIDA64 Extreme/Engineer/Business Edition/Network Audit 6.32.5600 RePack (&Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164637.jpgsave_picture_164637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164637.jpg" />
 </div>
 
 

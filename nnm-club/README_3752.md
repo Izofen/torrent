@@ -6,7 +6,7 @@ Coming soon 3 v.3.20 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117932.jpgsave_picture_117932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117932.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117933.jpgsave_picture_117933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117933.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Joey Alexander - Continuance (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117934.jpgsave_picture_117934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117934.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sandboxie 5.68.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117935.jpgsave_picture_117935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117935.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ BoltAI 1.13.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117936.jpgsave_picture_117936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117936.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:E21F003BB2C55607DBA163903C033BD5FE91029F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117937.jpgsave_picture_117937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117937.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ AlDente Pro fo Mac 1.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117938.jpgsave_picture_117938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117938.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Moom 3.2.26 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117939.jpgsave_picture_117939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117939.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ ExamDiff Pro Master Edition 14.0.1.23 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117940.jpgsave_picture_117940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117940.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ BlueHarvest 8 v.8.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117941.jpgsave_picture_117941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117941.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:3DC392E88796D48926A483EB93C92BF3C76D6A46
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117942.jpgsave_picture_117942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117942.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:CF72091955B39A3D019C98D8FDFFDF6C75933A98
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117943.jpgsave_picture_117943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117943.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Video Cut&Crop&Join for Mac 3.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117944.jpgsave_picture_117944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117944.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Terminal Carnage - Feast upon the River Styx (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117945.jpgsave_picture_117945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117945.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:43277445355A226EE607A7DBE6B742697A692389
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117946.jpgsave_picture_117946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117946.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:4F79DFE056971D3BB7B70C18C9D3DC97A4AC6550
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117947.jpgsave_picture_117947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117947.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:71459AF8BC04CAC826CFB539B458ECF475CF0284
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117948.jpgsave_picture_117948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117948.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ The Pineapple Thief - It Leads To This (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117949.jpgsave_picture_117949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117949.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:BC5AEEB2F6B0B14AD43EB6F0B2CB71D58F32B9D5
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117950.jpgsave_picture_117950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117950.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Terminal Carnage - Feast upon the River Styx (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117951.jpgsave_picture_117951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117951.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Soren Andersen - Skybar (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117952.jpgsave_picture_117952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117952.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:2D1DB073381A1A1C9B5C6E3B704BE482ABCE4045
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117953.jpgsave_picture_117953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117953.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Emanuele Uva - Harbor Harmonies (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117954.jpgsave_picture_117954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117954.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Metallica - Metallica (1991) Reissue, Remastered, 2010, Vertigo [OGG Vorbis|480 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117955.jpgsave_picture_117955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117955.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Deep Sexy Funky House (2024) [MP3|320 Kbps] <House, Funky House, Nu Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117956.jpgsave_picture_117956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117956.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:C5F603A05844913B502D7B1A713D94DD5608E568
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117957.jpgsave_picture_117957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117957.jpg" />
 </div>
 
 

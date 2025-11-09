@@ -6,7 +6,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195366.jpgsave_picture_195366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195366.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195387.jpgsave_picture_195387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195387.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Life is Strange Remastered Collection (2022) [Ru/Multi] (11330282/11258280) Repa
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195473.jpgsave_picture_195473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195473.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OXENFREE II: Lost Signals (2023) [Multi] (1.2.14) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195532.jpgsave_picture_195532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195532.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kena: Bridge of Spirits / Кена: Мост духов (2021) [Ru/Multi] (2.08)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195563.jpgsave_picture_195563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195563.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Dark Pictures Anthology: Man of Medan (2019) [Ru/Multi] (Build 10739751/dlc)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195589.jpgsave_picture_195589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195589.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195622.jpgsave_picture_195622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195622.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195684.jpgsave_picture_195684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195684.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Stay Out of the House (2022) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195961.jpgsave_picture_195961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195961.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195974.jpgsave_picture_195974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195974.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196026.jpgsave_picture_196026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196026.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196276.jpgsave_picture_196276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196276.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sludge Life 2 (2023) [Ru/Multi] (230630) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196286.jpgsave_picture_196286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196286.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196310.jpgsave_picture_196310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196310.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Livestream: Escape from Hotel Izanami (2023) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196353.jpgsave_picture_196353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196353.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196453.jpgsave_picture_196453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196453.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Unwording (2023) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196565.jpgsave_picture_196565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196565.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Forgotten Fields (2021) [En] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196592.jpgsave_picture_196592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196592.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Case of the Golden Idol (2022) [En] (2.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196728.jpgsave_picture_196728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196728.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196905.jpgsave_picture_196905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196905.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dordogne (2023) [Ru/Multi] (1.12.15) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196974.jpgsave_picture_196974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196974.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Deadly Delivery (2023) [En] (Build 11444090) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197127.jpgsave_picture_197127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197127.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (11394767) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197187.jpgsave_picture_197187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197187.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.01.1279966) Scene Tenoke [Soundtr
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197205.jpgsave_picture_197205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197205.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Scorn (2022) [Ru/Multi] (1.2.2.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197262.jpgsave_picture_197262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197262.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Basements n' Basilisks: Storms of Sorcery (2023) [Multi] (1.2.1(9)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197280.jpgsave_picture_197280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197280.jpg" />
 </div>
 
 

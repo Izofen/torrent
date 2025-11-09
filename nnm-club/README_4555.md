@@ -6,7 +6,7 @@ GiliSoft USB Stick Encryption 6.0.0 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142547.jpgsave_picture_142547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142547.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C83728517FD86A160E563BE89ADBB1172FC0676E
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142548.jpgsave_picture_142548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142548.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:58ABBEFB462A5E75FF8A277395365457CD499680
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142549.jpgsave_picture_142549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142549.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:35343C33ED16FF9F5AD04F6794262395EFECFDFB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142550.jpgsave_picture_142550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142550.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142552.jpgsave_picture_142552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142552.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ uDock 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142553.jpgsave_picture_142553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142553.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142554.jpgsave_picture_142554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142554.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0531650283652F24D2137FE3045C4C367E3332A7
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142555.jpgsave_picture_142555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142555.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6F9BDABBE1F38C0E3A6ABC52663DEB0072D27B7D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142556.jpgsave_picture_142556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142556.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142557.jpgsave_picture_142557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142557.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Visage - The Face (The Very Best Of Visage) (2010) [FLAC|Lossless|tracks + .cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142558.jpgsave_picture_142558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142558.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:32C99266D31C72FAB9C1D7BFCDAA0BDAB44DEA0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142559.jpgsave_picture_142559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142559.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:BCBFB47B9F741E6742510052D4ECD5513DB426E3
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142561.jpgsave_picture_142561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142561.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:207A011D1BF0E7334E0C357FF5EB37A4AACCF391
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142562.jpgsave_picture_142562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142562.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:51DD3414F6E0992AD003880E4470E0DF5EF0258F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142563.jpgsave_picture_142563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142563.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:05A60CBE65F00E79A6B4D7F13F511CD83097D392
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142564.jpgsave_picture_142564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142564.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Story of the Year - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142566.jpgsave_picture_142566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142566.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:7C5E18BAD5DD4B908AAB34D1FBD4F2642A2CBF0F
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142567.jpgsave_picture_142567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142567.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ VA - Hard Trance 2019: Top 40 Hits Electronic Hard Psy Goa Techno House EDM Danc
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142568.jpgsave_picture_142568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142568.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:A0A2460154960CC6DF9CD54E3587D179A6A1D863
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142569.jpgsave_picture_142569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142569.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:68D2DAC894EFCC109E215ED6ABED5E4FF2262415
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142570.jpgsave_picture_142570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142570.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:4A0B151345922C9DA48402BABE53827B7E9B58F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142571.jpgsave_picture_142571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142571.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Midnight Dreams - Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142572.jpgsave_picture_142572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142572.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:738EE9F46F84AF6CB5A1311E575F6B41F3052D17
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142573.jpgsave_picture_142573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142573.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Door Kickers v.1.0.9 (2015) [Multi/Ru] [OS X Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142574.jpgsave_picture_142574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142574.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Sieges Even - The Art Of Navigating By The Stars (2005) [MP3|320kbps] <Progressi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142575.jpgsave_picture_142575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142575.jpg" />
 </div>
 
 

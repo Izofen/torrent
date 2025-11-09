@@ -6,7 +6,7 @@ Driver Genius Professional 11.0.0.1128 DC 11.05.2012 RUS RePack/Portable by -=SV
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251576.jpgsave_picture_251576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251576.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Driver Genius Professional  - программа для управления д�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251577.jpgsave_picture_251577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251577.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Driver Genius Professional  - программа для управления д�
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251578.jpgsave_picture_251578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251578.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kabus 22 / Зона 22 Территория страха [Ru] (P) 2007
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251579.jpgsave_picture_251579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251579.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CC26535687D85B04D2157679B4EAA81EE543BEC5
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251580.jpgsave_picture_251580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251580.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:A112BAD60435D4817D1960BA7FF12CC1573AAEBD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251581.jpgsave_picture_251581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251581.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A112BAD60435D4817D1960BA7FF12CC1573AAEBD
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251582.jpgsave_picture_251582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251582.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Sandra - The Complete History (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251584.jpgsave_picture_251584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251584.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Sandra - The Complete History (2003) DVDRip [H.264]
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251588.jpgsave_picture_251588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251588.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Sandra - The Complete History (2003) DVDRip [H.264]
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251589.jpgsave_picture_251589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251589.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ U-he - Diva v.1.1 by DYNAMiCS x86.x64[VST][английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251590.jpgsave_picture_251590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251590.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ U-he Diva - аналоговый виртуальный синтезатор, о
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251592.jpgsave_picture_251592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251592.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Image-Line - FL Studio 10.0.9c Signature Bundle by AIR x86[английский 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251593.jpgsave_picture_251593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251593.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ FL Studio 10 - это законченное решение для создан�
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251594.jpgsave_picture_251594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251594.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:CE4484F4F2D3756294F56FEF85BFF41289D329FC
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251597.jpgsave_picture_251597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251597.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Kingsoft PC Doctor Lite 3.7.0.47 [Английский + русификатор]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251598.jpgsave_picture_251598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251598.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Windows 7 Ultimate SP1 (x64) [The DNA7 Project v.1.6] (русская верси
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251599.jpgsave_picture_251599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251599.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The DNA7 Project x64 прежде всего предназначен для 'ч
 >>Касл / Castle
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251601.jpgsave_picture_251601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251601.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ The DNA7 Project x64 прежде всего предназначен для 'ч
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251602.jpgsave_picture_251602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251602.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ The DNA7 Project x64 прежде всего предназначен для 'ч
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251606.jpgsave_picture_251606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251606.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:2715C7DB38247010C5CFE8D2CF92161B80ECE38F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251615.jpgsave_picture_251615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251615.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:38B248D9FC9014FEC9929406A6D5FEB1D48C3A19
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251616.jpgsave_picture_251616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251616.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:1BFBDBFCC722A786C05CFCD1D63B0154C9CF0DA4
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251617.jpgsave_picture_251617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251617.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:AEBFFF8F82B451B1AA14BC0357CDC417FC54C191
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251618.jpgsave_picture_251618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251618.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:6875668BFA27C346168F90E01B250033DF3B3FF7
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251623.jpgsave_picture_251623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251623.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:93E2543730A194CB0B1AED6FD345BDC5AB5A02A0
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251624.jpgsave_picture_251624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251624.jpg" />
 </div>
 
 

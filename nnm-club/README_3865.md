@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120916.jpgsave_picture_120916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120916.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A3E68CB9A9C0E73A6607295EB9E546D4DD0CDADA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120917.jpgsave_picture_120917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120917.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Patreon, Timur Shemsedinov | Технологический стек Node.js (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120918.jpgsave_picture_120918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120918.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Modern Tweaker 2.0 Final (25.01.2024) Portable [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120919.jpgsave_picture_120919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120919.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DF8E555948D527F933A5FFAAB3484D5C68E110C0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120920.jpgsave_picture_120920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120920.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:0F8B9BBC902C09CF63BFF8930641D7FD4AB0C247
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120921.jpgsave_picture_120921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120921.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:3654239CF881F869B756C002B7360C6A41D8F033
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120922.jpgsave_picture_120922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120922.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:5F34DACA4ED6E0F02080E535255FFF5F7AC887F8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120923.jpgsave_picture_120923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120923.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Banev! - Синдром разбитого сердца (2024) [FLAC|Lossless|WE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120924.jpgsave_picture_120924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120924.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Sexual Perverts - 2 Albums (2021-2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120925.jpgsave_picture_120925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120925.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Jean Paul Rena - A thief known for stealing hearts (Silver edition remaster 2024
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120926.jpgsave_picture_120926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120926.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Musify for Mac 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120927.jpgsave_picture_120927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120927.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Robby Krieger - Robby Krieger & The Soul Savages (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120928.jpgsave_picture_120928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120928.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ SQLPro for SQLite 2024.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120929.jpgsave_picture_120929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120929.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ MacLoggerDX 6.49 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120930.jpgsave_picture_120930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120930.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Morkt Stof - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120931.jpgsave_picture_120931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120931.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120932.jpgsave_picture_120932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120932.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120933.jpgsave_picture_120933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120933.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ OmniFocus Pro 3.15.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120934.jpgsave_picture_120934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120934.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Cognizance - Phantazein (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120935.jpgsave_picture_120935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120935.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Everdying - Within the Recesses (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120936.jpgsave_picture_120936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120936.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Everdying - Dimensions of Mortal Frailty (2024) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120937.jpgsave_picture_120937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120937.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Edward De Rosa - Zeitgeist (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120938.jpgsave_picture_120938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120938.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Author 9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120939.jpgsave_picture_120939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120939.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Keep It 2.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120940.jpgsave_picture_120940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120940.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:F6BE39591B227C4EC7D65FE442B234B4B26A261C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120941.jpgsave_picture_120941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120941.jpg" />
 </div>
 
 

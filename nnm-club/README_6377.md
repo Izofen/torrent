@@ -6,7 +6,7 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202454.jpgsave_picture_202454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Niche - a genetics survival game (2016) [Ru/Multi] (1.2.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202455.jpgsave_picture_202455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202455.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lords of Ravage (2025) [Ru/Multi] (1.0-1-26) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202456.jpgsave_picture_202456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202456.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:13815FF536598CA07F92E6EFD46FF7248D01FB12
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202457.jpgsave_picture_202457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202457.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20076054/dlc) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202458.jpgsave_picture_202458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202458.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack dixen18 [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202459.jpgsave_picture_202459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202459.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202460.jpgsave_picture_202460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202460.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Flud v1.12.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202461.jpgsave_picture_202461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202461.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ FacePic - AI Face App v3.1.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202462.jpgsave_picture_202462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202462.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Display Tester v5.35.6 Mod by Balatan, AnBo39  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202463.jpgsave_picture_202463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202463.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:7D8EE7A9FDA4752C80742C928FBE038961061E08
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202464.jpgsave_picture_202464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202464.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:37BA73866B30714D06BB7B1060A88FE8BBAA86E3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202465.jpgsave_picture_202465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202465.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:F15E68BCC7FC994BC14D0E0C01C49FF5F9189F93
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202466.jpgsave_picture_202466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202466.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:50D1123E16EB2660C0D7BB322359FF1F53550506
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202467.jpgsave_picture_202467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202467.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:4AADD968AE87679FD6D7B28BE2A4C396237B3D68
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202468.jpgsave_picture_202468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202468.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:78312A669759B01B40BD6797997D1BC7F03D9D33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202469.jpgsave_picture_202469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202469.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:F3B0579A94221FC39668F872B7CABA8CA7BBE2EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202470.jpgsave_picture_202470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202470.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Keep Driving (2025) [Ru/Multi] (1.3.1.0d) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202471.jpgsave_picture_202471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202471.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Tempra Rose - Blues Of The Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202472.jpgsave_picture_202472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202472.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Lindsey Buck - The Laundry and the Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202473.jpgsave_picture_202473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202473.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Jay Hooks - Tequila & Bullets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202474.jpgsave_picture_202474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202474.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ The Electro-Swing Band - A Fading Gleam (2025) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202475.jpgsave_picture_202475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202475.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ WPS Office + PDF v18.21.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202476.jpgsave_picture_202476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202476.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Electro Swing Groove - Vocal Nights, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202477.jpgsave_picture_202477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202477.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Picsart AI Photo Editor, Video v28.6.7 Gold Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202478.jpgsave_picture_202478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202478.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ CCleaner Pro: ПО для очистки 25.21.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202479.jpgsave_picture_202479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202479.jpg" />
 </div>
 
 

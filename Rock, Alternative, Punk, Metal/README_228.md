@@ -6,7 +6,7 @@ Les Cameleons - Todos (2001) Single [FLAC|Lossless|tracks + .cue] <Rock, Ska>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146010.jpgsave_picture_146010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146010.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Hassle: Volume One (2007) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146011.jpgsave_picture_146011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146011.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:90BC09D723A10D9BB4F8AB6DC174FDABDBE26615
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146023.jpgsave_picture_146023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146023.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Olathia - The Forest Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Power/Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146026.jpgsave_picture_146026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146026.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Meet Me In St Louis - Variations On Swing (2007) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146028.jpgsave_picture_146028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146028.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ E-Force - 4 Альбома (2003 - 2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146036.jpgsave_picture_146036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146036.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Malad - Malad (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146127.jpgsave_picture_146127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146127.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Manilla Road - Spiral Castle (2002) Remaster, 2023, GoldenCore Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146152.jpgsave_picture_146152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146152.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ King - Fury and Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146159.jpgsave_picture_146159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146159.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:03D69872CC2339075EC4CCC52B3E093550D9F6C9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146166.jpgsave_picture_146166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146166.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Mizmor - 8 Albums (2012-2023) [MP3|320 Kbps] <Black Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146172.jpgsave_picture_146172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146172.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Soars - Repeater (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146180.jpgsave_picture_146180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146180.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sot-75 - Мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146185.jpgsave_picture_146185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146185.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Jag Panzer - Decade of the Nail-Spiked Bat (2003) Compilation, re-recorded, Cent
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146190.jpgsave_picture_146190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146190.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Rook Ensemble - Conform to the Pageantry (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146203.jpgsave_picture_146203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146203.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Border Cross - 2 Albums (2006-2008) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146217.jpgsave_picture_146217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146217.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Lacuna Coil - Black Anima (2019) Limited Edition [FLAC|Lossless|image + .cue] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146218.jpgsave_picture_146218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146218.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Fortune - 3 альбома Discography (1993-1995) [MP3|320 Kbps] <Melodic Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146250.jpgsave_picture_146250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146250.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Jernlov - Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Christian
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146277.jpgsave_picture_146277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146277.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Patriarchs in Black - My Veneration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146280.jpgsave_picture_146280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146280.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Terromania - Nyctophobic (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146289.jpgsave_picture_146289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146289.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:31F9207D5CD0EC51E872E4C9B29F177DE95C1D49
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146292.jpgsave_picture_146292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146292.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Fortune - 3 альбома Discography (1993-1995) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146347.jpgsave_picture_146347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146347.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Loathe - 3 Albums / 2 EP (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146357.jpgsave_picture_146357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146357.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:1EB1876D1FCD64E74196B4D91F221E3CD740E7D9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146360.jpgsave_picture_146360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146360.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Cradle Of Filth - Cruelty And The Beast (Re-Mistressed) (1998) Reissue, Remaster
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146367.jpgsave_picture_146367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146367.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Stranger Vision - Faust Act 1: Prelude To Darkness (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103288.jpgsave_picture_103288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103288.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Distant Past - Solaris (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103289.jpgsave_picture_103289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103289.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Massacre - Necrolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103290.jpgsave_picture_103290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103290.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Katharsis - Evading Equilibrium (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103293.jpgsave_picture_103293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103293.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tungsten - The Grand Inferno (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103295.jpgsave_picture_103295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103295.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sweet Electric - The Monsters Are Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103296.jpgsave_picture_103296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103296.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Aerosmith - Live in Boston (1994) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103311.jpgsave_picture_103311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103311.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Druidess - The Product Of My Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103313.jpgsave_picture_103313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103313.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ InnerWish - Ash Of Eternal Flame (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103316.jpgsave_picture_103316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103316.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Alice In Chains - Lives In Seattle, in Dallas (1990-1992) HQ Remastered, 2024, D
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103319.jpgsave_picture_103319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103319.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Paragon - Metalation (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103320.jpgsave_picture_103320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103320.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dare - Blood From Stone (1991) Remastered, 2024, Legend Records [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103327.jpgsave_picture_103327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103327.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0C0D02B4120148E74D89EF62A18975EF32ED23E3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103328.jpgsave_picture_103328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103328.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rimbacher - High Hopes On The Rocks (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103329.jpgsave_picture_103329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103329.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Suidakra - Darkanakrad (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103333.jpgsave_picture_103333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103333.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Viperwitch - Witch Hunt: Road to Vengeance (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103335.jpgsave_picture_103335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103335.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Brad Smith - Broken Bones & Bullet Holes (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103341.jpgsave_picture_103341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103341.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:CD9484D9693E2B67A3E989ADBF0BE474BE64F408
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103364.jpgsave_picture_103364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103364.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ensiferum - Winter Storm (2024) Special Edition [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103365.jpgsave_picture_103365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103365.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Robert Jon & The Wreck - Red Moon Rising (Deluxe Edition) (2024) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103366.jpgsave_picture_103366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103366.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Steam Slicer - Beyond The Rivers (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103395.jpgsave_picture_103395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103395.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Scarlet Bandit - Lose Your Blues (Late Night City Feeling Edition) (2024) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103398.jpgsave_picture_103398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103398.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Brad Smith - Broken Bones And Bullet Holes (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103421.jpgsave_picture_103421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103421.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:7DD500F18072E64BF0DF769DAFC7C01F16746472
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103422.jpgsave_picture_103422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103422.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:A34733E9B4FB35F9D107FCCC2831F22525ED4AA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103423.jpgsave_picture_103423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103423.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Delusions Of Godhood - Salvation's Withdrawal (2024) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103425.jpgsave_picture_103425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103425.jpg" />
 </div>
 
 

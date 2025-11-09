@@ -6,7 +6,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64616.jpgsave_picture_64616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64616.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SaGa Emerald Beyond v1.0.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70412.jpgsave_picture_70412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70412.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Words of Wonders: Игра в слова v5.5.20 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94703.jpgsave_picture_94703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94703.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Jigsawscapes® - Пазлы v4.2.3 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94755.jpgsave_picture_94755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94755.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:5FB831F4E8AADF931FE95109C95260ECDAEA0F81
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98564.jpgsave_picture_98564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98564.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Tick Tock: A Tale for Two 1.1.9 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101358.jpgsave_picture_101358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101358.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The Case of the Golden Idol 1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101368.jpgsave_picture_101368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101368.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Duck Detective: Secret Salami v1.0.36 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101374.jpgsave_picture_101374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101374.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Wood Block Puzzle (QBlock)  v3.5.0 Mod by Bubalex88 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110878.jpgsave_picture_110878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110878.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Wood Block Puzzle (QBlock)  v3.5.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110900.jpgsave_picture_110900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110900.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:BF7ADC64E17C2872C6D5FA1FEFDAF221A4B624E2
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116101.jpgsave_picture_116101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116101.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:50DFEE325B4DB2BE749847F70ED8930BF01B4D20
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125088.jpgsave_picture_125088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125088.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:57ED1B41063909E92C7BBDF386CF31FB57759430
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126120.jpgsave_picture_126120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126120.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Pro Pool 2024 v1.54 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126526.jpgsave_picture_126526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126526.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:4E3DFF3CD3EA4ABFE69E700ADF718DB91330413E
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127459.jpgsave_picture_127459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127459.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D49CC55B28DED379F273986A5FBD8308BDD09031
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127650.jpgsave_picture_127650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127650.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ BabyBus Kids: Мир видео и игр v3.1.10.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128938.jpgsave_picture_128938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128938.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Words of Wonders: Игра в слова v5.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128949.jpgsave_picture_128949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128949.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FE1F97FCF48820F636C9375049C9FF90EB620302
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141229.jpgsave_picture_141229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141229.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Day R Premium v1.677 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145278.jpgsave_picture_145278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145278.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Flight Simulator 2d v1.3.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145356.jpgsave_picture_145356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145356.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Age of Civilizations II 1.01584_ELA [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145419.jpgsave_picture_145419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145419.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Shadow Hunter : Lost World - Epic Hack and Slash v0.20.8.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145645.jpgsave_picture_145645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145645.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ ExoMiner - Idle Miner Adventure v0.7.8 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145746.jpgsave_picture_145746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145746.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ State of Survival v1.9.90 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147763.jpgsave_picture_147763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147763.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Street Racing Grand Tour v0.12.3756 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147822.jpgsave_picture_147822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147822.jpg" />
 </div>
 
 

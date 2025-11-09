@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3214.jpgsave_picture_3214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3214.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:913CCE420AF61672C550972C60C7107171B6216A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3215.jpgsave_picture_3215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3215.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ashampoo UnInstaller 16.00.02 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3216.jpgsave_picture_3216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3216.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Antivirus Removal Tool 2025.8 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3217.jpgsave_picture_3217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3217.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ OneCommander Pro 3.101.0.0 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3218.jpgsave_picture_3218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3218.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Adobe Media Encoder 2025 25.5.0.13 RePack by KpoJIuK [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3219.jpgsave_picture_3219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3219.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VIMAGE - AI Photo Animation v5.1.11 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3220.jpgsave_picture_3220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3220.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ jetAudio HD Music Player Plus v12.3.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3221.jpgsave_picture_3221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3221.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3222.jpgsave_picture_3222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3222.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Download Master 7.2.1.1737 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3223.jpgsave_picture_3223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3223.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:AA15AE93EF5F30D217FCAC796F26AAA7720FCF87
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3224.jpgsave_picture_3224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3224.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:113C32CAAD7661BBAE6892AEF4641B35B99177CD
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3225.jpgsave_picture_3225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3225.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ashampoo WinOptimizer 28.00.14 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3226.jpgsave_picture_3226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3226.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:7CCEC835F7DC6E20A835D4AE61D2BF8166D40AE7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3227.jpgsave_picture_3227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3227.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Total Commander 11.56 Extended 25.9 Full / Lite RePack (& Portable) by BurSoft [
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3228.jpgsave_picture_3228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3228.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:4D5C0F65C941767D7EEAC4CB7D56E7DA3F488282
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3229.jpgsave_picture_3229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3229.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:4B69FCAF8BC40F67CE1BC0B3BEE94EC4702D5B69
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3231.jpgsave_picture_3231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3231.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:EBA519649DAC87FBC2CDBCDE91DEB738CD8C4085
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3232.jpgsave_picture_3232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3232.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:51793F4EA118BD2121CC112131D79B0678CA48C2
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3234.jpgsave_picture_3234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3234.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:0D73E4495D559FC927FED5AEE3CB21A5F01ABF3F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3235.jpgsave_picture_3235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3235.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:E044E3D8A24A58FE1E42941C6DA554F67ECD3B0A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3236.jpgsave_picture_3236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3236.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ MAGIX Vegas Pro 23.0 Build 278 RePack by KpoJIuK [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3237.jpgsave_picture_3237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3237.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ AOMEI Partition Assistant Technician Edition 10.9.0 RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3238.jpgsave_picture_3238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3238.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:598F48EDC669E9E19BD0AB3FF7AE0C8F019B7265
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3239.jpgsave_picture_3239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3239.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19705579/dlc) Repack FitGirl [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3240.jpgsave_picture_3240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3240.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:B7EA77E55286793509C6D884A15234B84B5B12C4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3241.jpgsave_picture_3241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3241.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184433.jpgsave_picture_184433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184433.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blender 3.6.4 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184435.jpgsave_picture_184435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184435.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:4570E0E9E323F48CE5FAE7AC729267A3542AE3B8
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184436.jpgsave_picture_184436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184436.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:502CF856143D591EDAEBFA30A00A197D315FB25C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184438.jpgsave_picture_184438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184438.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Auslogics Duplicate File Finder 10.0.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184439.jpgsave_picture_184439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184439.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:ECE282EBB76799B51D9E8C11B2D9E40C1A32FA5B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184441.jpgsave_picture_184441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184441.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ I'll/CKBC | I'll/Crazy KOUZO Basketball Club | Лихая баскетбольн
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184442.jpgsave_picture_184442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184442.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:CBCC59C16B3BA9FBE9E6FDC8589BB99BE6265EA1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184445.jpgsave_picture_184445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184445.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Particulars 34 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184446.jpgsave_picture_184446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184446.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Psiphon 3 build 179 (25.09.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184447.jpgsave_picture_184447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184447.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ iMusic 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184450.jpgsave_picture_184450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184450.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:8E6EED9D154DC8AD2E73B92DFC867D4ED497FEC1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184451.jpgsave_picture_184451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184451.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4E646031D7878D4726E289ED6E6EE499C0919EC1
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184452.jpgsave_picture_184452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184452.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Tech House Electro Music Fest (2020) [MP3|320 Kbps] <EDM, Techno, Tech Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184454.jpgsave_picture_184454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184454.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:40203EEB3E130AC0E90261570FEE77B3111B2A6E
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184456.jpgsave_picture_184456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184456.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:4C9F877BA06BDC37EB26FA94DB2F7EDDEE93FFD9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184457.jpgsave_picture_184457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184457.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ AMD Radeon Software Adrenalin Edition 23.9.3 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184460.jpgsave_picture_184460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184460.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Skeletoon - They Never Say Die (2019) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184461.jpgsave_picture_184461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184461.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Tala A.M. - Arabica (1978) Reissue LP, African Roadtrip, 2015 [MP3|320 Kbps] <Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184462.jpgsave_picture_184462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184462.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Wise Menu 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184465.jpgsave_picture_184465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184465.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Illusion Force - The World Soul (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184466.jpgsave_picture_184466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184466.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ DxO PhotoLab Elite 6.10.0 build 284 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184467.jpgsave_picture_184467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184467.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Soen - Atlantis (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184470.jpgsave_picture_184470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184470.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ New File Menu 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184471.jpgsave_picture_184471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184471.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ David Guetta - 7 (2018) 3CD, Anniversary Edition, 2023, Parlophone UK [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184472.jpgsave_picture_184472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184472.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:66808E80BB056D655B777B9AB027A616A25D1C23
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184474.jpgsave_picture_184474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184474.jpg" />
 </div>
 
 

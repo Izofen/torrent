@@ -6,7 +6,7 @@ Double Commander 1.1.22 gamma  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30463.jpgsave_picture_30463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30463.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F3772214EAA9F2D47D0B2FEDC7B55ED77A054620
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30464.jpgsave_picture_30464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30464.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4C63F97BD97B95537D540A4A81544C070535002E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30465.jpgsave_picture_30465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30465.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:17DCCCD6A6E279955D0C67886F76700E97EEE76C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30466.jpgsave_picture_30466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30466.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ant Download Manager Pro 2.14.3 Build 89203 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30467.jpgsave_picture_30467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30467.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5CDAEDDE7FD5B91E20D45AE7D80DEB895E0FC06D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30468.jpgsave_picture_30468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30468.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:09738C3FC17B753C6E001985376FB33B9D2B0847
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30469.jpgsave_picture_30469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30469.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E0BFF44EF36376BAE290272AD359A4006B116C3D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30470.jpgsave_picture_30470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30470.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ WinRAR 7.10 Beta 3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30471.jpgsave_picture_30471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30471.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ PotPlayer 241216 (1.7.22398) + Portable by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30472.jpgsave_picture_30472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30472.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Beat Hazard 2 (2019) [Ru/Multi] (1.317) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30473.jpgsave_picture_30473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_30473.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Age of Darkness: Final Stand (2021) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30474.jpgsave_picture_30474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30474.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30475.jpgsave_picture_30475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30475.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Psiphon 3 build 184 RePack (& Portable) by elchupacabra (DC 15.01.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30476.jpgsave_picture_30476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30476.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Your Android (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30477.jpgsave_picture_30477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30477.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Heart's Medicine - Hospital Heat (2017) [Ru/Multi] (1.0.0.9) Scene F4CG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30478.jpgsave_picture_30478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30478.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30479.jpgsave_picture_30479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30479.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:86392DCC63C4554219849DF992626E33DACB52A2
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30480.jpgsave_picture_30480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30480.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:314CC8D072524D0055081EAC0D86AEEE9637490E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30481.jpgsave_picture_30481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30481.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ PDF-XChange Editor Plus 10.5.0.393 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30482.jpgsave_picture_30482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30482.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:38924A94B9AFA9F3609F8C1647BE3B376A5AF0B7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30483.jpgsave_picture_30483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30483.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:5FB394A0354E6440A45FAAA10426DDD5578281FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30484.jpgsave_picture_30484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30484.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:9709A6CB599210871E1F13863D1A65C7B8EF00E9
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30485.jpgsave_picture_30485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30485.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ AquaFantasia (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30486.jpgsave_picture_30486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30486.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ PDF-XChange PRO 10.5.0.393 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30487.jpgsave_picture_30487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30487.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30488.jpgsave_picture_30488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30488.jpg" />
 </div>
 
 

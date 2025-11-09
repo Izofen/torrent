@@ -6,7 +6,7 @@ VA - Chill Out 2018 Top 40 Hits (Yoga, Chill Dub, Ambient, EDM, Psychill, Trip H
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155467.jpgsave_picture_155467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155467.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DCD587C2FC9D66E1B79DB4296356BCFA2D5EAD50
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155469.jpgsave_picture_155469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155469.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Photo Supreme 2023.2.0.5087 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155470.jpgsave_picture_155470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155470.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:46985293F5B80E054428311E7815BE661A0ECC7A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155471.jpgsave_picture_155471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155471.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:46985293F5B80E054428311E7815BE661A0ECC7A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155472.jpgsave_picture_155472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155472.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ IObit Smart Defrag Pro 7.3.0.105 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155473.jpgsave_picture_155473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155473.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Unity Pro 2018.4.14f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155474.jpgsave_picture_155474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155474.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ The Dooleys - 9 Albums (1976-1983) [MP3|320 Kbps] <Electronic, Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155476.jpgsave_picture_155476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155476.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155477.jpgsave_picture_155477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155477.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:E4A1B3F641586C376D13AE3B827BC1F57C8DB8C8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155478.jpgsave_picture_155478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155478.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:91F31B43C51F17F4EB15DB013420424978D8BA50
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155479.jpgsave_picture_155479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155479.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:E758FCD23A94BE3729F7D1CBEE9AC592D5439AA2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155480.jpgsave_picture_155480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155480.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:34125911F51437D237D4C21B98FE1E7E88E28D8C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155481.jpgsave_picture_155481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155481.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:1CC15327D8FA1B2C7128FAFF7D86CBE07DCC4884
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155483.jpgsave_picture_155483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155483.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Regis Philbin - When You're Smiling (2004) Hollywood Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155484.jpgsave_picture_155484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155484.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:E64CFACF346F979998C8EFD1E5465698CAFF1A93
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155485.jpgsave_picture_155485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155485.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Comodo Internet Security Premium 10.0.0.6086 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155486.jpgsave_picture_155486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155486.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:847866ECF4A88000D3A36B020A2FF2D30971A246
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155487.jpgsave_picture_155487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155487.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ PotPlayer 231113 (1.7.22038) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155488.jpgsave_picture_155488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155488.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:4CF612B280AD60426B1241CD0B0BDB51FC795E28
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155489.jpgsave_picture_155489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155489.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:62B2C967EBBC58203F8F3AB912B724D1CF683A39
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155490.jpgsave_picture_155490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155490.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Arnold Renderer v1.2.6.1 for Maya 2014-2016 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155491.jpgsave_picture_155491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155491.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:479D5BE2262005B98D7DE697611DCCF7828588CD
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155492.jpgsave_picture_155492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155492.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:3EB8CB7679782F460381229E9E50D961E9B95C8F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155495.jpgsave_picture_155495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155495.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:A437ABD1DD769DFCF17F78179080625E07F334B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155496.jpgsave_picture_155496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155496.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:547034322C20E5F231C2B2CD825369C3410565CD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155497.jpgsave_picture_155497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155497.jpg" />
 </div>
 
 

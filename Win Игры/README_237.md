@@ -6,7 +6,7 @@ The King of Fighters XIV (2017) [En/Ja] (1.25) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138446.jpgsave_picture_138446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138446.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Shank (2010) [Ru] (1.3) Repack R.G. Revenants
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138479.jpgsave_picture_138479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138479.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ City Car Driving (2016) [Ru/En] (1.5.9.1.27346) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138484.jpgsave_picture_138484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138484.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138605.jpgsave_picture_138605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138605.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138735.jpgsave_picture_138735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138735.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138775.jpgsave_picture_138775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138775.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Kerbal Space Program (2015) [Ru/En] (1.8.1.2694/dlc) Repack Mr_Weegley
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138867.jpgsave_picture_138867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138867.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Redemption Cemetery 15: The Stolen Time / Кладбище искупления 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139389.jpgsave_picture_139389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139389.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Wargame. Anthology / Wargame. Антология (2012-2014) [Ru/Multi] (17.08.1
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139398.jpgsave_picture_139398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139398.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ RaceTime: Undercover (2017) [Ru/En] (1.0.2) License
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139420.jpgsave_picture_139420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139420.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ X: Superbox (1999-2013) [Ru/Multi] (2.2/2.2/1.5/2.5а/3.4/3.3/4.30/dlc) Repack R
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139489.jpgsave_picture_139489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139489.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.17) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139666.jpgsave_picture_139666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139666.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Crypt of the Serpent King (2016) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139675.jpgsave_picture_139675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139675.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139713.jpgsave_picture_139713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139713.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139752.jpgsave_picture_139752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139752.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Hidden Object Legends: Deadly Love (2023) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139809.jpgsave_picture_139809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139809.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ The Room Three (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139961.jpgsave_picture_139961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139961.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:222AA46DE0A9F22E531C939244A5F13071BE4B27
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139986.jpgsave_picture_139986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139986.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Dark Age (2013) [Ru/En] (0.530) License
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139997.jpgsave_picture_139997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139997.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Tibetan Quest: Beyond the World's End / Легенды Тибета: На кра
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140004.jpgsave_picture_140004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140004.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140031.jpgsave_picture_140031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140031.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Surface 9: Lost Tales / За гранью: Потерянные сказки (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140060.jpgsave_picture_140060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140060.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hunting Unlimited 2009 (2008) [En] (1.0) License Just for Kicks
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140349.jpgsave_picture_140349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140349.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Crossroads: On a Just Path (2021) [En] (1.0) Unofficial [Collector's Edition / �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140431.jpgsave_picture_140431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140431.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Camelot: Wrath of the Green Knight (2020) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140500.jpgsave_picture_140500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140500.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.0.3) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140995.jpgsave_picture_140995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140995.jpg" />
 </div>
 
 

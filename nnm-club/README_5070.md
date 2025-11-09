@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158520.jpgsave_picture_158520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158520.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Garmin: City Navigator Russia NT 2016.30 Navicom [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158521.jpgsave_picture_158521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158521.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Shadows Heretic: Kingdoms (2014) [Ru/En] (1.0.0.8183) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158522.jpgsave_picture_158522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158522.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4C8E42D706DADF77302A6259C2891EF7240CED3A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158523.jpgsave_picture_158523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158523.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe After Effects CC 2015.1 13.6.1.6 RePack by D!akov  [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158524.jpgsave_picture_158524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158524.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D646D8CEEA7F0F16957CE56F53B36A6EA5D99230
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158525.jpgsave_picture_158525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158525.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4779.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158526.jpgsave_picture_158526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158526.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4779.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158527.jpgsave_picture_158527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158527.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:8319BE24F4FBA155841B6DE5A385704336154D1A
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158528.jpgsave_picture_158528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158528.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:C7D64BCE457CC6F3219105DDBE9AC11B320C2C5B
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158529.jpgsave_picture_158529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158529.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:17D0E70D56271858B3D630FB08BD9DFFFA5C8C52
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158530.jpgsave_picture_158530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158530.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:CF936F27F2A4AA7C539CB0826D8CF71802721712
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158531.jpgsave_picture_158531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158531.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AnyDVD & AnyDVD HD 7.6.6.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158532.jpgsave_picture_158532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158532.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:88792999AF8932E707CA15925CAB66CCFEFECC83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158533.jpgsave_picture_158533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158533.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:482BCDCCE4FD418A8B1D6C31D1DC035A170A5061
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158534.jpgsave_picture_158534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158534.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Plague Inc: Evolved (2014) [Ru/En] (0.9.0.4) Repack Decepticon
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158535.jpgsave_picture_158535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158535.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ RuntimePack 15.12.20 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158536.jpgsave_picture_158536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158536.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Aimersoft Video Converter Ultimate 6.8.0 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158537.jpgsave_picture_158537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158537.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:C68346B98C709B43AC2314CEF4FAE0B6B1ED3A36
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158538.jpgsave_picture_158538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158538.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:88BDA68795D5B1E765DB7F8783DC7B12629F1F41
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158539.jpgsave_picture_158539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158539.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:ECF683D505CA55A5ABEAF3E67830E5E6D47E9B22
 >>Кости / Bones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158540.jpgsave_picture_158540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158540.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Indigo Renderer Standalone 3.8.29 + plugin for Cinema 4D R11-R15 3.18.12 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158541.jpgsave_picture_158541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158541.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:1D1B93EE8D39DC205A477261D2FDCC4A7CCA4DF2
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158542.jpgsave_picture_158542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158542.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:2ADF7E10E4502ED3F534C0487EF03003A4FCC70C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158543.jpgsave_picture_158543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158543.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:F0B99980B91BCA677FC3F622A2DCD2ADE4E27B06
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158544.jpgsave_picture_158544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158544.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Whonix 12.0.0.3.2  [анонимный доступ в сети] [x86] Обра�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158545.jpgsave_picture_158545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158545.jpg" />
 </div>
 
 

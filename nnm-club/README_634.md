@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16799.jpgsave_picture_16799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16799.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0DF604FD558B8A83B8B4031A9187465C67CA69D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16800.jpgsave_picture_16800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16800.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Abelssoft SSD Fresh Plus 2026 15.02.61941 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16801.jpgsave_picture_16801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16801.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16802.jpgsave_picture_16802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16802.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rufus 4.8 (Build 2250) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16803.jpgsave_picture_16803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16803.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A13C523758BC2B236CA5B4D3C6E2B6479C17EA40
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16804.jpgsave_picture_16804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16804.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:80927423D1EF4EC9BFF7590829A9FDFFF433B7B4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16805.jpgsave_picture_16805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16805.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Jazz Funk Soul - Simpatico (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz , J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16806.jpgsave_picture_16806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16806.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1DAB37BC4B86D37EACC5315BC77341CD5A46C4E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16807.jpgsave_picture_16807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16807.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4AD5CEEEC2BD4D7338360F41BCF4BEFA10722902
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16808.jpgsave_picture_16808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16808.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FE56C11BE14FC57C8E5169327448BEB2B88E62C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16809.jpgsave_picture_16809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16809.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:AC4E2048C3F0D4EBC21AF99DD7CC1163067664F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16810.jpgsave_picture_16810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16810.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:206463D009A194666E49D1372ADB78B312C56C2C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16811.jpgsave_picture_16811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16811.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Assorted Compilation Part 8 (2025) [MP3|320 Kbps] <Electronic, Easy listeni
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16812.jpgsave_picture_16812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16812.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:236D5CFB10C302B10DDDDC8092D3B3CD75FD09BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16813.jpgsave_picture_16813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16813.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Sweet - Hannover Sessions (2025) [4CD Box-Set] [MP3|320 Kbps] <Rock, Glam Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16814.jpgsave_picture_16814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16814.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Compilation Part 165 Easy Listening (2025) [MP3|320 Kbps] <Easy listening, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16815.jpgsave_picture_16815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16815.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:085AD9375244E4BE98D66AE66BDF71F7612CC153
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16816.jpgsave_picture_16816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16816.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:DE8F2D44E58628749201C4A653347EB50B432B29
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16817.jpgsave_picture_16817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16817.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:D6B0E9FB85986483D8FCFFE65578B508F0CA16F3
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16818.jpgsave_picture_16818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16818.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16819.jpgsave_picture_16819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16819.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16820.jpgsave_picture_16820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16820.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:3371C3D6B6839B29436339D806C4E8C6EC820942
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16821.jpgsave_picture_16821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16821.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Bad Balance (Михей, Шеff, AL Solo, Купер) - Compilation (1994-2024) 
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16822.jpgsave_picture_16822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16822.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:506843417E5DE0B6547474C432491EDBD911A3EC
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16823.jpgsave_picture_16823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16823.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:96AE446031F62E3498A60B2968C92689D73FEADA
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16824.jpgsave_picture_16824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16824.jpg" />
 </div>
 
 

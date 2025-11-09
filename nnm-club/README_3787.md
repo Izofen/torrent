@@ -6,7 +6,7 @@ Reg Organizer 9.40 (07.02.2024) RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118842.jpgsave_picture_118842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118842.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:21DD79A792F217BBD3B3292493C1FB9354C18B36
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118843.jpgsave_picture_118843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118843.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2AA20DB0C43EBF0026734653382EBE6EA84890ED
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118844.jpgsave_picture_118844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118844.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2B8F142D3C61E27F1A542DAE0AB25346443C9399
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118845.jpgsave_picture_118845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118845.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ ReviverSoft Driver Reviver 5.43.2.2 RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118846.jpgsave_picture_118846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118846.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:2C05672997994F0ED9B04D2A6E38F95AF2B87BB8
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118847.jpgsave_picture_118847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118847.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:072A0E98C8BB9D39EE2759CA26E824EA6F913B20
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118848.jpgsave_picture_118848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118848.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:4523CADED4BA2B38968810F40B7F53CEC77F27AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118849.jpgsave_picture_118849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118849.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4523CADED4BA2B38968810F40B7F53CEC77F27AB
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118850.jpgsave_picture_118850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118850.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ AutoRuns 14.11 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118851.jpgsave_picture_118851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118851.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ WinNTSetup 5.3.3b Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118852.jpgsave_picture_118852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118852.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:4CA1837A4A3A83F38A74F5A1EEC8252EDCB9ABBA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118853.jpgsave_picture_118853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118853.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:E19215D028D8EEFFB851AB63B209F6E949AF1BB9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118854.jpgsave_picture_118854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118854.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ DxO PhotoLab Elite 7.4.0 build 151 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118855.jpgsave_picture_118855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118855.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:06F00357F301C3C1A9D85B15E8B7891222057CBA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118856.jpgsave_picture_118856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118856.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:752DA6FA78E9434012DD6C06FC48E47204118AB9
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118857.jpgsave_picture_118857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118857.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:27BBFBB4AD7B5564A8DF018840A48432F5EA4E8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118858.jpgsave_picture_118858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118858.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:974635F57C8F05BC65DBFFFFF823EDE118791082
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118859.jpgsave_picture_118859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118859.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:974635F57C8F05BC65DBFFFFF823EDE118791082
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118860.jpgsave_picture_118860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118860.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:BD7E11DCA0FA73AFFB223D236465039CB223AFAB
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118861.jpgsave_picture_118861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118861.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:82F321C6F7CF9C4002995B966CD283D28BC96B8B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118862.jpgsave_picture_118862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118862.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Anomaly Agent (2024) [Ru/Multi] (1.0.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118863.jpgsave_picture_118863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118863.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:1659CB76614AF908A1C029F2F8E3F765424A3C69
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118864.jpgsave_picture_118864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118864.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:6914244E1BE9E079F1B9AE56C4A80B83766B2B7B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118865.jpgsave_picture_118865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118865.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118866.jpgsave_picture_118866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118866.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:9AA96A79603881B54FBA0500E1D7266EB81D0910
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118867.jpgsave_picture_118867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118867.jpg" />
 </div>
 
 

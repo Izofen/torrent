@@ -6,7 +6,7 @@ Mare Salutis - Symphony of Thunderstorm (2023) [MP3|320 Kbps] <Instrumental, Sym
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232271.jpgsave_picture_232271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232271.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:811177BDEF5672BF16AB40F4F953866AF88D6FE5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232273.jpgsave_picture_232273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232273.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Impact - Confrontaci​o​n (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232274.jpgsave_picture_232274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232274.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:3FF4D9128A77A967B104B9C38C57A5E0930FF4F0
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232275.jpgsave_picture_232275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232275.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ GraphicConverter for Mac 12.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232276.jpgsave_picture_232276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232276.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Ocean - Holocene (2023) [FLAC|Lossless|tracks + .cue] <Prog-Rock Related, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232278.jpgsave_picture_232278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232278.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Sarvekas - Woven Dark Paths (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232279.jpgsave_picture_232279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232279.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:F39C99CC3430619AEA8631170F6A4C10ABB0D385
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232280.jpgsave_picture_232280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232280.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Mp3tag 3.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232281.jpgsave_picture_232281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232281.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Nattverd - I Helvetes Forakt (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232283.jpgsave_picture_232283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232283.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ End of the Dream - All I Am (2015) [MP3|320 Kbps] <Melodic Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232285.jpgsave_picture_232285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232285.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Calibre 6.23.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232286.jpgsave_picture_232286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232286.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Screamer - Adrenaline Distractions (2011) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232287.jpgsave_picture_232287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232287.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:D30EB2C76045AD9976118DF5DD8750C47BF69EB1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232289.jpgsave_picture_232289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232289.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Joe Wilder - Softly With Feeling (1956) 1989, Savoy Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232290.jpgsave_picture_232290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232290.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Def Leppard With The Royal Philharmonic Orchestra - Drastic Symphonies (2023) Ja
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232292.jpgsave_picture_232292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232292.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Auslogics Duplicate File Finder 10.0.0.3 RePack (& Portable) by Dodakaedr [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232294.jpgsave_picture_232294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232294.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Scaphis - Dissected & Fermented (2022) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232295.jpgsave_picture_232295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232295.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Smart Driver Manager Pro 6.4.969 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232296.jpgsave_picture_232296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232296.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hanlon's Razor - Stockholm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232297.jpgsave_picture_232297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232297.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Reg Organizer 9.20 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232300.jpgsave_picture_232300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232300.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Exhibeo 2 v.2.0.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232301.jpgsave_picture_232301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232301.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ AIDA64 Extreme Edition 6.88.6436 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232302.jpgsave_picture_232302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232302.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:42612DDB35B230E33D7E47DEDE306F82BCED7271
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232304.jpgsave_picture_232304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232304.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ RogueKiller Anti-Malware 15.10.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232305.jpgsave_picture_232305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232305.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:FA100A07EEE9A3E93E6812EF31D755285D448007
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232308.jpgsave_picture_232308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232308.jpg" />
 </div>
 
 

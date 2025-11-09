@@ -6,7 +6,7 @@ Cyber Space - Cyber Space Plays A Tribute To Hotsound (2011) [MP3|320 Kbps] <Spa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112646.jpgsave_picture_112646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112646.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Redux Selection Vol. 4 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112665.jpgsave_picture_112665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112665.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Chillout & Lounge Music for Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112742.jpgsave_picture_112742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112742.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Balance pres: Dave Seaman & Quivver (Mixed) - 2024 [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112789.jpgsave_picture_112789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112789.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Chillout Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112792.jpgsave_picture_112792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112792.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Waveshaper - A Void Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112849.jpgsave_picture_112849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112849.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Trance Fusion Vol. 01 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112871.jpgsave_picture_112871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112871.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Deep House Party (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112900.jpgsave_picture_112900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112900.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Miami Hits 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112934.jpgsave_picture_112934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112934.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VA - Top 8 February 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112949.jpgsave_picture_112949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112949.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Miami Festival Anthems 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112951.jpgsave_picture_112951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112951.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Armin van Buuren - A State Of Trance 1165 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112952.jpgsave_picture_112952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112952.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ David Guetta - Live @ The Monolith Al Ula, Saudi Arabia (2024-03-20) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112965.jpgsave_picture_112965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112965.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Jimmy Synthetic - Heat Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <synthwave, n
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113030.jpgsave_picture_113030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113030.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Orion & J.Shore - Brotherhood (2011) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113044.jpgsave_picture_113044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113044.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Depeche Mode - The Singles 81-85 (1985) 1st German Press [APE|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113206.jpgsave_picture_113206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113206.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Depeche Mode - Construction Time Again (1983) 1st German Press [APE|Lossless|ima
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113219.jpgsave_picture_113219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113219.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Exx Muzik Miami 2024 (2024) [MP3|320 Kbps] <Melodic House & Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113262.jpgsave_picture_113262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113262.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Dance Chart 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113291.jpgsave_picture_113291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113291.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Argy - New World (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113361.jpgsave_picture_113361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113361.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Armin van Buuren - A State Of Trance 1164 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113383.jpgsave_picture_113383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113383.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ James Carter - Axtone House Party (2024-03-11) [MP3|320 Kbps] <House, Tech House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113388.jpgsave_picture_113388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113388.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - 10 Years Of Suanda Music - Alex M.O.R.P.H. (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113410.jpgsave_picture_113410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113410.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Black Hole House Music 03-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113415.jpgsave_picture_113415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113415.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ LAO - Chapultepec (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, Electro, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113417.jpgsave_picture_113417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113417.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Irene Dresel - Rose Fluo (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Techno, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113418.jpgsave_picture_113418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113418.jpg" />
 </div>
 
 

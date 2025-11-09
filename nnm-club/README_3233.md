@@ -6,7 +6,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104416.jpgsave_picture_104416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104416.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:550097F73D9DFD07074FD1D4A3B21AF56C3E6412
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104417.jpgsave_picture_104417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104417.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104418.jpgsave_picture_104418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104418.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104419.jpgsave_picture_104419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104419.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104420.jpgsave_picture_104420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104420.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3C969A74CDB9DF47AB10927114C1C04004E177CE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104421.jpgsave_picture_104421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104421.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:716EF0211A1EEC38188A3CF6E8AB022A91722150
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104422.jpgsave_picture_104422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104422.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:2290B54D78EF85BD8ABDB7BC84064CCC9A833066
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104423.jpgsave_picture_104423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104423.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:2F0C8E4DFB33FF888243B7C568DD45B08527143E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104424.jpgsave_picture_104424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104424.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:60C01CF2317C2668D82F676BB365BAF14BC354C3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104425.jpgsave_picture_104425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104425.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:6F52F272B29DB9E1C92BD51C29804D5C704C7ECD
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104426.jpgsave_picture_104426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104426.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:9265BA756CC6B4B2355140F6118606C9A99F3A10
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104427.jpgsave_picture_104427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104427.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:4EE5BBB764DA3CF5D8AD43AFC9D4736DF09A067B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104428.jpgsave_picture_104428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104428.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:37B51D064164A9E5C61CC4D5A61F76471A766761
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104429.jpgsave_picture_104429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104429.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Soldiers of Anarchy / Солдаты анархии [Ru] (L/1.1.2.178) 2002
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104430.jpgsave_picture_104430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104430.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:53FC0EEAABB6951DDF16055E866415436078CADA
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104431.jpgsave_picture_104431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104431.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:EFC16EC932B73C4D5CD7B66FF4F2A7A843857F21
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104432.jpgsave_picture_104432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104432.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:6225C1CEC09B44A53D9173851AD30EFDC12C6740
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104433.jpgsave_picture_104433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104433.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ karpov.courses, Виктор Кузнецов | Инженер данных (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104434.jpgsave_picture_104434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104434.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.13) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104435.jpgsave_picture_104435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104435.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ karpov.courses, Валерий Бабушкин и др. | Хардкорный 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104436.jpgsave_picture_104436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104436.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104437.jpgsave_picture_104437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104437.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:71FEEDB096C40E3CBB502585506AF464C60B28D9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104438.jpgsave_picture_104438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104438.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Cult Of Luna - Studio Albums (9 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104439.jpgsave_picture_104439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104439.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104440.jpgsave_picture_104440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104440.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Seelen UI 2.4.4 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104441.jpgsave_picture_104441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104441.jpg" />
 </div>
 
 

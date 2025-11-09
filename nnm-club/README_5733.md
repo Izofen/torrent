@@ -6,7 +6,7 @@ Changellenge, Семен Бохер и др. | Excel для карьеры и п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177151.jpgsave_picture_177151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177151.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VIP Notes 9.9.67 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177152.jpgsave_picture_177152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177152.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:ACDFAEF97B51C19845C12BDA327FD93BF1A41217
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177154.jpgsave_picture_177154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177154.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:4AAEBFC98632F52D9F04E2E8DEA2EDABE92277B4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177155.jpgsave_picture_177155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177155.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:36B11E0AA8EBDCDB296FEBA28E65206DECB4F3FB
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177156.jpgsave_picture_177156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177156.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Macrorit Partition Expert 7.0.0 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177157.jpgsave_picture_177157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177157.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Windows 10 (v20h2) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177158.jpgsave_picture_177158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177158.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8A467B94498DE7DB2C5232A8BE2AB6079BF648F9
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177160.jpgsave_picture_177160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177160.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:BD45C962F504D27223570CEC6F59806B53ECB695
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177161.jpgsave_picture_177161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177161.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:5864D64A980776D2F5911556E1794B278FA10BE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177162.jpgsave_picture_177162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177162.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:1290D363C472B5056E4675550F873C30446DA568
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177164.jpgsave_picture_177164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177164.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:8A36FD45F8C01977D42E9A4A9AA83618CE161697
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177165.jpgsave_picture_177165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177165.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Macrorit Disk Scanner 5.2.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177167.jpgsave_picture_177167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177167.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:41911D2A83FC28F4BA1522CE6BEE1F8C6E4DB0D6
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177168.jpgsave_picture_177168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177168.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:B100C433153EB868C1A5A2AE15D425A703519DEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177170.jpgsave_picture_177170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177170.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:75F6BDE16CDE26E3EFC8ED7639976086498924C6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177172.jpgsave_picture_177172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177172.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Resident Evil: Revelations (2013) [Ru/Multi] (1.0u5/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177174.jpgsave_picture_177174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177174.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:04206BF588E7C498AD76757EA75948BD9C195FEE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177176.jpgsave_picture_177176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177176.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Udemy, Никита Ильин | Польский язык: С нуля до Б1
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177177.jpgsave_picture_177177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177177.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ X-Plane Flight Simulator v11.4.6 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177179.jpgsave_picture_177179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177179.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:0B5BD9D864A1CE68F9CA9F18FB00CB922A75DD97
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177180.jpgsave_picture_177180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177180.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:D1F931347B27293349B70DAE6C023209978607EB
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177182.jpgsave_picture_177182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177182.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ OCCT 11.0.18.b2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177183.jpgsave_picture_177183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177183.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:F664F8A72917F5E33115D1F6EFF907563BB00675
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177184.jpgsave_picture_177184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177184.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ YT Downloader 7.18.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177186.jpgsave_picture_177186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177186.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:25BF391EC4B51E056157BFFC3C9A4073C7D1F86B
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177187.jpgsave_picture_177187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177187.jpg" />
 </div>
 
 

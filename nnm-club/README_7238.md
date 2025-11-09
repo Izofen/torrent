@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247440.jpgsave_picture_247440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247440.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Rammstein - 8 Albums + 36 (45) Single's + 4 Live's + 4 Compilation + 1 Box Set (
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247441.jpgsave_picture_247441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247441.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Gov't Mule (Warren Haynes) - 22 Albums, 1 EP, 4 Box Set (1995 - 2023) (57 CD) [F
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247442.jpgsave_picture_247442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247442.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:CC9088BC608E1DBD7FC06E1EE36DFDC0BF9A59DB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247443.jpgsave_picture_247443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247443.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:9C903BBB7679750F6FD6AEECC97B9C8C147D438B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247444.jpgsave_picture_247444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247444.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:85F591A43796C5069B202148ABA6A2D2D389D1E1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247445.jpgsave_picture_247445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247445.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247446.jpgsave_picture_247446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247446.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247447.jpgsave_picture_247447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247447.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:6686F0F6219BEA7E8B1A29762DF3A33F8A63F3D6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247448.jpgsave_picture_247448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247448.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:37B05229B53C2D78620396F9FED76E1B3328B7FA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247449.jpgsave_picture_247449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247449.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247450.jpgsave_picture_247450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247450.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7265DF008529B4235FDFE54F555F2A00AFC7F4DD
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247451.jpgsave_picture_247451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247451.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:28DC3DB14848D1587C96B5BA852583B90392A22B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247452.jpgsave_picture_247452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247452.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:555EF5F88E83A2E9B0E271EF92B2D9BEC32782F4
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247453.jpgsave_picture_247453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247453.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:B3A8C7131284AF215536AAE03CAF8532DE62E450
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247454.jpgsave_picture_247454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247454.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:22479FED812B1D12ECC217074AB718EA1291CAD2
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247455.jpgsave_picture_247455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247455.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:6BCB36EFC2102FDBA4D9981E26B32A938533D26C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247456.jpgsave_picture_247456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247456.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Windows 11 22H2 Professional [22621.1848] Mod 8 (14.06.2023) by bulygin-dima [Ru
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247457.jpgsave_picture_247457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247457.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:E6B0C7B72C2A2E86FC6C721DB3BA0AF589633DEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247458.jpgsave_picture_247458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247458.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:601B29DF0E6140D0E63ECDE0C24F61935F95CC0A
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247459.jpgsave_picture_247459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247459.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:730467117C14B0FB0B5C329349DED6424A54470C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247460.jpgsave_picture_247460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247460.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:77D454E32CB13E56693B03821277BCC7DEB15FFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247461.jpgsave_picture_247461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247461.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:17569C38B1ECEA196A541C3263E839AEC62C4711
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247462.jpgsave_picture_247462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247462.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:E3904AF7619C3197CF3EDA7C4E4CC4BF868FC8F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247463.jpgsave_picture_247463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247463.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:CAE492EDD2883FCA2F8A0C5A02F5C336DC0EBC57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247464.jpgsave_picture_247464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247464.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Microsoft Windows 10.0.19044.3086, Version 21H2 (Updated June 2023) - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247465.jpgsave_picture_247465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247465.jpg" />
 </div>
 
 

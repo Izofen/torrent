@@ -6,7 +6,7 @@ Fit AI / Планы Тренировок. Спортзал v1.3.7 Mod by vadj [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36877.jpgsave_picture_36877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36877.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ meteoblue weather & maps Cirrus Uncinus 2.8.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36882.jpgsave_picture_36882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36882.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Speedtest от Ookla 5.5.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36892.jpgsave_picture_36892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36892.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Image to text - Text scanner / OCR сканер текста v1.5.8 Premium Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36912.jpgsave_picture_36912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36912.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:41341473EE05711E4B02743D173DF6611FD82CA8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36913.jpgsave_picture_36913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36913.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Duolingo: изучай языки 6.7.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36932.jpgsave_picture_36932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36932.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:67E939CAFC15FC1E669534B223FB02139BC9D77A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36985.jpgsave_picture_36985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36985.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:08CA96D93398AE63807D10BE756E9A497330A633
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36998.jpgsave_picture_36998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36998.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.7.42 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37010.jpgsave_picture_37010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37010.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:67B4877524CF7360B4604260B54C4D4B4979E9B6
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37017.jpgsave_picture_37017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37017.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37070.jpgsave_picture_37070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37070.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Keepsafe: Защита Фото и Видео v13.3.1 Premium Mod by DEXUNPACKER
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37075.jpgsave_picture_37075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37075.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ DIGI Clock Widget Plus 3.4.0 (ARM64) Mod by Number one' [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37089.jpgsave_picture_37089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37089.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37114.jpgsave_picture_37114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37114.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.113 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37119.jpgsave_picture_37119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37119.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.9.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37300.jpgsave_picture_37300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37300.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ MyFitnessPal: Счетчик калорий v24.44.0 + Wear v1.1.2 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37310.jpgsave_picture_37310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37310.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Electrodoc Pro v6.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37323.jpgsave_picture_37323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37323.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37392.jpgsave_picture_37392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37392.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ STEEZY Studio - Learn To Dance v5.0.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37398.jpgsave_picture_37398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37398.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ DreamFace: видео редактор с ИИ v4.8.5 Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37407.jpgsave_picture_37407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37407.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Solid Explorer File Manager v2.8.54 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37414.jpgsave_picture_37414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37414.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:11E8A276861461E30F963CA5556C16642216CCA4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37415.jpgsave_picture_37415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37415.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:A503B8162E89F6F4A0188C7BFC88949AEB01B9C2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37440.jpgsave_picture_37440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37440.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ The Elder Scrolls: Blades 1.31.0.3481802 (ARM64) [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37509.jpgsave_picture_37509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37509.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ MiHome v9.9.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37520.jpgsave_picture_37520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37520.jpg" />
 </div>
 
 

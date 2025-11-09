@@ -6,7 +6,7 @@ Driftmoon (2013) [En] (2.0.2) License GOG [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21581.jpgsave_picture_21581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21581.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9A9909CA94281F11F9B01D5C4BA462D49A7262EF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21582.jpgsave_picture_21582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21582.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:74B44C18550C670D8CE8C509914C5301536E4BEF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21583.jpgsave_picture_21583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21583.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:74B44C18550C670D8CE8C509914C5301536E4BEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21584.jpgsave_picture_21584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21584.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.1.3/dlc) Repack FitGirl [Complete
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21585.jpgsave_picture_21585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21585.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21586.jpgsave_picture_21586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21586.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8A5041FC6ABC3A2B129958C9BB90747E70837F34
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21587.jpgsave_picture_21587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21587.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8A5041FC6ABC3A2B129958C9BB90747E70837F34
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21588.jpgsave_picture_21588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21588.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Vivaldi интегрирует Proton VPN в браузер
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21589.jpgsave_picture_21589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21589.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Vivaldi интегрирует Proton VPN в браузер
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21590.jpgsave_picture_21590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21590.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:CAD5E08261FC8BBBF17497A57CDA35B76FFB4D2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21591.jpgsave_picture_21591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21591.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:5A967B81F541482EB6C6DFED1BBB66CAFC0F508D
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21592.jpgsave_picture_21592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21592.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:EE16AEB29EB2F7469C4A9B187805ECD8E00A0E20
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21593.jpgsave_picture_21593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21593.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21594.jpgsave_picture_21594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21594.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21595.jpgsave_picture_21595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21595.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:1A2CE47B52A350B672538BDD235D2713A705C2AE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21596.jpgsave_picture_21596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21596.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:F365C54D37040E5C010C8BC92472C145D8EA637D
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21597.jpgsave_picture_21597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21597.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:39B81B79F6BD5EC38CAF5697DBE225E077F17814
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21598.jpgsave_picture_21598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21598.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:304DCD082B24CF2F6B7DCC7C85735EE44824FDE3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21599.jpgsave_picture_21599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21599.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:D8BBD832FF8BF59D60C54FE045C42B627DC7B90D
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21600.jpgsave_picture_21600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21600.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Project Hospital (2018) [Ru/Multi] (1.2.23584/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21601.jpgsave_picture_21601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21601.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:BDCAD27BAA99AE398A5C82EEC6983C7975448E5A
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21602.jpgsave_picture_21602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21602.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:46617722F3BA21D8F87D19E1D29410411D0B7473
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21603.jpgsave_picture_21603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21603.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:D56CE43DB0C72A96892D2317DC98CB223BC44275
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21604.jpgsave_picture_21604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21604.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ MInstAll v.07.04.2025 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21605.jpgsave_picture_21605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21605.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Bleak Faith: Forsaken (2023) [En] (4036071) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21606.jpgsave_picture_21606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21606.jpg" />
 </div>
 
 

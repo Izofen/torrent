@@ -6,7 +6,7 @@ Limbonic Art - Opus Daemoniacal (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106889.jpgsave_picture_106889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106889.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heavy Star - Ride On (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106890.jpgsave_picture_106890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106890.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kissin Dynamite - Back With A Bang (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106891.jpgsave_picture_106891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106891.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Illdisposed - In Chambers Of Sonic Disgust (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106892.jpgsave_picture_106892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106892.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Commoners - Restless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106893.jpgsave_picture_106893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106893.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106894.jpgsave_picture_106894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106894.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sabïre - Jätt (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106895.jpgsave_picture_106895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106895.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sunbomb - Light Up The Sky (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106896.jpgsave_picture_106896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106896.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ DS Caw - Nothing To Fight For (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106897.jpgsave_picture_106897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106897.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Isle of the Cross - Faustus The Musical (2024) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106898.jpgsave_picture_106898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106898.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Big Sun - Rite De Passage (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106899.jpgsave_picture_106899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106899.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Harpazo - The Crucible (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106900.jpgsave_picture_106900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106900.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:9D907EDA5BAB8E6BE31D53A222ED196DC4ECB37C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106901.jpgsave_picture_106901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106901.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Goodbye June - Deep in the Trouble (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106902.jpgsave_picture_106902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106902.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sear Bliss - Heavenly Down (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106903.jpgsave_picture_106903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106903.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sunbomb - Light Up The Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106904.jpgsave_picture_106904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106904.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Chris Boudreaux - Who Made Who (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106905.jpgsave_picture_106905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106905.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Royce Campbell - 6 x 6 (1994) King Record [FLAC|Lossless|tracks + .cue] <Bop, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106906.jpgsave_picture_106906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106906.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Louis Hayes - Artform Revisited (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106907.jpgsave_picture_106907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106907.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Scarlet Bandit - Lose Your Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106908.jpgsave_picture_106908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106908.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:723D48AB6BB4FE20A50CB74C53C9C76B95B460B0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106909.jpgsave_picture_106909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106909.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4B6687A08CE2F10D928A5D0D174C2EEAA5E62D65
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106910.jpgsave_picture_106910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106910.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:8B52D6732F2A7106C1A2EBA2A2AE8DD7EB60DDEB
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106911.jpgsave_picture_106911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106911.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:28FE62D32C366B6937D1CFE2C5C0E2877D902BEC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106912.jpgsave_picture_106912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106912.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:765D9F6384E3CCF90A7F4D083C8B35AC1B80876B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106913.jpgsave_picture_106913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106913.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ EarthView 7.9.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106914.jpgsave_picture_106914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106914.jpg" />
 </div>
 
 

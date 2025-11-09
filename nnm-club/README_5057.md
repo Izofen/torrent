@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158165.jpgsave_picture_158165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158165.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6370EB97FE5BE6BAC009F77891564EDE0371DF55
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158166.jpgsave_picture_158166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158166.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CE06894B066EC8DBAADB519212D130E38270CF0D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158167.jpgsave_picture_158167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158167.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C77B4A028421B25985DA8324E041B09D43B2AF8D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158168.jpgsave_picture_158168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158168.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Telarc Heads Up SACD Sampler Vol 7 (2009) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158169.jpgsave_picture_158169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158169.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Enigma - A Posteriori (Private Lounge Remix) (2007) [FLAC|Lossless|WEB-DL|tracks
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158170.jpgsave_picture_158170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158170.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:049DB6E8661FABC12970950F19B33AFDAE6B31B1
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158171.jpgsave_picture_158171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158171.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:D387ED7626DCE2B2B96716000BE649C235854CCB
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158172.jpgsave_picture_158172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158172.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7759AF0E52DE70B671EFCECF405EE7D446431B40
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158173.jpgsave_picture_158173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158173.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:94E910DF4835ECD8B20F85DC0BBE60FA40F07039
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158174.jpgsave_picture_158174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158174.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:6288C232E0718F31CBF40C04008658DB173087B2
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158175.jpgsave_picture_158175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158175.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Boom 2 v1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158176.jpgsave_picture_158176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158176.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:0BC495B119792E1C07C9CD556C15D3DFA4B81EAD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158177.jpgsave_picture_158177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158177.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Telarc Heads Up SACD Sampler Vol 5 (2005) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158178.jpgsave_picture_158178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158178.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:5D4212292897F7A88AE1C3015010B4932F1A02E3
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158179.jpgsave_picture_158179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158179.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:44598AEBDD23CDE3268B469A903B46A645171DC8
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158180.jpgsave_picture_158180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158180.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:6550CB590F3EBAE96D7362065BA0269741727BAC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158181.jpgsave_picture_158181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158181.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Ashampoo WinOptimizer 12.00.40 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158182.jpgsave_picture_158182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158182.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Nat Geo Wild: Самые опасные животные: Убийственна
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158183.jpgsave_picture_158183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158183.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:405B04D151F7BA6CC9916B9863030B4F74451F56
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158184.jpgsave_picture_158184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158184.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:B5A4A6F7DC603DC619A7FFB2976BA80D28BEC01B
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158185.jpgsave_picture_158185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158185.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:E0C09A1E27A9C12F13D260548B7BE0C7A7014869
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158186.jpgsave_picture_158186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158186.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:FD74A8D3FF5C7BF911B752317E898267F3FD5D9C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158187.jpgsave_picture_158187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158187.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:33262951ECB57ACA004B4CD423D304B5A7410412
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158189.jpgsave_picture_158189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158189.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:BAC8C47AF1A93D6AEF28019CEADD179B41EC4138
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158190.jpgsave_picture_158190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158190.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:66AC6DAE43602D4F2D1A95E661AC926FED247DA4
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158191.jpgsave_picture_158191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158191.jpg" />
 </div>
 
 

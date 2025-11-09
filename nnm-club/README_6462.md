@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204713.jpgsave_picture_204713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204713.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Sky Cries Mary - Everything Goes Somewhere (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204714.jpgsave_picture_204714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204714.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:936DB6D2E98CBBA7D112CFD7E2CDB73EA5D56DF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204715.jpgsave_picture_204715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204715.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Mactracker 7.12.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204716.jpgsave_picture_204716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204716.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ PLASTИКА - Тетралогия (2011-2012) [MP3|320 kbps]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204717.jpgsave_picture_204717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204717.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ PhotoRoom 4.6.5 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204718.jpgsave_picture_204718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204718.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:35F25161E804E586F47DB9EEBCDFE7EDA62CF03C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204719.jpgsave_picture_204719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204719.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Dato 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204720.jpgsave_picture_204720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204720.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Splatoon 3 (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204721.jpgsave_picture_204721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204721.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Urban Project - All Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204722.jpgsave_picture_204722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204722.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:991C3A678B8D28837324B6591F683C656D3368E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204723.jpgsave_picture_204723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204723.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Lucky Patcher 10.8.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204724.jpgsave_picture_204724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204724.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:93FECCB7DDAF467A58DA86F8F0C2A031FFB84017
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204725.jpgsave_picture_204725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204725.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Massacre - Mythos (2022) EP [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204726.jpgsave_picture_204726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204726.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:E357B27262BA7B8EEEFF92D3C6B449088DB65157
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204727.jpgsave_picture_204727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204727.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Mohini Dey - Mohini Dey (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204728.jpgsave_picture_204728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204728.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Total Commander 10.52 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204729.jpgsave_picture_204729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204729.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Christophe Goze - Instrumentals (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204730.jpgsave_picture_204730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204730.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:9E5081843C04A8190078B2542DE7E2A754DC3F46
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204731.jpgsave_picture_204731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204731.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ ZEDGE 8.15.8-beta Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204732.jpgsave_picture_204732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204732.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Windows DesktopPack 22.10 [Multi/Ru]  (Авторская раздача)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204733.jpgsave_picture_204733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204733.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:FEF782504F2142C574A388836BE4514D1BD6E18C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204734.jpgsave_picture_204734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204734.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Sting / Live in Berlin (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204735.jpgsave_picture_204735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204735.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:6354B9B093B84B3A5B8733678EA36BB560A2A756
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204736.jpgsave_picture_204736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204736.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:40238EAE934CCCB5D7E64B4F98574AF0997711CF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204737.jpgsave_picture_204737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204737.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ StaxRip 2.27.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204738.jpgsave_picture_204738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204738.jpg" />
 </div>
 
 

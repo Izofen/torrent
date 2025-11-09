@@ -6,7 +6,7 @@ Udemy, Anthony Alicea | Understanding HTML and CSS (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233438.jpgsave_picture_233438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233438.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Maximilian Schwarzmüller | JavaScript Unit Testing - The Practical Guide
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233465.jpgsave_picture_233465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233465.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ EC-Council, Greg Hirsch | Certified Ethical Hacker CEH v11 (2021) PCRec [AD] [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233698.jpgsave_picture_233698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233698.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Udemy, Greg Wondra | Unreal Engine: Create an Arcade Classic! (2021) PCRec [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233798.jpgsave_picture_233798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233798.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233867.jpgsave_picture_233867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233867.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Create Zombie Survivor FPS Game (2022) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234184.jpgsave_picture_234184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234184.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Udemy, Ivan Yosifov | Unreal Engine 5 - Make AAA Game Vehicles (2022) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234191.jpgsave_picture_234191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234191.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:EA503C3B4AA8DCE7BC7A4A26BAF81488CC0BA851
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234605.jpgsave_picture_234605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234605.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234781.jpgsave_picture_234781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234781.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Udemy, Anthony Alicea | JavaScript: Understanding the Weird Parts (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234842.jpgsave_picture_234842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234842.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ JUG Ru Group | C++ Russia 2022. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234985.jpgsave_picture_234985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234985.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Udemy, John Purcell | Java 11 For Complete Beginners (2020) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234996.jpgsave_picture_234996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234996.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ JUG Ru Group | DotNext 2022 Spring. Конференция для .NET‑раз�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235115.jpgsave_picture_235115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235115.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Fulltimegamedev, Thomas Brush | Full Time Game Dev (2020) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235150.jpgsave_picture_235150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235150.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ JUG Ru Group | HolyJS 2022 Spring. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235187.jpgsave_picture_235187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235187.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Udemy, Дмитрий Читалов | Создаем Telegram бот - мага
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235238.jpgsave_picture_235238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235238.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Udemy, Oleg Novikov | Сайт на Django 3. Сервис по сбору да�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235273.jpgsave_picture_235273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235273.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Udemy, Bhrugen Patel, Andrei Brizhak | .NET Core Microservices - Полное р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235291.jpgsave_picture_235291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235291.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Udemy, Evgeny Novikov | Создание фреймворка и автомат�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235395.jpgsave_picture_235395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235395.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ JUG Ru Group | Mobius 2022 Spring. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235468.jpgsave_picture_235468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235468.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Udemy, Миша Пискунов | Андроид приложение от ди
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235512.jpgsave_picture_235512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235512.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ JUG Ru Group | TechTrain 2022 Spring. Фестиваль для разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235580.jpgsave_picture_235580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235580.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235953.jpgsave_picture_235953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235953.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Udemy, Maria Brodskaya | Тестирование ПО для начинающи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235994.jpgsave_picture_235994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_235994.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Udemy, Andrii Polishchuk | React Hooks в Деталях (2021) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236011.jpgsave_picture_236011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236011.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение раб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236045.jpgsave_picture_236045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236045.jpg" />
 </div>
 
 

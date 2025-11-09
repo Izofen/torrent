@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166511.jpgsave_picture_166511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166511.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GarageSale 9.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166512.jpgsave_picture_166512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166512.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:113810FFE731BD6EF053AD66B4EDF76E806B8C3C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166513.jpgsave_picture_166513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166513.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E65FEFCC25BDE98835BBCB52BC96B96FBA8A0689
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166514.jpgsave_picture_166514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166514.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:37DB58A7024A96D0D6D9AF6903B5A2EE04B5DC50
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166515.jpgsave_picture_166515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166515.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ File List Export for Mac 2.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166516.jpgsave_picture_166516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166516.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ PrivaZer 3.0.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166517.jpgsave_picture_166517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166517.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Xliff Editor 2.9.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166518.jpgsave_picture_166518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166518.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C36494339D389C3E7FF168CFAAF5A0978A34D572
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166519.jpgsave_picture_166519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166519.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6CA2366F8934BEF2529C5470D239A2445AD3B3D9
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166520.jpgsave_picture_166520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166520.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:402236B0088EC783A71DF98DC6DD3C7432DA3E8B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166521.jpgsave_picture_166521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166521.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Boxy SVG 4.14.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166522.jpgsave_picture_166522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166522.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:C66084A02D1B4A16A949AB771C261B76952814B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166523.jpgsave_picture_166523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166523.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ EazyDraw 11.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166524.jpgsave_picture_166524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166524.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Google Earth Pro 7.3.6.9326 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166525.jpgsave_picture_166525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166525.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:5C28E26C85394572B450C3BD9B9592F376A9D3E7
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166526.jpgsave_picture_166526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166526.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Microsoft .NET 7.0.1 Runtime [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166527.jpgsave_picture_166527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166527.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Cookie 7.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166528.jpgsave_picture_166528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166528.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:48D5ECD90367ABD94491E9246E0BC84BA58652A1
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166529.jpgsave_picture_166529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166529.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ PhotoFoundry for Mac 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166530.jpgsave_picture_166530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166530.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:FE42CF6FB5FFD7A7FD8E4D042A4F08EB25BE3BF8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166531.jpgsave_picture_166531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166531.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:058E856EDAB234B18F7196BC44E089A68F1B6272
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166532.jpgsave_picture_166532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166532.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:1D028D5B0484ED4D04A7585493AB5F600CA24209
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166533.jpgsave_picture_166533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166533.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:DF633E63D97DBE9FCD3619837F0FE256ACD88AB5
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166534.jpgsave_picture_166534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166534.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:C5A3741CAC7E106A729D2B12BDF7660BD6A8663F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166535.jpgsave_picture_166535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166535.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:E815733E9CC1F6EC21080E9D958F5FF5C2B4D5B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166536.jpgsave_picture_166536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166536.jpg" />
 </div>
 
 

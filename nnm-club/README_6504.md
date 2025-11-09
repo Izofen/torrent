@@ -6,7 +6,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206351.jpgsave_picture_206351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206351.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ R-Studio Network 9.3 Build 191227 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206352.jpgsave_picture_206352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206352.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Emurasoft EmEditor Professional 22.5.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206353.jpgsave_picture_206353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206353.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:85DE57E7A39FDF6F6D4CD3E3228772328CBBEF8F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206356.jpgsave_picture_206356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206356.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A8CDAA898F5C8D6B93FD601F447258937895FE67
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206357.jpgsave_picture_206357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206357.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:18F2634DF119D7D622E06497C09EA73A3CABBEEE
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206361.jpgsave_picture_206361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206361.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:248179D1AF6E562E52013F5E95042BAE61C9F192
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206362.jpgsave_picture_206362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206362.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C963A237E19E2D71855B470FCFAFAECACBB9EF17
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206364.jpgsave_picture_206364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206364.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206366.jpgsave_picture_206366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206366.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ WizTree 4.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206368.jpgsave_picture_206368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206368.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:41AF7965BCEB699C15DD6CF965B6AC23C5BA8608
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206369.jpgsave_picture_206369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206369.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:92FDD7A5B3582AFE2E9E7BFE3F1D88532A002FF9
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206373.jpgsave_picture_206373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206373.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:70BFAD10ED389A61A7657C291B0D3E04E8EA2590
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206374.jpgsave_picture_206374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206374.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:ACC6D0ED7732811D01E6196DD0254C5AC2EA7298
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206378.jpgsave_picture_206378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206378.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:1AD3ADE6F59ED692074BE03B9F6E3832617BCF6C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206379.jpgsave_picture_206379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206379.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FastCopy 5.3.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206381.jpgsave_picture_206381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206381.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:34C2B1B863981F9D3F03DAD7747A539776F46916
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206383.jpgsave_picture_206383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206383.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Moby - Resound NYC (2023) [FLAC|Lossless|tracks + .cue] <Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206384.jpgsave_picture_206384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206384.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Topaz Video AI 3.3.10 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206387.jpgsave_picture_206387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206387.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:242C4B08921C20AC35BA8A6A15CF8C8E8271057F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206389.jpgsave_picture_206389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206389.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:D47440F5B227F8248E27D027A70168BB4D1DD5B6
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206391.jpgsave_picture_206391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206391.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:CAADB3B64C79BA23EA44C8EEC9ED641B7DA342E8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206392.jpgsave_picture_206392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206392.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ OneCommander Pro 3.49.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206393.jpgsave_picture_206393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206393.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Music News vol.289 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206397.jpgsave_picture_206397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206397.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Trance In Motion Vol.363 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206401.jpgsave_picture_206401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206401.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Eric Clapton - The Definitive 24 Nights (Live) (2023) 3CD [MP3|320 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206402.jpgsave_picture_206402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206402.jpg" />
 </div>
 
 

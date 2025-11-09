@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53147.jpgsave_picture_53147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53147.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ the Dubliners: 40th Anniversary Concert (2002) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53148.jpgsave_picture_53148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53148.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:AC244CCBD1DEF9995C7D82AE90EE4ECC019C2C2B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53149.jpgsave_picture_53149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53149.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:30B8BC2EB12FF902843F4A745672D06DEB879AF3
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53150.jpgsave_picture_53150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53150.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A6C7201C3D461A7FC07C807FB1AB6EFB34CC3587
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53151.jpgsave_picture_53151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53151.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A6C7201C3D461A7FC07C807FB1AB6EFB34CC3587
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53152.jpgsave_picture_53152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53152.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:AF09FA683BCEB530FD9FC2D4B192184224014200
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53153.jpgsave_picture_53153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53153.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9EE66EC174DB777A7457595EAC3F737E7E4AEB0D
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53154.jpgsave_picture_53154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53154.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ New Super Mario World (1990) [PS3] [EUR] CFW Evilnat 4.91 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53155.jpgsave_picture_53155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53155.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:B95D9FC8DED065CF97AFCBABCCA9E39DB4CCA39F
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53156.jpgsave_picture_53156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53156.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Jii-san Baa-san Wakagaeru / Grandpa and Grandma Turn Young Again / Дедушк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53157.jpgsave_picture_53157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53157.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:6A4DB70CD1B7A3DF7453AB660E1DDBB7C2E9E0DB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53158.jpgsave_picture_53158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53158.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:690AAD23137EADC92025C9FAB5597E17A28D145B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53159.jpgsave_picture_53159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53159.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:79A975389DF88E2967E138D74DC49E11C9443102
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53160.jpgsave_picture_53160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53160.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:BD819E9BA478304A5F231BEF35B6509891998FD1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53161.jpgsave_picture_53161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53161.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:2AC6D4E6C947ADE5D087F9E01D65F2789D36D753
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53162.jpgsave_picture_53162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53162.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Francoise Hardy - The Real... Francoise Hardy (2016) 3CD [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53163.jpgsave_picture_53163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53163.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:9F9A30A0A5079CAD2BC9F8F01DBF272468301A0F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53164.jpgsave_picture_53164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53164.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:92FFFE40D1CDCC20D66EE868FEBC162DC62E1013
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53165.jpgsave_picture_53165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53165.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53166.jpgsave_picture_53166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53166.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 06.2024 1DVD
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53167.jpgsave_picture_53167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53167.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53168.jpgsave_picture_53168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53168.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:67BF78C177E61EA23080B11123D0C8D158935199
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53169.jpgsave_picture_53169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53169.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:515F82704CE231E0E9D049A381F5D0260861A443
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53170.jpgsave_picture_53170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53170.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53171.jpgsave_picture_53171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53171.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Minecraft: Pocket Edition 1.21.10.20.BETA Mod by MODAPKOKI [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53172.jpgsave_picture_53172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53172.jpg" />
 </div>
 
 

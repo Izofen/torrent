@@ -6,7 +6,7 @@ Sludge Life 2 (2023) [Ru/Multi] (230630) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196286.jpgsave_picture_196286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196286.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:95245C0795821D0B615C61C7750CD6AE11DBDF89
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196287.jpgsave_picture_196287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196287.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:040C1EF056339B73F1246BAB2EADBA96CC4E9D86
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196288.jpgsave_picture_196288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196288.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:94A05F20716D082E838E9A959D2FCAF4138B3309
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196289.jpgsave_picture_196289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196289.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:2D96C396EF03B6FAD4BCF177C568422256A46C3B
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196290.jpgsave_picture_196290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196290.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C42FF2EF7EC12ACB05407C2593A648D2D3B6A2E3
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196291.jpgsave_picture_196291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196291.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0A46F7F40DA8DBF7D7F6ACB10B7356E2DA2A6A55
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196292.jpgsave_picture_196292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196292.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Tengoku Daimakyou | Heavenly Delusion | Великая небесная стен
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196293.jpgsave_picture_196293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196293.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ A Long Journey to an Uncertain End (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196294.jpgsave_picture_196294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196294.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:196BA8773B6EAFA776E440ABA0D752A9BCB73D20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196295.jpgsave_picture_196295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196295.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:4190B8B33C029C5A1C0F6A6B416E30C7F242311E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196296.jpgsave_picture_196296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196296.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:68BA583BCAC649F1413C6C47463EF55A3F78D11F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196297.jpgsave_picture_196297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196297.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Acrobat Pro 2023.003.20215 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196298.jpgsave_picture_196298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196298.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:A43D04BCC8E20A97F82C82B4358093C3AA48DA2B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196299.jpgsave_picture_196299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196299.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:A2B40FC4535029D5D347C15C1FBC14466592CF47
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196300.jpgsave_picture_196300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196300.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:CFC39C99976036291D5FA884217483062E2AE360
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196301.jpgsave_picture_196301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196301.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:6EFE6899BAF2C93BBC25989776B968DAECA25FE8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196303.jpgsave_picture_196303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196303.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:FAF6EA1D2B628AB7A9880FC1D22ED9733CE0CD06
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196304.jpgsave_picture_196304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196304.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:7038B72188081D518975287145347F24B6617C21
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196306.jpgsave_picture_196306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196306.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:08B02F844D0AAAAEB586C847ED777ECA5DF53326
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196307.jpgsave_picture_196307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196307.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:316F4AA7AD70458BBC126FFA0E92474E55CC9CA7
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196308.jpgsave_picture_196308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196308.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:2BE4B1FFE989CC268373E80142132799A155FEDB
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196309.jpgsave_picture_196309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196309.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196310.jpgsave_picture_196310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196310.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:ACC857CA2BBC8E7589E910717E00F0A194A5955E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196311.jpgsave_picture_196311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196311.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Bakuman | Бакуман [ТВ-1] [2010, TV, 25] BDRip HEVC 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196312.jpgsave_picture_196312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196312.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Foxford (Фоксфорд), Валерия Савина | Практически
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196313.jpgsave_picture_196313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196313.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Ghost - 13 Commandments (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132647.jpgsave_picture_132647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132647.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:BF0ED8DC15C99D530F39DF3E95DECE5366D3E119
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132649.jpgsave_picture_132649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132649.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CFBD8C2F26EDE583C4D180B58DC5930FF7B2EC78
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132650.jpgsave_picture_132650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132650.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Toronto Is Broken - TorontoIsBroken (2023) [FLAC|Lossless|WEB-DL|tracks] <drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132651.jpgsave_picture_132651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132651.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:01366CC94FBB0F598905ECDAA816137EA8C4AC0F
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132652.jpgsave_picture_132652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132652.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Calculate Linux 13.0 [x86-64] (4xDVD + 3xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132653.jpgsave_picture_132653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132653.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ VA - Chill & Dub v.10 (2012) [MP3|320 кб/с]<Chillout/DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132654.jpgsave_picture_132654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132654.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:44FE0FB98A8FA3F0F39E1AEC29C5D756BA3C1FF6
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132655.jpgsave_picture_132655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132655.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ SRWare Iron 118.0.6000.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132658.jpgsave_picture_132658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132658.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:39D13A9040D3675C2840DA305E1DE446E078C91D
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132660.jpgsave_picture_132660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132660.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:6DBE5A806488512AA95CF4B63F3FB6E4E78AC339
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132661.jpgsave_picture_132661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132661.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ RTG. Взгляд с высоты. Природа горного Алтая (202
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132662.jpgsave_picture_132662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132662.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:9BA56D292E9C54E203FB75113999D191A2145FEF
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132663.jpgsave_picture_132663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132663.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:3B4475D27B88F273AED41463543B5523DF7C0B09
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132664.jpgsave_picture_132664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132664.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ PrivaZer 4.0.80 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132666.jpgsave_picture_132666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132666.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Five Finger Death Punch - The Wrong Side of Heaven and The Righteous Side of Hel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132667.jpgsave_picture_132667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132667.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:F5FE70EC177C7775DB9FFEE395BD7FEA635EC3A7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132669.jpgsave_picture_132669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132669.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Photo Lab PRO v3.12.80 Mod by Mixroot, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132671.jpgsave_picture_132671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132671.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:204B0CDF5299B509F0A17D0007ABEC7ADB2C6909
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132673.jpgsave_picture_132673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132673.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:531045A259815E16C772D940FB318C2E7C7A1834
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132675.jpgsave_picture_132675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132675.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:628CFC348F6B539E6C038FB69BA3C4A30A73FC89
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132677.jpgsave_picture_132677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132677.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:8CF1CC4B1E654F85BC9F7DA62E3D7C16F3DEAA1F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132679.jpgsave_picture_132679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132679.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:FBAB5AFD281EFF8B766908D35AE8F997513C8596
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132681.jpgsave_picture_132681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132681.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Dismantled - The War Inside Me (2011) [FLAC|lossless] <EBM / Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132682.jpgsave_picture_132682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132682.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Soft Cell - Non-Stop Erotic Cabaret (1981) Remaster, Deluxe Edition, 2023, UMC [
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132683.jpgsave_picture_132683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132683.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:6C4E9A111BEC6BF94D95EC286844620A45437C54
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132684.jpgsave_picture_132684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132684.jpg" />
 </div>
 
 

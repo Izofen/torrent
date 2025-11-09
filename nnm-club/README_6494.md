@@ -6,7 +6,7 @@ VA - Roaring Halloween (Electro Swing 4) (2025) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205783.jpgsave_picture_205783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205783.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3738C6360CF9F0C8416A38B1879E7599E21E0A54
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205784.jpgsave_picture_205784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205784.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:DA5CFF5F43BF979C950F76C4037E2D7623E28AB8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205786.jpgsave_picture_205786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205786.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Roger Waters & François Myrand - Money (Lounge Version) (2023) feat. Richard St
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205788.jpgsave_picture_205788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205788.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0D040A359997FEBF1F924B25154C7A3E69861970
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205790.jpgsave_picture_205790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205790.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D9D681DA99D0411B58936E017EF7AC8482458438
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205791.jpgsave_picture_205791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205791.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:A68ED8276E8783CDCBDD30C4A2ADAADA14BA6C11
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205793.jpgsave_picture_205793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205793.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3013D6D0FDA550C6D191DC8CBF4C5FC79B6A8BC0
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205795.jpgsave_picture_205795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205795.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Brave Browser 1.57.49 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205797.jpgsave_picture_205797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205797.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ PDF Reader Pro Edition 2.9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205799.jpgsave_picture_205799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205799.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Sante DICOM Editor 8.2.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205801.jpgsave_picture_205801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205801.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Biker Songs That Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205803.jpgsave_picture_205803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205803.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:0ECB36B229D217547B26DA4F86233B2DB7BA2839
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205807.jpgsave_picture_205807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205807.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:D1AB340A4FCB08731F998C0A7020644E4BD12E4F
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205808.jpgsave_picture_205808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205808.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Underoath - Underoath Voyeurist | Digital Ghost (Live From Digital Ghost) (2023)
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205809.jpgsave_picture_205809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205809.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Adobe InCopy 2026 21.0 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205810.jpgsave_picture_205810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205810.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ FxFactory Pro 8.0.8 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205813.jpgsave_picture_205813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205813.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:EB2221974E649362C6777CE1EC46EC63C3364D60
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205814.jpgsave_picture_205814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205814.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:4C3F87DB22083E8AB18B4E517B73875494848C0D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205817.jpgsave_picture_205817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205817.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:938836A2330EFB25132145FD987E3B359BDFF90A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205819.jpgsave_picture_205819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205819.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Katie Melua - Album No.8 (2020) Deluxe Edition [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205821.jpgsave_picture_205821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205821.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Cruel Force - Dawn Of The Axe (2023) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205823.jpgsave_picture_205823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205823.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Within Temptation - Bleed Out (2023) [FLAC|24/96|tracks|WEB-DL] <Metal, Symphoni
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205830.jpgsave_picture_205830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205830.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:2D795D938549D47C8BDFD9E4E3816CDCEE79B29D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205834.jpgsave_picture_205834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205834.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ PageEdit 2.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205836.jpgsave_picture_205836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205836.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:C8B93BDB932B2218146DACF76148A2BA314D8561
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205837.jpgsave_picture_205837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205837.jpg" />
 </div>
 
 

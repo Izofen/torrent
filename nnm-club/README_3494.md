@@ -6,7 +6,7 @@ Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111205.jpgsave_picture_111205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111205.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ It Happened Here 3: A Storm is Brewing (2024) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111206.jpgsave_picture_111206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111206.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Perfectly Clear WorkBench 4.6.0.2655 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111207.jpgsave_picture_111207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111207.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:90A3DE61BB8D13995A28D59D1FEF4AC489F55AD7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111208.jpgsave_picture_111208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111208.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Nitro Pro 14.23.1.0 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111209.jpgsave_picture_111209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111209.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ PREQUEL: Редактор фото и видео v1.76.0 Mod by youarefinished [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111210.jpgsave_picture_111210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111210.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ ByClick Downloader Premium 2.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111211.jpgsave_picture_111211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111211.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:869DAE96C996964AAA6E60DF05BE49385F547771
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111212.jpgsave_picture_111212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111212.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ ToonMe v0.7.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111213.jpgsave_picture_111213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111213.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Feel Good Soul & Funk (2024) [MP3|320 Kbps] <Pop, Soul, Funk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111214.jpgsave_picture_111214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111214.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ WinTools.net Premium 24.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111215.jpgsave_picture_111215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111215.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:2044891418B0F593FBDC49513D7BAC6DFA25CBB0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111216.jpgsave_picture_111216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111216.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:B3D3E21193761B2EC0FAE9FE568FBB3113A72B16
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111217.jpgsave_picture_111217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111217.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:4CDBB06308D990AAE77BB14EAE17CEEF055E8202
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111218.jpgsave_picture_111218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111218.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ DiskDigger 2.0.1.3907 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111219.jpgsave_picture_111219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111219.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:814679403AC17242DD3623C6EEF2C8F1FC70B931
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111220.jpgsave_picture_111220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111220.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:120B09F64D6A3B56ACA637CC94398FA7A8446705
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111221.jpgsave_picture_111221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111221.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Red Nation (Native American Music) (2024) [MP3|320 Kbps] <Native American, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111222.jpgsave_picture_111222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111222.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Belmont - Liminal (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Punk, Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111223.jpgsave_picture_111223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111223.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ In Vain - Solemn (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death-Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111224.jpgsave_picture_111224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111224.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Attacker - The God Particle (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111225.jpgsave_picture_111225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111225.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Paul Motian And The Electric Bebop Band - Flight Of The Blue Jay (1997) Winter &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111226.jpgsave_picture_111226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111226.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Atoll - Fallout Frenzy (2017) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111227.jpgsave_picture_111227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111227.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Pat Martino - Starbright (1976) 2008, Warner Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111228.jpgsave_picture_111228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111228.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Elvin Jones - Earth Jones (1982) 2003, Quicksilver [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111229.jpgsave_picture_111229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111229.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Atoll - Inhuman Implants (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111230.jpgsave_picture_111230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111230.jpg" />
 </div>
 
 

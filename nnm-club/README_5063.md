@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158329.jpgsave_picture_158329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158329.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3AD2BBCD56023CFFC2A3110DC70191C6EAB84ABE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158330.jpgsave_picture_158330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158330.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E0F8CFBA8C79613D31A6DAAF843D4566666F28B9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158331.jpgsave_picture_158331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158331.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A49F4DC48AD65FFCC4B0AE13818F358A73FFEDE1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158332.jpgsave_picture_158332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158332.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:5B8B43F5C5730A241361304496F098A58B840DB7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158333.jpgsave_picture_158333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158333.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ EASEUS Partition Master 10.8 Technician Edition WinPE [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158334.jpgsave_picture_158334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158334.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Mystic Sound Orchestra - Pharaoh: Sound of Mystery (1998) 2CD [MP3|320 kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158335.jpgsave_picture_158335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158335.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1478AE326C24E0D7EA15776C1253ECF8B699A5D8
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158336.jpgsave_picture_158336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158336.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Extensis Suitcase Fusion 6 v17.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158337.jpgsave_picture_158337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158337.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ CCleaner 5.13.5460 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158338.jpgsave_picture_158338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158338.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5799D477922FC703780D7BC6BE39CE427BC470AE
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158340.jpgsave_picture_158340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158340.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:C0EB82ECEFA41741CBD89C3A5BA88C7F5D2A573F
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158341.jpgsave_picture_158341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158341.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:85BA4C1E90FAA8CA3389CC8DC0310C77C4EA4EDC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158342.jpgsave_picture_158342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158342.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:258C074F0642771FBD0ADDD92E5E6662345FDC51
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158343.jpgsave_picture_158343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158343.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:777FE76D253B4E3D7AE409B9727DE759B01E13C5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158344.jpgsave_picture_158344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158344.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows 8.1 x64 Single Language NVDA для незрячих. 2015.12.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158345.jpgsave_picture_158345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158345.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Revo Uninstaller Pro 3.1.5 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158346.jpgsave_picture_158346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158346.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:D2A76F9C2B848BDC4601355463AEB49D6A1C93B2
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158347.jpgsave_picture_158347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158347.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:0AA6B71F3446A9187326A396532127245608352A
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158348.jpgsave_picture_158348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158348.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:D7A1172C5337A1AB42BD5DA0824276DB3848B358
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158349.jpgsave_picture_158349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158349.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ PanoramaStudio Pro 3.0.0 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158350.jpgsave_picture_158350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158350.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:597342EE335E047A6BC69DC5037F7BBFF3EBF71F
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158351.jpgsave_picture_158351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158351.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Like FM. Слушай, что нравится! (2015) [MP3|320 кб/с] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158352.jpgsave_picture_158352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158352.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Ad-Aware Free Antivirus+ 11.8.856.8535 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158353.jpgsave_picture_158353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158353.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ TheAeroClock 3.88 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158354.jpgsave_picture_158354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158354.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:49F89AD03F8CE0A19910B9742E69E64254BBE599
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158355.jpgsave_picture_158355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_158355.jpg" />
 </div>
 
 

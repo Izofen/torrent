@@ -6,7 +6,7 @@ GeoGebra 6.0.882 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21232.jpgsave_picture_21232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21232.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:35D578BDD3A31F22B65AAA2DB59E059EF8C5A595
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21233.jpgsave_picture_21233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21233.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8E53030A062154558D4C79B0A51B72CEB672A23A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21234.jpgsave_picture_21234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21234.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4E82B4308782BF3F39977F516630B1FC61C60AE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21235.jpgsave_picture_21235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21235.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sandboxie plus 1.15.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21236.jpgsave_picture_21236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21236.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tiesto - Live @ Quasar Stage, Coachella Festival Weekend 1, United States (2025-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21237.jpgsave_picture_21237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21237.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:6D888C002D9AFF855F6FB6F25B2148B111E5EB49
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21238.jpgsave_picture_21238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21238.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Darkness - Dreams on Toast (2025) Members' Edition, 2025, Cooking Vinyl Limi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21239.jpgsave_picture_21239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21239.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:94F09CFA5E8BE4152C6A6B6C82EF17D679BEF9CB
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21240.jpgsave_picture_21240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21240.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Sandboxie 5.70.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21241.jpgsave_picture_21241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21241.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:41740B20A9F753614FCE6E6719E5BE5E9A0DE083
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21242.jpgsave_picture_21242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21242.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ FlashPrint 5.8.7 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21243.jpgsave_picture_21243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21243.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:FA9D9119C618E16CA278A056B7FEDEB0AB68B283
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21244.jpgsave_picture_21244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21244.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ EPIK - AI Photo & Video Editor 5.6.2 Mod by MustHave [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21245.jpgsave_picture_21245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21245.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:7FDB19068706BC8890586E35D5D1EE1E57B38131
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21246.jpgsave_picture_21246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21246.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Шансон 90-х, Часть 3 (Избранные песни десят�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21247.jpgsave_picture_21247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21247.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ SoundHound ∞ - Music Discovery v10.4.8 Paid by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21248.jpgsave_picture_21248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21248.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Folder Player Pro v5.33 b343 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21249.jpgsave_picture_21249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21249.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:AB8A7AAC948771E4F52DF04BAEAE936AA473A58D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21250.jpgsave_picture_21250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21250.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3B47503F6A9F46A4720B2EB0A4082A23645F930F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21251.jpgsave_picture_21251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21251.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Vivaldi 7.3.3635.11 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21252.jpgsave_picture_21252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21252.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - The All Time Greatest Love Songs Of The 60's, 70's, 80's & 90's Volume II (
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21253.jpgsave_picture_21253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21253.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ PdfFactory Std & Pro 9.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21254.jpgsave_picture_21254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21254.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack FitGirl 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21255.jpgsave_picture_21255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21255.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:DF939AB2433BB0BF23CA980933E70A0BEFF47DB1
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21256.jpgsave_picture_21256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21256.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:037EE923A568424AB27CD2F4992990A3E429DD54
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21257.jpgsave_picture_21257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21257.jpg" />
 </div>
 
 

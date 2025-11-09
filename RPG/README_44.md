@@ -6,7 +6,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176408.jpgsave_picture_176408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176408.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179172.jpgsave_picture_179172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179172.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179877.jpgsave_picture_179877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179877.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bound By Blades (2022) [Multi] (1.7.2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181340.jpgsave_picture_181340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181340.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182046.jpgsave_picture_182046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182046.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183420.jpgsave_picture_183420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183420.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183497.jpgsave_picture_183497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183497.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184767.jpgsave_picture_184767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184767.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Diablo II (2000) [En] (1.14d/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186086.jpgsave_picture_186086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186086.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ PAYDAY 3 (2023) [Ru/Multi] (1.0.0.0.624677) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186134.jpgsave_picture_186134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186134.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187269.jpgsave_picture_187269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187269.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Swords and Fairy 7 (2021) [Multi] (2.1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187854.jpgsave_picture_187854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187854.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188357.jpgsave_picture_188357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188357.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188640.jpgsave_picture_188640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188640.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188688.jpgsave_picture_188688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188688.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License PLAZA [Enhanc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190344.jpgsave_picture_190344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190344.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Lovecraft's Untold Stories 2 (2022) [Ru/Multi] (0.9.049b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191169.jpgsave_picture_191169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191169.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Danger Forever (2022) [En] (845) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191884.jpgsave_picture_191884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191884.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191994.jpgsave_picture_191994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191994.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Starfield (2023) [Multi] (1.7.23.0/dlc) Repack DjDI [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192472.jpgsave_picture_192472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192472.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Shining Resonance Refrain (2018) [Multi] (1.00.1618) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193742.jpgsave_picture_193742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193742.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193777.jpgsave_picture_193777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193777.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:538D95182BC09476A82AA57DFF9CC7AE36279387
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194244.jpgsave_picture_194244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194244.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.009/dlc) License GOG [Hero Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194315.jpgsave_picture_194315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194315.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194346.jpgsave_picture_194346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194346.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194450.jpgsave_picture_194450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194450.jpg" />
 </div>
 
 

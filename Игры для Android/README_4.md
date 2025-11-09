@@ -6,7 +6,7 @@ Skul: The Hero Slayer v1.0.9 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34015.jpgsave_picture_34015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34015.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Carrion 1.0.35 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34060.jpgsave_picture_34060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34060.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Endling *Extinction is Forever 1.3.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34071.jpgsave_picture_34071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34071.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gomorrah v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34075.jpgsave_picture_34075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34075.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ GRIS 1.0.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34095.jpgsave_picture_34095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34095.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Conquistadorio v25 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34112.jpgsave_picture_34112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34112.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Forgotten Memories: Remastered 1.9.102 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34118.jpgsave_picture_34118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34118.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Trudograd 1.0.75 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34138.jpgsave_picture_34138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34138.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Dead Cells: Netflix Edition v3.3.25 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34141.jpgsave_picture_34141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34141.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Balatro 0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34206.jpgsave_picture_34206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34206.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Dune: Imperium Digital 2.1.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34208.jpgsave_picture_34208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34208.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Civilization VI: NETFLIX 1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34236.jpgsave_picture_34236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34236.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Death’s Door v1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34274.jpgsave_picture_34274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34274.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Rise of the Golden Idol v1.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34279.jpgsave_picture_34279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34279.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Abandoned Planet v1.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34282.jpgsave_picture_34282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34282.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Meadowfell v1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34288.jpgsave_picture_34288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34288.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Pine: A Story of Loss 1.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34289.jpgsave_picture_34289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34289.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Very Little Nightmares 1.2.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34303.jpgsave_picture_34303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34303.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Age of History 3 1.035 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34334.jpgsave_picture_34334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34334.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Little Nightmares 124 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34354.jpgsave_picture_34354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34354.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kovoclak 1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34409.jpgsave_picture_34409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34409.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Machinarium 3.1.8 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34444.jpgsave_picture_34444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34444.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Monument Valley 3 v1.0.14999 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34527.jpgsave_picture_34527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34527.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Blasphemous 1.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34645.jpgsave_picture_34645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34645.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ SHINE – Journey Of Light 1.90.13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36774.jpgsave_picture_36774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36774.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Elder Scrolls: Blades 1.31.0.3481802 (ARM64) [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37509.jpgsave_picture_37509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37509.jpg" />
 </div>
 
 

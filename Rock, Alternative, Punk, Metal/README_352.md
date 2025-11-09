@@ -6,7 +6,7 @@ Soulfly - Chama (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Thrash Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199831.jpgsave_picture_199831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199831.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Erdling - Mana (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199833.jpgsave_picture_199833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199833.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Soilwork - Live In The Heart Of Helsinki (2015) 2XCD, Limited Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199955.jpgsave_picture_199955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199955.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ LASCALA - Play-Off (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199986.jpgsave_picture_199986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199986.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Slipknot - Collection (1996 - 2022) 19 CD [FLAC|Lossless|image + .cue|tracks + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200980.jpgsave_picture_200980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_200980.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:D5C37845F7587B960FE16F7FA088D814C8A93C4B
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201861.jpgsave_picture_201861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201861.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Dayseeker - Creature In The Black Night (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201956.jpgsave_picture_201956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201956.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Adept - Blood Covenant (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201964.jpgsave_picture_201964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_201964.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Miles Kane - Sunlight In The Shadows (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202052.jpgsave_picture_202052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202052.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) 50th Anniversary
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202055.jpgsave_picture_202055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202055.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Human Fortress - Stronghold (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic P
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202061.jpgsave_picture_202061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202061.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ektomorf - Heretic (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Groove Metal, T
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202064.jpgsave_picture_202064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202064.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Black Star Riders - 5 albums, 7 CD (2013-2023) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202134.jpgsave_picture_202134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202134.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Spirit (US) - 15 Albums, 2 Box Set (1968 - 2022) 36 CD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202239.jpgsave_picture_202239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202239.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Deep Purple - Made In Japan (1972) BOX Set, 5 x CD, Reissue, 2025, Warner Record
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202386.jpgsave_picture_202386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202386.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ CWT (Clockwork Times) - CWT (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk, Ska>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202434.jpgsave_picture_202434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202434.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:146C3D95D9B61664F98658C2C1CBEA77701AE1CB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202446.jpgsave_picture_202446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202446.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:3C6A57082F2287415D58DE4846D9FEAB3E13C74F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202447.jpgsave_picture_202447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202447.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:794CAE2FE18A36E4DA7495B26FBE40A92B3F102F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202448.jpgsave_picture_202448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202448.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Soulfly - Сollection (1998 - 2022) 17CD [FLAC|Lossless|image + .cue|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202583.jpgsave_picture_202583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202583.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ LaScala - Forte (2013) [FLAC|image + .cue|Lossless] <Alternative Rock, Female Vo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202630.jpgsave_picture_202630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202630.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Budgie - 19 Albums, 1 Box Set (1970 - 2006) 38 CD [FLAC|Lossless|image + .cue|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202668.jpgsave_picture_202668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202668.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Escape The Fate - Out Of The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202737.jpgsave_picture_202737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202737.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Tombstone - Angel Of Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202741.jpgsave_picture_202741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202741.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Defueld - Octagon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202743.jpgsave_picture_202743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202743.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Polaris - Fatalism (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202745.jpgsave_picture_202745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202745.jpg" />
 </div>
 
 

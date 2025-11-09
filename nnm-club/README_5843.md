@@ -6,7 +6,7 @@ Alien Autopsy - Cosmic Inception (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183287.jpgsave_picture_183287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183287.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Deep Sleep Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183290.jpgsave_picture_183290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183290.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ We Blame The Empire - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183291.jpgsave_picture_183291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183291.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Graveyard - 6 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183293.jpgsave_picture_183293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183293.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:BB18FDB7139FF60D0CA0584A1649E5FE616CB0AB
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183295.jpgsave_picture_183295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183295.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:8600ACC1F14DCBF65A08D3EE8F39D6A3F3A3596C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183296.jpgsave_picture_183296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183296.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:45C4B001D1B54D5316ED5F0515A4514EB5D95826
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183298.jpgsave_picture_183298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183298.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, gr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183300.jpgsave_picture_183300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183300.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:26B58EF95DE811EC347172E43A12833D6520E951
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183301.jpgsave_picture_183301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183301.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:54BF1BA5538AF0E7D2A453B126B7B42DCAA58D5F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183303.jpgsave_picture_183303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183303.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Surrender The Crown - IV - The Healing (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183305.jpgsave_picture_183305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183305.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:DF319548615EB7AC129992C819F7A09EB62313D9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183306.jpgsave_picture_183306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183306.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ TechSmith Camtasia 2020 Studio v2020.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183308.jpgsave_picture_183308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183308.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183309.jpgsave_picture_183309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183309.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:F30DE3EDD01DAE01AF4B0497BECF9157C6678BD2
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183311.jpgsave_picture_183311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183311.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Modern Tweaker 1.6 Portable [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183312.jpgsave_picture_183312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183312.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dream Theater - Distant Memories: Live In London (2020) 3xCD, Bonus Track Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183314.jpgsave_picture_183314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183314.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:593FA01D16CFD6C64D59044712D890A1CE35707B
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183315.jpgsave_picture_183315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183315.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:7DA71EC677FED4D81ABDDDF7CF954AB360FDFD0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183317.jpgsave_picture_183317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183317.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Limelight - Love Me Forever (2020) [MP3|320 Kbps] <Electronic, Italo-Disco, Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183318.jpgsave_picture_183318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183318.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Supermax - The Lovemachine-Collection (1994) [FLAC|Lossless|tracks + .cue]<Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183320.jpgsave_picture_183320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183320.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ LEX LIVE 10 2022 v.22.10.25 RC FIX 5 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183321.jpgsave_picture_183321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183321.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Asako Toki - Standards Gift (2005) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183324.jpgsave_picture_183324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183324.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:A217987281655BC1B1E6A176883714FD42E641F3
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183326.jpgsave_picture_183326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183326.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sadao Watanabe - Dedicated To Charlie Parker (1969) 1989, Denon [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183329.jpgsave_picture_183329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183329.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:304C44E5C88D3EE5AF841322CA422F99754560BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183330.jpgsave_picture_183330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183330.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80668.jpgsave_picture_80668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80668.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0074AF8555B27A10654BA75272D5B20A82F7D09F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80669.jpgsave_picture_80669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80669.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Deluge 1.3.4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80672.jpgsave_picture_80672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80672.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Deluge - это бесплатное программное обеспечени
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80680.jpgsave_picture_80680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80680.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Deluge - это бесплатное программное обеспечени
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80681.jpgsave_picture_80681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80681.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Deluge - это бесплатное программное обеспечени
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80683.jpgsave_picture_80683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80683.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Deluge - это бесплатное программное обеспечени
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80685.jpgsave_picture_80685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80685.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:9B0F03D71DA89A64F8A731F7C4784F4ED5613E37
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80686.jpgsave_picture_80686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80686.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:853436AD4BFFE32BCDF9D0C44DEB7037DB174DF7
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80688.jpgsave_picture_80688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80688.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:EA70C3364195BDBB711C2883CD8095C966A4E814
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80693.jpgsave_picture_80693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80693.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:EA70C3364195BDBB711C2883CD8095C966A4E814
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80694.jpgsave_picture_80694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80694.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80695.jpgsave_picture_80695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80695.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:0689E137817D4648BBCB1F122EF11CD6BFAD868F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80703.jpgsave_picture_80703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80703.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:0689E137817D4648BBCB1F122EF11CD6BFAD868F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80704.jpgsave_picture_80704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80704.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Nero Video 11 v.8.2.15700.3.100 Ru/En RePack by MKN [Русский/ Англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80706.jpgsave_picture_80706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80706.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Nero Video 11 — мощный пакет программ для редакти
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80707.jpgsave_picture_80707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80707.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Nero Video 11 — мощный пакет программ для редакти
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80712.jpgsave_picture_80712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80712.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Nero Video 11 — мощный пакет программ для редакти
 >>Обучающее Видео для родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80714.jpgsave_picture_80714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80714.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:6CE58D1E73D953861E3881E8DB1B3B8BE392EA67
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80715.jpgsave_picture_80715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80715.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Tребования: Nokia 5800 RM-356   Скриншоты:(   Читать д�
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80719.jpgsave_picture_80719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80719.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:F48F1343B2548349080EDB80C5AFFED1BF3994E5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80720.jpgsave_picture_80720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80720.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Windows 7 Ultimate x86 v.03.2012 (Иваново) Чистая без прогр
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80730.jpgsave_picture_80730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80730.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Windows 7 Ultimate x86 v.03.2012 (Иваново) Чистая без прогр
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80733.jpgsave_picture_80733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80733.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Windows 7 Ultimate x86 v.03.2012 (Иваново) Чистая без прогр
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80736.jpgsave_picture_80736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80736.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:05F9CDC925C313794BAAEC5643EEF4D285B5A2BD
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80737.jpgsave_picture_80737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80737.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:485B0B3BA7E3D0822AEF47EF308D29317EA523B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80745.jpgsave_picture_80745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_80745.jpg" />
 </div>
 
 

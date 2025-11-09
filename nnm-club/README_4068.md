@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126343.jpgsave_picture_126343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126343.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:498FABD8D0EF40819EC1A4F52563BC874A006F8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126344.jpgsave_picture_126344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126344.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:498FABD8D0EF40819EC1A4F52563BC874A006F8B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126345.jpgsave_picture_126345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126345.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9784143CFF5DDDC33FACBDB892A750795C09D854
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126346.jpgsave_picture_126346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126346.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9784143CFF5DDDC33FACBDB892A750795C09D854
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126347.jpgsave_picture_126347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126347.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AB1582837182029F444428C2A1049BDA4792BDF5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126348.jpgsave_picture_126348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126348.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ BlueStacks App Player 5.14.10.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126349.jpgsave_picture_126349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126349.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:AB3D29207F1CC62850FBBFCEB3179C3246DB4E08
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126350.jpgsave_picture_126350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126350.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6856C9DE57DF5E1ED4A11EC35635C4B1D75625FA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126351.jpgsave_picture_126351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126351.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9234A0EB50B4F8019A6A21B60EC6B59B0745D234
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126352.jpgsave_picture_126352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126352.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:403D387C6EC41AE65905C4F66DA2F500706ECEBA
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126353.jpgsave_picture_126353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126353.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo / Сто девуш
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126354.jpgsave_picture_126354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126354.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:4778B39A45577850F4C72FF1FFF04B5CDC77573E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126355.jpgsave_picture_126355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126355.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:5B46584110B38C2B5149FBD0DE95F6B17A3DA2B6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126356.jpgsave_picture_126356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126356.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126357.jpgsave_picture_126357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126357.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:C530B91D7339EC153817A8200D2F5F9930C5263F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126358.jpgsave_picture_126358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126358.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Дискотека 2024 Dance Club Vol. 221 от NNNB (2023) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126359.jpgsave_picture_126359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126359.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:59CF88E01A3DFB42218474F781092CFE2206845A
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126360.jpgsave_picture_126360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126360.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:E1E8EBF1E6FF17EE8BB97DB9D1A8234A7239A6C0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126361.jpgsave_picture_126361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126361.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Potion-danomi de Ikinobimasu! / I Shall Survive Using Potions! / Я выживу
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126362.jpgsave_picture_126362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126362.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ IPTV Pro v7.1.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126363.jpgsave_picture_126363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126363.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:21F589925982A5C1E2089FB8ED7136FB19B42D99
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126364.jpgsave_picture_126364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126364.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Tearmoon Teikoku Monogatari / Tearmoon Empire / Хроники империи Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126365.jpgsave_picture_126365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126365.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:517D640D2F54751CB07758E5E406BFCD371088E6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126366.jpgsave_picture_126366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126366.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:7DEFE9901F5BB201B6D5BE39E6404605DB0DB820
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126367.jpgsave_picture_126367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126367.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ CamToPlan / Рулетка измерительна v4.2.1 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126368.jpgsave_picture_126368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126368.jpg" />
 </div>
 
 

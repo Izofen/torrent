@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137055.jpgsave_picture_137055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137055.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0407A5CF2A7478119652799CA4D165CBEE8F08A5
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137056.jpgsave_picture_137056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137056.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8D5323359FDA5B8CCBC1B8B93EC428E2C343314E
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137057.jpgsave_picture_137057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137057.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [30.12.2019] [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137058.jpgsave_picture_137058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137058.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:74F8EBE4B713F4386FF917A5F76D83B432C6EA73
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137059.jpgsave_picture_137059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137059.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:ABC3DD2A1E85933F8EB384979249CE36020F7C74
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137060.jpgsave_picture_137060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137060.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:9504D686FC0EE4592FAE133E074769419D82882C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137061.jpgsave_picture_137061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137061.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:319EB83088F66A5D94BBF9F7E754CA7F02C1B576
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137062.jpgsave_picture_137062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137062.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:BE031A355BEE7E8FAA16BE1D9A82751AAE4C18D5
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137063.jpgsave_picture_137063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137063.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:DA8B8C2B65612DA930DB5ED9D91BFD65C24DBDCA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137064.jpgsave_picture_137064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137064.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Trash Sailors (2021) [Ru/Multi] (1.1.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137066.jpgsave_picture_137066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137066.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:0EF447797236711883DE336117FB5659C6DD36DD
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137067.jpgsave_picture_137067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137067.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A4042554C83CD0E2EC0AE17D4D05E22E6BE5B9BF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137068.jpgsave_picture_137068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137068.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:7EC21B0D9A509624CFC0CD084B10097B21891D3C
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137069.jpgsave_picture_137069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137069.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:A07360CACD34C20FA13EE82C53AB24DCAB8D8354
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137070.jpgsave_picture_137070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137070.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:6C90CC5D727CA03FBF30B666184EB439B7579ABF
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137071.jpgsave_picture_137071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137071.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:37F46766A96DF0653BCCE850ED17E1BC69936BD1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137072.jpgsave_picture_137072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137072.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137073.jpgsave_picture_137073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137073.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Federico Conti & The Modern Organ Trio - Hammond-Ology (2020) [MP3|320 Kbps] <Ja
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137074.jpgsave_picture_137074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137074.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:58579EC832BF17AEDC0D7DE732AA0D3354C3EFC8
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137075.jpgsave_picture_137075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137075.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Vinland Saga / Сага о Винланде [2019, TV, 24 ep] WEB-DL 1080p Rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137076.jpgsave_picture_137076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137076.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Udemy, Irek Mirgaleev | Test-Driven Development Masterclass with Angular (2019) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137077.jpgsave_picture_137077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137077.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:E09FD9C9679CDA21DBEE28A0391D42A248304D2E
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137078.jpgsave_picture_137078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137078.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:C2421DF118EAC361AB657C68FAB3E64DAA0DE94C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137079.jpgsave_picture_137079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137079.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Jenn Mishra | 100+ Best Prompts for Midjourney (2023) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137080.jpgsave_picture_137080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137080.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:AB6D4B0CF7C187DD8EBBDE3228A81C4405CD5D7C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137081.jpgsave_picture_137081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137081.jpg" />
 </div>
 
 

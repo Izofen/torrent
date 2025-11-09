@@ -6,7 +6,7 @@ Process Lasso Pro 14.0.3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110009.jpgsave_picture_110009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110009.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0D5174DD7B9AD4707F0824F6A12D0DD74FB9C49A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110010.jpgsave_picture_110010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110010.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:07DE7413C4C2CB1DAB083AFAD3C9E371A73E6BA3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110011.jpgsave_picture_110011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110011.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wise Care 365 Pro 6.7.2.645 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110012.jpgsave_picture_110012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110012.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Audio Damage - Replicant 3 3.0.9 VST 3, CLAP, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110013.jpgsave_picture_110013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110013.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ FanControl V189 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110014.jpgsave_picture_110014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110014.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Skype 8.119.0.201 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110015.jpgsave_picture_110015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110015.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:1B201CF60EE9F184873A450440D69A3565BA69F4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110016.jpgsave_picture_110016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110016.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ HDCleaner 2.071 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110017.jpgsave_picture_110017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110017.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:3558243374DFA75BCFEE7825B09D888703BDC0C8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110018.jpgsave_picture_110018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110018.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:0816640A0A535285C0CCEE5F982516D09B7E13AD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110019.jpgsave_picture_110019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110019.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Matt Page - Apocalypse Garden (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110020.jpgsave_picture_110020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110020.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:5CE62DF291CE9168C8919EB6EDDAFC97CD061F72
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110021.jpgsave_picture_110021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110021.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Aeonblack - The Time Will Come (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110022.jpgsave_picture_110022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110022.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ King of None - In the Realm (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110023.jpgsave_picture_110023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110023.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bilwis - Hameln (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110024.jpgsave_picture_110024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110024.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Prave Factum - «Мир» для всех (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110025.jpgsave_picture_110025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110025.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Bilwis - Sagenwelt (2020) EP, Released, 2021, Northern Silence Productions [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110026.jpgsave_picture_110026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110026.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:55249641EB59FA3E8C5B42BD5B76652154892BD0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110027.jpgsave_picture_110027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110027.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Marisa And The Moths - 3 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110028.jpgsave_picture_110028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110028.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:B4B8BFE50A65CD27FE71E089728CA95F5F7B78BD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110029.jpgsave_picture_110029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110029.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ New Order - Power, Corruption & Lies (1983) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110030.jpgsave_picture_110030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110030.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Climax Chill Out Session, Pt. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loung
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110031.jpgsave_picture_110031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110031.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ The Inner Me - Rosabelle Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110032.jpgsave_picture_110032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110032.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Seaside Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110033.jpgsave_picture_110033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110033.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Bloodbound - The Tales of Nosferatu: Two Decades of Blood (2004 - 2024) (2024) L
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110034.jpgsave_picture_110034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110034.jpg" />
 </div>
 
 

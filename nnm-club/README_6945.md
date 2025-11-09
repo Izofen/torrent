@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238395.jpgsave_picture_238395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238395.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Elton John - The New Collection vol. I - vol. II (1983) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238397.jpgsave_picture_238397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238397.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Scarlet Dorn - Queen Of Broken Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238398.jpgsave_picture_238398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238398.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:89CDABA0584341647BE9AF09578AFC01EB773A96
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238400.jpgsave_picture_238400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238400.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - RETROспектива часть XXI. Зарубежные исполнит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238403.jpgsave_picture_238403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238403.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238404.jpgsave_picture_238404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238404.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Rage - Spreading the Plague (2022) EP [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238405.jpgsave_picture_238405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238405.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ScreenLog 2.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238406.jpgsave_picture_238406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238406.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:4FD57A8ECAF0A6A6C7F5ED5E934414E1BD5371BD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238407.jpgsave_picture_238407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238407.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:8B218009C4C535CA8FE4489F0CF45843C5EF9020
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238408.jpgsave_picture_238408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238408.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:BBA049085A4DDBEF0C4A1EE7A6B0E361BD28955D
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238410.jpgsave_picture_238410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238410.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Scarlet Dorn - Queen of Broken Dreams (2022) [MP3|320 Kbps] <Dark Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238412.jpgsave_picture_238412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238412.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:1CBF4331209A244B36DCEDD31B36B0CCB89CFD11
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238413.jpgsave_picture_238413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238413.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ HideAway 2.05 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238414.jpgsave_picture_238414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238414.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:7947B2E00AAF0AFCF769F166BC60A704E299D3CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238417.jpgsave_picture_238417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238417.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Cher - I Paralyze (1982) Expanded Edition, 2016, Columbia/Legacy [FLAC|Lossless|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238418.jpgsave_picture_238418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238418.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:22F728E5F4CF7FF4B723BF929B95BDF57AF95BF7
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238419.jpgsave_picture_238419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238419.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:BF7EAEA6D15C3B924462D59DF471A6D2A3C6120B
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238420.jpgsave_picture_238420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238420.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA (Юрий Антонов, Александр Серов, Александр �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238423.jpgsave_picture_238423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238423.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ HDCleaner 2.051 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238424.jpgsave_picture_238424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238424.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Boot
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238425.jpgsave_picture_238425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238425.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ desktopCinema 3.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238426.jpgsave_picture_238426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238426.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:2227F417A46414AFB7029E48C155FD03B0C1CA21
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238427.jpgsave_picture_238427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238427.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Rage - Spreading the Plague (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238428.jpgsave_picture_238428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238428.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ IObit Uninstaller Free 12.4.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238431.jpgsave_picture_238431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238431.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:8844994B3E0FE973E3683C47F8FF18EA8C8A4217
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238432.jpgsave_picture_238432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238432.jpg" />
 </div>
 
 

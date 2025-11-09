@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239926.jpgsave_picture_239926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239926.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Motivation Mix 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239927.jpgsave_picture_239927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239927.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Firefox Browser 104.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239928.jpgsave_picture_239928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239928.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Christian McBride's New Jawn - Prime (2023) Mack Avenue Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239929.jpgsave_picture_239929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239929.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Samara Joy - Linger Awhile (2023) Deluxe Edition [FLAC 24/96|Lossless|WEB-DL|tra
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239930.jpgsave_picture_239930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239930.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AYVY 1.14.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239931.jpgsave_picture_239931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239931.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ A Road To Damascus - Darker Places (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239932.jpgsave_picture_239932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239932.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:DACB56DD5AC65933B7D39D6D69384343E3E7327B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239933.jpgsave_picture_239933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239933.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Fuufu Ijou, Koibito Miman | More Than a Married Couple, But Not Lovers | Бол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239934.jpgsave_picture_239934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239934.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:DCC7893867D79E4E674535B7219F97117958F22B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239935.jpgsave_picture_239935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239935.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:E4D9E7E7AD126576AF527139FC10A9D53A1C7906
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239936.jpgsave_picture_239936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239936.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239937.jpgsave_picture_239937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239937.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Church of the Dead - Beyond Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239938.jpgsave_picture_239938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239938.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Cruachan - The Living And The Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Celtic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239939.jpgsave_picture_239939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239939.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:2E4EF3CBEA066B22484DD7068F63B2FFB19FFD4A
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239940.jpgsave_picture_239940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239940.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ BluePlum Home Inventory 4 v4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239941.jpgsave_picture_239941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239941.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:7C5DEF6958D0AF2568F4F71F38CDB565BE34ECE4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239942.jpgsave_picture_239942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239942.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - The Morning Mist (2023) [MP3|320 Kbps] <Ambient, Meditation, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239943.jpgsave_picture_239943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239943.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Bloodgutter - Death Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239944.jpgsave_picture_239944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239944.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ DeVicious - Code Red (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239945.jpgsave_picture_239945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239945.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - The Best of Dance (2022) [MP3|320 Kbps] <Europop, Dance, Deep House, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239946.jpgsave_picture_239946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239946.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239947.jpgsave_picture_239947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239947.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Hanging Garden - The Garden (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239948.jpgsave_picture_239948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239948.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:216D73072A1A8A723D6BC591EFDC11BCC144817D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239949.jpgsave_picture_239949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239949.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:03C8479140850532463E5C086C1EB3FADDBC73C0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239950.jpgsave_picture_239950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239950.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Metadatics 1.6.8 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239951.jpgsave_picture_239951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239951.jpg" />
 </div>
 
 

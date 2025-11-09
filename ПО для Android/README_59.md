@@ -6,7 +6,7 @@ HappyMod 3.0.5c Mod by Igorek72rus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166734.jpgsave_picture_166734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166734.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Cozy Magnifier & Microscope Plus v6.3.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166852.jpgsave_picture_166852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166852.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ CCleaner Pro: ПО для очистки 23.21.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167667.jpgsave_picture_167667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167667.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CamScanner 6.50.0.2309270000 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167764.jpgsave_picture_167764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167764.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ PDF Extra: сканер и редактор 10.7.2189 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167861.jpgsave_picture_167861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167861.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Dynamic Island - dynamicSpot 1.76 (200104) Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167892.jpgsave_picture_167892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167892.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ PDF Extra: сканер и редактор 10.6.2171 Lite-Mod by Number one' [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167959.jpgsave_picture_167959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167959.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Node Video - Pro Video Editor 6.8.4 Mod by Alien (ToonXTech) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168000.jpgsave_picture_168000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168000.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Snap VPN: Super Fast VPN Proxy 4.7.0.1 Mod by Pie Mods [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168709.jpgsave_picture_168709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168709.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:0E5BA11F262C4B653109BB65F17D0411B1685F06
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168852.jpgsave_picture_168852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168852.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ DW Contacts & Phone & SMS 3.2.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168981.jpgsave_picture_168981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168981.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:58B17197A993022565E82903107D6DBB29F22DEE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168987.jpgsave_picture_168987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168987.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PowerDirector – Video Editor v15.8.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169105.jpgsave_picture_169105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169105.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wink Plus ATV v1.5.0.3 Mod [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169137.jpgsave_picture_169137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169137.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PicWish: AI Photo Editor v1.5.6 Mod by Raju054 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169205.jpgsave_picture_169205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169205.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Business Calendar v2.44.0 + Lite Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169234.jpgsave_picture_169234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169234.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Picture Fish - Fish Identifier v2.4.15 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169550.jpgsave_picture_169550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169550.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:0F9C0002F282F23C3ABBB41990BA5C36D8ED2681
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169579.jpgsave_picture_169579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169579.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Picture Bird - Bird Identifier v2.9.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169587.jpgsave_picture_169587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169587.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:44D3DEAF8A2523482F129ECD68A378CAF760B092
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169636.jpgsave_picture_169636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169636.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Call Notes Pro  v20.11.7 [Ru/Multi] - заметки и другая инфор�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170251.jpgsave_picture_170251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170251.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:01609FF384AC818A5E7FEF8ACF37BBB24FCCA490
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170612.jpgsave_picture_170612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170612.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Anti Spy Detector - Spyware 5.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170885.jpgsave_picture_170885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170885.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Firewall Security AI - No Root 2.3.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170921.jpgsave_picture_170921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170921.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:EBEDED80DA4C458DC17C35A6591701127FE1E986
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170929.jpgsave_picture_170929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170929.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Vanced Tube v5.5.80.106 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170955.jpgsave_picture_170955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170955.jpg" />
 </div>
 
 

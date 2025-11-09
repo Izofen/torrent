@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228841.jpgsave_picture_228841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228841.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:84BB288ED5111DDDDE1ACCE6CBC490EE3CF4C0B4
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228842.jpgsave_picture_228842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228842.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тени Чернобыл�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228843.jpgsave_picture_228843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228843.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:12D28B1293253AF21290973EBF9018F7929C429A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228845.jpgsave_picture_228845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228845.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MotoGP. Этап 18. Гран-при Австралии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228848.jpgsave_picture_228848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228848.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A149267A36D4CBCDDBD426325AA9D7373011688C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228849.jpgsave_picture_228849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228849.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A8FFCFB0E0ACE03E3AB14571B45B35F850177468
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228850.jpgsave_picture_228850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228850.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.813 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228851.jpgsave_picture_228851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228851.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:6994270A96C7A96ADF3195DC3D35A014E426BBC4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228852.jpgsave_picture_228852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228852.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Avdshare Audio Converter 7.2.0.7268 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228853.jpgsave_picture_228853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228853.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:32111FFB60EE4F18A6F241632C7E812B226FE6CF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228856.jpgsave_picture_228856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228856.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Opera 81.0.4196.60 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228857.jpgsave_picture_228857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228857.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:BE23DEA66CD6596E7276E6417A154536AC5F50AE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228859.jpgsave_picture_228859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228859.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:2A36BE5EFFEC38E1995C0836A1EFD9EB6AD414BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228860.jpgsave_picture_228860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228860.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:3FA8CDF880BABDD866BE8F80CF655CF16D2B4B60
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228861.jpgsave_picture_228861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228861.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:134C0E85646E9885315A846D5A7DE95D681AA035
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228863.jpgsave_picture_228863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228863.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VA - Technique Recordings 2015: Drum & Bass Annual (2015) [MP3|320 кб/с]<Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228866.jpgsave_picture_228866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228866.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:195CFCF55198F5254EDB8D3AF034FCEA5AA7A06B
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228867.jpgsave_picture_228867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228867.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:13D6E5F35520DC88CAA323657ABCCB8110D6E71C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228868.jpgsave_picture_228868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228868.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MyLifeOrganized Pro 5.0.0.3024 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228869.jpgsave_picture_228869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228869.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:DC1370013F27B974957B9EF400B7DAAC37D11E42
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228871.jpgsave_picture_228871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228871.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:3615550EB6A244AC29E7834450C1B14DA7B76BE5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228872.jpgsave_picture_228872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228872.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Trance Desire Volume 58 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228873.jpgsave_picture_228873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228873.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:245471C24F7B9CCE5CC572CD51B22F5B0A0BD949
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228874.jpgsave_picture_228874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228874.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:31CDD97FA0C89EB5C49E3EE1F82CFD9C858F10AC
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228875.jpgsave_picture_228875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228875.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:9F93440E6A7011A9758A3082D18F84431C1F9B0F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228876.jpgsave_picture_228876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228876.jpg" />
 </div>
 
 

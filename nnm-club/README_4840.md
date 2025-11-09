@@ -6,7 +6,7 @@ Motorstorm: Pacific Rift [PS3] [PAL] [RUSSOUND] [2.42] [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151423.jpgsave_picture_151423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151423.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7E38A99F74A1A2ED8B8A90EB167B4CF0F6284AA7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151424.jpgsave_picture_151424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151424.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0C4BC14E0590BA61E20B3B02EF945B2B8BBF898B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151425.jpgsave_picture_151425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151425.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C63E2FB3E07DC6CFF000E313D0CF20FB7E20EFBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151426.jpgsave_picture_151426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151426.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:8EB02A88D45024D775214CC388907D23FDBC3333
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151427.jpgsave_picture_151427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151427.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8EB02A88D45024D775214CC388907D23FDBC3333
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151428.jpgsave_picture_151428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151428.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:940CF92E39F93848B3AABBBF6BC43A43EB5DCFC4
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151429.jpgsave_picture_151429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151429.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:2BA94F48D35F678C0618EDB99DB04C416A9D267F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151430.jpgsave_picture_151430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151430.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:456F063C092A8B8EC5E8A1D19388CF3377CB2C60
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151431.jpgsave_picture_151431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151431.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5BFFA24DCC5EBA1EECBB96C8F97B53089D2607B0
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151433.jpgsave_picture_151433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151433.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Русское радио Хит-парад Золотой граммофо
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151435.jpgsave_picture_151435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151435.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:DAD6F8601A6B7688561CE87C298F35E178B798A8
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151436.jpgsave_picture_151436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151436.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:C4F4D6F9C109344240404ED679FA4B0FA3F4C09A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151437.jpgsave_picture_151437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151437.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:2BA76E735D54738216E2A0402B09CCBF57354685
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151439.jpgsave_picture_151439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151439.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:C0C53A042BFC34DCA0CC390D54FC816F1CEFE7FB
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151440.jpgsave_picture_151440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151440.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Immortal Guardian - Age of Revolution (2018) [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151441.jpgsave_picture_151441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151441.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:26AF231C0A62F4D8BC61D4E15193AC2ED65732D3
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151443.jpgsave_picture_151443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151443.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:69884C113D574B1980B3D3FED7D3D5129B3C6ADF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151444.jpgsave_picture_151444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151444.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:D1ECB4F9AB2F7AB3D1806D8D915541ECF07B0EC4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151446.jpgsave_picture_151446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151446.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:B20258F5C7778700CE2C210A3D8582C047CD7CFB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151447.jpgsave_picture_151447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151447.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Hammer King - Kingdom Of The Hammer King (2015) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151448.jpgsave_picture_151448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151448.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Willis Jackson - Keep On A Blowin' (1959 - 1962) 1999, Prestige [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151450.jpgsave_picture_151450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151450.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:779C01DCC99E45A5F92A6A6EB7F78398727EE0E0
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151451.jpgsave_picture_151451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151451.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:3F95C658BD0C5D8AF3468BD0B70AEA7D4FF88219
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151453.jpgsave_picture_151453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151453.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:2AC6AEDB2A3BC1E5C96061A6483488BFA1182DC4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151456.jpgsave_picture_151456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151456.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:B458FBA34AA9DD37BA271EC7F57E8EFC3CDF982B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151457.jpgsave_picture_151457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151457.jpg" />
 </div>
 
 

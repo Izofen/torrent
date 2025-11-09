@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133963.jpgsave_picture_133963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Axenstar - Chapter VIII (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133965.jpgsave_picture_133965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133965.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:00DA99D65701F722EAF90465C2C610CB89ED6E36
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133966.jpgsave_picture_133966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133966.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BDE2A6A617E982E3737913C9DBC42B0BC5B21D3C
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133967.jpgsave_picture_133967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133967.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1BE9C3DF48F2F5C0765EAC3F19D1E4700F7C9305
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133968.jpgsave_picture_133968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133968.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Hazel 3.0.16 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133969.jpgsave_picture_133969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133969.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Paquito D'Rivera & Louie Ramirez - A Tribute To Cal Tjader (1986) 2004, Yemaya R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133970.jpgsave_picture_133970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133970.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B0E74F84BA2D62AE4D7266FE79BF0F5812D4C721
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133971.jpgsave_picture_133971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133971.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Opeth - Sorceress (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133972.jpgsave_picture_133972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133972.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:38B5560B127628C874758422F72FA1DBD78DD10A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133973.jpgsave_picture_133973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133973.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Dorothy Ashby - The Jazz Harpist (1956) 1992, Savoy Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133974.jpgsave_picture_133974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133974.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Dropshare 5 v.5.43 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133976.jpgsave_picture_133976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133976.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:FC964D077443214176C1F63C38E023D2FAD096DA
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133978.jpgsave_picture_133978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133978.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ The Jack Wilson Trio - Live at the Pied Piper + 2 (1967) 2011, Interplay [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133979.jpgsave_picture_133979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133979.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Painful Defloration - Esthetic Research Laboratory (2009) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133980.jpgsave_picture_133980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133980.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ MarsEdit 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133981.jpgsave_picture_133981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133981.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Minecraft Dungeons (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.17.0.0 / DLC]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133982.jpgsave_picture_133982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133982.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:9CE0AA62786172ABFC1066E13C3A48EC33F2379D
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133983.jpgsave_picture_133983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133983.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:BB1E39378E03FB4AFC098A883E88EC6C2A159C3A
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133984.jpgsave_picture_133984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133984.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:BB1E39378E03FB4AFC098A883E88EC6C2A159C3A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133985.jpgsave_picture_133985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133985.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:5C694BE4E5FB344606F43EF300D13A9A14819BC6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133986.jpgsave_picture_133986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133986.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:5C694BE4E5FB344606F43EF300D13A9A14819BC6
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133987.jpgsave_picture_133987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133987.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:D9B43CA24CC23925E7D0031FBCFC538CC5EDF231
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133989.jpgsave_picture_133989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133989.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Scene FAiRLIGHT [Lionheart Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133991.jpgsave_picture_133991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133991.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:DBEAC4F441F81A1829A95482B4A006423846D738
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133993.jpgsave_picture_133993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133993.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:895873B892CB0C1FED2416E342EC4BA11B1165F6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133995.jpgsave_picture_133995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133995.jpg" />
 </div>
 
 

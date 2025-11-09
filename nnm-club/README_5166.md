@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161062.jpgsave_picture_161062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161062.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Swing & Bass Compilation Album, Vol. 2 (2020) [AAC|~323 Kbps] <Drum & Bass,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161063.jpgsave_picture_161063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161063.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F28BEF3D8F1451BC29CA47019B81AF30DE648517
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161064.jpgsave_picture_161064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161064.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:E2851480FEE50B55A2B48870676F479A8F453A0C
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161065.jpgsave_picture_161065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161065.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Firefox Browser 95.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161066.jpgsave_picture_161066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161066.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161067.jpgsave_picture_161067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161067.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:002B55D41860F9832430E13CF883DA28B299F82F
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161068.jpgsave_picture_161068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161068.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:7FA66B72AF3899857FC340720478A8EA9CF13079
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161069.jpgsave_picture_161069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161069.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:3BBE95223194395D3ECD037FC7D8DA1C7A028AD3
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161070.jpgsave_picture_161070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161070.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:88855D47C549D5632CE26E564D64A72040C7758E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161071.jpgsave_picture_161071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161071.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Angel Voices, Vol. 2 (Enigmatic Chill and Mystic Tracks to Relax) (2021) [A
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161072.jpgsave_picture_161072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161072.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:5D58ABC576968F11B8BF763EF8B2FE6887BA998D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161073.jpgsave_picture_161073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161073.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161074.jpgsave_picture_161074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161074.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:B588C563E83F54708A0708B7ECD95FA06A6CF838
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161075.jpgsave_picture_161075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161075.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Swing & Bass Compilation Album, Vol. 3 (2021) [AAC|~308 Kbps] <Drum & Bass,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161076.jpgsave_picture_161076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161076.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Sade - Bring Me Home: Live 2011 (2012) RCA 88691977359 [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161077.jpgsave_picture_161077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161077.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:A6605FAC84AC63740100D8ADEA0FEB8523D73CF5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161078.jpgsave_picture_161078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161078.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:79E7094B6B8AB146D3AED1A0855C2A707DCED375
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161079.jpgsave_picture_161079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161079.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Microsoft Windows 11 [10.0.22621.963], Version 22H2 (Updated December 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161080.jpgsave_picture_161080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161080.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:7E092AE4845BC1DEF101A5C18CFC6B8506798B8F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161081.jpgsave_picture_161081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161081.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Clearview X 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161082.jpgsave_picture_161082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161082.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Camera FV-5 v5.3.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161083.jpgsave_picture_161083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161083.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:3EA9D6C095A04EA01872613DCCAAA014AFE97BF3
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161084.jpgsave_picture_161084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161084.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Onimusha | Онимуся [2023, Web, 8 эп.] WEB-DL 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161085.jpgsave_picture_161085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161085.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Permute 3 v3.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161086.jpgsave_picture_161086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161086.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:CB98DEC9AEA06A3F02297D0E307D569F7130A471
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161087.jpgsave_picture_161087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161087.jpg" />
 </div>
 
 

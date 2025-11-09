@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35741.jpgsave_picture_35741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35741.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:645BCE0FE7C08B2AAF045572D3F765B5BA69DA7E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35742.jpgsave_picture_35742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35742.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F0D2F648BF58DE1C5C5BEA80E769D338319F886C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35743.jpgsave_picture_35743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35743.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ FastStone Capture 10.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35744.jpgsave_picture_35744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35744.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:038E7AA635ECC6D03C409764D4E098E98C5FBEB8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35745.jpgsave_picture_35745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35745.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:49EE1CB13BB4B7988A8CEE8A19FB835B9385E1EB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35746.jpgsave_picture_35746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35746.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:2A9A0773165E77B1E5F6154EE42E48DD1556FD74
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35747.jpgsave_picture_35747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35747.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:247004AD1ADC7F8653F7FE4F007E1BD08005EDD3
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35748.jpgsave_picture_35748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35748.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Hottest Hits 100 Greatest Songs of All Time (2024) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35749.jpgsave_picture_35749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35749.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:0C5269B49211FC46A2851AA29428F204A20CB581
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35750.jpgsave_picture_35750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35750.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:53E466BC5061EE641BF2D0D126AD31C8CA3781D6
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35751.jpgsave_picture_35751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35751.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Icecream Video Editor Pro 3.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35752.jpgsave_picture_35752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35752.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F6D22C020B1B8610CAEDD5CEE770DF5F29E5829D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35753.jpgsave_picture_35753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35753.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:ED7BA30F3FAB317F58458021F8544E212908FAF8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35754.jpgsave_picture_35754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35754.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ EF Commander 24.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35755.jpgsave_picture_35755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35755.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Calibre 7.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35756.jpgsave_picture_35756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35756.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ IObit Smart Defrag Pro 10.2.0.435 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35757.jpgsave_picture_35757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35757.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:7BFB42C4B2E006C76170786A640B05FAA8CCEA73
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35758.jpgsave_picture_35758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35758.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Vanced Tube v5.2.80.158 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35759.jpgsave_picture_35759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35759.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ MXGP 24: The Official Game (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35760.jpgsave_picture_35760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35760.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Satisfactory (2019) [Ru/Multi] (1.0.1.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35761.jpgsave_picture_35761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35761.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:9441642DCDADFD8D386C69CBB346D9D07C7D61D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35762.jpgsave_picture_35762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35762.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Icecream Screen Recorder PRO 7.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35763.jpgsave_picture_35763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35763.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Duplicate Cleaner Pro 5.24.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35764.jpgsave_picture_35764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35764.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ FastStone Capture 10.9 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35765.jpgsave_picture_35765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35765.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35766.jpgsave_picture_35766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35766.jpg" />
 </div>
 
 

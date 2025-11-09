@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168801.jpgsave_picture_168801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168801.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ AppCleaner 3.6.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168802.jpgsave_picture_168802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168802.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Minecraft 1.18.0.02 Final [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168803.jpgsave_picture_168803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168803.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - 100 In Atmospheric Trance (2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168804.jpgsave_picture_168804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168804.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Pro Pilkki 2 v1.9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168805.jpgsave_picture_168805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168805.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:AABD8E3FDBD0F29EEA4A425F5B7909683218588B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168806.jpgsave_picture_168806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168806.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ OpenShot Video Editor 3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168808.jpgsave_picture_168808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168808.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D9F903429A86A79AD935A520134EE1E45C58D255
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168810.jpgsave_picture_168810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168810.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ SnowRunner (2020) [Ru/Multi] (16.0/dlc) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168811.jpgsave_picture_168811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168811.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:C9C66A97A448EA049517894F8192303D1FF7B413
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168812.jpgsave_picture_168812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168812.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Enhancer - AI Photo Enhance v1.4.0 Mod by Mixroot [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168813.jpgsave_picture_168813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168813.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Deep Purple - Extras: The Infinite B-Sides and Bonus Songs (Live) (2022) [FLAC 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168814.jpgsave_picture_168814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168814.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Grand Theft Auto San Andreas (2021) [Ru/Multi] (1.14718) Repack Other s [The Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168815.jpgsave_picture_168815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168815.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Adobe Bridge 2020 10.0.1.126 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168816.jpgsave_picture_168816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168816.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:8DEC11FFE8F491F95FCF62E1D85812B3B7776A07
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168817.jpgsave_picture_168817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168817.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:8376CEC3B7EA3D2BDDFB06101D72A5FDDC025589
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168818.jpgsave_picture_168818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168818.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Faith Hill - Faith (1998) Warner 9 46790-2 [FLAC|Lossless|image + .cue]<Contempo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168819.jpgsave_picture_168819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168819.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:5FA7968F442058A7981E66E3B8CA0C01DA7D8619
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168820.jpgsave_picture_168820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168820.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Skillbox, Александр Клейн | SQL-разработчик (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168821.jpgsave_picture_168821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168821.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:CD889A3FB9F185C881362A1E063F976E736051E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168822.jpgsave_picture_168822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168822.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adobe Audition 2020 13.0.1.35 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168823.jpgsave_picture_168823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168823.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:DC7CF0AF536A9717280A567739125A0F6C4182AF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168824.jpgsave_picture_168824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168824.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:3740C645B480EE41A57CB295AB0385F69B8EB489
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168825.jpgsave_picture_168825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168825.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Eccentric Games, Илья Карельцев | Основы создания и�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168826.jpgsave_picture_168826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168826.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | Оседлав волну с тоб
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168827.jpgsave_picture_168827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168827.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ DP Animation Maker 3.5.23 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168828.jpgsave_picture_168828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168828.jpg" />
 </div>
 
 

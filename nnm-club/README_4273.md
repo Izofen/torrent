@@ -6,7 +6,7 @@ Psiphon Pro 391 Mod by AzadNet [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132581.jpgsave_picture_132581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132581.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3F10F3A05315559FE0AB58070C5A461671C85F5C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132582.jpgsave_picture_132582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132582.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3B9B8BB3238D8B815785EC6462AAC94F9E298620
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132583.jpgsave_picture_132583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132583.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B8791C20F4B26327E6A654034E56A0A47658C2DB
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132584.jpgsave_picture_132584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132584.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:965B67D20466724A301B0FE940C7624A0623EAC0
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132585.jpgsave_picture_132585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132585.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:99F574BF539395F69CEB7941689E588CC861E85A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132586.jpgsave_picture_132586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132586.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mac Blu-ray Player 2.7.4.1092 Portable by Invictus [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132587.jpgsave_picture_132587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132587.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ AR Ruler App: Линейка Рулетка v2.7.4 Mod by Timozai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132588.jpgsave_picture_132588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132588.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ AR Plan 3D: Линейка, Рулетка v4.8.1 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132590.jpgsave_picture_132590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132590.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Melon VPN - Secure Proxy VPN 7.9.612 Mod By AzadNet [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132592.jpgsave_picture_132592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132592.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Transmission for Linux 4.0.4 (24077e3511) [x32, x64] (tar.xz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132594.jpgsave_picture_132594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132594.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ MKVToolNix 81.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132596.jpgsave_picture_132596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132596.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:5196359980F14FBEB97357656F8B33DE308F5ED6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132598.jpgsave_picture_132598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132598.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:8B39D3AC48B655E490DC4D40B4BB2BC9BA268235
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132599.jpgsave_picture_132599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132599.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Hudozhnik Online, Ника Сабрекова | «Цветные каранда�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132600.jpgsave_picture_132600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132600.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:779F4DE23410A0940D921064D8600924F1CCF69B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132601.jpgsave_picture_132601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132601.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:7624F61FCCB71431792695CB7C7F862522B3BBC3
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132602.jpgsave_picture_132602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132602.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Smokie - Greatest Hits (3xCD) (2006) [FLAC|Lossless]<Pop-Rock, Soft-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132603.jpgsave_picture_132603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132603.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VPN Inf - Security Fast VPN 7.6.301 Mod by AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132604.jpgsave_picture_132604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132604.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:F562DCEEEA3A989FCA255A6E236A9BED821F3E8D
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132605.jpgsave_picture_132605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132605.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Text Edit Plus 13.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132607.jpgsave_picture_132607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132607.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:C418B25002095998072A8F5DA05977907D80D771
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132608.jpgsave_picture_132608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132608.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:79F18487D9F38CE22AA72AE9E130423454E65D3D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132609.jpgsave_picture_132609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132609.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ JixiPix Pastello 6.0.98 (х64) Portable by Spirit Summer [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132610.jpgsave_picture_132610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132610.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Calculate Linux 13.0 [i686] (4xDVD + 3xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132612.jpgsave_picture_132612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132612.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Calculate Linux 13.0 [i686] (4xDVD + 3xCD)
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132613.jpgsave_picture_132613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132613.jpg" />
 </div>
 
 

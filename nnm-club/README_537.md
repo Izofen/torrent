@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14267.jpgsave_picture_14267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14267.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ SCUM (2018) [Ru/Multi] (1.0.0.0.94918/dlc) Repack FitGirl [Complete Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14268.jpgsave_picture_14268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14268.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:70AFC7D4119B5109EA8A1B3BDA8CC184496EC4BA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14269.jpgsave_picture_14269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14269.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:60D21F2855958FD93C2AEA4C1C96FE1B28B1A80E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14270.jpgsave_picture_14270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14270.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E7F5816D802CD93F7193F00610332580E7017AA8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14271.jpgsave_picture_14271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14271.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Microsoft Windows 11 [10.0.26100.4349], Version 24H2 (Updated June 2025) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14272.jpgsave_picture_14272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14272.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Haite Kudasai, Takamine-san / Please Put Them On, Takamine-san / Пожалуй�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14273.jpgsave_picture_14273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14273.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:98B3E3457DD5D35972C1CF8986AB795EDFD91C8A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14274.jpgsave_picture_14274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14274.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ The Bard's Tale IV (4): Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Licen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14276.jpgsave_picture_14276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14276.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:3C7803CA446A4B0E0908352E450DB694EAFB4F6F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14277.jpgsave_picture_14277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14277.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:E00E0843FED07243761F8C57B0050545A3FC7294
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14278.jpgsave_picture_14278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14278.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:E00E0843FED07243761F8C57B0050545A3FC7294
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14279.jpgsave_picture_14279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14279.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:62F07B0EFBFAD993C81142D04584AA1F573CEBF7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14280.jpgsave_picture_14280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14280.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:62F07B0EFBFAD993C81142D04584AA1F573CEBF7
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14281.jpgsave_picture_14281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14281.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.4.7/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14282.jpgsave_picture_14282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14282.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:010EC76BF9EFA2DA1812D656BABB384E69877E2C
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14284.jpgsave_picture_14284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14284.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:72D38444932A1DA6670A1DE5A28FFCC186C6EBCE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14286.jpgsave_picture_14286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14286.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:91DD26D729A19254E3CCE40764F3A18741FD0A33
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14287.jpgsave_picture_14287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14287.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:3736ADCB9D8B8617038AF08E50B376FB6890B3E4
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14289.jpgsave_picture_14289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14289.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:1D3A6FA101CACA92B525FC99F64CAFB9D4BD0774
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14290.jpgsave_picture_14290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14290.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:EBE87A4A8B469364A23BD8A29EC6729B49FEF585
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14291.jpgsave_picture_14291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14291.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:366139946E5DBB3473F586FD37D5D543284838D9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14292.jpgsave_picture_14292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14292.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:9B3599EF2754D513C97040C62990BD99AF41A342
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14293.jpgsave_picture_14293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14293.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:0D2DA0E060887410882B7EDCCC71D2351C748587
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14294.jpgsave_picture_14294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14294.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Parkitect (2018) [Ru/Multi] (1.11e/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14295.jpgsave_picture_14295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14295.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:3C80FEEEAAA383D930789D94E9BB5879ED41F31A
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14296.jpgsave_picture_14296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14296.jpg" />
 </div>
 
 

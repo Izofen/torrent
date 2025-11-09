@@ -6,7 +6,7 @@ Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104072.jpgsave_picture_104072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104072.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104073.jpgsave_picture_104073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104073.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A93397C0FC7F17F5C6BA942C01D63968D4E32D74
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104074.jpgsave_picture_104074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104074.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:C657833DADA823CA966610E73DDAA181BE237892
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104075.jpgsave_picture_104075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104075.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:B70D018DE3E53CBF5E1417A3400664128DB9BA1F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104076.jpgsave_picture_104076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104076.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:C4BD0FC14C66F4A567FE495C25780A9B9CF2628E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104077.jpgsave_picture_104077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104077.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104078.jpgsave_picture_104078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104078.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104079.jpgsave_picture_104079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104079.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Cek & The Stompers - Mr. Red (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104080.jpgsave_picture_104080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104080.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:739BED6F4EC1E4E3BAD7AC6A85E22906B3BDC899
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104081.jpgsave_picture_104081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104081.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:99272E5B2D3D4111FE8F733952C0FE7EFA0C943F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104082.jpgsave_picture_104082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104082.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:DC649633ADD0D1DA000258DB134B170D6E473BA4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104083.jpgsave_picture_104083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104083.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Duo Holistique - FUTURISTIQUE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104084.jpgsave_picture_104084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104084.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Hard-on Blues - Hard-on Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104085.jpgsave_picture_104085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104085.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104086.jpgsave_picture_104086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104086.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104087.jpgsave_picture_104087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104087.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104088.jpgsave_picture_104088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104088.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104089.jpgsave_picture_104089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104089.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104090.jpgsave_picture_104090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104090.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104091.jpgsave_picture_104091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104091.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:ACF75FD3ED6F83EC908CB213EF51968AFFE72440
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104092.jpgsave_picture_104092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104092.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Francesco Bearzatti, Stefano Risso and Mattia Barbieri - Behind Anatomy (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104093.jpgsave_picture_104093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104093.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104094.jpgsave_picture_104094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104094.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104095.jpgsave_picture_104095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104095.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104096.jpgsave_picture_104096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104096.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104097.jpgsave_picture_104097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104097.jpg" />
 </div>
 
 

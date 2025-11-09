@@ -6,7 +6,7 @@ Hetman Partition Recovery 5.1 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7942.jpgsave_picture_7942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7942.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7943.jpgsave_picture_7943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7943.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Acrobat Pro 2025.001.20623 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7944.jpgsave_picture_7944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7944.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Echoes of the End (2025) [Ru/Multi] (Build 19563242) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7945.jpgsave_picture_7945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7945.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:31000C6C44C94D4E125F2332AF4AFA0E930142B0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7946.jpgsave_picture_7946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7946.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (0.5) Repack Pioneer [Earl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7947.jpgsave_picture_7947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7947.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:CF5630FD01809B22047AA5FD96ED651A7BBEAA1D
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7948.jpgsave_picture_7948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7948.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Notepad++ 8.8.5 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7949.jpgsave_picture_7949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7949.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Scouring (2025) [Ru/Multi] (11.08.2025) Repack AIexandro [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7950.jpgsave_picture_7950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7950.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:4312A8095A31DAE73C376118BBEF19D3838F56E6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7951.jpgsave_picture_7951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7951.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:7F0B5462D9BA4B152BA10047554C66996FA1FBD4
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7952.jpgsave_picture_7952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7952.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7953.jpgsave_picture_7953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7953.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Windows 10 Pro 22H2 19045.6093 x64 by SanLex [Lightweight] [Ru-En] (2025.08.05)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7954.jpgsave_picture_7954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7954.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7955.jpgsave_picture_7955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7955.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7956.jpgsave_picture_7956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7956.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:F301152E03740EB4AD9F57BFEF708433C8B50495
 >>13
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7957.jpgsave_picture_7957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7957.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:F301152E03740EB4AD9F57BFEF708433C8B50495
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7958.jpgsave_picture_7958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7958.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:88043F7F4A0ADF000F9D6A8A32627EA02A24DDDA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7959.jpgsave_picture_7959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7959.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (4326/dlc) License GOG [Master Cra
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7960.jpgsave_picture_7960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7960.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Cabernet (2025) [Multi] (1.1.19) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7961.jpgsave_picture_7961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7961.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:1FC97676327EB19B5C8458A2ED060D741C50B888
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7963.jpgsave_picture_7963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7963.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Chains of Freedom (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7964.jpgsave_picture_7964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7964.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:02256A22E41550A0AF599F1A510A721E40303DA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7966.jpgsave_picture_7966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7966.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Age of Wonders 4 (2023) [Ru/Multi] (1.011.001.110650/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7967.jpgsave_picture_7967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7967.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:6B4C712800FBAC03F07222F5688DF419E5511BB7
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7968.jpgsave_picture_7968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7968.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe After Effects 2025 25.4.0.86 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7969.jpgsave_picture_7969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7969.jpg" />
 </div>
 
 

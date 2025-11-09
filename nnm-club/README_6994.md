@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240004.jpgsave_picture_240004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240004.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:866C864D20AB0891D7BF3EBD5E1AD4582A5F4D16
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240005.jpgsave_picture_240005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240005.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:316B646C6A078D1E3D9E5857C0E0C10288A56803
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240006.jpgsave_picture_240006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240006.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Icxitonttli - Terra Existence (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240007.jpgsave_picture_240007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240007.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Viber 20.2.0.4 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240008.jpgsave_picture_240008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240008.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Wondershare AllMyMusic 3.0.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240009.jpgsave_picture_240009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240009.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Semulov 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240010.jpgsave_picture_240010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240010.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Modern Talking - Atlantis Is Calling (1986) Japan 12" Single, Promo [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240011.jpgsave_picture_240011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240011.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Dropzone 4 Pro v4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240012.jpgsave_picture_240012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240012.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:10056A2C6FD1C16221870AFD1D1CF5101A55091B
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240013.jpgsave_picture_240013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240013.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:CD546944BCB4F2330005495DDA742C5B53090A71
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240014.jpgsave_picture_240014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240014.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240016.jpgsave_picture_240016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240016.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Screaming Frog SEO Spider 17.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240017.jpgsave_picture_240017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240017.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Louis Prima - 1935 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240018.jpgsave_picture_240018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240018.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Amandus - Sing a Song (2020) [AAC|~325 Kbps]<Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240019.jpgsave_picture_240019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240019.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:8CF9624170A5D55887A6821561AFD8F8EE011601
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240020.jpgsave_picture_240020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240020.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kneipenterroristen - Infiziert (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240021.jpgsave_picture_240021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240021.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ FanControl V154 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240022.jpgsave_picture_240022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240022.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ DIO - Легенды Зарубежного Рока (2001) Compilation, Unoffic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240023.jpgsave_picture_240023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240023.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ OneCommander Pro 3.41.3.1 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240024.jpgsave_picture_240024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240024.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:6970F9112446D11C32895C0B999CFC48951803DD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240025.jpgsave_picture_240025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240025.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Buck Clayton - 1945 - 1947 (1997) Classics [FLAC|Lossless|image + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240026.jpgsave_picture_240026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240026.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Metadatics 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240027.jpgsave_picture_240027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240027.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Black Scum - .INI (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240028.jpgsave_picture_240028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240028.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:0582D23A6F35A135249665DB13B5B00DD0BC3F2E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240029.jpgsave_picture_240029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240029.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Chromium 114.0.5735.91 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240030.jpgsave_picture_240030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240030.jpg" />
 </div>
 
 

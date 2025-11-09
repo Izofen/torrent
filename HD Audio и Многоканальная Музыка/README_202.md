@@ -6,7 +6,7 @@ Heavy Water - Dreams Of Yesterday (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182583.jpgsave_picture_182583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182583.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Toyah - The Changeling (1982) Deluxe Edition, Remastered, 2023, Cherry Red Recor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183071.jpgsave_picture_183071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183071.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cherry Glazerr - I Don't Want You Anymore (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183178.jpgsave_picture_183178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183178.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vader - Studio Albums (19 releases) (1992-2020) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183203.jpgsave_picture_183203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183203.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Black Stone Cherry - Screamin' At The Sky (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183253.jpgsave_picture_183253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183253.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jethro Tull - RökFlöte (RokFlote) (Alternative Mixes) (2023) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183257.jpgsave_picture_183257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183257.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vera Bloom - It's Me (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <garage rock, gr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183300.jpgsave_picture_183300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183300.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Night In Gales - The Black Stream (2023) [FLAC 24/44.1|WEB-DL|tracks] <Death Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183341.jpgsave_picture_183341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183341.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183346.jpgsave_picture_183346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183346.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Secret Service/Сикрет Сервис - Two Albums: When The Night Closes In/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183669.jpgsave_picture_183669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183669.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Lost Horizon - Studio Albums (2 releases) (2001-2003) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183997.jpgsave_picture_183997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183997.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Cee Muller - Spectrum of Emotions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184006.jpgsave_picture_184006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184006.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ LP Giobbi - Light Places (2023) Deluxe Edition [FLAC 24/44.1/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184759.jpgsave_picture_184759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184759.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Autograf - Affirmations (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184770.jpgsave_picture_184770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184770.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184797.jpgsave_picture_184797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184797.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Joel Corry - Another Friday Night (2023) [FLAC 16-24/44.1-48] Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184829.jpgsave_picture_184829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184829.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184834.jpgsave_picture_184834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184834.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Fantasy - Das Beste (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184910.jpgsave_picture_184910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184910.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ The First Gentlemen - Vertices (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184934.jpgsave_picture_184934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184934.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpgsave_picture_185442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185948.jpgsave_picture_185948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185948.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186025.jpgsave_picture_186025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186025.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186044.jpgsave_picture_186044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186044.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186055.jpgsave_picture_186055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186055.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Wolfheart - Studio Albums (7 releases) (2013-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186102.jpgsave_picture_186102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186102.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186223.jpgsave_picture_186223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186223.jpg" />
 </div>
 
 

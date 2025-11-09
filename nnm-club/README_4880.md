@@ -6,7 +6,7 @@ KMPlayer 4.2.3.6 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152720.jpgsave_picture_152720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152720.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:16E7CFAE243C8678EA78AFE5767D37B74DBE098E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152722.jpgsave_picture_152722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152722.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ FoneDog Toolkit for Android 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152724.jpgsave_picture_152724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152724.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:3A7A63C438D6EFB22A1BF73CD60DD0506B8A5648
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152725.jpgsave_picture_152725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152725.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A102C2E292C1C72291BBBA3C56DEE79C95BBF2D9
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152726.jpgsave_picture_152726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152726.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:DA1E363318C551422E01593DE1B84CA4F2FD8C0D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152727.jpgsave_picture_152727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152727.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Empire Records - Chill Out 4 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152729.jpgsave_picture_152729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152729.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:0A1F82BE4AE2905FFA180D81F64EC8BEFDC0BC0A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152730.jpgsave_picture_152730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152730.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:9CC764BF6BE525458364A7040F2F3AEDB6961935
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152732.jpgsave_picture_152732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152732.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Chain Timer 9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152734.jpgsave_picture_152734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152734.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E3781D8C97E0B82300365757EEFE73C1BA14AEBE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152735.jpgsave_picture_152735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152735.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Task Manager DeLuxe 4.0.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152736.jpgsave_picture_152736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152736.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ CGMA, Kurt Kupser | Texturing and Shading for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152737.jpgsave_picture_152737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152737.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:859947F9DB78146AAEC7E1451B61BC131BD4728A
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152738.jpgsave_picture_152738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152738.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:06D7A4A1FC0A4E4F15AD8DDFF3CBBCE46B3B9B1F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152739.jpgsave_picture_152739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152739.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:963F3140A510C644753BB86C934A22541EB10B17
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152740.jpgsave_picture_152740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152740.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ PC Cleaner Pro 9.5.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152741.jpgsave_picture_152741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152741.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Quick PDF Scanner + OCR Pro v7.6.1243 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152742.jpgsave_picture_152742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152742.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:5B41277C70AB69B72A8316130F192F777591320D
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152743.jpgsave_picture_152743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152743.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Duke Nukem 3D (1996) [En] (1.5) License GOG [Atomic Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152746.jpgsave_picture_152746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152746.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Duolingo Plus: изучение иностранных языков 5.38.2 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152747.jpgsave_picture_152747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152747.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:DC480232DF313DB848E6D344B7023BF052C3D28E
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152748.jpgsave_picture_152748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152748.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:DC480232DF313DB848E6D344B7023BF052C3D28E
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152749.jpgsave_picture_152749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152749.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VMware Workstation 14 Pro 14.1.0 Build 7370693 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152750.jpgsave_picture_152750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152750.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:3626BD76FD8ADAE9BC6B71CA64140C5F755D70FA
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152752.jpgsave_picture_152752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152752.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Invisor - Media File Inspector 3.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152753.jpgsave_picture_152753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152753.jpg" />
 </div>
 
 

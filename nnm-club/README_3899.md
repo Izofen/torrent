@@ -6,7 +6,7 @@ AutoKrypt 13 for Mac 13.08 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121839.jpgsave_picture_121839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121839.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Abysmal Grief - Narcissistic Necrophiles (2023) Live [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121840.jpgsave_picture_121840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121840.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ inShot (ex. instaShot) / Фото и видеоредактор v2.010.1433 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121841.jpgsave_picture_121841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121841.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ One Chat Pro - All In One Messenger 4.9.95 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121842.jpgsave_picture_121842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121842.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DCFFF3D511CEA0D91E2FC6EF0013E970601BB361
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121843.jpgsave_picture_121843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121843.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Magic Disk Cleaner 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121844.jpgsave_picture_121844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121844.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ WiFi Signal Strength: Wifiry 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121845.jpgsave_picture_121845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121845.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:84D3AD3677BAD9980937944A61CDE34D7715CF2A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121846.jpgsave_picture_121846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121846.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2D8D9678B7579F757AE797E0DA1AD11DA99352B8
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121847.jpgsave_picture_121847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121847.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:333CC71FC11C35534FD8B83049D3A12E3E96E964
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121848.jpgsave_picture_121848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121848.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Bernard Allison - Luther's Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121849.jpgsave_picture_121849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121849.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ FoneDog Toolkit for Android on Mac 2.1.12 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121850.jpgsave_picture_121850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121850.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:5B99C3F7B149B7BF6502A7F2102707101A2C4CA7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121851.jpgsave_picture_121851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121851.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Armin van Buuren - A State Of Trance 1156 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121852.jpgsave_picture_121852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121852.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:394BB43DE120F77DD2C2135EBBABE019A77200D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121853.jpgsave_picture_121853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121853.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Eddie James - 'Ard (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121854.jpgsave_picture_121854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121854.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Wondershare Recoverit for Mac 12.5.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121855.jpgsave_picture_121855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121855.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Bobby "Blue" Bland - Blues At Midnight (2003) Limited Edition [FLAC|Lossless|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121856.jpgsave_picture_121856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121856.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Master of Typing 3 - Practice 15.14.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121857.jpgsave_picture_121857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121857.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ PhotosRevive for Mac 2.1.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121858.jpgsave_picture_121858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121858.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:8FB89C538F363D472A76C01134F7F72B4C3663B0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121859.jpgsave_picture_121859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121859.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ella Fitzgerald - Three Classic Albums Plus (1960, 1961) 2CD, 2014, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121860.jpgsave_picture_121860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121860.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:2990ADB9E5933282840C429E2507C6F347C2C294
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121861.jpgsave_picture_121861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121861.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ In Flames - Hell Is Overcrowded And Heaven's Full Of Sinners (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121862.jpgsave_picture_121862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121862.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Deep & Melodic House 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121863.jpgsave_picture_121863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121863.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:C82916F963D0EF4127B55BB2A330457EBD88675D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121864.jpgsave_picture_121864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121864.jpg" />
 </div>
 
 

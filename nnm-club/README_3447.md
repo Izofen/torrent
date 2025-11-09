@@ -6,7 +6,7 @@ Icecream Screen Recorder PRO 7.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109983.jpgsave_picture_109983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109983.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3F8396BB87682EA279D6113C8C43F7D12B5BC88E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109984.jpgsave_picture_109984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109984.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AE9A2D9E09A3879CA8FA39AA380892122651D376
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109985.jpgsave_picture_109985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109985.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6E024F2ED86366A9F656E3D1FB80AD3901649269
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109986.jpgsave_picture_109986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109986.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ n-Track Studio Suite 10.1.0.8667 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109987.jpgsave_picture_109987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109987.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:296F52231D61A307C1BC53F06DDD1D50266DF6EC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109988.jpgsave_picture_109988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109988.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:BCA47974EF6D546B966BC70C8BB8DF99041B13A0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109989.jpgsave_picture_109989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109989.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:EAC7FBAFE49576439F8EC0DA27FA0233B52F3682
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109990.jpgsave_picture_109990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109990.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dug Masters - Teleport (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109991.jpgsave_picture_109991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109991.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Image Uploader 1.4.0 Build 5141 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109992.jpgsave_picture_109992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109992.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Vivaldi 6.7.3329.26 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109993.jpgsave_picture_109993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109993.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:C0AF754E0A06AE51A1F8AE231B963EEBF801AE23
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109994.jpgsave_picture_109994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109994.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:8C8E0F4863105445ED31762AED07E1FFECECF167
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109995.jpgsave_picture_109995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109995.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hana Vu - Romanticism (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109996.jpgsave_picture_109996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109996.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Velveteen Queen - Consequence of the city (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109997.jpgsave_picture_109997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109997.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kee Avil - Spine (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Rock pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109998.jpgsave_picture_109998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109998.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:44A2925FE32DAEF7550CF4628570C0F5B909A2A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109999.jpgsave_picture_109999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109999.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:61CE6E70EF4485EFB5A2F7C87EDE3EA4FADD47CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110000.jpgsave_picture_110000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110000.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Little Bobby - Dealing from the Bottom of the Deck (2024) [FLAC|Lossless|WEB-DL|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110001.jpgsave_picture_110001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110001.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Skype 8.119.0.201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110002.jpgsave_picture_110002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110002.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Slimjet 43.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110003.jpgsave_picture_110003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110003.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:557596326C8333270DCF7827E3275A45EFB5145E
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110004.jpgsave_picture_110004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110004.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sensual Lounge Music Universe, Romantic Jazz Music Club - Sex Before Noon: Morni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110005.jpgsave_picture_110005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110005.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:053957B97EEFF65ED6B797F72D600C8CD26A7416
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110006.jpgsave_picture_110006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110006.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Icecream Video Editor Pro 3.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110007.jpgsave_picture_110007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110007.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:A33B8939D98A1930CAD57B353E55737BE84C218C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110008.jpgsave_picture_110008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110008.jpg" />
 </div>
 
 

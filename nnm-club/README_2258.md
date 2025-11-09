@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59075.jpgsave_picture_59075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59075.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:52F2C2C8036552BF72A589F66D3CD556BCD7B7A1
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59076.jpgsave_picture_59076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59076.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pattern-Seeking Animals - 4 Albums (2019-2023) [FLAC|Lossless|tracks + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59077.jpgsave_picture_59077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59077.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:500ACCA6E1ABA9C1C12A9F1E5031104C8738FD1D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59078.jpgsave_picture_59078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59078.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D8061216C0AE55ACFE2A0FC93AF068039ECDD736
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59079.jpgsave_picture_59079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59079.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B7E67A268B3FD33E9CE6D2AD5A85447A0647CBB6
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59080.jpgsave_picture_59080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59080.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5C9F36C23F9238206EBF95A310B8BC852F984D87
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59081.jpgsave_picture_59081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59081.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Ashampoo Music Studio 10.0.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59082.jpgsave_picture_59082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59082.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:9A361E36DC506EF2B66B682D96044417E4AD8877
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59083.jpgsave_picture_59083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59083.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D228E05BD000E60F6D2ABA80B08C8272C66E2C6C
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59084.jpgsave_picture_59084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59084.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ My Dying Bride - Studio Albums (21 releases) (1991-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59085.jpgsave_picture_59085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59085.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:847D0567323FD06FB4B96585F1D0A986E59A12B8
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59086.jpgsave_picture_59086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59086.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Soft Organizer Pro 9.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59087.jpgsave_picture_59087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59087.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Ashampoo Photo Optimizer 10.0.2.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59088.jpgsave_picture_59088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59088.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:3BF40D7F59CB0B82616A42BE9C67F5518D0E229B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59089.jpgsave_picture_59089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59089.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MassTube Ultra 17.2.0.519 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59090.jpgsave_picture_59090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59090.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:8988A9E8536DB9411C54F4DF799519E2B0B97C69
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59091.jpgsave_picture_59091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59091.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Office Tool Plus 10.10.7.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59092.jpgsave_picture_59092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59092.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:378887AF84CE864B75E76DD220CC0EB66347233B
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59093.jpgsave_picture_59093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59093.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ History Channel. Нацисты на наркотиках: Гитлер и бл�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59094.jpgsave_picture_59094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59094.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:06396A0132AD51B06E130378598576E664F28649
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59095.jpgsave_picture_59095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59095.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:29AE4F920A81FC679AF1C888830B3C6FDF4A1469
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59096.jpgsave_picture_59096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59096.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:29AE4F920A81FC679AF1C888830B3C6FDF4A1469
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59097.jpgsave_picture_59097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59097.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Goons: Legends & Mayhem (2024) [Multi] (1.0.0.7) Repack FitGirl [Digital Deluxe]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59098.jpgsave_picture_59098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59098.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ GPU-Z 2.59.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59099.jpgsave_picture_59099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59099.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.04.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59100.jpgsave_picture_59100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59100.jpg" />
 </div>
 
 

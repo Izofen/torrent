@@ -6,7 +6,7 @@ GasILove - Морфей (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110841.jpgsave_picture_110841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110841.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Opera GX 109.0.5097.62 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110842.jpgsave_picture_110842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110842.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:4A5DA9D204821D928A4782883D655641BB887D74
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110843.jpgsave_picture_110843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110843.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Justice - Hyperdrama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Syn
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110844.jpgsave_picture_110844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110844.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:B109C60F12C0BFDC288C007DD34E06DEBD9836F3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110845.jpgsave_picture_110845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110845.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Emel - Mra (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110846.jpgsave_picture_110846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110846.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Ramses - 3 Albums (1976-1981) 2LP+1CD [MP3|320 Kbps] <Krautrock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110847.jpgsave_picture_110847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110847.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Lords Of Black - Studio Albums (6 releases) (2014-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110848.jpgsave_picture_110848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110848.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Skype 8.118.0.205 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110849.jpgsave_picture_110849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110849.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:61C47E2376C35C63C5AD0D725FCC5B6C3886BA3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110850.jpgsave_picture_110850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110850.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:61C47E2376C35C63C5AD0D725FCC5B6C3886BA3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110851.jpgsave_picture_110851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110851.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Wondershare PDFelement 10.3.12.2738 + OCR Plugin (x64) Portable by 7997 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110852.jpgsave_picture_110852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110852.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Transatlantic - Live at Morsefest 2022: The Absolute Whirlwind (2024) Live at Mo
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110853.jpgsave_picture_110853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110853.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Ozzy Osbourne - No More Tears (1991) Reissue, 2001, CD-Maximum [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110854.jpgsave_picture_110854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110854.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Wise Care 365 Pro 6.7.1.643 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110855.jpgsave_picture_110855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110855.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA - Classical Piano Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110856.jpgsave_picture_110856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110856.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Wise Care 365 Pro 6.7.1.643 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110857.jpgsave_picture_110857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110857.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ DirPrintOK 6.96 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110858.jpgsave_picture_110858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110858.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:F94BC31F764F1E499261B0DAAE795BB782DADAF6
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110859.jpgsave_picture_110859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110859.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Lee Aaron - Tattoo Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110860.jpgsave_picture_110860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110860.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:0865D62F777468D060A995B3AFB210B1C15EC63F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110861.jpgsave_picture_110861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110861.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1B40EE49DDBC1CECB4F900490166C43B5DA819DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110862.jpgsave_picture_110862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110862.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Ringo Starr - Crooked Boy (2024) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110863.jpgsave_picture_110863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110863.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:943E9AEF8DFB7E5631EDB8BD512808AF8AF8D9C4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110864.jpgsave_picture_110864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110864.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:DF8EB53007B5D6B12FC1B978997E1DC8924DF9CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110865.jpgsave_picture_110865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110865.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Astropilot - LIMITLESS (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Downtempo>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110866.jpgsave_picture_110866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110866.jpg" />
 </div>
 
 

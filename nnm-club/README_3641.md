@@ -6,7 +6,7 @@ Tixati 3.21 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115041.jpgsave_picture_115041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115041.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ashampoo WinOptimizer 26.0.0.24 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115042.jpgsave_picture_115042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115042.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2AD5ECF758BF484C183BE84A3D13F3EB46BD0D7D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115043.jpgsave_picture_115043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115043.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:218FABC26737E760DFCBD172C7030C239093F616
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115044.jpgsave_picture_115044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115044.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115045.jpgsave_picture_115045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115045.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4404D1CBDD939B99BF1B62B263FF719C1C8F9CC0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115046.jpgsave_picture_115046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115046.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ EF Commander 24.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115047.jpgsave_picture_115047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115047.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F62B912ADAF2D6A8BE68F23FB3C388F21FAE5219
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115048.jpgsave_picture_115048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115048.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115049.jpgsave_picture_115049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115049.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Suldusk - Anthesis (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Dark, Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115050.jpgsave_picture_115050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115050.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D0785053C5CB26AA4149D81B9ECED39F0C20E959
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115051.jpgsave_picture_115051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115051.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ XnConvert 1.100.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115052.jpgsave_picture_115052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115052.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Adobe Bridge 2024 14.0.2.191 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115053.jpgsave_picture_115053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115053.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115054.jpgsave_picture_115054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115054.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:617398F17888B421C1480507AC37E1C59C1C3B40
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115055.jpgsave_picture_115055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115055.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:617398F17888B421C1480507AC37E1C59C1C3B40
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115056.jpgsave_picture_115056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115056.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115057.jpgsave_picture_115057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115057.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Serif Affinity Photo 2.4.0.2301 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115058.jpgsave_picture_115058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115058.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ LibreOffice 24.2.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115059.jpgsave_picture_115059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115059.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:8F06645B29C225392E79CFEDF67B2EAAAE7109DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115060.jpgsave_picture_115060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115060.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Tails 6.0 [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115061.jpgsave_picture_115061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115061.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:4A55DBAC3E1443FC24496A42C1C3DD2895890AF9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115062.jpgsave_picture_115062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115062.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115063.jpgsave_picture_115063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115063.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Visual Studio Code 1.87.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115064.jpgsave_picture_115064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115064.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:F6D566C3E0A994C126F7CD0449391C30C6C86F1D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115065.jpgsave_picture_115065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115065.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:33CFFE3890F9B1123FB5D8C893DE047E909C71F9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115066.jpgsave_picture_115066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115066.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150213.jpgsave_picture_150213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150213.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Reeder 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150214.jpgsave_picture_150214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150214.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:7C1709D2E6F98921F7F7608D50E8927C4ADD41E0
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150215.jpgsave_picture_150215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150215.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ magnet:?xt=urn:btih:20D643057ED1D020553B1F5310E2BCC8D34316AE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150217.jpgsave_picture_150217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150217.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:3F49BA6FBAE70B666F7CF86C711AC38E18C6E1C4
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150218.jpgsave_picture_150218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150218.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150219.jpgsave_picture_150219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150219.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:DA2C0F170F0FB6B35107419A05816F76F41070F7
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150220.jpgsave_picture_150220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150220.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:25F400DD4D470B3C6D8F3D8F91B3D9C0950AB0D1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150221.jpgsave_picture_150221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150221.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:1B9CE27C91E26741936891B494AE59645D35567F
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150222.jpgsave_picture_150222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150222.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:EA273F88792988F6E1375AAA3A6EC78D52D24AA1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150223.jpgsave_picture_150223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150223.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C820A481333AD8CA3701D853BDA2D9BEC0D607CD
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150224.jpgsave_picture_150224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150224.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:9EA7A4614ED10EF3D3B59CE82902C27DBC8F8FB7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150225.jpgsave_picture_150225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150225.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:00C4ADB47FABE1FF62A614100624A474F6B25D2E
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150226.jpgsave_picture_150226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150226.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:00C4ADB47FABE1FF62A614100624A474F6B25D2E
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150228.jpgsave_picture_150228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150228.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150229.jpgsave_picture_150229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150229.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dire Straits - Brothers In Arms (1984) SACD Hybrid, Remastered, 20th Anniversary
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150230.jpgsave_picture_150230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150230.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Discord 0.0.309 b73806 Stable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150231.jpgsave_picture_150231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150231.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:40A59CF50082FFA4688C8255E91A1D6048B6D837
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150232.jpgsave_picture_150232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150232.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:27FFFFF2CA32E110420A370A410A7E14D25A2B3A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150233.jpgsave_picture_150233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150233.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:27FFFFF2CA32E110420A370A410A7E14D25A2B3A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150234.jpgsave_picture_150234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150234.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Bartlomiej Plotka | Efficient Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150235.jpgsave_picture_150235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150235.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ MSAct Plus 1.1.0 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150236.jpgsave_picture_150236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150236.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:A19928C09B137DD3F98BDDBFC2F0FFA810D30138
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150238.jpgsave_picture_150238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150238.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:5783D3B06C10A8772B58C715BF4B26F5FED35E91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150239.jpgsave_picture_150239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150239.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Pat Travers and Carmine Appice - The Balls Album (2016) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150240.jpgsave_picture_150240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150240.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:1A632A6B6C98F81DE9F6E33F827297CF6A4B95CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150242.jpgsave_picture_150242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150242.jpg" />
 </div>
 
 

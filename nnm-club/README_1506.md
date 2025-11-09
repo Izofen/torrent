@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39511.jpgsave_picture_39511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39511.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C397F6A6B0BCC77D3116A935F32FAF45BB85276
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39512.jpgsave_picture_39512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39512.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7FBB65A2609DD3EDAF639BA6A986A0713C57C210
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39513.jpgsave_picture_39513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39513.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Northend Tower Defense (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39514.jpgsave_picture_39514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39514.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ David Gilmour - Fifth Night Of Residency (2024) [FLAC 24/44.1|Lossless|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39515.jpgsave_picture_39515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39515.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VideoProc Converter AI 7.5 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39516.jpgsave_picture_39516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39516.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Reg Organizer 9.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39517.jpgsave_picture_39517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39517.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:02FC2D6AF8878B4DFD83C2F2ADD71C154CDBA6FF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39518.jpgsave_picture_39518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39518.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Reg Organizer 9.50 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39519.jpgsave_picture_39519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39519.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Opera One 114.0.5282.115 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39520.jpgsave_picture_39520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39520.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39521.jpgsave_picture_39521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39521.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ XLN Audio - Addictive Drums 2 Complete 2.5.0.11 STANDALONE, VSTi, VSTi 3, AAX (x
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39522.jpgsave_picture_39522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39522.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Google Chrome 130.0.6723.70 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39523.jpgsave_picture_39523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39523.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:74858B2B26D062A66B849EC0BA3C636B5982D8AE
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39524.jpgsave_picture_39524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39524.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Sarah Vaughan - How Long Has This Been Going On? (1978) 2003, Pablo Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39525.jpgsave_picture_39525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39525.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ FolderSizes 9.6.494 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39526.jpgsave_picture_39526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39526.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:CAC9BDD88A8EFCBE64F0429342175AFBA6EB8553
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39527.jpgsave_picture_39527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39527.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:A03255C8080F249087C5C5FDA7C9EEDD45CE01C6
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39528.jpgsave_picture_39528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39528.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:A03255C8080F249087C5C5FDA7C9EEDD45CE01C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39529.jpgsave_picture_39529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39529.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:8B0C369062958E48BB6B195703033C27D8C7D270
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39530.jpgsave_picture_39530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39530.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:AC894192BEC679C70404F81AD08F0117FF62DDEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39531.jpgsave_picture_39531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39531.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:468DF30EC8B7212AFAD47A6891EA3063C30C244C
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39532.jpgsave_picture_39532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39532.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:0849697D3FA7CFA2847D33609765E0BD4467E101
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39533.jpgsave_picture_39533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39533.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:3E10F8DF28F2BADC6294B723EF47EDE8CF228803
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39534.jpgsave_picture_39534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39534.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Reg Organizer 9.50 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39535.jpgsave_picture_39535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39535.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:3AD7ECF228896884312DCA54910CF0B90BC7B76D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39536.jpgsave_picture_39536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39536.jpg" />
 </div>
 
 

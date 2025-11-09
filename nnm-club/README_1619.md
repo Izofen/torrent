@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42451.jpgsave_picture_42451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42451.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:EA312CBB9A96213D41BB7E1E03DFC2ADA6469CB1
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42452.jpgsave_picture_42452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42452.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9B2F3A41ECBAEDB3ED33685ABC816C5BA250F6CB
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42453.jpgsave_picture_42453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42453.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:7708D1F7CE80093198F94B89DF53C4E5FAE91F89
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42454.jpgsave_picture_42454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42454.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ HiBit Uninstaller 3.2.40 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42455.jpgsave_picture_42455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42455.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:E94B6D45DA28397B647D8FB1CCDEFB9A86250F85
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42456.jpgsave_picture_42456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42456.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:419DD6BAD2FCF203B845AE6819FC26BCE88C3748
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42457.jpgsave_picture_42457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42457.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:CACC941D18C892FCAAA692F11E6AE1A9D3A5500A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42458.jpgsave_picture_42458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42458.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:CACC941D18C892FCAAA692F11E6AE1A9D3A5500A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42459.jpgsave_picture_42459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42459.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Ara: History Untold (2024) [Ru/Multi] (1.0) Scene FairLight
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42460.jpgsave_picture_42460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42460.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B72222769C67FD78E7EC2593ECB8671A156EF848
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42461.jpgsave_picture_42461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42461.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:9CCCC151C52088CA694E0E89DA1C0B1754BDDB2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42462.jpgsave_picture_42462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42462.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42463.jpgsave_picture_42463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42463.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:027F5F96AA2B782DE47924DAB20096ABBA13CFA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42464.jpgsave_picture_42464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42464.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ City Bus Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42465.jpgsave_picture_42465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42465.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:81702FE672B70D435CF09B35897E08803891F8B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42466.jpgsave_picture_42466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42466.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Far Cry: BMS Russian Weapons Pak (2023) [Ru] (1.1) Mod Bert-Masters-Studio
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42467.jpgsave_picture_42467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42467.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:A0C6C12ACA88C74CA357718F690F3D3713516E0A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42468.jpgsave_picture_42468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42468.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:F27AA95A715A1456A492A220C422C288663C5E07
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42469.jpgsave_picture_42469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42469.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:BF7815B1A1F0B02F89047BA3703B0450DBE6A993
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42470.jpgsave_picture_42470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42470.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:DD3898EFA95A44585BB3A58CC17434FA8837B1E3
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42471.jpgsave_picture_42471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42471.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:9EEF404DAC000AD76E3228201312F4528F9F38DA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42472.jpgsave_picture_42472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42472.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:CC2CC44EE6566E7F637426A2A0C4183AF8D7569F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42473.jpgsave_picture_42473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42473.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E597FB51EF1313FAFC6AEC8B7F3E569202E2B26C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42474.jpgsave_picture_42474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42474.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:40DC204B17E1F3046878F8E8448ABD3C5EE80BA7
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42475.jpgsave_picture_42475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42475.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.349/dlc) 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42476.jpgsave_picture_42476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42476.jpg" />
 </div>
 
 

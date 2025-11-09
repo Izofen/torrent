@@ -6,7 +6,7 @@ Stone Temple Pilots - Shangri-La Dee Da (2001) [APE|Lossless]<Grunge Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248470.jpgsave_picture_248470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248470.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Stone Temple Pilots - Shangri-La Dee Da (2001) [APE|Lossless]<Grunge Hard Rock>
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248471.jpgsave_picture_248471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248471.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ magnet:?xt=urn:btih:E70CFF710B7F0C775BA67F8ADE7CE411E28FF661
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248472.jpgsave_picture_248472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248472.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248473.jpgsave_picture_248473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248473.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248475.jpgsave_picture_248475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248475.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:FA895CE44F39C5F74B05BB5854C4603E8F7BEBEA
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248476.jpgsave_picture_248476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248476.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ ForkLift 2.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248484.jpgsave_picture_248484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248484.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248486.jpgsave_picture_248486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248486.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Laurent Garnier - Unreasonable Behaviour & The Cloud Making Machine (2000,2004) 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248489.jpgsave_picture_248489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248489.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:FCB10DB3344572B294B86BD7EF0F6A3C0B27FBAC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248490.jpgsave_picture_248490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248490.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Black Sabbath – Undead And Alive (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248491.jpgsave_picture_248491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248491.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Black Sabbath – Undead And Alive (2004) DVD5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248496.jpgsave_picture_248496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248496.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:7B0F9BAA3DE010D0F7BFA2B2EA455BBE418ADD33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248499.jpgsave_picture_248499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248499.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Pixarra TwistedBrush Open Studio 17.24 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248500.jpgsave_picture_248500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248500.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ TwistedBrush Open Studio - бесплатный графический реда�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248502.jpgsave_picture_248502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248502.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ JW - Lonely Soul In the Heart of the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248503.jpgsave_picture_248503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248503.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:EE6E932AEBA944AF9F89B00CA04729C1CC581689
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248504.jpgsave_picture_248504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248504.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Gurf Morlix - Bristlecone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248505.jpgsave_picture_248505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248505.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Duke Tumatoe - Have You Seen My Keys? (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248506.jpgsave_picture_248506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248506.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Davydunz - Moonlight Rhythm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248507.jpgsave_picture_248507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248507.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Catch 23 - Bullet Full Of Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248508.jpgsave_picture_248508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248508.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Carmen Grillo - Walkin' the Tightrope (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248509.jpgsave_picture_248509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248509.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:8397991828BAD6FDE1F25B2C2F24ABE3ABB116C3
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248510.jpgsave_picture_248510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248510.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Bobby Sweets - Blood On The Strings (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248511.jpgsave_picture_248511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248511.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Bob Corritore - Early Blues Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248512.jpgsave_picture_248512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248512.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Blue Deal - Make a Change (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248513.jpgsave_picture_248513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248513.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Zentimo xStorage Manager 1.6.2.1217 + RePack by elchupacabra + RePack by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129113.jpgsave_picture_129113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129113.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pat Martino - Comin' And Goin': Exit & The Return (1976, 1987) 2CD, 1999, 32 Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129114.jpgsave_picture_129114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129114.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Dive In Minds - Innocent Victims (2001) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129116.jpgsave_picture_129116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129116.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mirror for Fire TV  2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129118.jpgsave_picture_129118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129118.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Battery Indicator for Mac 2.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129120.jpgsave_picture_129120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129120.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ uDock 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129122.jpgsave_picture_129122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129122.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Ferrymen - One More River To Cross (2022) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129124.jpgsave_picture_129124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129124.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ EdgeView 3 v3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129126.jpgsave_picture_129126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129126.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:DEEDEC5F2A4FF915F7ED002A61F21DE35BCAD394
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129127.jpgsave_picture_129127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129127.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Buddah's Chill 1 (2010) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129128.jpgsave_picture_129128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129128.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Buddah's Chill 8 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129130.jpgsave_picture_129130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129130.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:01B4DDC0E3320646E3272E5A85DF783D67CA1164
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129131.jpgsave_picture_129131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129131.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Buddah's Chill 4 (2015) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129133.jpgsave_picture_129133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129133.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Bartender 4 v4.1.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129134.jpgsave_picture_129134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129134.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:998151126B2D50CECD3535C1A60E8468C16F202A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129135.jpgsave_picture_129135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129135.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ DirEqual 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129136.jpgsave_picture_129136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129136.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - 15 Top Trance Hits 04 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129137.jpgsave_picture_129137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129137.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Zentimo xStorage Manager 1.6.2.1216 RePack by KpoJIuK [Русский, Укра�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129138.jpgsave_picture_129138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129138.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Buddah's Chill 6 (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129139.jpgsave_picture_129139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129139.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Buddah's Chill 3 (2013) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129141.jpgsave_picture_129141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129141.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hideous Divinity - Obeisance Rising (2012) [MP3|320 кб/с]<Brutal Technical De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129143.jpgsave_picture_129143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129143.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Zentimo xStorage Manager 1.6.2.1216 [Мульти, есть русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129144.jpgsave_picture_129144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129144.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Count Basie and His Small Groups - The Fives (1936—1942) (1996) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129145.jpgsave_picture_129145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129145.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Winter Break: Electro House Session (2022) [MP3|320 Kbps] <House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129146.jpgsave_picture_129146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129146.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Galeon - 2 альбома (2009-2011) [MP3|224 - 320 kbps]<Instrumental Melodic 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129147.jpgsave_picture_129147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129147.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Tokyo Blade - Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129148.jpgsave_picture_129148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129148.jpg" />
 </div>
 
 

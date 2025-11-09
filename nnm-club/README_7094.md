@@ -6,7 +6,7 @@ BusyContacts 1.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243334.jpgsave_picture_243334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243334.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sandboxie 5.64.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243335.jpgsave_picture_243335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243335.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:2E00BE0509334D8DB71129BAEEF3CDB5E54404E1
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243336.jpgsave_picture_243336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243336.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Schwartz 1.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243337.jpgsave_picture_243337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243337.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Warrant - Dog Eat Dog (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243338.jpgsave_picture_243338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243338.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:AA9A07ACCCE96E02AAD33D4A990B9BC081E80B6F
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243339.jpgsave_picture_243339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243339.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:4471C7D8ED70AEB1CCB915129CF554B077165B7B
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243340.jpgsave_picture_243340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243340.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:7BE4A9F9ACC5CDF3D8688A98926881C2E9AD128F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243341.jpgsave_picture_243341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243341.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:6D870FB5E2E6991D578E93F79B51181A29CB97E9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243342.jpgsave_picture_243342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243342.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Warrant - Dirty Rotten Filthy Stinking Rich (1989) Japanese Edition [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243343.jpgsave_picture_243343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243343.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243344.jpgsave_picture_243344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243344.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Gnarwhal - Gnarwhal (2023) [MP3|320 Kbps] <Hard Rock, Fuzz, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243346.jpgsave_picture_243346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243346.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ StartAllBack 3.3.5 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243347.jpgsave_picture_243347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243347.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:733CFD490B0C29ACB8C491F343B901DA57602255
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243348.jpgsave_picture_243348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243348.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ FreeFileSync 12.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243349.jpgsave_picture_243349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243349.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Aurora Store 4.1.1 Mod by Kirlif' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243350.jpgsave_picture_243350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243350.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Microsoft Edge 111.0.1661.62 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243351.jpgsave_picture_243351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243351.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:7E6178422EAAD811C132128816000570A5AB0EE0
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243352.jpgsave_picture_243352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243352.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Delorian - It Is Time (2021) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243353.jpgsave_picture_243353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243353.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:6F0A37663A5C1E1DBD197EBD0432CDF78DEBC5B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243355.jpgsave_picture_243355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243355.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:D59794EE10D61C7B13C678FD29DCF6B1587B92A1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243356.jpgsave_picture_243356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243356.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:BD4737463EC1B85C334734A67842554F9109198A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243357.jpgsave_picture_243357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243357.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nintendo | Артбук по игре Fire Emblem Awakening / The Art of Fire Em
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243358.jpgsave_picture_243358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243358.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:E209997EA6C49ADFB0650987ABE231B5EA3DF667
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243359.jpgsave_picture_243359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243359.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Quarantine Doom Jazz vol. 4 (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243360.jpgsave_picture_243360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243360.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Artweaver Plus 7.0.15.15562 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243361.jpgsave_picture_243361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243361.jpg" />
 </div>
 
 

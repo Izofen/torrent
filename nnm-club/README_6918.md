@@ -6,7 +6,7 @@ VA - Blues BBQ - No Better Cure for Sadness Than Blues And Barbecue (2023) [FLAC
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237665.jpgsave_picture_237665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237665.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DB4704B9F11E6D5BAE4D919E49EBAE1AA88E916B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237666.jpgsave_picture_237666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237666.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Steve Keenan - In My Hands (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237667.jpgsave_picture_237667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237667.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - The Lounge Chill Out Chapter, Vol. 2 (2021) [AAC|~329 Kbps] <Chill Out, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237668.jpgsave_picture_237668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237668.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Fifth Angel - When Angels Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237669.jpgsave_picture_237669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237669.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:80AA801F372E9B1CC4617036A65A7E4A54F9C72F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237670.jpgsave_picture_237670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237670.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:E6C9A7CDC3DCFD4D38467FB916380B394A9A834D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237671.jpgsave_picture_237671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237671.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:D518C81B36E2DDE4B5903E40CA5BF154B2923332
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237672.jpgsave_picture_237672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237672.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:49EC82C8B1DB3069617AE21FB9785C254865C223
 >>Рыбалка и Охота
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237673.jpgsave_picture_237673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237673.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Robert Heft - The Days That Used to Be (2021) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237674.jpgsave_picture_237674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237674.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ False Memories - Hybrid Ego System (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237675.jpgsave_picture_237675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237675.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237676.jpgsave_picture_237676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237676.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Saturnus - The Storm Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237677.jpgsave_picture_237677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237677.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ TextBar 3 v3.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237678.jpgsave_picture_237678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237678.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Lattermath - Winter's Painting (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237679.jpgsave_picture_237679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237679.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Marmoset Toolbag 4.04 (4042) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237680.jpgsave_picture_237680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237680.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:AB00E05541B040661242F11A1FA213A45D518AE6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237681.jpgsave_picture_237681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237681.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D71F8FEDF61BFFD347CE363FAED951273F3DEB6B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237682.jpgsave_picture_237682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237682.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:89B472783B02807B84D1138CE44EFC864C978A75
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237684.jpgsave_picture_237684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237684.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - The World Series of Lounge, Vol. 2 (2021) [AAC|~319 Kbps] <Balearic, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237685.jpgsave_picture_237685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237685.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Shamael - Il Suono Di Mille Orchestre, Parte I (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237686.jpgsave_picture_237686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237686.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Slow Fall - Obsidian Waves (2023) [MP3|320 Kbps] <Progressive Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237687.jpgsave_picture_237687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237687.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Gestimer 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237688.jpgsave_picture_237688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237688.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Skillshare, Neil Bettison | Blender 3 - The Beginners Ultimate Stylized Scene Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237689.jpgsave_picture_237689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237689.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237690.jpgsave_picture_237690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237690.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Eric Dolphy - 12 Classic Albums (1959 - 1962) 6CD, 2014, Enlightenment [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237691.jpgsave_picture_237691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237691.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ KORG - Modwave Native 1.2.7 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110789.jpgsave_picture_110789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110789.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ FileZilla Server 1.8.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110790.jpgsave_picture_110790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110790.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:24CE9A5716215165B7CEEA5154C279D0AA301F2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110791.jpgsave_picture_110791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110791.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ PortableApps.com Platform 29.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110792.jpgsave_picture_110792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110792.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:4A3B80923FF78D63E2D6F443AA05124D03208C48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110793.jpgsave_picture_110793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110793.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:4A3B80923FF78D63E2D6F443AA05124D03208C48
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110794.jpgsave_picture_110794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110794.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:1BFB70DD83271E9229D9CB22246C2FA4157CDE6B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110795.jpgsave_picture_110795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110795.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ TechSmith Snagit 2024.1.1 build 1964 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110796.jpgsave_picture_110796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110796.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Tina Turner - What's Love Got to Do with It (1984) 30th Anniversary Deluxe Editi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110797.jpgsave_picture_110797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110797.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:1065B54D042724828E036CEA02A737184CDCF5C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110798.jpgsave_picture_110798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110798.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ EssentialPIM Pro 11.8.4 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110799.jpgsave_picture_110799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110799.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Andromeda Dreams - Hyperion (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110800.jpgsave_picture_110800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110800.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:F1F7371184B1ABE4ABAD0DD5D7DDC49983C420C0
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110801.jpgsave_picture_110801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110801.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:505049AA77DE5936F975ECAB443B4AE1110E779F
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110802.jpgsave_picture_110802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110802.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Zoner Photo Studio X 19.2403.2.539 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110803.jpgsave_picture_110803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110803.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Hypaton x David Guetta Feat. La Bouche - Be My Lover (2023 Mix) (2023) [FLAC|Los
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110804.jpgsave_picture_110804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110804.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Google Chrome 124.0.6367.92 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110805.jpgsave_picture_110805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110805.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A01887B62E6E8DAE2FB244BF7C44EAA3AE0710A7
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110806.jpgsave_picture_110806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110806.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:57BB034B4C5880990BA7BD841F09930E8A927239
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110807.jpgsave_picture_110807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110807.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Def Leppard - Pyromania (1983) Super Deluxe, 2024, UMC [MP3|320 Kbps] <Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110808.jpgsave_picture_110808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110808.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:F66DDC641CA334E85AE52FC521F6B7A5088A5939
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110809.jpgsave_picture_110809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110809.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ HyperSnap 9.5.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110810.jpgsave_picture_110810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110810.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:F182CD2C14B09FFD00C57E6FCD741F2012D95C96
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110811.jpgsave_picture_110811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110811.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Alt SwitchER 21.16 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110812.jpgsave_picture_110812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110812.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:DE6FECBE52276C5B300DC2D2B002BA8D87C6C5DF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110813.jpgsave_picture_110813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110813.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Total Uninstall Pro 7.6.1.677 x64 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110814.jpgsave_picture_110814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110814.jpg" />
 </div>
 
 

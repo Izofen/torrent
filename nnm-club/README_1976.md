@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51735.jpgsave_picture_51735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51737.jpgsave_picture_51737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51737.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Souls of Mischief - 93 'Til Infinity (1993) [FLAC|Lossless]<Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51739.jpgsave_picture_51739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51739.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ IObit Uninstaller Pro 13.6.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51740.jpgsave_picture_51740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51740.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51741.jpgsave_picture_51741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51741.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:835838D0405A752A4AA7A2E2F990D0C80A25E9F6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51742.jpgsave_picture_51742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51742.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Piriform Recuva 1.54.0120 All Editions RePack (& Portable) by Dodakaedr [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51743.jpgsave_picture_51743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51743.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1C352CADA5CC294FB621396F34AB47E8672C7A05
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51744.jpgsave_picture_51744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51744.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Diatomic (2024) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51745.jpgsave_picture_51745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51745.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:C279FCED825B824986EF53B962EDEF9BD6F66562
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51746.jpgsave_picture_51746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51746.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Patrice - 6 Альбомов (2000-2010) [FLAC|Lossless]<Reggae, Hip-Hop, Electr
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51747.jpgsave_picture_51747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51747.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:385D0472176CF8B316806B40FD730E46E5F6EC9A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51748.jpgsave_picture_51748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51748.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ uTorrent Pro 3.6.0 Build 47124 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51749.jpgsave_picture_51749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51749.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A2F7FEC7158D10A7F0276850979F014290F07F00
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51750.jpgsave_picture_51750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51750.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Waves Complete V15 2024.06.24 VST 3, AAX, STANDALONE (x64) [En] (Online Installa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51751.jpgsave_picture_51751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51751.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Control Machete - 5 Albums (1996-2006) [FLAC|Lossless]<Hip-Hop / Mexican Rap / L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51752.jpgsave_picture_51752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51752.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Beyond Good & Evil Modern Edition / За гранью добра и зла (2003
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51753.jpgsave_picture_51753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51753.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Cent Browser 5.1.1130.129 Stable + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51754.jpgsave_picture_51754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51754.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Das EFX - 5 Albums + 3 Singles (1992-2003) [FLAC|Lossless]<Hip-Hop / Rap / Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51756.jpgsave_picture_51756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51756.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:4F9384EF9546A9A05D5A75CEAF93EF806777B73D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51757.jpgsave_picture_51757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51757.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Gentleman - 6 Альбомов (1999-2010) [FLAC|Lossless]<Reggae, Roots Reggae,
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51758.jpgsave_picture_51758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51758.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:DE0153D892C87A26EF0A2CCA610B50EF8A5B5860
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51760.jpgsave_picture_51760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51760.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:C72E65B1E9EBF40907D82B2024910208C9D94899
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51761.jpgsave_picture_51761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51761.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:995C4D630AD24A04EBCDC4205BBBB6068BF2E739
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51762.jpgsave_picture_51762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51762.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:E24E016467D83649B75EDAE0AB52D3920590B6A0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51763.jpgsave_picture_51763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51763.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:F5F6B257B4C66163CED1C7A25175A7EA7E36C297
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51764.jpgsave_picture_51764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51764.jpg" />
 </div>
 
 

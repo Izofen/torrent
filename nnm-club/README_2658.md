@@ -6,7 +6,7 @@ Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69858.jpgsave_picture_69858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69858.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:03E53170D50F806E70F34D1F02431AB4943F9A98
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69859.jpgsave_picture_69859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69859.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:DD76F62E84CD45764BEFFFECE3EDF034EA61D161
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69860.jpgsave_picture_69860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69860.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:6A67AD8A3F0C37AB5795CBF996F795AE98715D5D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69861.jpgsave_picture_69861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69861.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:53F483B704A7EF3B9A9C35A0D25343E870146089
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69862.jpgsave_picture_69862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69862.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69863.jpgsave_picture_69863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69863.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Downhome Kin - Gravel & Grit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69864.jpgsave_picture_69864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69864.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:E419CB7D9947D6B6F4640571BDD223C4A450246C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69865.jpgsave_picture_69865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69865.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ John Haydock - Heard It on the Radio (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69866.jpgsave_picture_69866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69866.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:CDC5A493F90AD3DCC8F78F1D9C1B9C157D3ACF31
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69867.jpgsave_picture_69867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69867.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:8C072CD793AAFD97BB838C59D9691EB5EBE3BD69
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69868.jpgsave_picture_69868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69868.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:E5E60EB3981D8ADFDF149C2D858325179A59D017
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69869.jpgsave_picture_69869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69869.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ John Haydock - Play It as It Lays (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69870.jpgsave_picture_69870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69870.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Flickering Alley - Bluebird's Whisper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69871.jpgsave_picture_69871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69871.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Bluestackface - Yet To Prove (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69872.jpgsave_picture_69872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69872.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:85C9B7FF898641917C6982F2082CA42582D62E52
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69873.jpgsave_picture_69873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69873.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Doctor Ray Blues Band - Singles 2022 - 2023 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69874.jpgsave_picture_69874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69874.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Felix Manuel - The Road Away (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69875.jpgsave_picture_69875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69875.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Fabio Rea - Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69876.jpgsave_picture_69876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69876.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:A0A2742E28D6EC0BB3BE130D859F01220A3834E4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69877.jpgsave_picture_69877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69877.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Lancaster Ferreira - Freddie King Tribute (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69878.jpgsave_picture_69878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69878.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jimmy Vivino - Gonna Be 2 Of Those Days (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69879.jpgsave_picture_69879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69879.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:BA6D1DB47E9E72C9E12FE9330A28D53AFC60CF6F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69880.jpgsave_picture_69880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69880.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:ADB491ED057613C555F5D1F92B16FDEF0E0DBC14
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69881.jpgsave_picture_69881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69881.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:8722DBF6A3D04D79DCBBE5B73D910B136495F95E
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69882.jpgsave_picture_69882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69882.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69883.jpgsave_picture_69883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69883.jpg" />
 </div>
 
 

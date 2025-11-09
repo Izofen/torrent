@@ -6,7 +6,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42529.jpgsave_picture_42529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42529.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:29B549B00FFF6FE31B15DFD06B32DED895FF015D
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42530.jpgsave_picture_42530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42530.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Photo Studio PRO v2.7.10.3356 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42531.jpgsave_picture_42531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42531.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:815A4A8225865D516CEABAAEB717066AD3B65591
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42532.jpgsave_picture_42532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42532.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B5C97522F3A5800A07802AA2BBF31E14E7EFF9CD
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42533.jpgsave_picture_42533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42533.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:3FC0522C02437807AC500D98AF778C87C9BE156A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42534.jpgsave_picture_42534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42534.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Blender 3.6.16 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42535.jpgsave_picture_42535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42535.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Arabic Ethnic Deep House Mix 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Fol
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42536.jpgsave_picture_42536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42536.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:05101C358C57D4442556132A1636FADB6F4CEEB0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42537.jpgsave_picture_42537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42537.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - Powermix Vol. 001+002 (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42538.jpgsave_picture_42538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42538.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Trance In Motion Vol.380 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42539.jpgsave_picture_42539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42539.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Icecream Video Converter Pro 1.45 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42540.jpgsave_picture_42540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42540.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Three Alpha One Nine (2024) [En] (1.2.5.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42541.jpgsave_picture_42541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42541.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Format Factory 5.18.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42542.jpgsave_picture_42542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42542.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Abnormal1999: The Compass and the Sand / Аномалия1999: Компас и �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42543.jpgsave_picture_42543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42543.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:C465A2E7ED2C74A69CACF01C908D946851BC2E85
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42544.jpgsave_picture_42544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42544.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Icecream Video Editor Pro 3.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42545.jpgsave_picture_42545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42545.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:B117E43D79320098CF958EF8E941328FE1D97841
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42546.jpgsave_picture_42546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42546.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:6EE3E200734F263608957C98E68B6CC8511CC62F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42547.jpgsave_picture_42547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42547.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ The Emptiness (2015) [En] (1.0) Scene PROPHET [Deluxe Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42548.jpgsave_picture_42548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42548.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:A97783DADF64062C99C8707B36C19041AE7CEAF7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42549.jpgsave_picture_42549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42549.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ OCCT 13.1.8 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42550.jpgsave_picture_42550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42550.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42551.jpgsave_picture_42551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42551.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42552.jpgsave_picture_42552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42552.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Galactic Synthwave (2024) [MP3|320 Kbps] <Synthetic, Space, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42553.jpgsave_picture_42553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42553.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - My Live In Blue (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42554.jpgsave_picture_42554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42554.jpg" />
 </div>
 
 

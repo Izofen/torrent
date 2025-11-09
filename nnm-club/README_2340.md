@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61207.jpgsave_picture_61207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61207.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:21DA9B46676BBF32030B2E8D529FE2016C73E419
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61208.jpgsave_picture_61208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61208.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:818A30EC628ED21D5DB3933251765F6C95AB7DB5
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61209.jpgsave_picture_61209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61209.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61210.jpgsave_picture_61210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61210.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v16 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61211.jpgsave_picture_61211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61211.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:127C868FDE03B1D76FE2595EB6ACB354504F6534
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61212.jpgsave_picture_61212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61212.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:BDF36B0C20AE60EC0AE4D457F761ABEBA6E2EF98
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61213.jpgsave_picture_61213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61213.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Outcast - A New Beginning (2024) [Ru/Multi] (1.0.3.1.293481) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61214.jpgsave_picture_61214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61214.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61215.jpgsave_picture_61215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61215.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:1F50030261DA0417029072AEBF9EDDD76A2F69ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61216.jpgsave_picture_61216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61216.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:EB46B72025053C085FEFBF5E822C49CACF148E93
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61217.jpgsave_picture_61217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61217.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61218.jpgsave_picture_61218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61218.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:3DE910330D67C883EDF9A3C846E815C8989317A6
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61219.jpgsave_picture_61219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61219.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:1C39D6CD1EF1E23C97D65D8C1A81E85423A0B7A4
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61220.jpgsave_picture_61220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61220.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Immortal Mayor (2023) [Multi] (1.0.14/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61221.jpgsave_picture_61221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61221.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:BD9B095035965D6D259102710E68D275F8CE3227
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61222.jpgsave_picture_61222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61222.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ SiteSucker Pro 5.3.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61223.jpgsave_picture_61223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61223.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:BD6BFB9B89A2D9C5133E70AA00967529D8EA7FE6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61224.jpgsave_picture_61224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61224.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E110D2A506B4DF39ABB6E0FC586DF48F1E23A198
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61225.jpgsave_picture_61225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61225.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:4CB6B89BA7AA673963999236DB6C95A4709DB4FE
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61226.jpgsave_picture_61226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61226.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:26AFA563644704F087F6B377AC0B009C8AF61193
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61227.jpgsave_picture_61227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61227.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61228.jpgsave_picture_61228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61228.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 эп.] WEBRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61229.jpgsave_picture_61229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61229.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:E221977C5B4EE6879F30D9D98C0C6165CD5E0BD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61230.jpgsave_picture_61230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61230.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Synology DSM 7.2 [x32_x64] 4xDVD PC ESXi IMG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61231.jpgsave_picture_61231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61231.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:B9A998CAB54EC913F901FBB0D09466CEB6A06A05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61232.jpgsave_picture_61232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61232.jpg" />
 </div>
 
 

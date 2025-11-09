@@ -6,7 +6,7 @@ All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67140.jpgsave_picture_67140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67140.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ghost Brigade - Studio Albums (4 releases) (2007-2014) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67172.jpgsave_picture_67172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67172.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Defaced - Studio Albums (4 releases) (2001-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67194.jpgsave_picture_67194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67194.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Soulfly - Dark Ages (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67195.jpgsave_picture_67195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67195.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ladislav Staidl Orchestra - Music Therapy (1979) Compilation, Repress 1981 [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67199.jpgsave_picture_67199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67199.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - He, Kleine Linda (1977) Compilation, Russian Labels [FLAC 2.0|96/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67205.jpgsave_picture_67205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67205.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Wednesday 13 - Mid Death Crisis (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67208.jpgsave_picture_67208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67208.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67232.jpgsave_picture_67232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67232.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67233.jpgsave_picture_67233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67233.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67239.jpgsave_picture_67239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67239.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumeria
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67242.jpgsave_picture_67242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67242.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67249.jpgsave_picture_67249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67249.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67257.jpgsave_picture_67257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67257.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Redemption - The Hard Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67258.jpgsave_picture_67258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67258.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Blue Cheer - Junk - Blue Cheer - Junk (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67270.jpgsave_picture_67270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67270.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dream Theater - Parasomnia (2025) [WavPack|24/96|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67272.jpgsave_picture_67272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67272.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Double Vision - Demons Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67277.jpgsave_picture_67277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67277.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Soulfallen - Studio Albums (3 releases) (2007-2012) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67288.jpgsave_picture_67288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67288.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Gene Pitney - 24 Hours From Tulsa. Greatest Hits Series Vol.1 (1974) [FLAC 2.0|1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67317.jpgsave_picture_67317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67317.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67325.jpgsave_picture_67325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67325.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Billy Idol - Dream Into It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67343.jpgsave_picture_67343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67343.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Shinyribs - Leaving Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country, Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67365.jpgsave_picture_67365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67365.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Sean Chambers - LIVE FROM DARYL'S HOUSE CLUB (Live) (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67369.jpgsave_picture_67369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67369.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Will Wilde - Blues Is Still Alive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67373.jpgsave_picture_67373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67373.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ William Wallace Band - Worn Thin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67374.jpgsave_picture_67374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67374.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Sister Suzie - Honestly? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67376.jpgsave_picture_67376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67376.jpg" />
 </div>
 
 

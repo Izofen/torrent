@@ -6,7 +6,7 @@ Xliff Editor 2.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234071.jpgsave_picture_234071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234071.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Exmortus - Ride Forth (2016) [FLAC|Lossless|image + .cue] <Death Metal, Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234072.jpgsave_picture_234072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234072.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Музыка для машины Vol.17 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234073.jpgsave_picture_234073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234073.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:12E35D660455837A6DA6310BB297A707EE6E9AA6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234074.jpgsave_picture_234074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234074.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Metasphaera - Metasphaera (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234075.jpgsave_picture_234075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234075.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Website Watchman 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234076.jpgsave_picture_234076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234076.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:C7205C365E2C7FD9A5E5C17EF40D4977F13D0D21
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234077.jpgsave_picture_234077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234077.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ EZ CD Audio Converter 11.0.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234078.jpgsave_picture_234078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234078.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:E1EC52CDFC64E0DB1E1308759C49E77F8339B7B0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234079.jpgsave_picture_234079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234079.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Greenbeard - 7 Albums (2014-2022) [MP3|320 Kbps, V0] <Stoner Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234080.jpgsave_picture_234080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234080.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Lounge & Cookies, Vol. 2 (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234081.jpgsave_picture_234081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234081.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ The Soap Opera - Back On Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234082.jpgsave_picture_234082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234082.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Microsoft Windows 10.0.19044.2006, Version 21H2 (Updated September 2022)  - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234083.jpgsave_picture_234083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234083.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Capture One 23 Pro 16.2.0.112 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234084.jpgsave_picture_234084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234084.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:7D8D8DE263866F4C80435692511059D84224B965
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234085.jpgsave_picture_234085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234085.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:992B36C8A83D2BE870508477E144E53C6EE39ABD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234086.jpgsave_picture_234086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234086.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Somali Yacht Club - The Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234087.jpgsave_picture_234087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234087.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Terra Black - All Descend (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner, Da
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234088.jpgsave_picture_234088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234088.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ The Chapter - Delusion of Consciousness (2022) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234089.jpgsave_picture_234089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234089.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Electronic Clouds, Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234090.jpgsave_picture_234090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234090.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ CCleaner 6.04.10044  Free / Professional / Business / Technician Edition RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234091.jpgsave_picture_234091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234091.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Artefactoschool, Игорь Хайков | Времена года (2022) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234092.jpgsave_picture_234092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234092.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Hempress - Masters Of The Trade (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234093.jpgsave_picture_234093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234093.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ UctoX 2.9.8 U2B [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234094.jpgsave_picture_234094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234094.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:A5413BB28ED43C68E23119EA7021D0990991728F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234095.jpgsave_picture_234095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234095.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Memoriam - Rise To Power (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234096.jpgsave_picture_234096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234096.jpg" />
 </div>
 
 

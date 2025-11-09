@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82751.jpgsave_picture_82751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82751.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - Русская Дискотека 80-90х (2012) [MP3|320 кб/с]<Pop, Dan
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82752.jpgsave_picture_82752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82752.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ CD 1Жанр: Pop, DanceПродолжительность: 04:17:38
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82753.jpgsave_picture_82753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82753.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Windows 7 Ultimate SP1 х64 by Loginvovchyk с программами (Март 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82755.jpgsave_picture_82755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82755.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82758.jpgsave_picture_82758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82758.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82760.jpgsave_picture_82760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82760.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82761.jpgsave_picture_82761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82761.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:9D91FE7546FFCEE91FFEBBFE58A2176C37475823
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82763.jpgsave_picture_82763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82763.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Enclave + Addition mod [Ru] (RePack/1.0.0.1/1.1) 2003 | x-7
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82764.jpgsave_picture_82764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82764.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:1F3B44A3988E60E36D6FA35F3697EC85BDDE4C3A
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82766.jpgsave_picture_82766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82766.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:C88F6E60F18FF84B40151CA36AA2D001EF1C6A6D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82767.jpgsave_picture_82767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82767.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:46E1FE41412049EB9647347286628E73849EAC6D
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82768.jpgsave_picture_82768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82768.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:C4DC8E3F782DD481610094D7847C2DD6ED5D5B4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82771.jpgsave_picture_82771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82771.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:C4DC8E3F782DD481610094D7847C2DD6ED5D5B4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82773.jpgsave_picture_82773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82773.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:C4DC8E3F782DD481610094D7847C2DD6ED5D5B4B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82775.jpgsave_picture_82775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82775.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:DB4D39D20AAEABAAA16D9E70AF67CBD9FB18DA09
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82777.jpgsave_picture_82777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82777.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:205B3D8AF963D6A4B763C42B758035E32A61D560
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82778.jpgsave_picture_82778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82778.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:B1222CED7840BFF250CDF78D82DCA474CDC26215
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82779.jpgsave_picture_82779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82779.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:D64F30391071B0199AF7BD7FC1E5D6FF82DBDDBB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82780.jpgsave_picture_82780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82780.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:D64F30391071B0199AF7BD7FC1E5D6FF82DBDDBB
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82782.jpgsave_picture_82782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82782.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Resident Evil 4 HD: The Darkness World (RePack) [Ru] 2007 (2011) | Mr. Vansik
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82783.jpgsave_picture_82783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82783.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:E7084AD2C13FF8D1D6F08E5E0A360E52CB0C60FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82787.jpgsave_picture_82787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82787.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:DAA16707606F9F77DE9058F5E0E8B96C4A0ACB48
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82793.jpgsave_picture_82793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82793.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Libera - Peace (2010) [FLAC|Lossless]<Chorus, Classical, New Age>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82794.jpgsave_picture_82794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82794.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:9B59479029C003379E0D882C0904072B5F11D0B6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82795.jpgsave_picture_82795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82795.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82796.jpgsave_picture_82796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82796.jpg" />
 </div>
 
 

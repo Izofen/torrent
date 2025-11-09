@@ -6,7 +6,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176188.jpgsave_picture_176188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176188.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bad As - Fight the Demons (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176189.jpgsave_picture_176189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176189.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Korella - Начало (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melod
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176190.jpgsave_picture_176190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176190.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176191.jpgsave_picture_176191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176191.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Udemy, Fabrizio Guerrieri | Базовый курс по электричест�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176192.jpgsave_picture_176192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176192.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Devman, Игорь Перепилицын | Чат-боты на Python (2020) [
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176193.jpgsave_picture_176193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176193.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Mercy Shot - Brace for Impact! (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176194.jpgsave_picture_176194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176194.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:F4E230909D0483D43E0FECA1C363F5EBAD2437B8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176196.jpgsave_picture_176196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176196.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:95D4E282653B3281867FA329F3D3A0066494024F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176197.jpgsave_picture_176197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176197.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Nitrate - Real World (2018) Reissue, 2021, MR Records Production [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176198.jpgsave_picture_176198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176198.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:B911B4216B7660A74DCEB983AEAE85CCF203A968
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176200.jpgsave_picture_176200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176200.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:81612C16E4A7A8025A9D685077856FF8DE4D6EA6
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176201.jpgsave_picture_176201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176201.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Sam & Max Save the World (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.2] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176202.jpgsave_picture_176202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176202.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:84CFA0521365AA2DD0345C0601656D73C457E391
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176204.jpgsave_picture_176204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176204.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:FB50523FB4417F2B84B1DA55B22C19CD3B709F69
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176205.jpgsave_picture_176205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176205.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Behemoth - Opvs Contra Natvram (2022) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176206.jpgsave_picture_176206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176206.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Forza Motorsport (2023) [Ru/Multi] (1.488.4138.0/dlc) Repack DjDI [Premium Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176208.jpgsave_picture_176208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176208.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:752E1CAE1B4ACC0E645C6CEFEFB1140B958BC91B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176209.jpgsave_picture_176209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176209.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:F129883C5663FA7D5776C182F706F7E2A955C202
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176212.jpgsave_picture_176212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176212.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:872FEA5B2751CCBF7B1EE416C59EB9A85C64465F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176213.jpgsave_picture_176213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176213.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Pink Floyd Solo Projects: Roger Waters, David Gilmour, Richard Wright, Nick Maso
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176215.jpgsave_picture_176215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176215.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:8749A3356DA3EB8E5A3722C919D9D53FD521CE62
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176216.jpgsave_picture_176216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176216.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Wall World (2023) [Ru/Multi] (1.2.4.513/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176218.jpgsave_picture_176218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176218.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:198D14922F4961A9F30708EB24D56E4A491B8C4E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176219.jpgsave_picture_176219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176219.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:16951D4696F91F5A6974A597A22CD57E6BF8FC00
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176221.jpgsave_picture_176221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176221.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:2F4A72CEE2CD4B26FAEA3E008CEB9F292DECE1B6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176222.jpgsave_picture_176222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176222.jpg" />
 </div>
 
 

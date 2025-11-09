@@ -6,7 +6,7 @@ Onmyo-Za - Fuujin Kaikou (2014) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206404.jpgsave_picture_206404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206404.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F025CC9A438C2F1547A82D6450C32C7468717A0D
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206407.jpgsave_picture_206407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206407.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Everyone Piano 2.5.7.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206408.jpgsave_picture_206408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206408.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:582E7445D6FA216276B363B5EAB9F4B81F964C8B
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206411.jpgsave_picture_206411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206411.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:652CB0CC07E55FBC3ECBB9540B4B4E0E3D0FE9EA
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206413.jpgsave_picture_206413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206413.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Windows Update Viewer 0.5.17.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206417.jpgsave_picture_206417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206417.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Eric Clapton - Rarities 2001-2010 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206420.jpgsave_picture_206420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206420.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:9B893F1EBB065ED5BD9D3CBC1437D79C18DE6529
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206422.jpgsave_picture_206422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206422.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Opera One 101.0.4843.43 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206424.jpgsave_picture_206424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206424.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Elvis Presley - Aloha from Hawaii via Satellite (1973) 3CD, Deluxe Edition, 2023
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206425.jpgsave_picture_206425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206425.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:036235C8946FEDA387F3E946C6E12AEDD8A6B774
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206426.jpgsave_picture_206426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206426.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:4B18E1E607FD0FE0813C50AADE7B8A1812134649
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206430.jpgsave_picture_206430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206430.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:5AF7450C6531F1A6316FC79259B6A68F354E24C6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206432.jpgsave_picture_206432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206432.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:1B3F0538E3A3F7FA7A9BDC349F6324D5BAF45C42
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206433.jpgsave_picture_206433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206433.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206436.jpgsave_picture_206436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206436.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:D7E1907ECA8BECF2A4DD48FE00944C203AE7A21E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206439.jpgsave_picture_206439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206439.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ V.A. - Cafe del Mar XXIX (Volumen Veintinueve) (2023) 2CD [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206440.jpgsave_picture_206440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206440.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Hottest Pop Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206441.jpgsave_picture_206441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206441.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ FontLab 8.2.0.8620 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206443.jpgsave_picture_206443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206443.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Rainlendar Lite 2.20.0 Build 175 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206445.jpgsave_picture_206445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206445.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Kyno 1.8.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206446.jpgsave_picture_206446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206446.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ FBackup 9.8.815 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206449.jpgsave_picture_206449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206449.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VA - Summer tracks on repeat... (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206452.jpgsave_picture_206452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206452.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:75903BD721F1F7123A020885926BDB9541968617
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206453.jpgsave_picture_206453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206453.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:A0B6A36FFDA3620E58788172DD8A8027AEAC4BFB
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206454.jpgsave_picture_206454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206454.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:3A560449E948F5C4273D70E4C35D9E45412DB89A
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206457.jpgsave_picture_206457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206457.jpg" />
 </div>
 
 

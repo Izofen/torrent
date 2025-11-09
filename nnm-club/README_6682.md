@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229269.jpgsave_picture_229269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229269.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Caroline Bernier - 2 Albums (1978, 1981) LP [MP3|320 Kbps] <Electronic, Funk/Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229270.jpgsave_picture_229270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229270.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:96BDB6CF0AE6B9FADC284138B805AD3936C1DD02
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229271.jpgsave_picture_229271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229271.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B21E0F0CCC651AC988CD4156CACD04CB915A75ED
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229272.jpgsave_picture_229272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229272.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:45D43982CBA23ED8060E3F81CD478B244D46C74F
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229273.jpgsave_picture_229273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229273.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Scudo 1.0 beta 10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229274.jpgsave_picture_229274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229274.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ XYZ School, Кирилл Золовкин | Продюсирование игр 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229275.jpgsave_picture_229275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229275.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Nova 11.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229276.jpgsave_picture_229276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229276.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Khymera - Master Of Illusions (2020) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229277.jpgsave_picture_229277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229277.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - Hardcore Top 100 (2018) [MP3|320 Kbps] <Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229279.jpgsave_picture_229279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229279.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C1E98D358049384F6334524C265C772E81718AC0
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229280.jpgsave_picture_229280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229280.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:93BB347F46C74A05D192C05FB767665D180772B6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229281.jpgsave_picture_229281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229281.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Green Labyrinth - Sequences (2023) [MP3|320 Kbps] <Symphonic Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229282.jpgsave_picture_229282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229282.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Firefox Browser ESR 78.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229283.jpgsave_picture_229283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229283.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:BA2CE250A9CB69800E7908DAB72D34F542223850
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229284.jpgsave_picture_229284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229284.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:27D4C3559684C826A7DF002BC0D854BC5A01FB36
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229286.jpgsave_picture_229286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229286.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:79211977229AD75522EE343875037176405819FC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229287.jpgsave_picture_229287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229287.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:4027E9DF4BFE45960D354396BEA07433723BEC7B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229288.jpgsave_picture_229288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229288.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Chris Boltendahl's Steelhammer - Reborn In Flames (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229289.jpgsave_picture_229289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229289.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:C4F73DCC4B0B3DC81C417DFC272E649A40EC9050
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229290.jpgsave_picture_229290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229290.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:47EC07940FE86F41AFC7AECDBD315E9333ECAA0D
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229291.jpgsave_picture_229291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229291.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ SuperPower 3 (2022) [Ru/Multi] (1.0b) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229292.jpgsave_picture_229292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229292.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:35D929193C06CA0BD0EE4367B315B19DA364BAD0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229293.jpgsave_picture_229293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229293.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:32BB6E3C896459001D197774116E2507320EFA6C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229294.jpgsave_picture_229294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229294.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Now That's What I Call Music! 101 (2018) Box Set, 2CD, UK Series [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229295.jpgsave_picture_229295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229295.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Night Legion - Fight or Fall (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229297.jpgsave_picture_229297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229297.jpg" />
 </div>
 
 

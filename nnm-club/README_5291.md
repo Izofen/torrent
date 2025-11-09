@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164374.jpgsave_picture_164374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164374.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Epica - Omega Alive (2021) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164375.jpgsave_picture_164375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164375.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sync Folders Pro 4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164376.jpgsave_picture_164376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164376.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ MacBooster 8 Pro 8.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164377.jpgsave_picture_164377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164377.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:E12B32B897691BBBDA43E97B1504DD4B34AD5B76
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164378.jpgsave_picture_164378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164378.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:1304A6A762E40E21D6B3F11795EA85B8FF241E29
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164379.jpgsave_picture_164379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164379.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ DragonForce - Re-Powered Within (2018) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164380.jpgsave_picture_164380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164380.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Battery Health 3 v1.0.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164381.jpgsave_picture_164381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164381.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:5AA2D11E73A7C8E73E48AD5AD040FC3ACC71C7A6
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164382.jpgsave_picture_164382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164382.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Caro Emerald - Metropole Orkest & Caro Emerald (2017) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164383.jpgsave_picture_164383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164383.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:861B08B85D6FDF9B8627FB5CCFED698E5F848A15
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164384.jpgsave_picture_164384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164384.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Tone2 - Saurus 3.0.0 STANDALONE, VSTi (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164385.jpgsave_picture_164385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164385.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Volbeat - Live In Deutschland (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164386.jpgsave_picture_164386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164386.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:8ABB1E1BF905A3A17A2838CC9F53B03F6E1DB294
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164387.jpgsave_picture_164387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164387.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Spacechillers Vol. 3 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164388.jpgsave_picture_164388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164388.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:D7A5580C275DB87114CA22087E287F2795CFB25E
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164389.jpgsave_picture_164389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164389.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Mad Pilot - Нет любви (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164390.jpgsave_picture_164390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164390.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Angel - A Woman's Diary - Chapter II (2020) [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164391.jpgsave_picture_164391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164391.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:8194422AE5F56CBE85E198A52BD887B957724B11
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164392.jpgsave_picture_164392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164392.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:5702B57EC5E82BDC8C642D5E7069D99A0BE13985
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164393.jpgsave_picture_164393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164393.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Def Leppard - On Through The Night (1980) Remastered, 2018, [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164394.jpgsave_picture_164394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164394.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Native Instruments Maschine 2 v2.14.6 STANDALONE, VSTi, AUi [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164395.jpgsave_picture_164395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164395.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Big Sur Cache Cleaner 16.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164396.jpgsave_picture_164396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164396.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ ArchCommander 2.3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164397.jpgsave_picture_164397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164397.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VueScan Pro 9.7.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164398.jpgsave_picture_164398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164398.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 1987, Columb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164399.jpgsave_picture_164399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164399.jpg" />
 </div>
 
 

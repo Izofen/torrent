@@ -6,7 +6,7 @@
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107019.jpgsave_picture_107019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107019.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tommy Vext - Antarctica (2024) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107020.jpgsave_picture_107020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107020.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Sound of Trance, Pt. 1 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107021.jpgsave_picture_107021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107021.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:AEFF74E1993B378F60E444BF5CB7335C679EB565
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107022.jpgsave_picture_107022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107022.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:ED02FCCA1ABE06E2E31D8C3B76AE020722DFB11D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107023.jpgsave_picture_107023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107023.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Compilation part 95 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107024.jpgsave_picture_107024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107024.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Steinberg - WaveLab 12 Pro 12.0.20 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107025.jpgsave_picture_107025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107025.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:415A62C61E5309B24FF35F5CA27DD58ED3E49A0C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107026.jpgsave_picture_107026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107026.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:F0C514562456FEB50E0701C49D8A6DB953E90C8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107027.jpgsave_picture_107027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107027.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:2A358E1781E54840BECF1C4E8D4B9522FC762DB6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107028.jpgsave_picture_107028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107028.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:2D11697B6B6EA424D2FEB5319162AFF6FB6060F4
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107029.jpgsave_picture_107029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107029.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:B74CE0C579E2BFE696ED2174F27E568D346EADC7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107030.jpgsave_picture_107030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107030.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:869256DCC617216DB0A11D3400E9145453EDEADC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107031.jpgsave_picture_107031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107031.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:6B2BC4EE3FFBCF63A5AD54DCE2B4446CC1A74077
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107032.jpgsave_picture_107032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107032.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ YT Downloader 9.9.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107033.jpgsave_picture_107033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107033.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:CFA73D01E0C092F030611251AFF28272A7BC971B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107034.jpgsave_picture_107034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107034.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ R-Studio Network / Technician 9.4 Build 191332 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107035.jpgsave_picture_107035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107035.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:69860AEE2AFAC341DA0F711D29C8545749109F79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107036.jpgsave_picture_107036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107036.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Charles Persip - And The Jazz Statesmen (1960) 1994, Bethlehem [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107037.jpgsave_picture_107037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107037.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:F26CAC98C01EDD5EA9B1A004FD2DA1E7FF6CA61A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107038.jpgsave_picture_107038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107038.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:F26CAC98C01EDD5EA9B1A004FD2DA1E7FF6CA61A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107039.jpgsave_picture_107039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107039.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:F26CAC98C01EDD5EA9B1A004FD2DA1E7FF6CA61A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107040.jpgsave_picture_107040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107040.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2992 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107041.jpgsave_picture_107041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107041.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ XYplorer 26.20.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107042.jpgsave_picture_107042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107042.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Armada Electronic Elements - Ibiza 2024 - Extended Versions (2024) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107043.jpgsave_picture_107043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107043.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Sarah Menescal - Bossa Lounge E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107044.jpgsave_picture_107044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107044.jpg" />
 </div>
 
 

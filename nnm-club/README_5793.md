@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180499.jpgsave_picture_180499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180499.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ali Thomson - The Last Rodeo (2022) Japanese Edition [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180500.jpgsave_picture_180500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180500.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:56306EC52E87FE9D302BB326691DAC02C428149A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180503.jpgsave_picture_180503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180503.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ In Sanity - For We Triumph (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180506.jpgsave_picture_180506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180506.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ ZED (2019) [En] (1.3) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180507.jpgsave_picture_180507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180507.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B2C56D0B623DD3C9EB69927ADD47762A8C7AA78B
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180511.jpgsave_picture_180511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180511.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Oceans - Is Where The Heart Is (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180512.jpgsave_picture_180512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180512.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:06EB5C43865069642C61FD52374FAC4516BD1F7C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180514.jpgsave_picture_180514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180514.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:0630FAC92B940FD97B0F19F9F9554487C8311469
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180516.jpgsave_picture_180516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180516.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ infostart, Александр Кунташов | Системы контроля
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180519.jpgsave_picture_180519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180519.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:4E101257A9378A25496FFB56ADA9BFDA95D05FAF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180522.jpgsave_picture_180522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180522.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ FoN - Мамонт (2022) [MP3|320 Kbps] <Rock, Blues>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180523.jpgsave_picture_180523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180523.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Grim Justice - Justice in the Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180526.jpgsave_picture_180526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180526.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Malemort - Ball Trap (2016) [FLAC|Lossless|tracks] <Heavy Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180529.jpgsave_picture_180529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180529.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:F348611BA24F96918BA6073FD88FFAA814C5B735
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180531.jpgsave_picture_180531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180531.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Freemake Video Converter 4.1.13.158 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180533.jpgsave_picture_180533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180533.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Monolithe - Kosmodrom (2022) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180535.jpgsave_picture_180535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180535.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:1EC4C524889A33B1CA7571A2FC84085BEE7072ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180537.jpgsave_picture_180537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180537.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ The Crossed - The Producer Of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180539.jpgsave_picture_180539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180539.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Malemort - Chateau-Chimeres (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180542.jpgsave_picture_180542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180542.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:6FDA2E53A8050371C7A61488E7296EF1752B066B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180543.jpgsave_picture_180543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180543.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Maledictive Pigs - Soul Surgery (2005) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180544.jpgsave_picture_180544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180544.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VSDC Video Editor Pro 8.2.3.477 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180547.jpgsave_picture_180547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180547.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VSDC Video Editor Pro 8.2.3.477 (x64) Portable by FC Portables [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180550.jpgsave_picture_180550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180550.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:50C0FE653EE03D8597740E21B118779582E75778
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180553.jpgsave_picture_180553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180553.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:F0DA7D27AED6B733243F242B61BF9BEB9D203890
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180556.jpgsave_picture_180556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180556.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244664.jpgsave_picture_244664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244664.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lars Gullin - Baritone Sax (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244665.jpgsave_picture_244665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244665.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Wall Factory v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244666.jpgsave_picture_244666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244666.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Degreed - Are You Ready (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244667.jpgsave_picture_244667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244667.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:92A652786A74DA830EFEA9C71C1F81C46250482B
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244668.jpgsave_picture_244668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244668.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:FE32F0230A86B88DDAAB67B4D29FF6321D9C73B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244669.jpgsave_picture_244669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244669.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Hank Jones - Urbanity (1947-1953) 1997, Verve[FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244670.jpgsave_picture_244670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244670.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ K-Lite Codec Pack Update 17.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244671.jpgsave_picture_244671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244671.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:1B574B2DB875ABF364A750C4088DD31C6923B787
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244672.jpgsave_picture_244672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244672.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Adrenalin - Dedicated (1995) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244673.jpgsave_picture_244673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244673.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Ken Hensley - My Book Of Answers (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Cla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244674.jpgsave_picture_244674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244674.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:6552C3DE8BFBCB1EEB2971ACCDD4EB5DA325FC3C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244675.jpgsave_picture_244675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244675.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244676.jpgsave_picture_244676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244676.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ In-Quest - Epileptic (2004) [FLAC|Lossless|image + .cue] <Progressive Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244677.jpgsave_picture_244677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244677.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Wondershare UniConverter 14.1.14.166 (х64) Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244678.jpgsave_picture_244678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244678.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:4161EAA1E624F15A8FE0915F77D810BA45585347
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244679.jpgsave_picture_244679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244679.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:7C552B9E8B451CDAB4FFDD1771973D4968361EBD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244680.jpgsave_picture_244680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244680.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Chillout Macchiato (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244681.jpgsave_picture_244681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244681.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:61A334F82060E0135F3E3FA26044D3240A1F079C
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244682.jpgsave_picture_244682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244682.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Fission 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244684.jpgsave_picture_244684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244684.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Wildways - Симптомы (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244685.jpgsave_picture_244685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244685.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Deconstruct - Ashen Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244686.jpgsave_picture_244686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244686.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:C9943251E6942DA1D2163BFDD718ED3E4DEA3C69
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244687.jpgsave_picture_244687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244687.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244688.jpgsave_picture_244688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244688.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Emsisoft Emergency Kit 2023.3.0.11851 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244689.jpgsave_picture_244689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244689.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:A52A4B8E73EB632E521525EDB0801F98E117E194
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244690.jpgsave_picture_244690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244690.jpg" />
 </div>
 
 

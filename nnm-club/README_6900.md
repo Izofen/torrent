@@ -6,7 +6,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237033.jpgsave_picture_237033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Smultron 12 v12.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237034.jpgsave_picture_237034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237034.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ HDRsoft Photomatix Pro 7.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237038.jpgsave_picture_237038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237038.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:15983003FE855D78AF2A78BFF19212FA2D2772A4
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237039.jpgsave_picture_237039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237039.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A0931B8783F72AE75819756D69DF89D7B2978FBF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237040.jpgsave_picture_237040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237040.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Cannabis Corpse - Choice Nugs (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237041.jpgsave_picture_237041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237041.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VueScan Pro 9.8.06 (19.06.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237042.jpgsave_picture_237042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237042.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:227336235E28DF5769BD219700DB467FCB9D5316
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237044.jpgsave_picture_237044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237044.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ ZaZa Remote v4.8.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237045.jpgsave_picture_237045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237045.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Beatport Deep House: Sound Pack #252 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237046.jpgsave_picture_237046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237046.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Winstep Xtreme 20.10 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237047.jpgsave_picture_237047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237047.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:B29C6F4BF17B926A137ACCD39481C21AAFE12EE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237048.jpgsave_picture_237048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237048.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:0F1CC147EEDBCC7193B315599B101518E513EEDA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237049.jpgsave_picture_237049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237049.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ White Lion - Fight to Survive (1985) Japan [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237050.jpgsave_picture_237050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237050.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:8067981FF1AE89185EEDB2A9E513B2EC75D38BE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237052.jpgsave_picture_237052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237052.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:8067981FF1AE89185EEDB2A9E513B2EC75D38BE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237054.jpgsave_picture_237054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237054.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ VA - Hit - List Vol 18 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237055.jpgsave_picture_237055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237055.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:55D0560538B38E45FDB937BF760BAF0878B5983A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237056.jpgsave_picture_237056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237056.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Native Instruments Traktor Pro Plus 3.9.0.90 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237057.jpgsave_picture_237057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237057.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:30C2ACDAF1C0927278ED8470D72A743DEBE52BCB
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237058.jpgsave_picture_237058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237058.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:308348C09A6C714772F617E4D4CDBD14B9498F57
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237061.jpgsave_picture_237061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237061.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Striking Tunes Vol 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237063.jpgsave_picture_237063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237063.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Magic City Detective 2: Secret Desire / Волшебный город 2: Тай�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237064.jpgsave_picture_237064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237064.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Amadeus Pro 2.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237065.jpgsave_picture_237065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237065.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:2988AE3D61B305B93174FD754FE8DA6C7EE2CE79
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237066.jpgsave_picture_237066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237066.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Eldest Souls (2021) [Ru/Multi] (1.1.23f2-master) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237068.jpgsave_picture_237068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237068.jpg" />
 </div>
 
 

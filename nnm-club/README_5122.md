@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159898.jpgsave_picture_159898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159898.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B1C4731C67F051DAACCBC54488DAF76697226CFE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159899.jpgsave_picture_159899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159899.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Monje - Culto al fin de los tiempos (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159900.jpgsave_picture_159900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159900.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:762ECF391D5D27C1D5B0C4AA59393C609C50ECF4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159901.jpgsave_picture_159901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159901.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:F724208C5E892D01630A2C89A20E4BB5C5A50340
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159902.jpgsave_picture_159902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159902.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:8DC34C91AEDEE535233E76C64D98E4E80B88B670
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159903.jpgsave_picture_159903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159903.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:4D9EB79651EFA03EB3703C6849BCF5D55A3AF998
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159904.jpgsave_picture_159904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159904.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ AudFree Tidable Music Converter 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159905.jpgsave_picture_159905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159905.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ TG Pro (Temperature Gauge Pro) 2.86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159906.jpgsave_picture_159906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159906.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Cisdem DVD Burner 6.10.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159907.jpgsave_picture_159907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159907.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Randy Crawford - Through The Eyes Of Love (1992) [FLAC|Lossless|image + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159908.jpgsave_picture_159908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159908.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Fork 2.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159909.jpgsave_picture_159909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159909.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 12.20
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159910.jpgsave_picture_159910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159910.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159911.jpgsave_picture_159911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159911.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:2C111E74F49A4E03ED6547EB0D0472F581873028
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159912.jpgsave_picture_159912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159912.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:80101FAB504F719921B8A8242F46EA67D2DFB5C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159913.jpgsave_picture_159913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159913.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:A52F0BE9B5F87EAC7DB4E166BA81514AACE62AA9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159914.jpgsave_picture_159914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159914.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159915.jpgsave_picture_159915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159915.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:15BE1085080FABF5603C5EEF995D4DFA16ED5F6D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159916.jpgsave_picture_159916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159916.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:D6E3D807DF2850012E0E1F20F414B3596A31D355
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159917.jpgsave_picture_159917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159917.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:EE8B43BE24C7D15296A7460B1028A15C933C4481
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159918.jpgsave_picture_159918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159918.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159919.jpgsave_picture_159919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159919.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Merion Academy, Олег Филиппов | Основы реляционных 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159920.jpgsave_picture_159920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159920.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:421DDC37151B089546B0EEDF08A91B44E6A9DE9E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159921.jpgsave_picture_159921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159921.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:2367C9169D273C02D8FDDEA4B50BD27FDE916858
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159922.jpgsave_picture_159922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159922.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:D15D724BDAE7169DAE1ABA6415636ABF889E49A9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159923.jpgsave_picture_159923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159923.jpg" />
 </div>
 
 

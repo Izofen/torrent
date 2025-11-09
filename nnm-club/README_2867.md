@@ -6,7 +6,7 @@ House of 1000 Doors: The Palm of Zoroaster. Collector's Edition / Дом 1000 д
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83779.jpgsave_picture_83779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83779.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9662050E2C9547685948FDD511E7180FC802F724
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83780.jpgsave_picture_83780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83780.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1848BD702C0A75D34E7E21F45EE15BC17DCC135A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83781.jpgsave_picture_83781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83781.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:58EB9DCA0C88DC3A9E85CB2265E9C1D8A2D86784
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83783.jpgsave_picture_83783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83783.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:58EB9DCA0C88DC3A9E85CB2265E9C1D8A2D86784
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83785.jpgsave_picture_83785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83785.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Transform Windows Mountain Lion[Web Installer] 2012 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83786.jpgsave_picture_83786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83786.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lord of the Rings Online: Isengard/ Властелин Колец Онлайн: 
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83788.jpgsave_picture_83788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83788.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:3977D97DDE047EF09F17D31B3B107675237727A1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83791.jpgsave_picture_83791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83791.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:3977D97DDE047EF09F17D31B3B107675237727A1
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83793.jpgsave_picture_83793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83793.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Deep Black Reloaded [Multi6/+] (RePack/1.5) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83794.jpgsave_picture_83794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83794.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ DriverPack Solution 12.3 Full R255 (2012) 12 255 x86+x64 (18.03.2012 ENG + RUS) 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83795.jpgsave_picture_83795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83795.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ DriverPack Solution это самая популярная программа д
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83797.jpgsave_picture_83797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83797.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Mortal Kombat Ultimate HD M.U.G.E.N (P) [En] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83801.jpgsave_picture_83801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83801.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:7A3D1C7F0FDAE4A026B14A44C562C0F3C82299AE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83802.jpgsave_picture_83802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83802.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Adobe Photoshop CS6 Beta [Английский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83804.jpgsave_picture_83804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83804.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ WPI by Viktor-VDV 03.2012 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83805.jpgsave_picture_83805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83805.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ WPI by Viktor-VDV 03.2012 [Русский]
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83806.jpgsave_picture_83806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83806.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83807.jpgsave_picture_83807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83807.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83808.jpgsave_picture_83808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83808.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83813.jpgsave_picture_83813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83813.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83819.jpgsave_picture_83819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83819.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83820.jpgsave_picture_83820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83820.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83821.jpgsave_picture_83821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83821.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83823.jpgsave_picture_83823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83823.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:FF1C74DF860711BCCACBE6B3F9C3A4CEBB41B527
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83824.jpgsave_picture_83824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83824.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Pythia - 2 альбома (2009 - 2012) [FLAC|Lossless]<Power Metal,Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83825.jpgsave_picture_83825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83825.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49693.jpgsave_picture_49693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49695.jpgsave_picture_49695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49695.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Founders' Fortune (2020) [Ru/Multi] (1.2.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49768.jpgsave_picture_49768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49768.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Astro Looter: Survivor (2024) [Ru/Multi] (16072024) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49794.jpgsave_picture_49794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49794.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Antichamber (2013) [Ru/En] (build 296940) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49830.jpgsave_picture_49830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49830.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Criminal Archives 4: Blade of Deceit / Криминальные архивы 4: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49833.jpgsave_picture_49833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49833.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49840.jpgsave_picture_49840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49840.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Anger Foot (2024) [Ru/Multi] (1.3) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49853.jpgsave_picture_49853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49853.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49863.jpgsave_picture_49863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49863.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49865.jpgsave_picture_49865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49865.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49888.jpgsave_picture_49888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49888.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ System Shock Remake (2023) [Ru/Multi] (1.2.18898) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49889.jpgsave_picture_49889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49889.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49903.jpgsave_picture_49903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49903.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49965.jpgsave_picture_49965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49965.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49974.jpgsave_picture_49974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49974.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dark Envoy (2023) [Ru/Multi] (1.5.2.73561) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49975.jpgsave_picture_49975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49975.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Last Alchemist (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49976.jpgsave_picture_49976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49976.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (3.617.1.0/dlc) Repack We
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49988.jpgsave_picture_49988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49988.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49990.jpgsave_picture_49990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49990.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Station to Station (2023) [Ru/Multi] (1.4.1) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50011.jpgsave_picture_50011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50011.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Anomaly Collapse (2024) [Ru/Multi] (1.0.14117.737) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50014.jpgsave_picture_50014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50014.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50027.jpgsave_picture_50027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50027.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50077.jpgsave_picture_50077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50077.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Barn Finders (2020) [Ru/Multi] (25982/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50079.jpgsave_picture_50079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50079.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.14718) Scene Razor 1911 [The Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50080.jpgsave_picture_50080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50080.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Grand Theft Auto III (3) (2021) [Ru/Multi] (1.17.37984884) Scene Razor 1911 [The
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50087.jpgsave_picture_50087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50087.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Firefox Browser ESR 115.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171364.jpgsave_picture_171364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171364.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB513AB56CFB7A5941A3EA894386A97C1A6B41C5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171365.jpgsave_picture_171365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171365.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:52C6C198A2B4DBBE3420D88A0B89CCE2D15B00CD
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171366.jpgsave_picture_171366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171366.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Neuron - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171367.jpgsave_picture_171367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171367.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ KeepStreams 1.1.9.6 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171368.jpgsave_picture_171368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171368.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ FotoWorks XL 2024 24.0.0 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171369.jpgsave_picture_171369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171369.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:DDB96476AC346A1616B04BE9CBE78230A25DA33C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171370.jpgsave_picture_171370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171370.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Sumatra PDF 3.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171371.jpgsave_picture_171371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171371.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Kendra M. L. Cooper, Antonio Bucchiarone | Software Engineering for Games in Ser
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171372.jpgsave_picture_171372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171372.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Floorp Browser 11.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171373.jpgsave_picture_171373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171373.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Google Chrome 118.0.5993.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171374.jpgsave_picture_171374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171374.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:B2C37D2142D60577DDD62E06B1F7FE28FDE58952
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171375.jpgsave_picture_171375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171375.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ TheAeroClock 8.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171376.jpgsave_picture_171376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171376.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:50262772429A2AFBB13E0DE4A4322E4EBB5C8B65
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171377.jpgsave_picture_171377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171377.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Wise Program Uninstaller 3.1.6.260 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171378.jpgsave_picture_171378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171378.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Hussein Arbabi - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171379.jpgsave_picture_171379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171379.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ YT Downloader 9.5.8 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171380.jpgsave_picture_171380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171380.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ SRWare Iron 117.0.5950.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171381.jpgsave_picture_171381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171381.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ FreeFileSync 13.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171382.jpgsave_picture_171382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171382.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:A5A56F064004233F402B0C59C93E0581DEA6D952
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171383.jpgsave_picture_171383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171383.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Aykan Emir - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171384.jpgsave_picture_171384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171384.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Bravo Hits 8 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171385.jpgsave_picture_171385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171385.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Harmonic Electro Jazz (2023) [MP3|320 Kbps] <Electro Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171386.jpgsave_picture_171386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171386.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ WinCatalog 2024.3.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171387.jpgsave_picture_171387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171387.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Waterfox Current G6.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171388.jpgsave_picture_171388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171388.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:19C5BD73434FE1B747BE72D34EFD531A0B6A09E4
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171389.jpgsave_picture_171389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171389.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162743.jpgsave_picture_162743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162743.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AB48F208F75779E3197DF1DF0265B18C44AA7B49
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162744.jpgsave_picture_162744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162744.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Песни 70-х (2 CD) (2005) [FLAC|Lossless]<Retro>
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162745.jpgsave_picture_162745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162745.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:908E4E2FD83E0248ED5BD15CE6D9E3D652E1626F
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162746.jpgsave_picture_162746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162746.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E1B2530259E2012990C316B4926E68EF053EF9B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162747.jpgsave_picture_162747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162747.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:87F866797B9E579C52D6AAD513A31EA93F79FFCB
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162748.jpgsave_picture_162748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162748.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ProFind 1.19.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162749.jpgsave_picture_162749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162749.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Cage - Science Of Annihilation: Re-Annihilated (2019) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162750.jpgsave_picture_162750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162750.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Vivaldi 5.0.2497.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162751.jpgsave_picture_162751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162751.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ iShot Pro-ScreenShot Recording 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162752.jpgsave_picture_162752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162752.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Skillshare, John Knowles | Введение в анимацию: Основы Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162753.jpgsave_picture_162753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162753.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ IObit Driver Booster Pro 8.2.0.305 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162755.jpgsave_picture_162755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162755.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Eli & Fur - Found In The Wild (Remixed) (2021) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162756.jpgsave_picture_162756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162756.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:35D3336BE1F79E724D54407B65339C2579C40B3E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162757.jpgsave_picture_162757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162757.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:B5C95F2A89E8F8BEDA29A4A6DCF1C2FFD0560ED5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162758.jpgsave_picture_162758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162758.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:8B4E45EA8ECF168A871FF3E08AEE5DBF2CD59AAC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162759.jpgsave_picture_162759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162759.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - Мелодии и ритмы советской эстрады (2003) (Вы
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162760.jpgsave_picture_162760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162760.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:C2823BC5845CE0D63902B341D1B9C299C5CB9A1D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162761.jpgsave_picture_162761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162761.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:B71A0E51D33F6D3F52B82D70AD8D25D7A8B4E5BB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162762.jpgsave_picture_162762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162762.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:36FECFFAC33963C2E3E23E01DEB2D8BD93C1AC45
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162763.jpgsave_picture_162763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162763.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:E59B70D659F29C2E851718ABCA07822CA71B433A
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162764.jpgsave_picture_162764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162764.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Superhits 2021 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162765.jpgsave_picture_162765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162765.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:3A2FFF70790DD0E2EF5F1673C5DBE25461B920F8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162766.jpgsave_picture_162766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162766.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:3C34C756BC0E56824AFAFAD7001C248D7AB73D81
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162768.jpgsave_picture_162768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162768.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mozilla FireFox 95.0.0.8003 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162769.jpgsave_picture_162769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162769.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:8AC4F116E75789AE477549BF91527751AD308F78
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162770.jpgsave_picture_162770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162770.jpg" />
 </div>
 
 

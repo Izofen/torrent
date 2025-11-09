@@ -6,7 +6,7 @@ VA - Русские Новинки Vol.51 from AGR (2012) [MP3|320 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248716.jpgsave_picture_248716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248716.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:25832DF06FACA3E5489EC2DBCAC4369D37CA527A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248717.jpgsave_picture_248717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248717.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ magnet:?xt=urn:btih:A1130AD04C8FEF461133B0776BB41344B545CE10
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248719.jpgsave_picture_248719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248719.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ magnet:?xt=urn:btih:8A5CD08A3D4B24DF3C538F5B69279426296B39F8
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248720.jpgsave_picture_248720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248720.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ magnet:?xt=urn:btih:F4EF000181267F432A868A1EC76A9216D499BB7F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248721.jpgsave_picture_248721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248721.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:7A418000FD874C17139C9B80712F700274DE8DB6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248724.jpgsave_picture_248724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248724.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:46060F1300AE2CB9A8B7E705BE701ED3DADDEE39
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248729.jpgsave_picture_248729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248729.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Jim Allchin - Overclocked (2011) [APE|Lossless]<Blues, Blues Rock, Soul>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248731.jpgsave_picture_248731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248731.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Jim Allchin - Overclocked (2011) [APE|Lossless]<Blues, Blues Rock, Soul>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248733.jpgsave_picture_248733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248733.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ahmad Jamal Trio - Complete Recordings feat. Ray Crawford & Israel Crosby (1951-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248738.jpgsave_picture_248738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248738.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:1812A039348292C7E28783D0AE72D26C8DC9BA05
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248742.jpgsave_picture_248742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248742.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:ED9815A27E49783965E435FC117CE90B98FE54CA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248743.jpgsave_picture_248743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248743.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Avi Lebo Double Trombone Quintet & Slide Hampton - Shades of Brass (1996) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248744.jpgsave_picture_248744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248744.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Stargate - Beyond Space And Time (2012) [MP3|320 кб/с]<Progressive/Symphonic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248756.jpgsave_picture_248756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248756.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248758.jpgsave_picture_248758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248758.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248759.jpgsave_picture_248759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248759.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:FCB1B0018497ADBE3172CEF82298C63996C4B9D7
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248760.jpgsave_picture_248760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248760.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Avenue Blue - Naked City (1996) [FLAC|Lossless]<Smooth Jazz, Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248763.jpgsave_picture_248763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248763.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ ISO Workshop 2.6 [Eng/Rus] + Portable by Valx
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248764.jpgsave_picture_248764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248764.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Elegy & Suduaya - Light Source (EP) (2012) [MP3|320 кб/с]<Psychedelic / Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248765.jpgsave_picture_248765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248765.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248766.jpgsave_picture_248766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248766.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248775.jpgsave_picture_248775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248775.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248776.jpgsave_picture_248776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248776.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ SMPlayer 0.8.0.4311 Portable by Noby [Мульти,Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248779.jpgsave_picture_248779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248779.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Sonny Clark - Cool Struttin'/Sonny Clark (1958) [FLAC|Lossless]<Jazz/Hard-bop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248781.jpgsave_picture_248781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248781.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Sonny Clark - Cool Struttin'/Sonny Clark (1958) [FLAC|Lossless]<Jazz/Hard-bop>
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248787.jpgsave_picture_248787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248787.jpg" />
 </div>
 
 

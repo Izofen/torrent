@@ -6,7 +6,7 @@ XYplorer 27.00.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67362.jpgsave_picture_67362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F3364F9B5AADB8F85D47AE0C2B606F6EFAB97781
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67363.jpgsave_picture_67363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67363.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:75499C1DAB26232CCE7E1FA661791EEEEE3D2B19
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67364.jpgsave_picture_67364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67364.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Shinyribs - Leaving Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country, Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67365.jpgsave_picture_67365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67365.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:AA078CD1E1FA7D076782FB05182B70BEEC46420B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67366.jpgsave_picture_67366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67366.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:81F5F2F9924EEBB9E96AF9D6029ED5EC738D529A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67367.jpgsave_picture_67367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67367.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ MotoGP. Этап 05 из 22. Гран-при Испании. Гонка (27.04.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67368.jpgsave_picture_67368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67368.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Sean Chambers - LIVE FROM DARYL'S HOUSE CLUB (Live) (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67369.jpgsave_picture_67369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67369.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Markus Schulz - Global DJ Broadcast In Bloom (Vocal Dance Mix) (2025-04-24) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67370.jpgsave_picture_67370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67370.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:3AF29C52BA3A66323E9E3771C381F7D74C304358
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67371.jpgsave_picture_67371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67371.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:344E3D7CCA079FCC2492A62D65297CFDB30246FE
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67372.jpgsave_picture_67372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67372.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Will Wilde - Blues Is Still Alive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67373.jpgsave_picture_67373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67373.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ William Wallace Band - Worn Thin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67374.jpgsave_picture_67374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67374.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:F5246B85CD77E5F15D513F39D0EA473D6162EA81
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67375.jpgsave_picture_67375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67375.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Sister Suzie - Honestly? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67376.jpgsave_picture_67376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67376.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Michel Legrand - Happy Radio Days (2004) Erato [FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67377.jpgsave_picture_67377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67377.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:CA73CA8385BBD9443710488420943F6BE82066C7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67378.jpgsave_picture_67378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67378.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ AkiaveL - InVictus (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67379.jpgsave_picture_67379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67379.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Travellin' Blue - Take The Edge Off (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67380.jpgsave_picture_67380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67380.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67381.jpgsave_picture_67381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67381.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67382.jpgsave_picture_67382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67382.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Skyla Owen - In My Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67383.jpgsave_picture_67383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67383.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ The Damn Truth - The Damn Truth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67384.jpgsave_picture_67384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67384.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Steve Howell & The Mighty Men - Yeah Man (2025) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67385.jpgsave_picture_67385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67385.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:2DEF6A65D36D2F3AF74B492D33BC01E3C367BA63
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67386.jpgsave_picture_67386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67386.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:19585A72F32D3A4E19CC68DF40E68EE0D87EBAF6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67387.jpgsave_picture_67387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67387.jpg" />
 </div>
 
 

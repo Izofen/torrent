@@ -6,7 +6,7 @@ VA - Party Hits (2012) [MP3|320 кб/с]<Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98224.jpgsave_picture_98224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98224.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:4DEA5E2110D1AD576EBEFCBB6152F2814022EEC1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98226.jpgsave_picture_98226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98226.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ VA - Сборник лучших REMIXов - Mix рандеву 2CD (2012) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98227.jpgsave_picture_98227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98227.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ magnet:?xt=urn:btih:981DC1BD50036B8A53FF3DF840CC728C75696D78
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98230.jpgsave_picture_98230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98230.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Joan Osborne - Bring It On Home (Deluxe Version) (2012) [m4a|256 кб/с]<Blues,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98233.jpgsave_picture_98233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98233.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Roller Rush (P) [En] 2005
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98234.jpgsave_picture_98234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98234.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:A55C0D92323E65B611E0340AF689AA5C4488C32F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98236.jpgsave_picture_98236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98236.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:E5250045F449696C7907FA0BF3E90BDDEBE50683
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98237.jpgsave_picture_98237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98237.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Mythbuntu 12.04 LTS "Precise Pangolin" Beta 2 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98239.jpgsave_picture_98239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98239.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:4A30121F0B845DB8004FB2297ABBCBD1789AF2CD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98242.jpgsave_picture_98242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98242.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Весенние Новинки Русского Радио (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98244.jpgsave_picture_98244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98244.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Los Angeles Negros - 20 Grandes Exitos (1996) [MP3|320 кб/с]<Pop, Latin, Ball
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98245.jpgsave_picture_98245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98245.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:BF4F334F08F8AFEE183262A0214CDABB5E0B3FD3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98246.jpgsave_picture_98246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98246.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:C4108EE773DC833821364DEA278961BC00F81763
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98247.jpgsave_picture_98247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98247.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:A4F4321CBA63AC1E1D20E5DB90B2E595C681A64F
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98249.jpgsave_picture_98249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98249.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Nassau Beach Palma de Mallorca pres. Balearic Moods Chopin In My Mind (2011
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98250.jpgsave_picture_98250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98250.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:FD2D3FA2EFB50A24C6604A99DDD52CA43B9592DF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98251.jpgsave_picture_98251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98251.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:113B7AC06CEDBC14430B4D75B43000238946CEE2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98252.jpgsave_picture_98252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98252.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:5DBE93863A542178394971A58AB22B85953254F9
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98253.jpgsave_picture_98253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98253.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:BF8E5257C0B724D19F74516BD0301BA3B5F735E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98255.jpgsave_picture_98255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98255.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - MAXI. Романтика Русского Рока (2012) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98256.jpgsave_picture_98256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98256.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:0488A235CA78AFAC0A2363D028C8D94898B32444
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98258.jpgsave_picture_98258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98258.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D868F864E822896CAB7362CE74DA8ED6B90995C2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98261.jpgsave_picture_98261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98261.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Disco Stars (2012) [MP3|320 kbps]<Pop | Italo-Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98262.jpgsave_picture_98262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98262.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ cHAMBAo - Endorfinas En La Mente (2004) [MP3|320 кб/с]<Electronic, Latin, Fla
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98263.jpgsave_picture_98263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98263.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Susie Arioli - All The Way (2012) [MP3|192 кб/с]<Vocal Jazz, Swing, Easy List
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98264.jpgsave_picture_98264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98264.jpg" />
 </div>
 
 

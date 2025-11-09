@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161663.jpgsave_picture_161663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161663.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Peter Ellis - The Best Of Lounge: New York Lounge (2001) [FLAC|Lossless|tracks +
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161664.jpgsave_picture_161664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161664.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BA12C30B4A25E65303CBDE4AAF6416969AFB9584
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161665.jpgsave_picture_161665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161665.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Levantis & Friends - The Best Of Lounge: Classic Lounge (2001) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161666.jpgsave_picture_161666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161666.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:CB304A89BFBAEE08CAF91108109A0FD780E6C4D8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161667.jpgsave_picture_161667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161667.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:B9D4728A90C2C1BCCF191EC74D9526A3D4CB54C2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161668.jpgsave_picture_161668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161668.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:464E042737BA45F95BEEE026066EFB74ED81F69E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161669.jpgsave_picture_161669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161669.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Among Us Mega Mod v2020.11.17a [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161670.jpgsave_picture_161670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161670.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [FLAC|Lossless|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161671.jpgsave_picture_161671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161671.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Magic Recovery Software 2022.12 Portable by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161672.jpgsave_picture_161672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161672.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:EB6A5663A94BA6276F697D54B04D4EE425D11BBD
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161673.jpgsave_picture_161673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161673.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ V.A. - Как Молоды Мы Были - Песни Александры Па�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161674.jpgsave_picture_161674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161674.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:734884B057C833B13CE86DB4B2BF83513A083CA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161675.jpgsave_picture_161675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161675.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Sublime Merge Dev Build 2066 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161676.jpgsave_picture_161676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161676.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:C4BA33252F41E28CE9A5C5BDB0CFE8EC9FADB293
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161677.jpgsave_picture_161677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161677.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:1D3382BBAD6D9204233D74A9DBC7039712B39B7C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161678.jpgsave_picture_161678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161678.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:C78C777170AD15CFD2553B42DF953078A8F626E0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161679.jpgsave_picture_161679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161679.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ James Ryan - The Best Of Lounge: L.A. Lounge (2001) [FLAC|Lossless|tracks + .cue
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161680.jpgsave_picture_161680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161680.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:D19D042D07FCBD107CF6EC32304F6962F1B2F217
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161681.jpgsave_picture_161681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161681.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ File Cabinet Pro 8.4 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161682.jpgsave_picture_161682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161682.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:E5F1FC10B782D181E68074A170A2341F85E58D5F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161683.jpgsave_picture_161683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161683.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:97EFF278E64F14C937A85819431E25864BFA6F83
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161684.jpgsave_picture_161684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161684.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:0F1EF51865EF62ECF34511C88AF2065167DEA36A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161685.jpgsave_picture_161685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161685.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Iron Fate - Crimson Messiah (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161686.jpgsave_picture_161686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161686.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:023112CC18E7547B0BC786BB6D52E54F3A41A8EB
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161687.jpgsave_picture_161687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161687.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Udemy, Banza Academy | SQL для нетехнических специалис�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161688.jpgsave_picture_161688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161688.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84501.jpgsave_picture_84501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84501.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84503.jpgsave_picture_84503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84503.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D21AA60CE5DFA2C7544906330FE01343670DB2DF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84504.jpgsave_picture_84504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84504.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1A98EF91AD2812AA7D030C832102E57489850FDF
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84507.jpgsave_picture_84507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84507.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:EC74D1B79BFA4EA166AFA8F9CA886991EBC3F48C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84509.jpgsave_picture_84509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84509.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A47251AE21E72941DA6A14C22C7BDEA70DBDDD76
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84513.jpgsave_picture_84513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84513.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Iron Maiden - En Vivo! (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84515.jpgsave_picture_84515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84515.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ EMI 26 марта выпускают новый концертный релиз 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84516.jpgsave_picture_84516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84516.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ EMI 26 марта выпускают новый концертный релиз 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84517.jpgsave_picture_84517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84517.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Tiamat - Wildhoney (1994) reissue /2011/ [FLAC|Lossless|image +.cue] <Doom Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84518.jpgsave_picture_84518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84518.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Tiamat - Wildhoney (1994) reissue /2011/ [FLAC|Lossless|image +.cue] <Doom Metal
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84520.jpgsave_picture_84520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84520.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:4990CFEF81AB5997A4F1527B55D908EA5FA75384
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84525.jpgsave_picture_84525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84525.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4990CFEF81AB5997A4F1527B55D908EA5FA75384
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84527.jpgsave_picture_84527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84527.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:43E0A684E9E7B8B1E9853F4889C34047FFB92484
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84531.jpgsave_picture_84531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84531.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:70A4F734FF8E25F933D1649C76397B3F0E61BF72
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84532.jpgsave_picture_84532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84532.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:CD534F6DAA60945227121129FECE0724B09B77ED
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84535.jpgsave_picture_84535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84535.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Oliver Koletzki - Grossstadtmarchen (2009) [FLAC|Lossless]<Tech House, Disco, Nu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84536.jpgsave_picture_84536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84536.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Il Volo -Takes Flight - Live From the Detroit Opera House (2012) Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84538.jpgsave_picture_84538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84538.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ http://en.wikipedia.org/wiki/Il_Volo (   Читать дальше...   )Жан
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84540.jpgsave_picture_84540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84540.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:FBF10A34FF0DC03D8BC165E9BE76CE928C83EEFE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84541.jpgsave_picture_84541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84541.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:D0323BE96C2C4CC9761BFBEBEDD2206982C0CD9F
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84542.jpgsave_picture_84542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84542.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:D0323BE96C2C4CC9761BFBEBEDD2206982C0CD9F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84544.jpgsave_picture_84544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84544.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:0D8B80FC1897C3FF21D5CFE79D851B93A0859ACB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84545.jpgsave_picture_84545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84545.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:DB3D2EC9BAB82C1CFF28B7D5B3B57699834E2C8A
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84547.jpgsave_picture_84547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84547.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:5E8B8ADA61581F29133248E6D9EF594614E4BAE9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84548.jpgsave_picture_84548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84548.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:87F8CE807AA028AC2B0E5B0CFE9E5273447CB36C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84549.jpgsave_picture_84549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84549.jpg" />
 </div>
 
 

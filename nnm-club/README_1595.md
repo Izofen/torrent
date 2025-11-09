@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41827.jpgsave_picture_41827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41827.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:75B62B54D809B5C6F117F1FBAEE545ECEAB16BB2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41828.jpgsave_picture_41828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41828.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:75B62B54D809B5C6F117F1FBAEE545ECEAB16BB2
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41829.jpgsave_picture_41829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41829.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B918D5806C718EC29ABDFFCCCFA8D9F6D2D13D1E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41830.jpgsave_picture_41830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41830.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.0.3149) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41831.jpgsave_picture_41831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41831.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:07EA433FEBC3427713D53DF24D38658FAAB9E96D
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41832.jpgsave_picture_41832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41832.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:07EA433FEBC3427713D53DF24D38658FAAB9E96D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41833.jpgsave_picture_41833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41833.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:DF5792F4EA2CC9844F4B35FA397F41625E1B7151
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41834.jpgsave_picture_41834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41834.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B110EDC9629BF34E9642C25CD968FEEBDE481C22
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41835.jpgsave_picture_41835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41835.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.0.3149) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41836.jpgsave_picture_41836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41836.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:CDA3D45733BCD226A8EE142E3BC6D19C3F3B4071
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41837.jpgsave_picture_41837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41837.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:C9AA2F98BB22595CBEB865122E14724B92485CAE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41838.jpgsave_picture_41838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41838.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:BE8203508AEE8CF1DDD9AD551DF0914E83FECF70
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41839.jpgsave_picture_41839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41839.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Planternauts (2024) [Ru/Multi] (1.0) Repack FitGirl [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41840.jpgsave_picture_41840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41840.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:8A3864D1B22D1F134F15B26A52E75CD69F79448A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41841.jpgsave_picture_41841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41841.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:6AA0A4F8BF4A5324EABBD0EC67DD70F4CA1EFF88
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41842.jpgsave_picture_41842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41842.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - 100 Greatest Rock Songs (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41843.jpgsave_picture_41843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41843.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Chernobylite (2019) [Ru/Multi] (49411/dlc) Repack Other s [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41844.jpgsave_picture_41844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41844.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ NVIDIA GeForce Desktop Game Ready 565.90 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41845.jpgsave_picture_41845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41845.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ DreadHaunt (2023) [Ru/Multi] (1.0.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41846.jpgsave_picture_41846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41846.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ CyberLink PowerDirector 2025 Ultimate 23.0.0927.2 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41847.jpgsave_picture_41847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41847.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:C6960F38816A9BBFF43DD99910661EA8C2765B12
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41848.jpgsave_picture_41848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41848.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:5251181FA14B3A08CC23A04B05BC4BCB20AC1991
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41849.jpgsave_picture_41849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41849.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:8615ECD99DBAF61628B7886AE95213C2EF822F84
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41850.jpgsave_picture_41850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41850.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Microsoft Windows 11 IoT Enterprise/LTSC 2024 [10.0.26100.1742], Version 24H2 - 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41851.jpgsave_picture_41851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41851.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Microsoft Windows 11 [10.0.26100.1742], Version 24H2 - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41852.jpgsave_picture_41852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41852.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193020.jpgsave_picture_193020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193020.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Vulture - The Guillotine (2017) Japanese Edition [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193021.jpgsave_picture_193021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193021.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Various Artists - COMIN' HOME (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193022.jpgsave_picture_193022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193022.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blood Of Christ - ...A Dream To Remember (1997) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193023.jpgsave_picture_193023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193023.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:A8F7C68ACAA584BACD85686EEE1FCE93990AF19A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193024.jpgsave_picture_193024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193024.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Decomposed - Hope Finally Died... (1993) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193025.jpgsave_picture_193025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193025.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193026.jpgsave_picture_193026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193026.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193027.jpgsave_picture_193027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193027.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:9C0FC58955670598812B2EF556A259401257F4CC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193028.jpgsave_picture_193028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193028.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:A0484ACA958E5CB1A4C65972C47EC35095E38938
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193029.jpgsave_picture_193029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193029.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:FE0EFE49A7B769EA374732A4926423C6FC55BD49
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193030.jpgsave_picture_193030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193030.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:5540F536DE503B1F34924467D6DD1FF490374D37
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193031.jpgsave_picture_193031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193031.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Gotham Knights (2022) [Multi] (9794860/dlc) Repack DjDI [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193032.jpgsave_picture_193032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193032.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:74AD6FC8836B87EC93846A0714A4ACC185CB29DD
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193033.jpgsave_picture_193033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193033.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:CA3CF523CDDF84BFF4981154AFF90BC53155451E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193034.jpgsave_picture_193034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193034.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Dynamic Island - dynamicSpot 1.71 (200094) Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193035.jpgsave_picture_193035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193035.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:86AF5A19619C74286F327D1F499761FC80B12483
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193036.jpgsave_picture_193036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193036.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:CB6D06DF417211FCA71E952F4951444205A79637
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193037.jpgsave_picture_193037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193037.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:B9A77E55ECA6C8C592AF808593716E3D3C8AA5C2
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193038.jpgsave_picture_193038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193038.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Drew Hernandez | Drew Hernandez Podcast (2023) [OPUS] [EN]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193039.jpgsave_picture_193039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193039.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ TrackView v3.8.02  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193040.jpgsave_picture_193040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193040.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:D20F1EE5AB61CB3644FC52B69AF474469F6BFB68
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193041.jpgsave_picture_193041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193041.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Circuit Calculator v5.5 [En/Ru] - Калькулятор электро-схем
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193042.jpgsave_picture_193042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193042.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Sweet September: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193043.jpgsave_picture_193043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193043.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Udemy, Dzianis Matveyenka | JUnit 5 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193044.jpgsave_picture_193044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193044.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Hell Pie (2022) [Ru/Multi] (1.1.5) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193045.jpgsave_picture_193045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193045.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Gangruel - The Harvest Withers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108171.jpgsave_picture_108171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108171.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Huntsmen - The Dry Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108175.jpgsave_picture_108175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108175.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Clan of Xymox - Exodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108178.jpgsave_picture_108178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108178.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Haldun Lenger - Chaos War (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108183.jpgsave_picture_108183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108183.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Escarlathia - Escarlathia (2024) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108186.jpgsave_picture_108186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108186.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Folterkammer - Weibermacht (2024) [FLAC|Lossless|WEB-DL|tracks] <Operatic, Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108190.jpgsave_picture_108190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108190.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Elvis Costello - Tokyo 1994 (Live) (1994) Remaster, 2024, Cult Legends [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108193.jpgsave_picture_108193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108193.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Humanity Gone - Everything Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108195.jpgsave_picture_108195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108195.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Endangered Reign - The Forester Awakens (2024) [MP3|320 Kbps] <Power, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108226.jpgsave_picture_108226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108226.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Terminal Zero - Brace for the End (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108230.jpgsave_picture_108230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108230.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Escarlathia - Escarlathia (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108258.jpgsave_picture_108258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108258.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Liam Kane - Metronomic Perfection (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108268.jpgsave_picture_108268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108268.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Evergrey - Theories Of Emptiness (2024) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108289.jpgsave_picture_108289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108289.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nightmare - Encrypted (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108294.jpgsave_picture_108294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108294.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Endangered Reign - The Forester Awakens (2024) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108299.jpgsave_picture_108299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108299.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Holy Mother - Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108316.jpgsave_picture_108316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108316.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Reverend Hound - Deal In Steel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108320.jpgsave_picture_108320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108320.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Cactus - Temple Of Blues: Influences And Friends (2024) [FLAC|Lossless|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108330.jpgsave_picture_108330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108330.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ The Iron Bees - РЖАВЫЙ ТРОМБОН (2024) [MP3|320 Kbps] <Ska, Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108338.jpgsave_picture_108338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108338.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Cactus - Temple Of Blues: Influences And Friends (2024) [MP3|320 Kbps] <Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108358.jpgsave_picture_108358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108358.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:CD511D9B90D1E8C50DB674970DD04C301E215D18
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108361.jpgsave_picture_108361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108361.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Blizzen - World In Chains (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108363.jpgsave_picture_108363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108363.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Duality - Elektron (2016) [FLAC|Lossless|image + .cue] <Death Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108364.jpgsave_picture_108364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108364.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Echo of Silence - Misplaced Reality (2024) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108365.jpgsave_picture_108365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108365.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ My Journey to the Void - Невозможность (2024) [FLAC|Lossless|WEB-DL
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108368.jpgsave_picture_108368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108368.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Spleen - Dead Creature (2024) [MP3|320 Kbps] <Progressive Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108370.jpgsave_picture_108370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108370.jpg" />
 </div>
 
 

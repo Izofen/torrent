@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144450.jpgsave_picture_144450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144450.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3C749C2CC87C70CF097696AEE420653FB5C7518E
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144451.jpgsave_picture_144451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144451.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Phase One Capture One Pro 9.0.1 Build 13 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144453.jpgsave_picture_144453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144453.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Demon Hunter 5: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144454.jpgsave_picture_144454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144454.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kaspersky Tweak Assistant 23.11.19.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144455.jpgsave_picture_144455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144455.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:EC736D481496ACD3376139C7E15A3E06B101310A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144457.jpgsave_picture_144457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144457.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Stavros Papadopoulos - Rare Tracks (Freerock Sessions) (2020) [MP3|320 Kbps] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144459.jpgsave_picture_144459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144459.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:ECC3798F3C74575702608DD70B938A72B648BAAB
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144460.jpgsave_picture_144460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144460.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Macgo Windows Blu-ray Player 2.16.9.2163 RePack (& Portable) by AlekseyPopovv [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144461.jpgsave_picture_144461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144461.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Snowflakes IX (2018) Raumklang Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indu
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144462.jpgsave_picture_144462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144462.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Terminal Velocity: Boosted Edition (2023) [Multi] (1.0.4) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144464.jpgsave_picture_144464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144464.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:D14594D5E330400A3D7C45103E5FC217C1441527
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144465.jpgsave_picture_144465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144465.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:A9E41E680DE8707ED075A81420E627A90F1278F2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144466.jpgsave_picture_144466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144466.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:78B8304B34EF44676165EB0E35CE4D608065AF27
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144467.jpgsave_picture_144467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144467.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Do Your Data Recovery Professional 8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144468.jpgsave_picture_144468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144468.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:BBC797FDE14461007987FB8265388DB178C959F1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144469.jpgsave_picture_144469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144469.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:870C69BB76F6DE724B71DB3ECE3104F99905F6FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144470.jpgsave_picture_144470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144470.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Tesla Note | Заметки Теслы [2021, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144472.jpgsave_picture_144472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144472.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Dism++ 10.1.21.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144473.jpgsave_picture_144473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144473.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Aurora Blu-ray Media Player 2.18.9.2163 RePack (& Portable) by AlekseyPopovv [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144474.jpgsave_picture_144474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144474.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ SZMC - Alien Invasion (The Album) (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesyn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144475.jpgsave_picture_144475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144475.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:82DC6469557906AA550E1B2E325A9ABEB1EF1C35
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144476.jpgsave_picture_144476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144476.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:9FD1575F47E9E14D5363109E249CD20260E7F4FA
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144478.jpgsave_picture_144478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144478.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:AAE01393D262E38CB8B006ACA21AD63AEA52A9E5
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144479.jpgsave_picture_144479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144479.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Happy Dance Hit (2018) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144480.jpgsave_picture_144480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144480.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:44568B17B0B21C5B072C0ADD1A6F4EA77592349C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144481.jpgsave_picture_144481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144481.jpg" />
 </div>
 
 

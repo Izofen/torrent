@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120754.jpgsave_picture_120754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120754.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120755.jpgsave_picture_120755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120755.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0D8408CF6EC0D24D26B726FC7D5D1BF55BF83EB2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120756.jpgsave_picture_120756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120756.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:75720409420418557C45C58F4FBF9973CCBDE541
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120757.jpgsave_picture_120757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120757.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Premiere Pro 2024 for Mac v.24.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120758.jpgsave_picture_120758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120758.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:81D355BF44166C79FCF82C6D40CD05E7D280B861
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120759.jpgsave_picture_120759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120759.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Any Given Day - Limitless (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120760.jpgsave_picture_120760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120760.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Hiraes - Dormant (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120761.jpgsave_picture_120761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120761.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Notebooks – Write and Organize 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120762.jpgsave_picture_120762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120762.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Mosh-Pit Justice - Mosh-Pit Justice (2013) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120763.jpgsave_picture_120763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120763.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:6452437990D48929201FC531288B75C040497A95
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120764.jpgsave_picture_120764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120764.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Nubian Rose - Amen (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120765.jpgsave_picture_120765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120765.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Any Given Day - Limitless (2024) [MP3|320 Kbps] <Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120766.jpgsave_picture_120766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120766.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Rob Tognoni - Rebel (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120767.jpgsave_picture_120767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120767.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Robert Hart - Circus Life (2024) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120768.jpgsave_picture_120768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120768.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120769.jpgsave_picture_120769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120769.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120770.jpgsave_picture_120770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120770.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Rods - Rattle The Cage (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120771.jpgsave_picture_120771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120771.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Faith Circus - Bum In The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120772.jpgsave_picture_120772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120772.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Tipard Screen Capture 1.1.26 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120773.jpgsave_picture_120773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120773.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Manticora - Mycelium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120774.jpgsave_picture_120774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120774.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120775.jpgsave_picture_120775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120775.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Fork 2.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120776.jpgsave_picture_120776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120776.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Blood Red Throne - Nonagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120777.jpgsave_picture_120777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120777.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ uDock 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120778.jpgsave_picture_120778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120778.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120779.jpgsave_picture_120779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120779.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141921.jpgsave_picture_141921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141921.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Christmas Jazz Night 2022 (Finest X-Mas Jazz Music) (2021) [AAC|~318 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141923.jpgsave_picture_141923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141923.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C56667F39943A46FF13B928FD149C60CCE1A52C8
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141924.jpgsave_picture_141924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141924.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:ED873F5F5A454A322CB50470639BDFAD75F8EF02
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141925.jpgsave_picture_141925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141925.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Oliver Koletzki - Fire In The Jungle (2019) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141926.jpgsave_picture_141926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141926.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:31C6B8818EBAE27D0A3CF20F3B8979C4598B6DC4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141927.jpgsave_picture_141927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141927.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Pauline Anna Strom - Echoes, Spaces, Lines (2023) 4 x CD, Compilation [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141928.jpgsave_picture_141928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141928.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:B580B4397DD58EF54B6D6E901B08190E1F5FE294
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141929.jpgsave_picture_141929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141929.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:721983E7669ADF7BF651052DE6563BC7F333A268
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141930.jpgsave_picture_141930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141930.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ IObit Driver Booster Pro 6.2.0.198 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141931.jpgsave_picture_141931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141931.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ The Cave (2013) [Ru/En] (1.0/u2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141934.jpgsave_picture_141934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141934.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ iCompta 6 v6.0.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141935.jpgsave_picture_141935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141935.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:27B7FDECA3EE93271E8218277C6E3943161ADA6F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141936.jpgsave_picture_141936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141936.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:EDC33C25C408BCC7F14A1C4591C77A24C3A674A0
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141939.jpgsave_picture_141939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141939.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:8A19FC61BE342ED821F95D04AA9FC949089C3DE0
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141940.jpgsave_picture_141940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141940.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ RegCool 1.302 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141943.jpgsave_picture_141943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141943.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:855A7EA7E5FEA442067479B7B0D3C67E238D373E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141944.jpgsave_picture_141944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141944.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ ScreenFlow 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141945.jpgsave_picture_141945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141945.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:9047A0C0AD1B3A256CE9D49B0C5B32B3698EB40C
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141948.jpgsave_picture_141948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141948.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:3EC8F9E03184E879E95E2B41F3334D4FD673B9F7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141949.jpgsave_picture_141949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141949.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SamDrivers 18.19 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141951.jpgsave_picture_141951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141951.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141953.jpgsave_picture_141953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141953.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:7FAB66B6DD1CBB63B390AB3C571BC3953520C898
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141954.jpgsave_picture_141954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141954.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Internet Download Manager 6.32 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141955.jpgsave_picture_141955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141955.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:2D8F11C942F3082C129D0259F2D6A5C976A75A43
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141956.jpgsave_picture_141956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141956.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Schneeweiss 11 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141957.jpgsave_picture_141957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141957.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181241.jpgsave_picture_181241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181241.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2E43DB112FF9A2047C09A8B0798EBC464EB34D99
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181243.jpgsave_picture_181243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181243.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ LVA - Ας αρχισει η τελετη (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181245.jpgsave_picture_181245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181245.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:4D5D267EA960451AD82BD9B00E7436EDAEABB10F
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181247.jpgsave_picture_181247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181247.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B847EA0916876032897BCAA3E68B38667E2EEE3F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181248.jpgsave_picture_181248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181248.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9CE2ACEF0F03A7DC1B44BF96BC12E810A506FB28
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181252.jpgsave_picture_181252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181252.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Imagine 1.2.0 + Portable + Plugins  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181255.jpgsave_picture_181255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181255.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:9B9780D649B8AF20BE18E010D980FFBA8DB89C4F
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181257.jpgsave_picture_181257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181257.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181262.jpgsave_picture_181262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181262.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181266.jpgsave_picture_181266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181266.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:6755DF59AA9C0F593D3B1A2725E7945C96625957
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181267.jpgsave_picture_181267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181267.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:891651F8F3F9B8D62358D0A874588156710B13AE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181270.jpgsave_picture_181270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181270.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:1F980E44956121D5A576339DE7BD8D627B69BED9
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181274.jpgsave_picture_181274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181274.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ FontViewOK 8.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181278.jpgsave_picture_181278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181278.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Shotcut 23.09.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181282.jpgsave_picture_181282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181282.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:CA259E0FB60A4001586D91FAB092574991C912CB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181283.jpgsave_picture_181283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181283.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Floorp Browser 11.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181285.jpgsave_picture_181285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181285.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ lectoroom, Елизавета Залегина | Натюрморт «Завтр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181290.jpgsave_picture_181290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181290.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:202EB11161EF46A7390F2EC2BAD73AA6084320A4
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181293.jpgsave_picture_181293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181293.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Astra Linux Special Edition 1.7.3 [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181295.jpgsave_picture_181295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181295.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Slurm (Слёрм), Алексей Барабанов | Rabbit MQ (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181299.jpgsave_picture_181299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181299.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:395E51565760DFFB39C3CC061CF91A2DD3E68E84
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181305.jpgsave_picture_181305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181305.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:1EE1322482733FB95DA373B701AB9E28851ACE43
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181307.jpgsave_picture_181307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181307.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181311.jpgsave_picture_181311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181311.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Till Lindemann - Zunge (2023) Single [MP3|320 Kbps] <Industrial metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181314.jpgsave_picture_181314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181314.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:8916CD1B0DED16B458677B3AA5289464DB7F03E1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181316.jpgsave_picture_181316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181316.jpg" />
 </div>
 
 

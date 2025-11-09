@@ -6,7 +6,7 @@ Reg Organizer 9.80 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8955.jpgsave_picture_8955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8955.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Revo Registry Cleaner Pro 1.5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9148.jpgsave_picture_9148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9148.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Auslogics Registry Cleaner Pro 11.0.1.2 RePack (& Portable) by elchupacabra [Mul
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9521.jpgsave_picture_9521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9521.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ DriverMax 16.19.0.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9567.jpgsave_picture_9567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9567.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ PrivaZer Pro 4.0.109 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9635.jpgsave_picture_9635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9635.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Auslogics Duplicate File Finder 11.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10273.jpgsave_picture_10273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10273.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ IObit Driver Booster Pro 12.6.0.620  RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10401.jpgsave_picture_10401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10401.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Wise Registry Cleaner Pro 11.2.3.728 RePack (& portable) by elchupacabra [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10519.jpgsave_picture_10519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10519.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Bulk Crap Uninstaller 5.9.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12808.jpgsave_picture_12808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12808.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ TweakPower 2.075 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12974.jpgsave_picture_12974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12974.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Auslogics Driver Updater 2.0.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13309.jpgsave_picture_13309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13309.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Revo Uninstaller Free 2.6.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13317.jpgsave_picture_13317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13317.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Windows Manager 2.1.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13632.jpgsave_picture_13632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13632.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Privacy Eraser Free 6.20.0 Build 5265 RePack (& Portable) by elchupacabra [Multi
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14537.jpgsave_picture_14537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14537.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15689.jpgsave_picture_15689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15689.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Ashampoo Driver Updater 1.8.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15697.jpgsave_picture_15697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15697.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Revo Uninstaller Pro 5.4.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15782.jpgsave_picture_15782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15782.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15822.jpgsave_picture_15822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15822.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Ashampoo WinOptimizer 28.00.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16121.jpgsave_picture_16121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16121.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Microsoft PowerToys 0.91.1 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17705.jpgsave_picture_17705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17705.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ UniTweaker 1.3 Portable By Komoliddin [Ru] (Авторская раздача)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18067.jpgsave_picture_18067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18067.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Duplicate File Detective 7.3.88.0 (x64) Enterprise [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18521.jpgsave_picture_18521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18521.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Duplicate Files Search & Link (Duplicate Searcher) 10.6.3  + Portable  [Multi/Ru
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18623.jpgsave_picture_18623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18623.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Auslogics Registry Cleaner Pro 11.0.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19179.jpgsave_picture_19179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19179.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Auslogics Driver Updater 2.0.1.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19187.jpgsave_picture_19187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19187.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ HDCleaner 2.091 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19257.jpgsave_picture_19257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19257.jpg" />
 </div>
 
 

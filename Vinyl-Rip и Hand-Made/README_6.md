@@ -6,7 +6,7 @@ W.E.T. - Studio Albums (5 releases) (2010-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22937.jpgsave_picture_22937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22937.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Музыкальный калейдоскоп (10   выпусков) (1964
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24247.jpgsave_picture_24247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24247.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Lacrimosa - Studio Albums (11 releases) (1997-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24319.jpgsave_picture_24319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24319.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Jazz Collection Non Stop Part II (2018) [FLAC 2.0|44,1/16|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24398.jpgsave_picture_24398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24398.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AC/DC - Star Colletion (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24573.jpgsave_picture_24573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24573.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Septicflesh (Septic Flesh) - Studio Albums (12 releases) (1994-2025) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24595.jpgsave_picture_24595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24595.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Iron Maiden - Collection 1980-1982 (1993) Compilation, Unofficial Release [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24773.jpgsave_picture_24773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24773.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Spiritbox - Studio Albums (6 releases) (2017-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25142.jpgsave_picture_25142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25142.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Scorpions - Gold Ballads (1992) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25145.jpgsave_picture_25145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25145.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Destruction - Studio albums (21 releases) (1984-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25556.jpgsave_picture_25556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25556.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Monika Hauff & Klaus-Dieter Henkler - Моника Хуфф и Клаус-Дит
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25729.jpgsave_picture_25729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25729.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Thundermother (& The Gems) - Studio Albums (7 releases) (2014-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25749.jpgsave_picture_25749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25749.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26195.jpgsave_picture_26195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26195.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26268.jpgsave_picture_26268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26268.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26279.jpgsave_picture_26279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26279.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26300.jpgsave_picture_26300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26300.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26439.jpgsave_picture_26439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26439.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26880.jpgsave_picture_26880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26880.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Tristania - Studio Albums (8 releases) (1997-2013) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27030.jpgsave_picture_27030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27030.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Dynazty - Studio Albums (9 releases) (2009-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27099.jpgsave_picture_27099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27099.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:AC2B5F4745CB4C050AED893799FD4FC3A9203A8E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27207.jpgsave_picture_27207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27207.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Dream Theater - Дискография (33 releases) (1989-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27459.jpgsave_picture_27459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27459.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Lacuna Coil - Studio Albums (12 releases) (1999-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27653.jpgsave_picture_27653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_27653.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:85CE70BD4AD99DD7547712F306AE51904C456134
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28705.jpgsave_picture_28705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28705.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Venom (& Venom inc., ex-M:Pire of Evil) - Studio Albums (11 releases) (1997-2022
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29938.jpgsave_picture_29938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29938.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Dalibor Janda - Take Them To Mars (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30102.jpgsave_picture_30102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30102.jpg" />
 </div>
 
 

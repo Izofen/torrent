@@ -6,7 +6,7 @@ Athentech Perfectly Clear Video for Mac 4.6.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118582.jpgsave_picture_118582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118582.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Vintage Culture - Live @ Thunder Machine, Passio das Aguas, Goiania, Brazil (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118583.jpgsave_picture_118583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118583.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SILKYPIX JPEG Photography 11 v.11.2.14.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118584.jpgsave_picture_118584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118584.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Ocenaudio 3.13.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118585.jpgsave_picture_118585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118585.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Icecream PDF Editor Pro 3.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118586.jpgsave_picture_118586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118586.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Lucky Patcher 11.1.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118587.jpgsave_picture_118587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118587.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:4B56D07213D7927C9038A1C400308F7E90FB6D93
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118588.jpgsave_picture_118588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118588.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ OpenNumismat 1.9.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118589.jpgsave_picture_118589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118589.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Speedtest от Ookla 5.3.1 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118590.jpgsave_picture_118590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118590.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:69837BF8854369134545EA8A7CF31B7DDE03A78E
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118591.jpgsave_picture_118591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118591.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:8E772E45C0736ECFB6176A654581BAF00B821CE4
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118592.jpgsave_picture_118592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118592.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:3DA08B2D8F7B629ACCAA76E3AE378B409E8FEB5D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118593.jpgsave_picture_118593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118593.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:A9C046A460D43B134C6BD7A8DCAFF6808D14C077
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118594.jpgsave_picture_118594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118594.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:AFB3DD5C49301D5E3C9F5C1D1E33C96A47CC3723
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118595.jpgsave_picture_118595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118595.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Smart AudioBook Player 10.6.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118596.jpgsave_picture_118596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118596.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ UFO - Lights Out (1977) 2CD, Remaster, 2024, Chrysalis Records [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118597.jpgsave_picture_118597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118597.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Easy Data Transform for Mac 1.46.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118598.jpgsave_picture_118598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118598.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:2A24C87E921664554C1D42565932FE1081D1EC81
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118599.jpgsave_picture_118599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118599.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:BCCAA3A90C0B37A14BAA1E61E224854B02965F1A
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118600.jpgsave_picture_118600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118600.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ RocketSim for Xcode Simulator on Mac 12.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118601.jpgsave_picture_118601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118601.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ DxO FilmPack 7 for Mac v.7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118602.jpgsave_picture_118602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118602.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ DxO PhotoLab 7 ELITE Edition 7.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118603.jpgsave_picture_118603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118603.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:A7B24BB9F41205677533C3DAB1F373E842B5042F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118604.jpgsave_picture_118604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118604.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Icecream Screen Recorder Pro 7.35 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118605.jpgsave_picture_118605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118605.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118606.jpgsave_picture_118606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118606.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:D244FD88639F8C4A4C2B1A679A93D04B1B438224
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118607.jpgsave_picture_118607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118607.jpg" />
 </div>
 
 

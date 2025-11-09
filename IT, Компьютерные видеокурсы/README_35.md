@@ -6,7 +6,7 @@ Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236313.jpgsave_picture_236313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236313.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236583.jpgsave_picture_236583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236583.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Udemy, Антон Трунович | Основы информационной �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236608.jpgsave_picture_236608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236608.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ OTUS, Сергей Караткевич и др. | SRE практики и ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236748.jpgsave_picture_236748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236748.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ DesignCourse, Gary Simon | Kickstart your UI/UX Design Career (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236838.jpgsave_picture_236838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236838.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Cyberband Academy | Полное погружение в No-code (2021) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236910.jpgsave_picture_236910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236910.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:62E973AF63200C29B053AEFE59534226C9286CB0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236966.jpgsave_picture_236966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236966.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Boot
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238425.jpgsave_picture_238425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238425.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:9551CDA462B5CFBA1F3E62957A5142744F7EF9D6
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243660.jpgsave_picture_243660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243660.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244078.jpgsave_picture_244078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244078.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Udemy, Tom Looman, Epic Games | Unreal Engine 4 Mastery Create Multiplayer Games
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244295.jpgsave_picture_244295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244295.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Udemy, David Long | Conway's Game of Life with SDL2 and C++ (2022) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244496.jpgsave_picture_244496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244496.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:1D8249B1C10F9D16E456A0710A591FAD0F8928AA
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246189.jpgsave_picture_246189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246189.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ it-black, Виктор Черемных | Администрирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246352.jpgsave_picture_246352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246352.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Astra Linux Team, Александр Соболев, Сергей Третьяк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246356.jpgsave_picture_246356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246356.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:01DFAA539BB85976572376152938F67FF90DBA39
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246651.jpgsave_picture_246651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246651.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:4C0B10BF27B54BC46AF83CA40036BE7FBCFBB506
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246678.jpgsave_picture_246678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246678.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:1567C7A9ED0DA2334EA58FF45A17BD216BB3BD82
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246704.jpgsave_picture_246704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246704.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:FC96BD5F9D48CEF7C580986AE92607E7DCB563FC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246708.jpgsave_picture_246708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246708.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:79C0DAADE8D07C6E4F12CF837D7FB0EA87B0F6A9
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246910.jpgsave_picture_246910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246910.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Udemy, Stanislav Gorchakov | Автоматизированный Telegram-ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246925.jpgsave_picture_246925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246925.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9202869ABF519775B2E1A47B44FDED9FD2FED99A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246928.jpgsave_picture_246928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246928.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ PurpleSchool, Stepik, Антон Ларичев | HTML и CSS - полный к�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246978.jpgsave_picture_246978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246978.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Stepik, Герман Янгалин | Экспресс-курс по Arduino, э
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247023.jpgsave_picture_247023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247023.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Udemy, Андрей Кудлай | Telegram bot интернет-магазин.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247151.jpgsave_picture_247151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247151.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:953D7509633CDF4ACCF82BBDDA166A6B235577B5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247322.jpgsave_picture_247322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247322.jpg" />
 </div>
 
 

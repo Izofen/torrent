@@ -6,7 +6,7 @@ Robse - Harlekin und Krieger (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105459.jpgsave_picture_105459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105459.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E04F0D06219F36D972CB55DE69C09DCCA3E24704
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105460.jpgsave_picture_105460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105460.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Miazma - 5 Albums (2011-2018) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105461.jpgsave_picture_105461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105461.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Femme Fatale - Live + Demos (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105462.jpgsave_picture_105462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105462.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:B7E99F4453B9E0F9075EE2B928B65AC5E450C760
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105463.jpgsave_picture_105463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105463.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Compilation part 113 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105464.jpgsave_picture_105464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105464.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105465.jpgsave_picture_105465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105465.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105466.jpgsave_picture_105466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105466.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105467.jpgsave_picture_105467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105467.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:85280C9773FFE19E6E5B3C39E30E49648CCB9B25
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105468.jpgsave_picture_105468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105468.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:85280C9773FFE19E6E5B3C39E30E49648CCB9B25
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105469.jpgsave_picture_105469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105469.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105470.jpgsave_picture_105470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105470.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Love Sexy Hot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105471.jpgsave_picture_105471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105471.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:EC98B3E8950675D694EC46E2FA54C513D443EEA0
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105472.jpgsave_picture_105472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105472.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:AF81834515EE961B2554CB048B0A545A7D832A46
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105473.jpgsave_picture_105473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105473.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:251589C9096648CFACDF525D3C65182CCCC6D43E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105474.jpgsave_picture_105474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105474.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ AirBrush: ИИ Фоторедактор v7.1.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105475.jpgsave_picture_105475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105475.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:F97F3AEB2F3968E13CDE7C332561304ED1973A03
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105476.jpgsave_picture_105476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105476.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:0474FCCDA3F197A421C7F67B7A58FD5406AB1BF1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105477.jpgsave_picture_105477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105477.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Eddie & The Wolves - Tasty Sin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105478.jpgsave_picture_105478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105478.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Altar Of Oblivion - In The Cesspit Of Divine Decay (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105479.jpgsave_picture_105479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105479.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Orgone - Pleroma (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105480.jpgsave_picture_105480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105480.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Mauro Montobbio - Scattered Memories (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105481.jpgsave_picture_105481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105481.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Metroland - Forum (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal Electro, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105482.jpgsave_picture_105482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105482.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:12796BFB556B9A0B9FE98F7C13E9B48F40A61949
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105483.jpgsave_picture_105483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105483.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - SkyFall Summer 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105484.jpgsave_picture_105484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105484.jpg" />
 </div>
 
 

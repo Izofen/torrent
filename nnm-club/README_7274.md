@@ -6,7 +6,7 @@ Cisco Aspire (L / Beta) [En] 2011
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248970.jpgsave_picture_248970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248970.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ In The Nursery - 35 albums (1986-2011) [mp3|320 kbps] <Neoclassical, Darkwave, I
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248971.jpgsave_picture_248971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248971.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ In The Nursery - 35 albums (1986-2011) [mp3|320 kbps] <Neoclassical, Darkwave, I
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248974.jpgsave_picture_248974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248974.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Зарубежная Дискотека 80-х (2012) [MP3|256 кб/с]<Disc
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248980.jpgsave_picture_248980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248980.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:73FCE2E740034C05179C0E9F7652BBB12BD42ABB
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248981.jpgsave_picture_248981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248981.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:73FCE2E740034C05179C0E9F7652BBB12BD42ABB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248984.jpgsave_picture_248984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248984.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:73FCE2E740034C05179C0E9F7652BBB12BD42ABB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248985.jpgsave_picture_248985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248985.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248988.jpgsave_picture_248988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248988.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:DB928B70EDC89A0D3902286E5630F88223963AE3
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248990.jpgsave_picture_248990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248990.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Infected Mushroom - Army Of Mushrooms (2012) [MP3|320 кб/с]<Psychedelic / Goa
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248993.jpgsave_picture_248993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248993.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:40CD3F04B7E16E250CC77C99FEB3FE12A37F34D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248995.jpgsave_picture_248995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_248995.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:40CD3F04B7E16E250CC77C99FEB3FE12A37F34D5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249000.jpgsave_picture_249000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249000.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:40CD3F04B7E16E250CC77C99FEB3FE12A37F34D5
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249002.jpgsave_picture_249002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249002.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:2113C428D756F50B70FF935D21F73E295CD549BB
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249005.jpgsave_picture_249005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249005.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:9A8AD743E36982FDA6CA279C3C2282810696CC04
 >>55
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249006.jpgsave_picture_249006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249006.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:9A8AD743E36982FDA6CA279C3C2282810696CC04
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249010.jpgsave_picture_249010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249010.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:4E4AD3C78E1FF3EB939093120136F90089008BB5
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249011.jpgsave_picture_249011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249011.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Windows 7 Ultimate SP1 (x86/x64) by HoBo-Group v3.2.3 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249012.jpgsave_picture_249012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249012.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Windows 7 Ultimate SP1 (x86/x64) by HoBo-Group v3.2.3 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249013.jpgsave_picture_249013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249013.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:6C2C94A8F97AE60AFD7E28C316EE6552AD9890D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249014.jpgsave_picture_249014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249014.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Microsoft Lync 2010 Client RUS x64 4.0.7577.0 [Русский]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249015.jpgsave_picture_249015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249015.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Crysis Wars: Wreckage [En] (Mod / L / 1.0) 2012 | Chrjs
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249017.jpgsave_picture_249017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249017.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:4B99B2F6D7BEAD2EF4F4FF191AE46D492F45F049
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249024.jpgsave_picture_249024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249024.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Robert Kane - Blues Is Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249026.jpgsave_picture_249026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249026.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Scott Weis Band - Scott Weis Band XX (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249027.jpgsave_picture_249027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249027.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Stray Dawg and the Wolves - Blues on the Inside (2025) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249028.jpgsave_picture_249028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249028.jpg" />
 </div>
 
 

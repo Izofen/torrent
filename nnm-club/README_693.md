@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18344.jpgsave_picture_18344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18344.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Crow Country (2024) [Multi] (Build 18435138) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18345.jpgsave_picture_18345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18345.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B1BE10F7A874AD9525293BB834DD4E8D08DB3DED
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18346.jpgsave_picture_18346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18346.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Howl no Ugoku Shiro | Howl's Moving Castle | Ходячий Замок [2004, Mo
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18347.jpgsave_picture_18347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18347.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:4589389CD0A39014F8AA5FAD78779F4E2802E869
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18348.jpgsave_picture_18348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18348.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:4589389CD0A39014F8AA5FAD78779F4E2802E869
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18349.jpgsave_picture_18349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18349.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:12D74178E5108A59E259BAB0649ED6AEE1A92DE6
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18350.jpgsave_picture_18350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18350.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7F21454427B1DA589E5D688062FF8F045CC68DF7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18351.jpgsave_picture_18351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18351.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Crystal Project (2023) [En] (1.6.6.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18352.jpgsave_picture_18352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18352.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Adguard 7.20.3 (7.20.4994.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18353.jpgsave_picture_18353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18353.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:FA54D5064DAD3C72C965A18C937C95A9B55FBBF5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18354.jpgsave_picture_18354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18354.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:FA54D5064DAD3C72C965A18C937C95A9B55FBBF5
 >>Сверхъестественное / Supernatural
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18355.jpgsave_picture_18355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18355.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:F80A6CA19F89B95D10583C8ECDF3D48ACEA8F1F1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18356.jpgsave_picture_18356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18356.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:0D7F15462E675A7EE53602FB19F8F3707A5862F2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18357.jpgsave_picture_18357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18357.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:DCB148D3E8025C5C810C29CB143B29FC1A7CBBD5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18358.jpgsave_picture_18358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18358.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ The Sinking City (2019) [Ru/Multi] (Build 18222381/dlc) Repack Let'sРlay [Remas
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18359.jpgsave_picture_18359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18359.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:35A392AFABC6167D2EA7E6DA150A78E6FEA2C2D9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18360.jpgsave_picture_18360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18360.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18361.jpgsave_picture_18361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18361.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:34D25FC79582ADE34F02FEDED8C4A31C144695A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18362.jpgsave_picture_18362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18362.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18363.jpgsave_picture_18363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18363.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C3874140E5D30283705A1FBFF2E49C2E296AA151
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18364.jpgsave_picture_18364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18364.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:C3874140E5D30283705A1FBFF2E49C2E296AA151
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18365.jpgsave_picture_18365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18365.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18366.jpgsave_picture_18366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18366.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:924D4236FC764C6444EC2A9E523672F0C8160622
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18367.jpgsave_picture_18367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18367.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Battle Brothers (2017) [En] (1.5.1.7/dlc) License GOG [Supporter Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18368.jpgsave_picture_18368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18368.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Black Mesa (2020) [Ru/Multi] (Build 18431108/dlc) Repack Decepticon [Definitive 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18369.jpgsave_picture_18369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18369.jpg" />
 </div>
 
 

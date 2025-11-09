@@ -6,7 +6,7 @@
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57515.jpgsave_picture_57515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57515.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ ALLPlayer 9.2.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57516.jpgsave_picture_57516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57516.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Snooper Professional 3.4.9 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57517.jpgsave_picture_57517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57517.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0E9990F4823AF1E4F69AD5707CC944A544D7A2A0
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57518.jpgsave_picture_57518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57518.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:50FAA57A6C1FBD9403AB4EABBD95F9D52DC3C0A4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57519.jpgsave_picture_57519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57519.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:EAA34E49980D301227D967F517AE1DFBE7CFA1B8
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57520.jpgsave_picture_57520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57520.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F45FBD82C66415EA4C72D041E6875E6AAD4D2EA5
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57521.jpgsave_picture_57521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57521.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:332E758648428FF3CC50482FB9D3D3CD89217D4A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57522.jpgsave_picture_57522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57522.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ NetSetMan 5.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57523.jpgsave_picture_57523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57523.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ GIMP 2.10.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57524.jpgsave_picture_57524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57524.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Delete.On.Reboot 3.31 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57525.jpgsave_picture_57525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57525.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:72C72ADF4B323F718D02ED024DE138DE0DB34427
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57526.jpgsave_picture_57526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57526.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:E31472E60C9B5C0322A748AA6AABC9B0B86A4352
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57527.jpgsave_picture_57527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57527.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E31472E60C9B5C0322A748AA6AABC9B0B86A4352
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57528.jpgsave_picture_57528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57528.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E31472E60C9B5C0322A748AA6AABC9B0B86A4352
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57529.jpgsave_picture_57529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57529.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:F0DB7B43F8B5A707BC180D1E0D5F8144F6D47447
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57530.jpgsave_picture_57530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57530.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:F0DB7B43F8B5A707BC180D1E0D5F8144F6D47447
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57531.jpgsave_picture_57531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57531.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Michael Jackson - Bad (Remastered) (1987) 2012 [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57532.jpgsave_picture_57532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57532.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:B2779AAAA50329C9E2297874308AEB9CB1790FF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57533.jpgsave_picture_57533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57533.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Product University | Анализ данных с AI (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57534.jpgsave_picture_57534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57534.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:7AA9583A3E76FB0067F999639C758A4385537845
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57535.jpgsave_picture_57535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57535.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Adobe Acrobat Reader 2024.002.20736.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57536.jpgsave_picture_57536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57536.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57537.jpgsave_picture_57537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57537.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Leonard Cohen - Thanks for the Dance (2019) Columbia Records [FLAC|Lossless|WEB-
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57538.jpgsave_picture_57538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57538.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ IrfanView 4.67 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57539.jpgsave_picture_57539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57539.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0B9EA5C347E1FA78E2049D24223792DF868E5AD8
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57540.jpgsave_picture_57540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57540.jpg" />
 </div>
 
 

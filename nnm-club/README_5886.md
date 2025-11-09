@@ -6,7 +6,7 @@ AnyTrans 8.9.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185187.jpgsave_picture_185187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185187.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Jeff Lynne's ELO - From Out Of Nowhere (2019) Japanese Edition [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185188.jpgsave_picture_185188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185188.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:EAAE84124F3479E992E6176018C2FFAFD922A5B8
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185190.jpgsave_picture_185190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185190.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ It's My Life | Это моя жизнь! [2019, OVA, 1 эп.] DVDRip 576p 10bit 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185192.jpgsave_picture_185192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185192.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Reggae Christmas! (2020) [MP3|320 Kbps] <Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185195.jpgsave_picture_185195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185195.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Mate Translate 7.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185199.jpgsave_picture_185199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185199.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:ADDB8937AB75C73DBE1A7603929207C239767146
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185200.jpgsave_picture_185200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185200.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4AF47DEB93B92143F52D7654DA14D6C4C545552B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185203.jpgsave_picture_185203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185203.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Topaz Photo AI 2.0.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185204.jpgsave_picture_185204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185204.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Audiobook Builder 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185206.jpgsave_picture_185206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185206.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:39D9F6B4265BB5FC282482BB6016B3EF7771DCB3
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185208.jpgsave_picture_185208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185208.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ WiFi Explorer Pro 3 v.3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185209.jpgsave_picture_185209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185209.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:87C8C1FDF437C1AD19E6120D388CDD438185FAFA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185212.jpgsave_picture_185212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185212.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Office.Files.Images 2.45 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185213.jpgsave_picture_185213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185213.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Various - Greatest Hits Of The 90's (2004) 8 CD Box [OGG Vorbis|480 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185214.jpgsave_picture_185214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185214.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:365CDDCA45DE567A3BB6616F792603E28E0E1EFC
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185217.jpgsave_picture_185217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185217.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Windows 10 Manager 3.8.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185218.jpgsave_picture_185218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185218.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:04C258684442B59103DDF70E0494F14801B55DD4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185219.jpgsave_picture_185219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185219.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:8E9E746C62A0DA5FAD45289B671553EB4096448B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185222.jpgsave_picture_185222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185222.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Room Arranger 9.8.0.640 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185223.jpgsave_picture_185223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185223.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:829C24E0796D71EF62B7A716C12D8911B9552336
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185224.jpgsave_picture_185224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185224.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:07CD9840772F3D45738E0F2234FBF53B6F6D8FFF
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185226.jpgsave_picture_185226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185226.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Dead Blonde - 3 альбома, 6 синглов (2020-2022) [MP3|320 Kbps] <Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185227.jpgsave_picture_185227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185227.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ LibreOffice 7.6.2.1 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185229.jpgsave_picture_185229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185229.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - В машине с музыкой Vol.319 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185230.jpgsave_picture_185230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185230.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:64AE046416FAD72524782C70F3C299D953DEA65F
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185231.jpgsave_picture_185231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185231.jpg" />
 </div>
 
 

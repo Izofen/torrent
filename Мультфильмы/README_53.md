@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69136.jpgsave_picture_69136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69136.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:DF31DB78D0CF9FC4848F7C2DEB5F7BC561060D23
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69237.jpgsave_picture_69237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69237.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:CECDC0D9BC1F02CE5EFA045E6B9681AD03A863F1
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69286.jpgsave_picture_69286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69286.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:6C6AB6C7B55F417E75CA57578F2DBD8F988F9BC1
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69381.jpgsave_picture_69381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69381.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:FF9B33F8C2B66239162E1014DAB470B403E119F4
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69425.jpgsave_picture_69425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69425.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:64BFFBCA2BD1CDC127F253699FCF735EB1C1A7B7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69543.jpgsave_picture_69543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69543.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:77B753EBD70D3980731F4FA6009DC5B31332EEB0
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70029.jpgsave_picture_70029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70029.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:9A33333B39D1176ACBC34B33FFBAC263176E82C6
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70085.jpgsave_picture_70085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70085.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:90071F4DAB55B30E256255E3BF71C234CF9E8B2B
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70090.jpgsave_picture_70090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70090.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:0D5CD957E20828BAED83C6B59A2529C45D4A727C
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70106.jpgsave_picture_70106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70106.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:6E12DBF7AE5E8D68492B20EE32B84C783F0CB661
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70119.jpgsave_picture_70119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70119.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:171F138A501DCC2E8A24419C79FB584D261240FC
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70137.jpgsave_picture_70137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70137.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:6C1F1BFB88A7511C8C683CC22A7F1EE98AC2F326
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70209.jpgsave_picture_70209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70209.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:C7641DADE0085F0C078BDFBBFE5E96CA25E7BFB2
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70302.jpgsave_picture_70302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70302.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:FCF49BC4681DF07E7C3F747FF04A4365365760BF
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70312.jpgsave_picture_70312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70312.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:ED8898753148094F6657A9D769680B378D2D6F82
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70415.jpgsave_picture_70415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70415.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:71795E807583BE06644065622144C7E52E3DF2BB
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70444.jpgsave_picture_70444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70444.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:700D57DAA9E0A26287C085ED6026CA58B43A6509
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70473.jpgsave_picture_70473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70473.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:2BF693D4906F4684445C804C735576A81CF6C75B
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70595.jpgsave_picture_70595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70595.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:E93784FD1330815612D8B51DD84F36CE0786BE7A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70659.jpgsave_picture_70659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70659.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:9753273EF3A18F2750D0BBFF7D2D3C9A6CD2013D
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70746.jpgsave_picture_70746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70746.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:6A551C3EDD1E37D4BBDF71960CDFF58C6867C6CE
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70819.jpgsave_picture_70819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70819.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:6196A171F9383FF4F1CACDBCEA55A4155789E62D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70836.jpgsave_picture_70836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70836.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:8D6370FB2C9AB3C25CDEA8E9FC76D97C205671D7
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70858.jpgsave_picture_70858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70858.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:10DB05CF98CE510930C57AFFBA25CB6466CFE572
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71037.jpgsave_picture_71037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71037.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:DDD2B9BD2682CD3884F7C6DFB85DCEF5A7B3736D
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71129.jpgsave_picture_71129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71129.jpg" />
 </div>
 
 

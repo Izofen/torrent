@@ -6,7 +6,7 @@ Colin Hay - Man @ Work Volume 2 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7996.jpgsave_picture_7996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7996.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:18C3F90F4AA193007B73576EEEF1E73F807D972D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7997.jpgsave_picture_7997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7997.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9364CC25F3DC3A6D66E65970E5534C42C70C7B72
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7998.jpgsave_picture_7998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7998.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ A-Z (Ray Alder, Mark Zonder (Fates Warning)) - Studio Albums (2 releases) (2022-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7999.jpgsave_picture_7999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7999.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:0D35C4026A560D39D6FAB5A289F0452106F74B6C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8000.jpgsave_picture_8000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8000.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Forestry Road - Forestry Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8001.jpgsave_picture_8001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8001.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Frost Drift - Let's Begin Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8002.jpgsave_picture_8002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8002.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:921078F5ED332E9F6F52D709D008F1EE7BC1B99E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8003.jpgsave_picture_8003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8003.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Caden Morrowick - Total Spin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8004.jpgsave_picture_8004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8004.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Grit Slide - Hexed Ground (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8005.jpgsave_picture_8005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8005.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:C6DD644AC1E1C99FF40B6B6D4F130A0C9B6C2DDD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8006.jpgsave_picture_8006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8006.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:CDC8496B24E36A22B1790CDF92E584F1187F5203
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8007.jpgsave_picture_8007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8007.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:FB64F317A705A5535880A4F1BDF73A4450CF3DA3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8008.jpgsave_picture_8008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8008.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Fade Poet - Spirit of a Rebel (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8009.jpgsave_picture_8009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8009.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Forgotten Roadz - Everything in Between, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8010.jpgsave_picture_8010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8010.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ DJ T. - Rising (2005) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Acid>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8011.jpgsave_picture_8011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8011.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Crooked Myth - Wrong Deal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8012.jpgsave_picture_8012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8012.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:CDF1B3C41172B3136B7C808F6CFEC68A9F633176
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8013.jpgsave_picture_8013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8013.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:AA1EBC685F4B100BC204D4A2A3CF6EC631107082
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8014.jpgsave_picture_8014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8014.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:822C2CB537B2641089A09D415993100FD338DB9B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8015.jpgsave_picture_8015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8015.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:DE9E7F6F4C5F0A9D25A33747643E5DEF4E2B30BE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8016.jpgsave_picture_8016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8016.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Haunt - Ignite (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8017.jpgsave_picture_8017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8017.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:7CC2C669B33F8E7B92EBEA36FAE92D310A888F56
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8018.jpgsave_picture_8018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8018.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:993D0EE640AF48628488FFB3DC024DDC34BE889E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8019.jpgsave_picture_8019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8019.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:CEC503118ACFD700117CEFC16C691C2176E30C81
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8020.jpgsave_picture_8020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8020.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:DD8E183B3A458001B2EED08E2F4034FA16ED17F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8021.jpgsave_picture_8021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8021.jpg" />
 </div>
 
 

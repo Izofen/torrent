@@ -6,7 +6,7 @@ myTracks 4.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171077.jpgsave_picture_171077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171077.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lord Vampyr - The Vampire's Legacy (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171078.jpgsave_picture_171078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171078.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ CheckBook Pro 2.7.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171079.jpgsave_picture_171079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171079.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Saviour Machine - Saviour Machine II (1994) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171080.jpgsave_picture_171080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171080.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Theatres Des Vamires - Vampyrisme... (2002) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171081.jpgsave_picture_171081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171081.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MetaRename for Mac 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171082.jpgsave_picture_171082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171082.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Robert Conti - You Are The Sunshine Of My Life (1985) Trend [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171083.jpgsave_picture_171083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171083.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Gaslight Anthem - History Books (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171084.jpgsave_picture_171084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171084.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Manbryne - Interregnum: O probie wiary i jarzmie zwatpienia (2023) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171085.jpgsave_picture_171085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171085.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Toshiyuki Miyama & The New Herd - Gallery (1979) Three Blind Mice [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171086.jpgsave_picture_171086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171086.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Airtool 2 v.2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171087.jpgsave_picture_171087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171087.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Vision Bleak - Timeline - An Introduction To The Vision Bleak (2016) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171088.jpgsave_picture_171088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171088.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Assumption - Absconditus (2018) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171089.jpgsave_picture_171089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171089.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Saviour Machine - Legend Part I (1997) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171090.jpgsave_picture_171090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171090.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Vision Bleak - The Deathship Has A New Captain (2004) 10th Anniversary Editi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171091.jpgsave_picture_171091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171091.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Saviour Machine - Legend Part II (1998) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171092.jpgsave_picture_171092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171092.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Author 9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171093.jpgsave_picture_171093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171093.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Theatres Des Vamires - Anima Noir (2009) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171094.jpgsave_picture_171094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171094.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Saviour Machine - Saviour Machine I (1993) [FLAC|Lossless|image + .cue] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171095.jpgsave_picture_171095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171095.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Integrity Pro 12.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171096.jpgsave_picture_171096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171096.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Cookie 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171097.jpgsave_picture_171097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171097.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Counter-Strike: Global Offensive (2012) [Ru/Multi] (1.38.8.1) Repack SE7EN
 >>61
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171098.jpgsave_picture_171098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171098.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:6C74B593455CC1C53A50E15AAD8130E8AE9E00F5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171099.jpgsave_picture_171099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171099.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:B24857E9D8E719A35BCB0448AF04030E369699D4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171100.jpgsave_picture_171100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171100.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:9F301A0F960C4D4D272C5F3E2323D91302FBD5F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171101.jpgsave_picture_171101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171101.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:10A1AB88FABDD92CE012257009144A647EED4CC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171102.jpgsave_picture_171102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171102.jpg" />
 </div>
 
 

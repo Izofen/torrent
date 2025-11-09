@@ -6,7 +6,7 @@ Hidden Through Time 2: Myths & Magic (2023) [Ru/Multi] (1.0.30a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176418.jpgsave_picture_176418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176418.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176429.jpgsave_picture_176429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176429.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Bilkins Folly (2023) [En] (1.0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176443.jpgsave_picture_176443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176443.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Bilkins Folly (2023) [En] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176568.jpgsave_picture_176568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176568.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Amok Runner (2022) [Ru/Multi] (9865847) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179471.jpgsave_picture_179471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179471.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Monkey Island 2: LeChuck’s Revenge (2010) [Multi] (2.0.0.10) License GOG [Spec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179602.jpgsave_picture_179602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179602.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179789.jpgsave_picture_179789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179789.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Demonologist (2023) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179794.jpgsave_picture_179794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_179794.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Noch (2023) [Ru/Multi] (1.0.0.12532) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179834.jpgsave_picture_179834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179834.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ ZED (2019) [En] (1.3) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180507.jpgsave_picture_180507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180507.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Torn Away (2023) [Ru/Multi] (Build 12315550) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181033.jpgsave_picture_181033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181033.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181108.jpgsave_picture_181108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181108.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tails Noir (2021) [Ru/Multi] (11857296/dlc) Scene Tenoke [Artifact Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181113.jpgsave_picture_181113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181113.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Tails Noir Preludes (2023) [En] (11891862/dlc) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181208.jpgsave_picture_181208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181208.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181211.jpgsave_picture_181211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181211.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182043.jpgsave_picture_182043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182043.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Bendy and the Dark Revival (2022) [En] (1.0.0.0215) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182713.jpgsave_picture_182713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182713.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Many Pieces of Mr. Coo (2023) [Ru/Multi] (1.00.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182868.jpgsave_picture_182868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182868.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (1217_27401) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183333.jpgsave_picture_183333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_183333.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.1.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183850.jpgsave_picture_183850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183850.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Seedlings (2023) [Multi] (12245758) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184233.jpgsave_picture_184233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184233.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184832.jpgsave_picture_184832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184832.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Paranormal VHS (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185043.jpgsave_picture_185043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185043.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Scars Above (2023) [Ru/Multi] (1.0.0.132679) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185634.jpgsave_picture_185634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185634.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Heart of the Woods (2019) [Multi] (2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185849.jpgsave_picture_185849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185849.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ EDENGATE: The Edge of Life (2022) [Ru/Multi] (20221004_1217_27401) Repack Other 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187337.jpgsave_picture_187337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187337.jpg" />
 </div>
 
 

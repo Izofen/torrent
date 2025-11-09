@@ -6,7 +6,7 @@ nobody.one - 4 Альбома (2010-2015) [MP3|128-320 кб/с] <Instrumental Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143003.jpgsave_picture_143003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143003.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E6EA1D2B1888558AF4AFDC92F2658A3B4022DF2D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143004.jpgsave_picture_143004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143004.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Skillbox, Дмитрий Сидорин и др. | Управление репу
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143005.jpgsave_picture_143005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143005.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DEE9C843321F63604CA8A37F3F00765F15DA9AAF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143006.jpgsave_picture_143006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143006.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:9446116694AB70EEC7939ADD1A1EE45D015DD6F8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143008.jpgsave_picture_143008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143008.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9A84EDE28F778ED37EC80FD667E5876424112506
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143009.jpgsave_picture_143009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143009.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Movavi Screen Recorder 22.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143010.jpgsave_picture_143010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143010.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - My Favourite Hits of 1962 (4CD) (2015) [MP3|320 кб/с] <Instrumental, Fun
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143011.jpgsave_picture_143011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143011.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Виртуозы жанра: Women's Blues 2CD, vol. 24 (2015)[MP3|320 кб
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143013.jpgsave_picture_143013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143013.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:C59EF9E242CB4099B079C8BF4CD4722B5E5F1C54
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143014.jpgsave_picture_143014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143014.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Happy Pop Hits (2018) [MP3|320 Kbps] <Pop, RnB, Alternative, Indie>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143015.jpgsave_picture_143015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143015.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:7B034BEC12706C71BF9CDEFCE178E95C45866456
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143016.jpgsave_picture_143016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143016.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:5018A65E8BA9D3632081DDE5D4B54D7C3E71EEE9
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143017.jpgsave_picture_143017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143017.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143018.jpgsave_picture_143018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143018.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:53EDDA158A8AC3BB2431B7435B827CE7020F62F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143019.jpgsave_picture_143019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143019.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:A6121194ADE4D9B0A8DDEF0EF3E6DC88A230A14B
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143020.jpgsave_picture_143020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143020.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143021.jpgsave_picture_143021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143021.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ PhotoLinker 3.5.15 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143022.jpgsave_picture_143022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143022.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:8DDACBD9D1A51F97D67CDDF671A0A79CBCA44634
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143023.jpgsave_picture_143023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143023.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:C92AD94379D202310762A7D5B69DDA64C2CF0BBC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143024.jpgsave_picture_143024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143024.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Zentimo xStorage Manager 2.2.1.1278 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143025.jpgsave_picture_143025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143025.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ iZotope - Ozone 9 Advanced 9.11.1 STANDALONE, VST, VST3, AAX (x64) RePack by VR 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143026.jpgsave_picture_143026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143026.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Club Dubstep №22 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143027.jpgsave_picture_143027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143027.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:2C97E18790E421340CB250D4E4322AA1A69D8DA8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143028.jpgsave_picture_143028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143028.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ SamDrivers 19.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143029.jpgsave_picture_143029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143029.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:4B3DBBC9285BCC03BC0DE08F7C943F15F1D634AB
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143030.jpgsave_picture_143030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143030.jpg" />
 </div>
 
 

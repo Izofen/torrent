@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44687.jpgsave_picture_44687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44687.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D30B706444C0C043376C6805D924B1CF309F87AD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44688.jpgsave_picture_44688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44688.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44689.jpgsave_picture_44689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44689.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Bandicam 7.1.4.2458 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44690.jpgsave_picture_44690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44690.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:4F1138F8EBE8404575E90E929485189AD7C5A5C8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44691.jpgsave_picture_44691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44691.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4F1138F8EBE8404575E90E929485189AD7C5A5C8
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44692.jpgsave_picture_44692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44692.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:87EBC440534E130FC851A089034309DC83FF3B88
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44693.jpgsave_picture_44693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44693.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Wizardry: Proving Grounds of the Mad Overlord (2024) [Multi] (1.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44694.jpgsave_picture_44694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44694.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:45F7CD02ED2E86713DB3277A58CF7DF0D8CC052E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44695.jpgsave_picture_44695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44695.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Floorp Browser 11.18.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44696.jpgsave_picture_44696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44696.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Date Z (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44697.jpgsave_picture_44697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44697.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AOMEI Partition Assistant Technician Edition 10.4.2 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44698.jpgsave_picture_44698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44698.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:21E354256B0BEEAC4612CCE06AC6698F697CEBCF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44699.jpgsave_picture_44699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44699.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:F6809126CE9E570E7EC437BC5F41B93E0E5AFB5F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44700.jpgsave_picture_44700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44700.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Rick Astley - Free (1991) Remaster, 2024,  BMG [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44701.jpgsave_picture_44701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44701.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Stratovarius - Demand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44702.jpgsave_picture_44702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44702.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Привет, менты! (Ништяк, браток!) (1998) [MP3|320 Kbp
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44703.jpgsave_picture_44703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44703.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Freakangel - Serenity To The Stars, Beauty To The Broken (2024) [FLAC|Lossless|W
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44704.jpgsave_picture_44704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44704.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:933D50E6E3477A70B1584D95EEC6F3861262C9AB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44705.jpgsave_picture_44705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44705.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:B450CEA4DC520CB0C3834B346FEA8079AEB064E8
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44706.jpgsave_picture_44706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44706.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:3562662079FD8F215232FF4D80F1F8ADAF14CD8B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44707.jpgsave_picture_44707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44707.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ XMedia Recode 3.6.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44708.jpgsave_picture_44708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44708.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Vocal Trance Collection Vol. 2 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44709.jpgsave_picture_44709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44709.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Two Friends - Big Bootie Mix Vol. 25 (2024-08-29) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44710.jpgsave_picture_44710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44710.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:4DA0FD9755C128240922E86C122507537255F97D
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44711.jpgsave_picture_44711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44711.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:82E3A34C79A226756C746F704A1D29056581BC28
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44712.jpgsave_picture_44712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44712.jpg" />
 </div>
 
 

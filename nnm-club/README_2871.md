@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83976.jpgsave_picture_83976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83976.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83978.jpgsave_picture_83978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83978.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83979.jpgsave_picture_83979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83979.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:1C7DDDB7B56C8B94B32FF6D9AC293F0CB3EBE2C5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83980.jpgsave_picture_83980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83980.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Camstudio 2.6 Build r294 Beta [Английский/Немецкий]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83981.jpgsave_picture_83981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83981.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CamStudio - эта программа записывает все, что про
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83982.jpgsave_picture_83982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83982.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Winstep Nexus v.12.2 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83985.jpgsave_picture_83985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83985.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Winstep Nexus - компактная, удобная и красивая пан�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83987.jpgsave_picture_83987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83987.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Nancy Drew: The Final Scene / Нэнси Дрю похищение в театр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83988.jpgsave_picture_83988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83988.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:671FCCD7A0C4BE18689E0717FE666BB3CF666852
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83989.jpgsave_picture_83989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83989.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:9F542BA35515D0D2D2D9C641112EAD26BBED6034
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83992.jpgsave_picture_83992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83992.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Endels 1.00 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83993.jpgsave_picture_83993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83993.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Endels (New Denwer Local Server, аббревиатура читается ка�
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83996.jpgsave_picture_83996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83996.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Endels (New Denwer Local Server, аббревиатура читается ка�
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83997.jpgsave_picture_83997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83997.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ DivFix++v0.34 [Multi/Русский]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83998.jpgsave_picture_83998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83998.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ avast! Rescue CD v.1.0.3 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83999.jpgsave_picture_83999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83999.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ avast! Rescue CD v.1.0.3 [Multi / Rus]
 >>34
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84000.jpgsave_picture_84000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84000.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:64B56FD6060148DB5B3E04E5038C01B1176C5DCA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84001.jpgsave_picture_84001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84001.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:C00CBF245EEB7FEAE32BD32E985E11ACEB56A658
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84002.jpgsave_picture_84002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84002.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:C00CBF245EEB7FEAE32BD32E985E11ACEB56A658
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84005.jpgsave_picture_84005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84005.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84006.jpgsave_picture_84006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84006.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:E6F10505F13EA6E253CD4D7B15607C0B3CC5CB2C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84007.jpgsave_picture_84007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84007.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Angry Birds Space {1.0.0} (L) [En] 2012 | THETA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84008.jpgsave_picture_84008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84008.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:07029AF4C52EC457D31F281A408A75A9FE8FF77F
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84009.jpgsave_picture_84009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84009.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Battlefield Vietnam [En/Ru] (P) 2004
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84010.jpgsave_picture_84010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84010.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (Lossless RePack) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84011.jpgsave_picture_84011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84011.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163723.jpgsave_picture_163723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163723.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Elasto Mania Remastered (2000) [En] (1.19) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164059.jpgsave_picture_164059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164059.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168843.jpgsave_picture_168843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168843.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Warcraft Adventures: Lord of the clans (1998) [Ru] (3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170947.jpgsave_picture_170947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170947.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171485.jpgsave_picture_171485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171485.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171973.jpgsave_picture_171973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171973.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Search and Rescue: Vietnam Med Evac / Вьетнамский апокалипс�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172943.jpgsave_picture_172943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172943.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173449.jpgsave_picture_173449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173449.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Tales of Monkey Island: Complete Season (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175882.jpgsave_picture_175882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175882.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175912.jpgsave_picture_175912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175912.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176429.jpgsave_picture_176429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176429.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Monkey Island 2: LeChuck’s Revenge (2010) [Multi] (2.0.0.10) License GOG [Spec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179602.jpgsave_picture_179602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179602.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181108.jpgsave_picture_181108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181108.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ realMyst: Masterpiece Edition (2014) [En] (2.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181211.jpgsave_picture_181211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181211.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182043.jpgsave_picture_182043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_182043.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Space Rangers 2: Reboot / Космические рейнджеры 2: Доми�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184050.jpgsave_picture_184050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184050.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Star Wolves 2 (2006) [Multi] (1.01pl) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184096.jpgsave_picture_184096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184096.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184749.jpgsave_picture_184749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184749.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ FlatOut (2004) [Ru/En] (1.1) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185655.jpgsave_picture_185655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185655.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186077.jpgsave_picture_186077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186077.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Diablo II (2000) [En] (1.14d/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186086.jpgsave_picture_186086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186086.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187902.jpgsave_picture_187902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187902.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187991.jpgsave_picture_187991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187991.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу вр
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188172.jpgsave_picture_188172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188172.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188357.jpgsave_picture_188357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188357.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189547.jpgsave_picture_189547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189547.jpg" />
 </div>
 
 

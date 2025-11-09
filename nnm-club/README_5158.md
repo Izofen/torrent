@@ -6,7 +6,7 @@ BetterTouchTool 4.317 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160849.jpgsave_picture_160849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160849.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9E9A6EB4B7BC0D08511CB2A4A469C05C78F6AB0F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160850.jpgsave_picture_160850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160850.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A1388666C90A78B3B5E4DC3F7857180449D4AB99
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160851.jpgsave_picture_160851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160851.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Let´s Go Dancing All Night (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160852.jpgsave_picture_160852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160852.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:96176F30E7A2F5C771173F6B9FAAC1EBC97C10F8
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160853.jpgsave_picture_160853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160853.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Busuu - изучение языков 31.6.0(843845) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160854.jpgsave_picture_160854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160854.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Steve Pope - The Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160855.jpgsave_picture_160855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160855.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A97E8F45032F17242DD8DADD3645086950A39C6A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160856.jpgsave_picture_160856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160856.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E715FF5F1176BCCE8C636E52CE5D85C8A8EDB483
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160857.jpgsave_picture_160857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160857.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:B42190387ED1F7E2725E6B30DA5A0509F036AD61
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160858.jpgsave_picture_160858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160858.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:27DE8CBCA1F31255D57D1B33574211CE5C9ED17A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160859.jpgsave_picture_160859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160859.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:F7B90401C94C2E5DDE7232C3A9C9605C05590592
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160860.jpgsave_picture_160860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160860.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ DGM - Momentum (2013) Reissue, 2014, Night Of The Vinyl Dead Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160861.jpgsave_picture_160861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160861.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:27BE03017CA1294C04BF4CA13EA7798BADCDA914
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160862.jpgsave_picture_160862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160862.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Two Witches - The Singles Collection (2005) [FLAC|Lossless|image + .cue] <Gothic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160863.jpgsave_picture_160863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160863.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stats 2.9.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160864.jpgsave_picture_160864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160864.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Tower Pro 10 v.10.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160865.jpgsave_picture_160865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160865.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Chico Hamilton Quintet with Eric Dolphy - The Original Ellington Suite (1958) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160866.jpgsave_picture_160866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160866.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Dato 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160867.jpgsave_picture_160867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160867.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Toshiyuki Miyama & The New Herd - The New Herd At Monterey (1974) 2CD, 1999, Abs
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160868.jpgsave_picture_160868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160868.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Gutter Creek - Fangs To The Face (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160869.jpgsave_picture_160869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160869.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Two Witches - Bites (1995) [FLAC|Lossless|image + .cue] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160870.jpgsave_picture_160870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160870.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Fleurety - Min Tid Skal Komme (1995) Remastered 2019 [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160871.jpgsave_picture_160871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160871.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Cosmitorium - Broken Archetypes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160872.jpgsave_picture_160872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160872.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Acrid - Amalgamate (1999) Reissue, 2017, Self-released [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160873.jpgsave_picture_160873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160873.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Windows 10 Pro 22H2 19045.3570 x64 by SanLex [Lightweight] [Ru/En] (2023.11.03)
 >>22
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160874.jpgsave_picture_160874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160874.jpg" />
 </div>
 
 

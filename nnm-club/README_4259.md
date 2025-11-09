@@ -6,7 +6,7 @@ Anyone - Miracles In The Nothingness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132125.jpgsave_picture_132125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132125.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:01C84CE0CD35C7E011B20E6CB075116C7787BDB1
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132126.jpgsave_picture_132126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132126.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Satanic Warmaster - Carelian Satanist Madness (2005) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132127.jpgsave_picture_132127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132127.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:7ED3ACBB3F3F7A429B0193F61249E1A281E3060C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132129.jpgsave_picture_132129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132129.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:45BCD4865F6895FD7F78FA0A8D6AC09548765E20
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132130.jpgsave_picture_132130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132130.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:4B10C3686B662E3FC333ECB3B910809D617D39D9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132131.jpgsave_picture_132131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132131.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Miss Li - Singles and Selected (2012) [FLAC|Lossless]<Indie Pop, Soul, Vocal Jaz
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132132.jpgsave_picture_132132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132132.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Miss Li - Singles and Selected (2012) [FLAC|Lossless]<Indie Pop, Soul, Vocal Jaz
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132133.jpgsave_picture_132133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132133.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Clifford Jordan - Highest Mountain (1975 - 1978) 2CD, 1999, Camden Deluxe [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132135.jpgsave_picture_132135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132135.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Dyscrasia - Septical Stomach-Pumped Remnants (2004) [FLAC|Lossless]<Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132136.jpgsave_picture_132136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132136.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Lowell Hopper - Soul Fingers (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132137.jpgsave_picture_132137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132137.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Anni Piper - 4 Альбома (2004 - 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132138.jpgsave_picture_132138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132138.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Anni Piper - 4 Альбома (2004 - 2010) [MP3|320 кб/с]<Blues>
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132139.jpgsave_picture_132139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132139.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:BE74BC4A1B5C10160F4B10BAB37A3E7AEF28CF6E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132140.jpgsave_picture_132140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132140.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Haissem - A Sleep of Primeval Ignorance (2022) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132141.jpgsave_picture_132141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132141.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:C489F9EED08116C1224E579FF00AEFC3A4DC9601
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132143.jpgsave_picture_132143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132143.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Dark Fortress - 5 CD (2001-2008) [FLAC|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132144.jpgsave_picture_132144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132144.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Solitary - Nothing Changes (1998) Reissue, 2004, Casket Music [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132145.jpgsave_picture_132145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132145.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Fiona Boyes - 7 Альбомов (2000 - 2011) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132146.jpgsave_picture_132146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132146.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132149.jpgsave_picture_132149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132149.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA-MNM 1000 Limited Edition 5CD (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132150.jpgsave_picture_132150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132150.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Navitel / Навител Навигатор v9.13.73 для карт Q3 2023 v9 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132151.jpgsave_picture_132151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132151.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132152.jpgsave_picture_132152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132152.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Самый убойный хит (2012) [MP3|320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132153.jpgsave_picture_132153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132153.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Niacin - Time Crunch (2001) [WavPack|Lossless]<Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132154.jpgsave_picture_132154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132154.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Windows 8.1 (x86/x64) 20in1 by Eagle123 (07.2023) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132155.jpgsave_picture_132155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132155.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Seelen UI 2.4.4 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104441.jpgsave_picture_104441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104441.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chromium 141.0.7390.66 + Portable (x64) [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104472.jpgsave_picture_104472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104472.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Flyoobe 1.30 Portable [En]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104479.jpgsave_picture_104479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104479.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Internet Download Manager 6.42 Build 50 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104482.jpgsave_picture_104482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104482.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:5463004CB0BE2AA788083A8CA6CD32CA17C89DBE
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104484.jpgsave_picture_104484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104484.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ SoftPerfect RAM Disk 25.10 RePack by KpoJIuK [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104485.jpgsave_picture_104485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104485.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Download Master 7.2.2.1739 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104486.jpgsave_picture_104486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104486.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ GetPixelColor 3.36 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104670.jpgsave_picture_104670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104670.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ ApowerREC 1.7.2.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104689.jpgsave_picture_104689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104689.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Wise Care 365 Pro 7.0.2.682 (акция GiveAway) [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104724.jpgsave_picture_104724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104724.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MuseScore 4.4.1 (x64) Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104733.jpgsave_picture_104733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104733.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PowerISO 8.9 Portable by FC Portables [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104997.jpgsave_picture_104997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104997.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ High-Logic FontCreator Professional 15.0.0.2999 RePack (& Portable) by elchupaca
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105048.jpgsave_picture_105048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105048.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ High-Logic FontCreator Professional 15.0.0.2999 Portable by 7997 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105052.jpgsave_picture_105052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105052.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PDF Shaper Ultimate 14.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105107.jpgsave_picture_105107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105107.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ CareUEyes 2.4.0.0 Pro Portable by FC Portables [Multi]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105801.jpgsave_picture_105801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105801.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ BananaVisualLibraries 1.0.0.2 [Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106064.jpgsave_picture_106064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106064.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ RSS Guard 4.7.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106111.jpgsave_picture_106111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106111.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ File & Image Uploader Donated 8.4.4 Portable by FC Portables [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106394.jpgsave_picture_106394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106394.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Beyond Compare Pro 5.0.1.29877 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106449.jpgsave_picture_106449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106449.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ DiskGenius Pro 5.6.0.1565 (x64) Portable by FC Portables [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106811.jpgsave_picture_106811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106811.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Glary Disk Cleaner 6.0.1.13 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106851.jpgsave_picture_106851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106851.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ MetaX 2.88 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106874.jpgsave_picture_106874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106874.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Glary Tracks Eraser 6.0.1.10 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106879.jpgsave_picture_106879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106879.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ MagicMouseTrails 3.96 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107143.jpgsave_picture_107143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107143.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ RadioMaximus 2.33.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107153.jpgsave_picture_107153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107153.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Chillhop Guitar - Guitar Resort (2021) [AAC|~319 Kbps] <Chill Out, Smooth Jazz, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234870.jpgsave_picture_234870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234870.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dropkick Murphys - Turn Up That Dial (2021) Expanded Version [FLAC 2.0|96/44.1/2
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234871.jpgsave_picture_234871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234871.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Solfar - Light Tomb (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234873.jpgsave_picture_234873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234873.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Red Bazar - Tales From The Bookcase (2016) [FLAC|Lossless|tracks + .cue]<Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234874.jpgsave_picture_234874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234874.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ AudioBaby v4.9.4 [Ru] - Детские аудиосказки, музыка, д�
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234875.jpgsave_picture_234875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234875.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:C1E50358854E34DD778270B77CF73EA27B43D63E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234876.jpgsave_picture_234876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234876.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Chilling On Purple Clouds, Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234878.jpgsave_picture_234878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234878.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:D94F1753F28EF6EEEF1FA3CC0ED8646E5F2F7C41
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234879.jpgsave_picture_234879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234879.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:3D70EC3050A3BCB237DF8CBADAB9A24B202887CB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234881.jpgsave_picture_234881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234881.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Script Debugger 8 v.8.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234882.jpgsave_picture_234882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234882.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.6 Build 4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234883.jpgsave_picture_234883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234883.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:D5CB0CF981FF9AFA077A7120A32196E8ACA7D4AB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234885.jpgsave_picture_234885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234885.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Röyksopp - Röyksopp’s Night Out Live EP (2006) [AAC|~360 Kbps] <Electronic, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234886.jpgsave_picture_234886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234886.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ VA - Think Deep, Vol. 2 (Deluxe Atmospheric Deep House Music) (2022) [AAC|~305 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234887.jpgsave_picture_234887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234887.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:4E2469881934B27B735BECF00DCDF93FAB0F7CAF
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234888.jpgsave_picture_234888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234888.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:DB650B34639C8CA2626D416A4EA1C4B1688D2CCF
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234890.jpgsave_picture_234890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234890.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Jean Mare - Another Atmospheric Chill Lounge (2021) [AAC|~297 Kbps] <Chillhouse,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234891.jpgsave_picture_234891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234891.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Notebooks – Write and Organize 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234892.jpgsave_picture_234892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234892.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ SpeedTree Modeler v9.1.1 Cinema Edition Win x64 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234893.jpgsave_picture_234893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234893.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ The Preachers - Stay Out Of My World (1960) Remaster, 2022 [FLAC 2.0|44.1/24|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234894.jpgsave_picture_234894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234894.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:A0A9D8671966F42ECB0E5B02241D055BCF65B460
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234896.jpgsave_picture_234896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234896.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ CyberLink PowerDirector Ultimate 21.0.2031.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234897.jpgsave_picture_234897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234897.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:8551189F5783EE73CB0D33196BF217E536AEB3E1
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234898.jpgsave_picture_234898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234898.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234899.jpgsave_picture_234899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234899.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Chillout Delis (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234900.jpgsave_picture_234900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234900.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ McCoy Tyner - Milestone Profiles (1972 - 1980) 2CD, 2006, Milestone [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234901.jpgsave_picture_234901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234901.jpg" />
 </div>
 
 

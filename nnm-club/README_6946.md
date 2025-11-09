@@ -6,7 +6,7 @@ CPUID HWMonitor 1.46 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238433.jpgsave_picture_238433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238433.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Word Count Icon 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238434.jpgsave_picture_238434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238434.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:59815B3CAFE1FA0899D39EA929E5D5E01FE4355D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238435.jpgsave_picture_238435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238435.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Within Destruction - Lotus (2022) [MP3|320 Kbps] <Nu Metalcore, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238436.jpgsave_picture_238436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238436.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EA3DCAA60F5D5DD6CEFA29D8A6A4DBAA99E824B6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238437.jpgsave_picture_238437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238437.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3222B582A7491AA778D3414F569DD0A6431FFC86
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238439.jpgsave_picture_238439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238439.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:14CCF546BB63A1DD8397B8F90E9ACFC7BD99537C
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238440.jpgsave_picture_238440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238440.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ eBookBinder 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238443.jpgsave_picture_238443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238443.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:100F8B69CAB0959137BD594853600A65FF635250
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238444.jpgsave_picture_238444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238444.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:48B6C79404C238D11E3AEC95C7D0E06B55F0285B
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238445.jpgsave_picture_238445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238445.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:055EE7539939EFE688F7543E60C5C3114F7AA51A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238446.jpgsave_picture_238446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238446.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Within Destruction - Lotus (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238448.jpgsave_picture_238448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238448.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:13F7D5CBABD76999F40BFA827BE3E4AAB68E44BB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238449.jpgsave_picture_238449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238449.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:5D26EDF740641C09749F7D9CB48B24F01ADBF6B4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238451.jpgsave_picture_238451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238451.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Capture All 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238452.jpgsave_picture_238452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238452.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:5B434244E5ACE658B866BA793C805CDD9D43D8BB
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238454.jpgsave_picture_238454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238454.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D010286000C0C14707EB12D3A4AC2AB8DCFD39DE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238456.jpgsave_picture_238456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238456.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238458.jpgsave_picture_238458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238458.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Integrity Pro 10.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238459.jpgsave_picture_238459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238459.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:5298ED0D0594C14E25730A167E5A7FB478FE0C50
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238460.jpgsave_picture_238460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238460.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ FlippedNormals, Chunck Trafagander | UV Mapping for Games (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238461.jpgsave_picture_238461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238461.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:05ED44D1C8553F9DF43BB7870E1B5BACED5C2187
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238463.jpgsave_picture_238463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238463.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:438DE55D9F043FBA5ECFEE72C1C771A8A4295094
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238464.jpgsave_picture_238464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238464.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Savage Garden - Savage Garden (1997) Original Version, 2023, Sony Music Entertai
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238466.jpgsave_picture_238466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238466.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:4F799C3218C806751D14B86616D903BDE6C2863F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238468.jpgsave_picture_238468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238468.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ beQUIETsimple 3.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238469.jpgsave_picture_238469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238469.jpg" />
 </div>
 
 

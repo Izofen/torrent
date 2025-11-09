@@ -6,7 +6,7 @@ Axel Rudi Pell - Risen Symbol (2024) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53433.jpgsave_picture_53433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53433.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Black Country Communion - V (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53434.jpgsave_picture_53434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53434.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ O&O DiskImage Professional 19.1 Build 145 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53435.jpgsave_picture_53435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53435.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PhotoRoom v5.0.1 b1446 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53436.jpgsave_picture_53436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53436.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:35EF31FDEDF0014F3162C66F0F3FDFAE607C2EFC
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53437.jpgsave_picture_53437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53437.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Booka Shade - 13 Albums (2004-2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53438.jpgsave_picture_53438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53438.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:6FC52DD3072AFF929A281E43E65FA0BC6882C470
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53439.jpgsave_picture_53439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53439.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Duolingo: изучай языки 5.154.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53440.jpgsave_picture_53440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53440.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Euro 2024 Dance (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53441.jpgsave_picture_53441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53441.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:EF2BD91130174460F9921A8EE1101405F7473DC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53442.jpgsave_picture_53442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53442.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:1301FC97D492713F1069471F4C66581F7D5A76F0
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53443.jpgsave_picture_53443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53443.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:841016AB7B84BFD0DFF115EA5368708F6774332B
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53444.jpgsave_picture_53444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53444.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Hood Story: Kaito Yamazaki (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53445.jpgsave_picture_53445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53445.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Arturia FX Collection 5 5.0.0 VST, VST 3, AAX, NKS (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53446.jpgsave_picture_53446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53446.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53447.jpgsave_picture_53447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53447.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Doki Doki Literature Club! | Доки Доки Литературный Клуб
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53448.jpgsave_picture_53448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53448.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:F4865752BDEB7313CB0581C45CB23EB6D3C9E1B0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53449.jpgsave_picture_53449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53449.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:15A634BB92FF7AD1AA8C9CA6684CF665A4B6B9C2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53450.jpgsave_picture_53450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53450.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53451.jpgsave_picture_53451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53451.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:3E48141109AB4A42987AB10C7AD94C4C1F3BC612
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53452.jpgsave_picture_53452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53452.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:84A77C02F1F7876B337DF3B90D63D4AE991D0680
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53453.jpgsave_picture_53453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53453.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:F79FE513C238AEF5031809F2472724FBF78CC213
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53454.jpgsave_picture_53454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53454.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:D80A58572C4B100BBCF520D869C768E1ECCCB2A1
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53455.jpgsave_picture_53455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53455.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ IObit Driver Booster Pro 11.5.0.85 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53456.jpgsave_picture_53456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53456.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ PicWish: AI Photo Editor v1.6.15 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53457.jpgsave_picture_53457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53457.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:B40936702E2C8535032DD0E5A7DC8F1A1C2F06E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53458.jpgsave_picture_53458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53458.jpg" />
 </div>
 
 

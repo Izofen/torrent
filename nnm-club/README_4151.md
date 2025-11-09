@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128518.jpgsave_picture_128518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128518.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4D97AF665A2DC0E30627AEBAFDE153CA58396958
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128519.jpgsave_picture_128519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128519.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ACDSee Photo Studio Ultimate 2024 17.0.2.3593 Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128520.jpgsave_picture_128520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128520.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EFB44543B12BA94264D00391A7C32019D4DCCAB3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128521.jpgsave_picture_128521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128521.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3B7017C453E9751055C0329E3D8BDB6E8504FF1B
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128522.jpgsave_picture_128522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128522.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9D877C51E13D202EA481792EF6B862ACFF34907B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128523.jpgsave_picture_128523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128523.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:5727441A9D44C0A7BCC4AECB1A9515ED9C2ABDBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128524.jpgsave_picture_128524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128524.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:23F4AED3B9B705222E761902F73B92E6E6A46F2F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128525.jpgsave_picture_128525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128525.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:821AA26558075E4CE5610D091A06797DEE89C168
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128526.jpgsave_picture_128526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128526.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Tyrants - Beyond The Horizon (2023) EP [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128527.jpgsave_picture_128527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128527.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:86FFDD2A557D98DA0ABBE6393520A28F7078F148
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128528.jpgsave_picture_128528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128528.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:915EEBADE415007EAD86379FC44088D492490093
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128529.jpgsave_picture_128529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128529.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Supuration - Incubation (2003) [APE|Lossless|image + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128530.jpgsave_picture_128530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128530.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128531.jpgsave_picture_128531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128531.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Polkadot Cadaver - Echoes Across The Hellscape (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128532.jpgsave_picture_128532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128532.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:E033DA3276C7AF2A60AAECCFA7C232BA7D52EE16
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128533.jpgsave_picture_128533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128533.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:01B53F00FDB8D3A7AEA1A831B4485642D7E52D4D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128534.jpgsave_picture_128534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128534.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Osiris - Meanders A Soul (2021) [FLAC|Lossless|image + .cue] <Symphonic Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128535.jpgsave_picture_128535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128535.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Sympuls-e - Immensity (2022) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128536.jpgsave_picture_128536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128536.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Strike Master - U.F.T.M (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128537.jpgsave_picture_128537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128537.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Strike Master - Strike Master (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128538.jpgsave_picture_128538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128538.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:1292567B9053B0DEFD8E18354D76C87EA4388AC1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128539.jpgsave_picture_128539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128539.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128540.jpgsave_picture_128540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128540.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Atack - Nine Lives (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128541.jpgsave_picture_128541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128541.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:7EB939DF0B2A502743FE3B73B96A8A5DBDA89F87
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128542.jpgsave_picture_128542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128542.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Eli Paperboy Reed - Hits And Misses (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128543.jpgsave_picture_128543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128543.jpg" />
 </div>
 
 

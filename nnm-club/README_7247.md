@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247691.jpgsave_picture_247691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247691.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:25BDC9B113F5E5D6BBD8B851856F10ADDD6BB0B3
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247692.jpgsave_picture_247692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247692.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Foxford (Фоксфорд), Валерия Петросян | Курс по не
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247693.jpgsave_picture_247693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247693.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Deadушки - ИСКУССТВО КАМЕННЫХ СТАТУЙ (1996) [FLAC|Los
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247694.jpgsave_picture_247694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247694.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247695.jpgsave_picture_247695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247695.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:DD7C57C9EC559461C1AB36FA7611B3C8047C24CB
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247696.jpgsave_picture_247696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247696.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:130F0AF3C8C843629C6E8C792820A519627CFD07
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247697.jpgsave_picture_247697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247697.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247698.jpgsave_picture_247698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247698.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:D10E048BF735891D678A65C6F92D7CE174D61260
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247699.jpgsave_picture_247699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247699.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Navitel / Официальные карты релиза Q1 2023 v9 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247700.jpgsave_picture_247700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247700.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:9B46BA436F11811D24792083D30B52B37E2B59EB
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247701.jpgsave_picture_247701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247701.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ UberSoldier 2 Crimes of War / Восточный фронт Крах Аннен�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247702.jpgsave_picture_247702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247702.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:DF869557741C5F5391C9F15F2268F05AF5C92679
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247703.jpgsave_picture_247703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247703.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2A04A5957DD8652925DEF31BB310A8700A2AB34F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247704.jpgsave_picture_247704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247704.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:F099F1901882220A973DA47AE9CB0DB5BCE79C35
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247705.jpgsave_picture_247705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247705.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:ED9D665DA2CA1A822E292256AC056EA632D5B080
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247706.jpgsave_picture_247706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247706.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:B6D85A2E3922D76A4E0AE816BC600256954AE987
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247707.jpgsave_picture_247707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247707.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247708.jpgsave_picture_247708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247708.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Car Dealership Simulator (2023) [Multi] (1.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247709.jpgsave_picture_247709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247709.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:8744A1DFE6A373AB963FD9440724BAE9D406FAB9
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247710.jpgsave_picture_247710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247710.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:4F7C680321143214A94297FDA2613F6358F93799
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247711.jpgsave_picture_247711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247711.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:0750656193D0A4723CAC09ADFF22679606014537
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247712.jpgsave_picture_247712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247712.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9C9CDC45637B024A87483DA3005235B429F05DD0
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247713.jpgsave_picture_247713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247713.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:11D049778C606E795A7F8AE15ABB6B65501B6387
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247715.jpgsave_picture_247715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247715.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Splinter Cell: Караул смерти / Splinter Cell: Deathwatch (2025) WEB-
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247716.jpgsave_picture_247716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247716.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:5A161A6114DB48AD48BEF78F54D1B7BA7FCF7502
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247717.jpgsave_picture_247717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247717.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12332.jpgsave_picture_12332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12332.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AD44161A2DABB5300C91841F59F139E27E124CCE
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12333.jpgsave_picture_12333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12333.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9E4B7660F1627D08718B0703FEF2B9E98641E842
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12334.jpgsave_picture_12334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12334.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9C318C9CB876C70B46DFBF8FEAF17AD5886287AF
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12335.jpgsave_picture_12335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12335.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Don't Mess With Bober (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12336.jpgsave_picture_12336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12336.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:5593023F04B18FE613F857D9C086821B3FAA263A
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12337.jpgsave_picture_12337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12337.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Vanced Tube v5.4.80.144 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12338.jpgsave_picture_12338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12338.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Perfectly Clear WorkBench 4.7.0.2825 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12339.jpgsave_picture_12339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12339.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Wise Care 365 Pro 7.2.7.706 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12340.jpgsave_picture_12340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12340.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Music News For Forum vol.105 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12341.jpgsave_picture_12341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12341.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Battery Guru: Monitor & Health v2.3.22 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12342.jpgsave_picture_12342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12342.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Display Driver Uninstaller 18.1.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12343.jpgsave_picture_12343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12343.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:24E57A3B5844DC72C0688C42CCDBD8280153092C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12344.jpgsave_picture_12344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12344.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:A865EF5467BEC6F0D644D9020D3805DE3291EEE9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12345.jpgsave_picture_12345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12345.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E64348CEEFB9B3AC4FEDC4022B8DF2C83B3BF6DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12346.jpgsave_picture_12346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12346.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:BED46CBA83FBC8553ADDDA82FC3056D4CF287C88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12347.jpgsave_picture_12347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12347.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:E459CC05FCA4F2112C1BAB14C80069B10B53EEB9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12348.jpgsave_picture_12348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12348.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:3048087256F65608619C64AC540978335293B4E8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12349.jpgsave_picture_12349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12349.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:A2E64AA0018D48BF07E6CDF0A3ABD883A6725298
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12350.jpgsave_picture_12350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12350.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Pupo - Insieme (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12351.jpgsave_picture_12351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12351.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:1CB041ADBFAB31D342F1452A3CFE6EAD4CB8A8D9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12352.jpgsave_picture_12352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12352.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:C4F5848BD65B3D504836669E365215C084494E81
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12353.jpgsave_picture_12353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12353.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Tales Beyond The Tomb - White Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12354.jpgsave_picture_12354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12354.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Yakuza 6: The Song of Life (2021) [Ru/Multi] (1.009a/dlc) Repack Yaroslav98
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12355.jpgsave_picture_12355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12355.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12356.jpgsave_picture_12356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12356.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:BF7BC11074302E533E69854A16348B654D8484B8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12357.jpgsave_picture_12357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12357.jpg" />
 </div>
 
 

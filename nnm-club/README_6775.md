@@ -6,7 +6,7 @@ OCCT 12.0.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233218.jpgsave_picture_233218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233218.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CF307FB72901887BADA651709509E0CBC623252D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233219.jpgsave_picture_233219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233219.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E45861EC7C51C28AB57207DD3150992E6772754C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233221.jpgsave_picture_233221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233221.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233222.jpgsave_picture_233222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233222.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Acorn 7 v7.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233223.jpgsave_picture_233223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233223.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Nita Strauss - The Call of the Void (2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233224.jpgsave_picture_233224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233224.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:C19EE3754305DB7AE2C29E198BE22EF678B72C9C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233225.jpgsave_picture_233225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233225.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ CudaText 1.196.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233226.jpgsave_picture_233226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233226.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ TuneIn Radio 31.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233227.jpgsave_picture_233227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233227.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:DBA5AEEC36A36F66F4451A5BA24D0B72B000FFC5
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233228.jpgsave_picture_233228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233228.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Kotipelto - Coldness (2004) [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233229.jpgsave_picture_233229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233229.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Distant Places Lounge, Vol. 1: Chillout Your Mind (2022) [AAC|~312 Kbps] <L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233230.jpgsave_picture_233230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233230.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ GoodSync Enterprise 12.0.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233231.jpgsave_picture_233231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233231.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:01C48A7A5B5BFF66BA29BAAB37F4A6B1BF76A34C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233233.jpgsave_picture_233233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233233.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ PhotoDirector - Редактор фото 18.2.1 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233234.jpgsave_picture_233234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233234.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ SQLPro for SQLite 2023.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233235.jpgsave_picture_233235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233235.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Lana Del Rey - Say Yes To Heaven (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233236.jpgsave_picture_233236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233236.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ ByClick Downloader Premium 2.3.40 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233237.jpgsave_picture_233237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233237.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MotoGP. Этап 15. Гран-при Арагона. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233238.jpgsave_picture_233238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233238.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:A8E994D3DE400FDADBDC74A8350FDFE40A981677
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233239.jpgsave_picture_233239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233239.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Lounge Tribute, Vol. 6 (2012) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233240.jpgsave_picture_233240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233240.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:FF863D6967C321FDA020AAC89972D167410CFA07
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233241.jpgsave_picture_233241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233241.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Ignis Noctem - Desecrated Darkness (2021) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233242.jpgsave_picture_233242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233242.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:9BA0800458DD046F69E91A602E6123F3E018683A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233243.jpgsave_picture_233243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233243.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ EZ CD Audio Converter 11.0.1.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233244.jpgsave_picture_233244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233244.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Greg Puciato - 1 Album, 3 Singles (2021-2022) [FLAC|24/48, 96|WEB-DL|tracks] <Ma
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233245.jpgsave_picture_233245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233245.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133646.jpgsave_picture_133646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133646.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Spotify 1.2.25.1011 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133647.jpgsave_picture_133647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133647.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:32E6722B69B25CB4980842C8702743D9DFFCC9C7
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133649.jpgsave_picture_133649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133649.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C859FE991F20C17DB20227D04F2156C215876BAB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133651.jpgsave_picture_133651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133651.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:B59652B8D3E39C06ED0D0689D4E56BB27E062155
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133652.jpgsave_picture_133652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133652.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Wynardtage - Sleepless in Heaven (2012) [MP3|320 kbps] <EBM / Dark Electro>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133654.jpgsave_picture_133654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133654.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ R-Studio Technician for Mac 7.3.191246 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133655.jpgsave_picture_133655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133655.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Adobe Photoshop 2024 25.2.0.196 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133657.jpgsave_picture_133657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133657.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hinder - 3 альбома (2003, 2008, 2010) [MP3|320 кб/с]<Hard-rock, Altern
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133658.jpgsave_picture_133658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133658.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:25688080B2A7AEA444C40A934E766196527D742F
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133659.jpgsave_picture_133659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133659.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:DD7420F9952BDAE70C47722DCA9A1A0317A6B42E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133660.jpgsave_picture_133660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133660.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:F69BA0495D249300E771FEB02DEBE9EE08C58DA4
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133661.jpgsave_picture_133661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133661.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133662.jpgsave_picture_133662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133662.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:BE23A1C3F0BD7C3805D95DB2C2602E4CB862F9FF
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133664.jpgsave_picture_133664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133664.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:1135B1C2102213E0B3315629D5B95CF9C8C68F49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133665.jpgsave_picture_133665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133665.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:2F03CE25E540754A3AB2CCF8D87D32138864F681
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133666.jpgsave_picture_133666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133666.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Psiphon 3 build 180 (29.11.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133667.jpgsave_picture_133667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133667.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Inkscape 1.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133668.jpgsave_picture_133668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133668.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Capture One 23 Enterprise 16.3.2.1789 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133669.jpgsave_picture_133669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133669.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:A032D2902F4ED81676FE2BE93C7B0A96F381823E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133671.jpgsave_picture_133671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133671.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133674.jpgsave_picture_133674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133674.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133675.jpgsave_picture_133675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133675.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Adobe Director 11.5 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133676.jpgsave_picture_133676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133676.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA-Новая Игрушка 30-31  (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133678.jpgsave_picture_133678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133678.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:AAFD5729110E70543AF1340DF2B8ECB38B385489
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133680.jpgsave_picture_133680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133680.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ magnet:?xt=urn:btih:E29882D47DE4CB41F5C1D89D71C119434327BDF6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133682.jpgsave_picture_133682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133682.jpg" />
 </div>
 
 

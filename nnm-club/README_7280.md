@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249310.jpgsave_picture_249310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249310.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249312.jpgsave_picture_249312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249312.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Transmute Pro 2.50 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249314.jpgsave_picture_249314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249314.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ TotalFinder 1.3.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249315.jpgsave_picture_249315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249315.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Kore ga Watashi no Goshujin-sama / He is my master / Он мой хозяин [2
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249317.jpgsave_picture_249317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249317.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249318.jpgsave_picture_249318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249318.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249320.jpgsave_picture_249320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249320.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Inu x Boku SS / Я и мой слуга из секретной службы [20
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249321.jpgsave_picture_249321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249321.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:64FA4E9DEA0D18320791D6B24FF4163E675099FA
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249322.jpgsave_picture_249322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249322.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BA936ADC74D9E2A1FD078CEECDFA0882F944DD5D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249323.jpgsave_picture_249323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249323.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:17A717CC75F76D1DB3C135A02C36D8C16796D2B2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249324.jpgsave_picture_249324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249324.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Sopcast 0.8.2 (ubuntu ppa,.tar.gz) [Multi/Русский]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249326.jpgsave_picture_249326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249326.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ SopCast Player - клиент, позволяющий смотреть виде�
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249327.jpgsave_picture_249327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249327.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8A05394EFB7F53979572F68CB49BF814C27B68A6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249330.jpgsave_picture_249330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249330.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:8A05394EFB7F53979572F68CB49BF814C27B68A6
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249331.jpgsave_picture_249331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_249331.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ BikeComputer Pro v9.2.4 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249332.jpgsave_picture_249332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249332.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ AirBrush: ИИ Фоторедактор v7.19.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249333.jpgsave_picture_249333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249333.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Tesla представила доступный автономный дом Tesl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249334.jpgsave_picture_249334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249334.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Gallery - Photo Gallery, Album (XGallery) v2.0.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249335.jpgsave_picture_249335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249335.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Seven / 7 Минут Упражнение v9.24.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249336.jpgsave_picture_249336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249336.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Necros [Deluxe E
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249337.jpgsave_picture_249337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249337.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B767FC22BFECF067554DB3FDFA4C0B0ACB6069B7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249338.jpgsave_picture_249338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249338.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:820BE63608756C01DAB62B69A1D5365EC4211897
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249339.jpgsave_picture_249339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249339.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Hoomanz (2025) [Ru/Multi] (0.3.26) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249340.jpgsave_picture_249340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249340.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:C708DC3B7D49ACA661DCA5C8AF51770CB53BB1A3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249341.jpgsave_picture_249341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249341.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:B34C9FC18F50F0A2A35146BACCB7C17010C7E8B3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249342.jpgsave_picture_249342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249342.jpg" />
 </div>
 
 

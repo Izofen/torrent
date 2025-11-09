@@ -6,7 +6,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166405.jpgsave_picture_166405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166405.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DD740065245F3E265C703EDF5488B9EDA38D126B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166406.jpgsave_picture_166406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166406.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:359EA6E943D9E8AE95F1BE2D22D3B17113F0CA44
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166407.jpgsave_picture_166407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166407.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D5263D7B60F58C92D0DF6CE16A8EB2E63B62FDB0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166408.jpgsave_picture_166408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166408.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:2551CB827E88C01F39C11F7548B93638ED67A4EA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166409.jpgsave_picture_166409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166409.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Iconize for Mac 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166410.jpgsave_picture_166410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166410.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:653E7A651C66BA7E3E533FD68F764B21D9238BBD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166411.jpgsave_picture_166411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166411.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Microsoft .Net Framework 13.12.22 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166412.jpgsave_picture_166412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166412.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:3D4A25D0E5D595EEA6F190F8CC02D3F1B16E2227
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166413.jpgsave_picture_166413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166413.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:0C2A66F0EFF6627A60081A855EAC51AA1699BD28
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166414.jpgsave_picture_166414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166414.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fleshworks - Engine of Perdition (2018) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166415.jpgsave_picture_166415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166415.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:D2D01C0D141E3589C4C817B921F197E041AAD26C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166416.jpgsave_picture_166416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166416.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:27EA5F4D698241A72BDBD3208730048B697F4B13
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166417.jpgsave_picture_166417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166417.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Garden Of Delight - Lutherion I (2005) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166418.jpgsave_picture_166418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166418.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ AOMEI Partition Assistant Technician Edition 9.13.0 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166419.jpgsave_picture_166419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166419.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:023D70C45B332F07AA1FD36F3E1E2C31A0ED1BB1
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166420.jpgsave_picture_166420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166420.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ A.C.T - Silence (2006) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166421.jpgsave_picture_166421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166421.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:989E3378B3886C6E08C4DF6BDCAD3265F7160571
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166422.jpgsave_picture_166422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166422.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:B6165999C361C78F449C448D087AF2F32E9C42F8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166423.jpgsave_picture_166423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166423.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - не Громкие новинки недели 47 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166424.jpgsave_picture_166424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166424.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Timer RH PRO  2.12.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166425.jpgsave_picture_166425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166425.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Skype 8.55.0.141 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166426.jpgsave_picture_166426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166426.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Asinhell - Impii Hora (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166427.jpgsave_picture_166427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166427.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ WinToHDD 5.9 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166428.jpgsave_picture_166428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166428.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PrivaZer 3.0.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166429.jpgsave_picture_166429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166429.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ A.C.T - Last Epic (2003) Special Edition [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166430.jpgsave_picture_166430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166430.jpg" />
 </div>
 
 

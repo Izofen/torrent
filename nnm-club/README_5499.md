@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169929.jpgsave_picture_169929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169929.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:81EAC9A4E5C334D7E99248E2191AEFB7DAEB7241
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169930.jpgsave_picture_169930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169930.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Adobe InDesign 2020 15.0.1.209 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169931.jpgsave_picture_169931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169931.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:768E79F5DBB96252C0EAFB75DEB1FFD06BED3997
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169932.jpgsave_picture_169932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169932.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ OMD (Orchestral Manoeuvres In The Dark) - Bauhaus Staircase (2023) [FLAC 24/44.1
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169933.jpgsave_picture_169933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169933.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Dead Meadow - Force Form Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169934.jpgsave_picture_169934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169934.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:55F4400EFA279200777418ED90DB2EEB64AEEB12
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169935.jpgsave_picture_169935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169935.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D9AC30F41F0ACCC0FFCC1FA3C4826A59F0C21C5C
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169936.jpgsave_picture_169936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169936.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:92CE582F5C1B208E9E71D511CF1DA6DA73D26F01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169937.jpgsave_picture_169937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169937.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Castle on the Coast (2021) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169938.jpgsave_picture_169938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169938.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:48E2A8CE3296DC63E86D0CD613B10DD8F251AFAB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169939.jpgsave_picture_169939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169939.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Top 100 DJs Chart 20 October (2023) [MP3|320 Kbps] <ElectroPop, Techno, Gro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169940.jpgsave_picture_169940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169940.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Adobe After Effects 2020 17.0.1.52 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169941.jpgsave_picture_169941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169941.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:CCFC2EF0FA32FB58A0D0E704E22C3E788581EA06
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169942.jpgsave_picture_169942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169942.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:A26711C643CBB578AAFEFD51E61EBFD05388E996
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169943.jpgsave_picture_169943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169943.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169944.jpgsave_picture_169944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169944.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Sody - real growth takes time (2020) [AAC|~273 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169945.jpgsave_picture_169945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169945.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:DA6903C0F482C4078DB0E60AD389F683712CF3A1
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169946.jpgsave_picture_169946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169946.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ All Empires Fall - Oblivious Momentum (2022) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169947.jpgsave_picture_169947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169947.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:83A5E4F6EAADA8DF30CD61F0A28E3D11A865684A
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169948.jpgsave_picture_169948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169948.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Calibre 5.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169949.jpgsave_picture_169949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169949.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Audiobook Builder 2 v.2.2.7 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169950.jpgsave_picture_169950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169950.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ StormHammer - Seven Seals (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169951.jpgsave_picture_169951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169951.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов (2009-2021) [34
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169952.jpgsave_picture_169952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169952.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Spaceking - 3 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Ston
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169953.jpgsave_picture_169953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169953.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:66DE05FF63414CD5E0F955924D8E4CDE9C5D9F62
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169954.jpgsave_picture_169954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169954.jpg" />
 </div>
 
 

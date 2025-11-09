@@ -6,7 +6,7 @@ VA - Funky Fever: Disco Mania (2019) [MP3|320 Kbps] <Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157481.jpgsave_picture_157481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157481.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:D4CDCDE494DB4D7AE6625B5CC6AF0C08B5220C0B
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157482.jpgsave_picture_157482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157482.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:917A2696DE73C0605E4504E7BC2DB5E0C4A693CB
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157483.jpgsave_picture_157483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157483.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8A60B75423D7C639E7088EC467B94FB00F532C53
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157484.jpgsave_picture_157484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157484.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Cristmas Sexy Dance (2018) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157487.jpgsave_picture_157487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157487.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:452EC37ED2BE4C1CEA0B701E0DA886C5D239B636
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157488.jpgsave_picture_157488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157488.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:721DA8E58B2521D83DE9B4EF1EE802A8011E0E48
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157489.jpgsave_picture_157489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157489.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:BC576A0DBAAB2A7433F2EBA358877B9AC362AF20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157490.jpgsave_picture_157490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157490.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:C9FA6751CA341D58A25B4F5CC1D4EDE3E5923C5C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157491.jpgsave_picture_157491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157491.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:570BD06FAAAFCD238EC151E36673443EEE8B883E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157492.jpgsave_picture_157492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157492.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4456.1003
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157494.jpgsave_picture_157494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157494.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ RJ TextEd 15.72.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157495.jpgsave_picture_157495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157495.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:A27233A473A2A849919D447D0C0C3244A23EFEB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157496.jpgsave_picture_157496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157496.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:0476C73666685405C4463EF3E3EEF84AFD64290C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157497.jpgsave_picture_157497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157497.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Hit News Vol. 12 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157498.jpgsave_picture_157498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157498.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157499.jpgsave_picture_157499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157499.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:7023EAE2F6C0BD840731B3B8DEB49D4D0F68BDF5
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157500.jpgsave_picture_157500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157500.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Cockos REAPER 7.03 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157501.jpgsave_picture_157501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157501.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adguard 2.9.2 beta [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157502.jpgsave_picture_157502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157502.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ iZotope Music Production Suite Pro 2021.12 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157503.jpgsave_picture_157503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157503.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Assetto Corsa (2014) [En/It] (1.11.0/dlc) License RELOADED [Porsche Season Pass]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157504.jpgsave_picture_157504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157504.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ RedNotebook 2.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157505.jpgsave_picture_157505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157505.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:68728767C48C9E96FC64CC35F9D17C861D91C174
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157506.jpgsave_picture_157506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157506.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:A27E825FB8FEF49225E160963828C3FFAF2160C5
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157507.jpgsave_picture_157507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157507.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:A090A99E39C8D9FB8656F9FC732FE3CDF2D45807
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157508.jpgsave_picture_157508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157508.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Vivaldi 2.2.1388.37 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157509.jpgsave_picture_157509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157509.jpg" />
 </div>
 
 

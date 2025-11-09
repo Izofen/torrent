@@ -6,7 +6,7 @@ Michele - Magic Love (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143031.jpgsave_picture_143031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143031.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Udemy, For Your English | English Language Pro | Разговорный англ
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143032.jpgsave_picture_143032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143032.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Open Server (Базовый, Расширенный, Максимальный) 5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143033.jpgsave_picture_143033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143033.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143035.jpgsave_picture_143035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143035.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:642F0DA19F4CCEB1A7281FF56C0E20101DDBDCD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143036.jpgsave_picture_143036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143036.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Neptune Project - A Question Of Reality (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143037.jpgsave_picture_143037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143037.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:964CD61E5C070948DCA3DE9CF2F94FFC47118D5B
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143038.jpgsave_picture_143038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143038.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2DE338FEBCF7E445F1D7185158CC60FB61717DA1
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143039.jpgsave_picture_143039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143039.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Intense Radio: We Love Dance (2018) [MP3|320 Kbps] <Dance, Pop, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143040.jpgsave_picture_143040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143040.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ SuperHi, Lawrence Gosset, Rik Lomas | WordPress (2021) WEB-DL [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143041.jpgsave_picture_143041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143041.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:6DF54A68CB61BD3FFC14BBF98846F652C3E899FE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143042.jpgsave_picture_143042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143042.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:8C0E9D8DBF3D1D3776CE3A3DEB6FA3F34596EB9A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143043.jpgsave_picture_143043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143043.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:659E754508E181735DEAB9A57838B9DC2EDA8F3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143044.jpgsave_picture_143044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143044.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:FB0DE86974284BBD054DF2995877F6DA8A36CB4B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143045.jpgsave_picture_143045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143045.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:B808CFBC017F9F8855473636810AE5016091D49F
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143046.jpgsave_picture_143046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143046.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ MediaHuman Youtube Downloader 3.9.9.10 (2712) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143047.jpgsave_picture_143047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143047.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:8C2BEDBF9E8B539864B2F61886601E0621F10514
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143049.jpgsave_picture_143049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143049.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:8FB3C3725E2C5A7B1E391ED75F0F7800F6FDC528
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143050.jpgsave_picture_143050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143050.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:B695FB43FB7979CEBD10AAD4A66F4EEB45C8E290
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143051.jpgsave_picture_143051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143051.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143054.jpgsave_picture_143054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143054.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:4CFBE133ED70B29560DF5F2F5EA1D1CBF5D41C35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143055.jpgsave_picture_143055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143055.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:0B67FB1F49F3EE08D9055EAF42404C7F8230E5C8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143056.jpgsave_picture_143056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143056.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:659833AE35BCDCEA6624ECF718DDDEA8EC96FC18
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143058.jpgsave_picture_143058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143058.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143059.jpgsave_picture_143059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143059.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Luca D'Alberto - Exile (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143060.jpgsave_picture_143060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143060.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:4A3B7B6EE68E7D7358329E01FD0E04963A4A2BD8
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143061.jpgsave_picture_143061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143061.jpg" />
 </div>
 
 

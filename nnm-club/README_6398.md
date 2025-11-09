@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203010.jpgsave_picture_203010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203010.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:220451EC69AD9FBB0B4BD5381C196198EB7FFD7B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203011.jpgsave_picture_203011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203011.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:FE737AFF3A3AB2F1428F65FFD29CDA9E3FE834CC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203012.jpgsave_picture_203012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203012.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Stackridge - 3 Albums (1972-1974) Remastered, Expanded Edition, 2023, Esoteric [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203013.jpgsave_picture_203013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203013.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A4253628D3E257492145F0BF3FA9ABCA4E59AA2E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203014.jpgsave_picture_203014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203014.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:75728E20E353E1942D0DD29A7932DD62A3D06510
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203015.jpgsave_picture_203015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203015.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Quatro | Tunstall - Face To Face (2023) [FLAC|Lossless|image + .cue] <Classic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203016.jpgsave_picture_203016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203016.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ NetLimiter 5.3.0.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203017.jpgsave_picture_203017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203017.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E3DEB5B5F26481CD5DE8C09F100BDA3F99B0181E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203018.jpgsave_picture_203018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203018.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Marduk - Memento Mori (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203019.jpgsave_picture_203019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203019.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:A3C70F12692B844ADFE082F2C1EE8B1157C21FF2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203020.jpgsave_picture_203020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203020.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:DD8930688DE14B4B4E9197971024E286DB8BD825
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203021.jpgsave_picture_203021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203021.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:312EF22E3816470C16AD57DA595D9465FEB75F94
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203022.jpgsave_picture_203022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203022.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Pulsar - Дотла (2023) [MP3|320 Kbps] <Alternative Metal, Metalcore, Female,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203023.jpgsave_picture_203023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203023.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:DA8A4A92956C0DEE619C47B1E315EB38D61C42F9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203024.jpgsave_picture_203024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203024.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ AIMP 5.11 Build 2421 RePack (& Portable) by elchupacabra (Standard) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203025.jpgsave_picture_203025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203025.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Nothing But... Trancetopia, Vol. 07 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203026.jpgsave_picture_203026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203026.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ SQLPro for SQLite 2023.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203027.jpgsave_picture_203027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203027.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:CFEEE42A81118CFD9322DDE71C3682996FF967F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203028.jpgsave_picture_203028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203028.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203029.jpgsave_picture_203029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203029.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:F634DC2DEA95DB93C14203242F66E4A052ED7009
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203030.jpgsave_picture_203030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203030.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Phil Campbell and the Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|W
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203031.jpgsave_picture_203031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203031.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:02B688D6474B635BFB45F413BDDD2476528AF676
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203032.jpgsave_picture_203032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203032.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ SQLPro Studio 2023.55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203033.jpgsave_picture_203033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203033.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:DBB52DEFA54F03F77196C8CCD43EA049981BCFFC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203034.jpgsave_picture_203034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203034.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:151D64346FDFA02BD97C7B7749680A3898CE69BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203035.jpgsave_picture_203035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203035.jpg" />
 </div>
 
 

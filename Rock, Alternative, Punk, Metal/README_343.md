@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191495.jpgsave_picture_191495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191495.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tony Martin (Forcefield, Giuntini Project, Empire, Rondinelli, Silver Horses) - 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191502.jpgsave_picture_191502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191502.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Offering - Seeing The Elephant (2022)  [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191572.jpgsave_picture_191572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191572.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vomitory - All Heads Are Gonna Roll (2023) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191607.jpgsave_picture_191607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191607.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Polyphia - Remember That You Will Die (2022) Neurotica Version [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191608.jpgsave_picture_191608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191608.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Alcatrazz - Take No Prisoners (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191616.jpgsave_picture_191616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191616.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bosphorus Night - New Era (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191620.jpgsave_picture_191620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191620.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Marduk - Memento Mori (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191625.jpgsave_picture_191625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191625.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ashes and Bereavement - Before the Eternal Birth (2023) [FLAC|Lossless|WEB-DL|tr
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191627.jpgsave_picture_191627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191627.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kane Roberts - Kane Roberts (1987) ex-guitar Alice Cooper [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191628.jpgsave_picture_191628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191628.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bangalore Choir - Center Mass (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191629.jpgsave_picture_191629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191629.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:471145E153479D860739AD34E15A95992384ABF6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191631.jpgsave_picture_191631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191631.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:43B56572F4EDB55C59DF40F4A5797F12696C0CED
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191633.jpgsave_picture_191633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191633.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:0BB96847735B69F2B927F67F9D627E4C833DBA00
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191637.jpgsave_picture_191637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191637.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Cultus Sanguine - Dust Once Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191639.jpgsave_picture_191639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191639.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:9F9885BB3344D6CFE42A28EA0C9F79D0369BB9F3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191640.jpgsave_picture_191640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191640.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Dissonance - Look to Forget (1994) [FLAC|Lossless|image + .cue] <Technical Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191641.jpgsave_picture_191641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191641.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191642.jpgsave_picture_191642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191642.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ WarCry - Daimon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191648.jpgsave_picture_191648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191648.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Fearwell - Well of Fear (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191662.jpgsave_picture_191662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191662.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Eternal Lies - Spiritual Deception (2002) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191663.jpgsave_picture_191663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191663.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ PG Roxette - Pop-Up Dynamo! (2022) [FLAC|Lossless|image + .cue] <Pop Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191804.jpgsave_picture_191804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191804.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Sabotage - See the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191832.jpgsave_picture_191832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191832.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ White Skies - Black Tide (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191833.jpgsave_picture_191833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191833.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Jon Bon Jovi - Destination Anywhere (1997) Reissue, 2013, Mercury [OGG Vorbis|48
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191835.jpgsave_picture_191835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191835.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Equilibrium - Renegades (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191846.jpgsave_picture_191846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191846.jpg" />
 </div>
 
 

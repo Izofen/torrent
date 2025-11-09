@@ -6,7 +6,7 @@ VA - Chill out Mood, Vol. 4 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165490.jpgsave_picture_165490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165490.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:79EB06CB0DF6C8F8B685036BED3C2A471559F067
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165491.jpgsave_picture_165491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165491.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:35829D05AD16DDB972F40B009EC817DA4F382FE1
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165492.jpgsave_picture_165492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165492.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acker Bilk - Stranger On The Shore (The Best Of) (2001) Sanctuary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165493.jpgsave_picture_165493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165493.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mygrain - Signs Of Existence (2008) [APE|Lossless|image + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165494.jpgsave_picture_165494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165494.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:3C4278A5023FE425728949B80E2E757014766D13
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165495.jpgsave_picture_165495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165495.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:493EA68A794E8DFF21F19F11428DF1308C3C60B3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165496.jpgsave_picture_165496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165496.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Baltak - Kral Na Dva Svetoj (King Of Two Worlds) (2000) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165497.jpgsave_picture_165497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165497.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:24E54A6DC1D735F93B89D5D999F98C4622911362
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165498.jpgsave_picture_165498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165498.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Snappy Driver Installer 1.20.9 (R2009) | Драйверпаки 20.12.1 [Multi/R
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165499.jpgsave_picture_165499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165499.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, En
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165500.jpgsave_picture_165500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165500.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ PhotoDirector - Редактор фото 18.6.5 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165501.jpgsave_picture_165501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165501.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Mygrain - Orbit Dance (2006) [APE|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165502.jpgsave_picture_165502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165502.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ AllWinUSB Constructor by SmokieBlahBlah 10.06.20 [Ru/En]
 >>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165503.jpgsave_picture_165503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165503.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165504.jpgsave_picture_165504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165504.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Chill out Mood, Vol. 3 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165506.jpgsave_picture_165506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165506.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Danil K, Данил Куширмский | Сборник курсов по ли
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165507.jpgsave_picture_165507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165507.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:08B423757DAAB793A3A387B25C374C4A826EE767
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165508.jpgsave_picture_165508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165508.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:250DD2951434ABC255166C1FBB2FD7E84FAAAEDB
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165509.jpgsave_picture_165509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165509.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165510.jpgsave_picture_165510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165510.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:D4E64CA6CAB94296E5061A2CF6C6D1F7D075EB60
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165511.jpgsave_picture_165511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165511.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165512.jpgsave_picture_165512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165512.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:93471B3B277B5F00B8849408E387AECE4E096064
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165513.jpgsave_picture_165513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165513.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VMware Fusion Pro 11 v11.5.1 (build 15018442) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165514.jpgsave_picture_165514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165514.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Dokken - Heaven Comes Down (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165515.jpgsave_picture_165515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165515.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Nature Lovers (2021) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165516.jpgsave_picture_165516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165516.jpg" />
 </div>
 
 

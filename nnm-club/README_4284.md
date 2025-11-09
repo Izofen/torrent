@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132960.jpgsave_picture_132960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132960.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1044E4B0E16D42F2767E0A651FE26F6DDD6677C7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132961.jpgsave_picture_132961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132961.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:904F138029794B0F7BF2920EC44CB47E87308056
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132962.jpgsave_picture_132962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132962.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:904F138029794B0F7BF2920EC44CB47E87308056
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132963.jpgsave_picture_132963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132963.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D5B0324CD79B65F97B209BCB2D89EB7C65352022
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132964.jpgsave_picture_132964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132964.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - 1993% ХИТОВ (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132965.jpgsave_picture_132965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132965.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - 1993% ХИТОВ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132967.jpgsave_picture_132967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132967.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:384737BED54A60BEEC47941AC8636E9F8466CFA9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132968.jpgsave_picture_132968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132968.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:09F330D4FD16AB1E998BF9A733B6F4256F878572
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132969.jpgsave_picture_132969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132969.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Efficient Sticky Notes 3.10 Build 326 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132970.jpgsave_picture_132970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132970.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Bazanova Art, Ольга Базанова | Практика художника.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132971.jpgsave_picture_132971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132971.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Moon+ Reader Pro v8.6 (build 806004) Mod by Balatan, Mixroot,  Lucky Las [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132972.jpgsave_picture_132972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132972.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:8B8040A393E618696FAC87353579C3CD3BCDC4FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132973.jpgsave_picture_132973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132973.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Araxis Merge Pro 2023.5954 [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132975.jpgsave_picture_132975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132975.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Change MAC Address 2.5.0 Build 81 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132976.jpgsave_picture_132976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132976.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - 100 from the 90's - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132977.jpgsave_picture_132977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132977.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132978.jpgsave_picture_132978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132978.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:E25D1F1B3DCF79EDAAA1372863605DF5407B4B22
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132979.jpgsave_picture_132979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132979.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ XYplorer 25.20.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132980.jpgsave_picture_132980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132980.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:09A592F804514653D63BCE58F0F565A6F958D394
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132981.jpgsave_picture_132981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132981.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:09A592F804514653D63BCE58F0F565A6F958D394
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132983.jpgsave_picture_132983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132983.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:2F43C1584976700388A871E00E5963450D84AF76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132984.jpgsave_picture_132984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132984.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:2F43C1584976700388A871E00E5963450D84AF76
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132985.jpgsave_picture_132985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132985.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:F5422554EC141765BF32CCA89D426B91559F6062
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132986.jpgsave_picture_132986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132986.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ P!nk (Pink) - Trustfall (2023) Tour Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132987.jpgsave_picture_132987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132987.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:9795CC4FD2E3B27B82F365398ED5E453B1A886C8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132988.jpgsave_picture_132988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132988.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Paul Sawyer: 30 Years A DJ (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243475.jpgsave_picture_243475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243475.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A293ACA20E82DDAA124852C1F2D190E779232D10
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243476.jpgsave_picture_243476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243476.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Paris Jazz Big Band - Paris 24H (2004) Cristal Production[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243477.jpgsave_picture_243477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243477.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:879A69FEB7266003DF49A2859CA5B0D6D635A17D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243478.jpgsave_picture_243478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243478.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ AweEraser 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243479.jpgsave_picture_243479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243479.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ DxO PureRAW 2.0.1 Build 1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243480.jpgsave_picture_243480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243480.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Pat Martino - Strings! (1967) 1991, Original Jazz Classics [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243482.jpgsave_picture_243482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243482.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Oliver Lake - Compilation (1990) Bluemoon Recordings[APE|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243483.jpgsave_picture_243483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243483.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Alase - A Matter of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243484.jpgsave_picture_243484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243484.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Poços & Nuvens - Província Universo (2001) [FLAC|Lossless|image + .cue] <Symph
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243485.jpgsave_picture_243485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243485.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:532806A57596240941659A922AE7C482DF69CD95
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243486.jpgsave_picture_243486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243486.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Udemy, Canopy Games, Michael Bridges | Making Procedural Weapons In Blender 3 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243488.jpgsave_picture_243488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243488.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Debbie Poryes, Hein van de Geyn, Hans Eykenaar - Trio (1982) Remaster, 2015, Sol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243489.jpgsave_picture_243489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243489.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Kjellerbandet - Pa plate (2000) Self-Released [FLAC|Lossless|tracks + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243490.jpgsave_picture_243490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243490.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ One For All - Optimism (1998) Sharp Nine Records [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243491.jpgsave_picture_243491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243491.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:716F5FF3D05A561FBF775FC617721CB1AC5D50BD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243492.jpgsave_picture_243492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243492.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ DxO FilmPack 6.1.1 Build 219 Elite [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243493.jpgsave_picture_243493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243493.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Chilling Collection (2022) [AAC|~305 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243494.jpgsave_picture_243494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243494.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:372A89E2D00B67473B99E1A641B6296BE5AEA308
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243495.jpgsave_picture_243495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243495.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Aftermath - Remastermath (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243497.jpgsave_picture_243497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243497.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:337E500B985F312147789842A2A56717AC19B438
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243498.jpgsave_picture_243498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243498.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:5734F7E344189527140CC5041C29C3884B5DFDAC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243499.jpgsave_picture_243499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243499.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Wyvern - Radiations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243500.jpgsave_picture_243500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243500.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ DxO ViewPoint 3.2.0 Build 254 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243501.jpgsave_picture_243501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243501.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:995276EE72095498D03F72316D216EDC711E4EEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243502.jpgsave_picture_243502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243502.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Berserkerband - First Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243503.jpgsave_picture_243503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243503.jpg" />
 </div>
 
 

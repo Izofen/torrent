@@ -6,7 +6,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8734.jpgsave_picture_8734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8734.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Total Commander 11.55 MAX-Pack 2025.08.04 by Mellomann [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8735.jpgsave_picture_8735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8735.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Cent Browser 5.2.1168.74 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8736.jpgsave_picture_8736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8736.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8737.jpgsave_picture_8737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8737.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FDBCF2EBFC477C8CFBB92E7770E1FD151711E8E2
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8738.jpgsave_picture_8738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8738.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ MInstAll v.10.08.2025 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8739.jpgsave_picture_8739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8739.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:858814CAAABB40FE18BC7393C46D8609735931B6
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8740.jpgsave_picture_8740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8740.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:8954AF66FBC21C27761A9A19CD7ACBF512A09D78
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8741.jpgsave_picture_8741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8741.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:8954AF66FBC21C27761A9A19CD7ACBF512A09D78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8742.jpgsave_picture_8742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8742.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:8954AF66FBC21C27761A9A19CD7ACBF512A09D78
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8743.jpgsave_picture_8743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8743.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:714DEC4011FC5B3C9EB2A73A7C4BB4A4A8B25C09
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8744.jpgsave_picture_8744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8744.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:714DEC4011FC5B3C9EB2A73A7C4BB4A4A8B25C09
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8745.jpgsave_picture_8745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8745.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:A178A762B57F199D166FCE60AA9C3846DE236CFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8746.jpgsave_picture_8746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8746.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:A178A762B57F199D166FCE60AA9C3846DE236CFB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8747.jpgsave_picture_8747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8747.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A178A762B57F199D166FCE60AA9C3846DE236CFB
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8748.jpgsave_picture_8748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8748.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:A178A762B57F199D166FCE60AA9C3846DE236CFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8749.jpgsave_picture_8749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8749.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A178A762B57F199D166FCE60AA9C3846DE236CFB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8750.jpgsave_picture_8750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8750.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:A178A762B57F199D166FCE60AA9C3846DE236CFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8751.jpgsave_picture_8751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8751.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:A178A762B57F199D166FCE60AA9C3846DE236CFB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8752.jpgsave_picture_8752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8752.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Forgotten 23 (2025) [Multi] (1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8753.jpgsave_picture_8753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8753.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:0169046E2B8FFF3C88844ACC17CA36E71B7C94D8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8754.jpgsave_picture_8754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8754.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:0D050A1889899C7F6A6C034A58572D6D216B427D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8755.jpgsave_picture_8755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8755.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:0D050A1889899C7F6A6C034A58572D6D216B427D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8756.jpgsave_picture_8756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8756.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:0D050A1889899C7F6A6C034A58572D6D216B427D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8757.jpgsave_picture_8757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8757.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Starfield (2023) [Ru/Multi] (1.15.222/dlc) Repack SE7EN [Premium Edition]
 >>36
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8759.jpgsave_picture_8759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8759.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:C0DDDC85A1112E41CAFACDA53CBA723589457E9F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8761.jpgsave_picture_8761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8761.jpg" />
 </div>
 
 

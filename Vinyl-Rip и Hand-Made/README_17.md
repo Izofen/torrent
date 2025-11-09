@@ -6,7 +6,7 @@ Dream Theater - Parasomnia (2025) [WavPack|24/96|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67272.jpgsave_picture_67272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67272.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Soulfallen - Studio Albums (3 releases) (2007-2012) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67288.jpgsave_picture_67288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67288.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Gene Pitney - 24 Hours From Tulsa. Greatest Hits Series Vol.1 (1974) [FLAC 2.0|1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67317.jpgsave_picture_67317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67317.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [FLAC|24/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67325.jpgsave_picture_67325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67325.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67381.jpgsave_picture_67381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67381.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67382.jpgsave_picture_67382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67382.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Helena Vondrackova - Music (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67405.jpgsave_picture_67405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67405.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpgsave_picture_67412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Samael - Rebellion (1995) (EP) Reissue, 2014, Floga Records [FLAC|24/96|tracks|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67446.jpgsave_picture_67446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67446.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Limbes - Liernes (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Atmospheric Black Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67454.jpgsave_picture_67454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67454.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Hands Of Despair - Studio Albums (4 releases) (2011-2021) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67455.jpgsave_picture_67455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67455.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dream Theater - Images And Words (1992) Reissue, 2025, ATCO Records [DSD256|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67467.jpgsave_picture_67467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67467.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67493.jpgsave_picture_67493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67493.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67494.jpgsave_picture_67494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67494.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hilastherion - Studio Albums (3 releases) (2007-2019) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67496.jpgsave_picture_67496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67496.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ System Shock - Studio Albums (3 releases) (2004-2008) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67497.jpgsave_picture_67497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67497.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Samael - Blood Ritual (1992) Reissue, 2011, Floga Records [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67498.jpgsave_picture_67498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67498.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Soulfly - Primitive (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67499.jpgsave_picture_67499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67499.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Marc Bolan / T. Rex - Archived records 1967, 1972 (1991) Compilation, Unofficial
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67505.jpgsave_picture_67505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67505.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Fear Factory - Genexus (2015) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67506.jpgsave_picture_67506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67506.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Trail Of Tears - Studio Albums (8 releases) (1998-2024) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67511.jpgsave_picture_67511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67511.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Manowar - Fighting the World (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67512.jpgsave_picture_67512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67512.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67515.jpgsave_picture_67515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67515.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67516.jpgsave_picture_67516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67516.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Bob Roy Orchestra - Disco-Flash (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67532.jpgsave_picture_67532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67532.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Gary Moore - Dirty Fingers (1983) Reissue 1992 [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67535.jpgsave_picture_67535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67535.jpg" />
 </div>
 
 

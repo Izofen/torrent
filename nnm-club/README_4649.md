@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145528.jpgsave_picture_145528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145528.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Seveneves Best of 2021 (2021) [MP3|320 Kbps] <Funky, Club-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145529.jpgsave_picture_145529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145529.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:57BF7B81A454A07499B124BE266FB6AD4DDE2116
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145530.jpgsave_picture_145530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145530.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A7AAEB3BC82A28B13CD4F360DF101E18E6887A1A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145531.jpgsave_picture_145531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145531.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DD568947053BA216485929310356C9FD3415C8A0
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145534.jpgsave_picture_145534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145534.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - Top 100: Most-Read Lyrics (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145535.jpgsave_picture_145535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145535.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:4B9F4032A41F41A67AD1EA2FA90A21A948A53487
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145536.jpgsave_picture_145536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145536.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Space Holidays Vol. 10 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145537.jpgsave_picture_145537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145537.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Before Their Eyes - 5 Альбомов (2007-2015) [FLAC|Lossless|tracks + .cue|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145538.jpgsave_picture_145538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145538.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Haruka Nakamura - 6 Albums (2007-2013) [OGG|~320 kbps]<Ambient, Acoustic, Electr
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145539.jpgsave_picture_145539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145539.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:0FA764556F3F059C348FF2B89B69E8AAC9EE7229
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145541.jpgsave_picture_145541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145541.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:C5B43601EE77B8AC9F6F41001F6BA62D763BBB90
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145542.jpgsave_picture_145542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145542.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Duran Duran - The Biggest And The Best (2012) 2CD, Compilation [FLAC|Lossless|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145543.jpgsave_picture_145543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145543.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ SimpleMind Pro 1.30.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145544.jpgsave_picture_145544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145544.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:948D46B377FA3243EE4F43A155979E46FB5241BB
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145545.jpgsave_picture_145545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145545.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Trace - 3 Albums (1974-1976) Reissue, 2009, Arcangelo, Japan [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145546.jpgsave_picture_145546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145546.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Trance In Motion Vol.368 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145547.jpgsave_picture_145547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145547.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:940D46A13CC389BA1C84B639835318BF18E3C7F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145548.jpgsave_picture_145548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145548.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Bring Me The Horizon - 13 Releases (2004-2019) [MP3|~245-320 кб/с]<Deathcore 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145550.jpgsave_picture_145550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145550.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Armin van Buuren - A State of Trance 1048 XXL (Top 50 of 2021) (2021-12-23) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145551.jpgsave_picture_145551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145551.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:9710324374C643D94C07743049C3E0EE86CFC216
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145552.jpgsave_picture_145552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145552.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:792E6EE2BEA9B37FA7990A344FA6C5E3E016CE6C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145553.jpgsave_picture_145553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145553.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:C3B20296FDC32ADA4D6C148EDBEBA0903CA3795E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145555.jpgsave_picture_145555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145555.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Firefox Browser ESR 115.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145556.jpgsave_picture_145556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145556.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Claudia Cane Sings Bon Scott - CC/DC - A True AC/DC Remake (2011) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145557.jpgsave_picture_145557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145557.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:617DEF5CB7A1D7FE2FB95BCCB81C2F616315C49C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145558.jpgsave_picture_145558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145558.jpg" />
 </div>
 
 

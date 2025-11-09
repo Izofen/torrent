@@ -6,7 +6,7 @@ Iron Altar - Promethean (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Mode
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178429.jpgsave_picture_178429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178429.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8F5BCA5ADAB62DFBBC5D0ADFE1863CA33791C945
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178432.jpgsave_picture_178432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178432.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Unheilig - Puppenspiel Live - Vorhang Auf! (2008) 2CD [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178433.jpgsave_picture_178433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178433.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ George Shearing - Easy To Love (1953, 1954) 2014, Sounds Of Yester Year [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178436.jpgsave_picture_178436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178436.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Salacious Gods - Oalevluuk (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178439.jpgsave_picture_178439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178439.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Windows 10 Pro 22H2 19045.3448 x64 by SanLex [Lightweight] [Ru/En] (2023.09.28)
 >>11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178444.jpgsave_picture_178444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178444.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows 11 16in1 +/-Office 2019 x86 by SmokieBlahBlah 2023.09.21 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178447.jpgsave_picture_178447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178447.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:37C0BF64D595B887CF0E6FC428C53F5B212E98A8
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178449.jpgsave_picture_178449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178449.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ AIDA64 Engineer Edition 6.80.6200 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178453.jpgsave_picture_178453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178453.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:00E166B9FF8C056AF9F85096BAF7C81734ED1766
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178455.jpgsave_picture_178455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178455.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ InnoExtractor Plus 6.2.0.415 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178456.jpgsave_picture_178456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178456.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:6542C1CE5407CC19E86AD0A1A864189F3AB88ABD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178459.jpgsave_picture_178459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178459.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ LDPlayer 9.0.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178460.jpgsave_picture_178460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178460.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:DE8F53A4670B14990EB445DF66F7229EFF9AE43D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178464.jpgsave_picture_178464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178464.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Speedtest от Ookla 4.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178468.jpgsave_picture_178468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178468.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Office 2013-2021 C2R Install + Lite 7.4.9 b05 ++ Portable by Ratiborus [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178472.jpgsave_picture_178472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178472.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:A1A8A52BFD315A2059FBAC5BD945089331F58B24
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178475.jpgsave_picture_178475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178475.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ WinRAR 6.24 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178483.jpgsave_picture_178483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178483.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ AIDA64 1.89 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178489.jpgsave_picture_178489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178489.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Olauncher 3.5.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178492.jpgsave_picture_178492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_178492.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ W10 Digital Activation v1.5.0 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178495.jpgsave_picture_178495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178495.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Lucky Patcher 10.3.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178496.jpgsave_picture_178496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178496.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:F1FCF8EA235855B3315057E09B78912820FD0F31
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178499.jpgsave_picture_178499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178499.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ WhatsApp 2.2242.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178502.jpgsave_picture_178502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178502.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Auslogics Windows Slimmer 4.0.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178505.jpgsave_picture_178505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178505.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Autorun Organizer 5.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178507.jpgsave_picture_178507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178507.jpg" />
 </div>
 
 

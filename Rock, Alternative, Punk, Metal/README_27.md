@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37078.jpgsave_picture_37078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37078.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jerry Cantrell (Alice in Chains) - 5 Albums (1998-2024) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37166.jpgsave_picture_37166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37166.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Neverland - Illusory World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37171.jpgsave_picture_37171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37171.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The Foreshadowing - New Wave Order (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37179.jpgsave_picture_37179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37179.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Poppy - Negative Spaces (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37180.jpgsave_picture_37180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37180.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Voodoo Circle - Hail To The King (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37181.jpgsave_picture_37181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37181.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Empires Of Eden - Guardians Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37182.jpgsave_picture_37182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37182.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bunuel - Mansuetude (2024) [FLAC|Lossless|WEB-DL|tracks] <Noise-Rock, Punk-Blues
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37184.jpgsave_picture_37184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37184.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Linkin Park - From Zero (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37194.jpgsave_picture_37194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37194.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B06D5DF3253A6CFBDB16682C5841DD911B873036
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37208.jpgsave_picture_37208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37208.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Linkin Park - From Zero (2024) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37209.jpgsave_picture_37209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37209.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6653C3292EB1FCD7537C7368C3DED8C828255561
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37223.jpgsave_picture_37223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37223.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Rockets - The Final Frontier (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37224.jpgsave_picture_37224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37224.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:6E637CADC461EE8384431C15C6735A3E079F9F53
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37225.jpgsave_picture_37225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37225.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:0700983012DB405BC670028EE8C2C9A0950221C3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37226.jpgsave_picture_37226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37226.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Asia - XXX (2012) Japan Edition [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37232.jpgsave_picture_37232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37232.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Evergrey - Collection (1998 - 2024) 27 CD [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37235.jpgsave_picture_37235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37235.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Eden weint im Grab - Reliquiem (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37270.jpgsave_picture_37270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37270.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Gauntlet Rule - After the Kill (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37272.jpgsave_picture_37272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37272.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37274.jpgsave_picture_37274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37274.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ideя Fix - 12 Снов (2007) [FLAC|Lossless|tracks + .cue] <Alternative, Mall 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37276.jpgsave_picture_37276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37276.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F1D820BF2C82A1B6F24A1034A905BA2421CBC8E7
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37280.jpgsave_picture_37280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37280.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Voltage Arc - Sextasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37282.jpgsave_picture_37282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37282.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Wildheart - Music to Survive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock , H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37283.jpgsave_picture_37283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37283.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Circles Of Illusion - Lionheart (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37285.jpgsave_picture_37285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37285.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ di liberta - 2 Albums (2020, 2024) [FLAC|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37294.jpgsave_picture_37294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37294.jpg" />
 </div>
 
 

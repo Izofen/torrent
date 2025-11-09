@@ -6,7 +6,7 @@ VA - The Mysterious music of the World (2024) vol.3 [MP3|320 Kbps] <Enigmatic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54291.jpgsave_picture_54291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54291.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F79AFE557A46B0AA28A90636157812A4DCFB7D60
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54292.jpgsave_picture_54292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54292.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Pet Shop Boys - A New Bohemia (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Synth Pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54293.jpgsave_picture_54293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54293.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2858229A8CB17C66A429A9C5C9FC1EF98270CF43
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54294.jpgsave_picture_54294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54294.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ The Leviathan's Fantasy (2023) [Multi] (2.0.1/dlc) Repack FitGirl [Ultimate Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54295.jpgsave_picture_54295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54295.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:8D1AD84E5A0000E10812779949754565E394008D
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54296.jpgsave_picture_54296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54296.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:5E8CBC925EA3FCE9B71119D28D0997C670F3CAE3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54297.jpgsave_picture_54297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54297.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:7964A05FE45C33BC009C5167DE4FFFC03AEB61EB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54298.jpgsave_picture_54298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54298.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:5D66CB6207962CC68334300A92D219DF116779C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54299.jpgsave_picture_54299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54299.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54300.jpgsave_picture_54300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54300.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:D3990DE01AFC8560EE7D67C84D5572939B68B5BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54301.jpgsave_picture_54301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54301.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D3990DE01AFC8560EE7D67C84D5572939B68B5BE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54302.jpgsave_picture_54302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54302.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:4496312576BAFF89220D10EA4DEDCAA1E604C42F
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54303.jpgsave_picture_54303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54303.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:9CA8AB4D089221E1AA2BB8948812A1D15CF6B3D4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54304.jpgsave_picture_54304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54304.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:FCACF9E1E3D4C3D26BE516BDE1FF9754C7166264
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54305.jpgsave_picture_54305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54305.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:85C90FB52502F95613BAA7A632544C4671959331
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54306.jpgsave_picture_54306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54306.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:021DF87E814AF9716B38B696536D1160CFD3142D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54307.jpgsave_picture_54307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54307.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:053C373A99A5446DE00FD47A206E8A91E934BCB6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54308.jpgsave_picture_54308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54308.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:E504C77941D956DA1A373122CBA56D63340FA641
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54309.jpgsave_picture_54309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54309.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:5FCC0B91F9D3693201583B31601A5E7193EA7DEF
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54310.jpgsave_picture_54310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54310.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:CEBE8372DF4E344E307EDF8A59840DEEA5BCC70A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54311.jpgsave_picture_54311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54311.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:323C0719806AEE18C6E7BF5188A267C3C1D168B5
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54312.jpgsave_picture_54312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54312.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:08819F9E24D0A9789D9B4B8698C1E7FD3AE99C62
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54313.jpgsave_picture_54313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54313.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ The Tribe Must Survive (2024) [Multi] (1.0.16) Repack FitGirl [Supporter Pack]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54314.jpgsave_picture_54314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54314.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54315.jpgsave_picture_54315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54315.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mercenary Battle Company: The Reapers (2024) [Multi] (1.0.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54316.jpgsave_picture_54316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54316.jpg" />
 </div>
 
 

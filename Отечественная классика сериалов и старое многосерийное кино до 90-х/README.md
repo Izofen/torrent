@@ -6,7 +6,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_505.jpgsave_picture_505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_505.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:631102059ABB2BBA6F88D6134EE298BFE9FC7E43
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1224.jpgsave_picture_1224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1224.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:298E27B4FF3376E85F59298BA842F13F1F244A77
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1298.jpgsave_picture_1298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1298.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D85FA24AF224B7C27542B4D47E27BBB763A64782
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1313.jpgsave_picture_1313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1313.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:9B465D4962EF002A7D03E40AEADC322BCF6B97D6
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1941.jpgsave_picture_1941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1941.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:DE392D69ADCB9E739B67D5534309379A45CA2C0D
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2092.jpgsave_picture_2092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2092.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5911FCA0C2016DEE17C5875C4F17C08E357C899F
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2098.jpgsave_picture_2098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2098.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:C11339DDD496051DF926547B63F7DFE760DF3F1B
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3276.jpgsave_picture_3276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3276.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:0E82145E835BA3793D280A04C219B370E7B419CC
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3640.jpgsave_picture_3640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3640.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:A898F7FFAFBB5B4463F333EA1E40378608A077D0
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4225.jpgsave_picture_4225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4225.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E661518ACEA315A969CCB5DDDAE933C9DBFE6AD5
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8195.jpgsave_picture_8195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8195.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:9125E9D988E4253619A753DCE78372D9CAE81374
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8533.jpgsave_picture_8533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8533.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:341584FD9BA793BE0CD7C2DA60D31A0B2DD10800
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9498.jpgsave_picture_9498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9498.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:CF30FC951CD44EA9078F05DD75B5506895EE7EF7
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9904.jpgsave_picture_9904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9904.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D058DB853605BBB916F3A1DC02F092F990AB8504
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10119.jpgsave_picture_10119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10119.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:BC888D6C76E003D9D839797D9D291A20947AF8BC
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10947.jpgsave_picture_10947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10947.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:17A3DE284C940B5571FE24006E15BE47DEC58934
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12183.jpgsave_picture_12183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12183.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:8AB103E7F5B4FFCF95C3617B6B869E52F6A597B2
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12353.jpgsave_picture_12353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12353.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:3F528AA50D67FE4179F93C3788F250F9B0167674
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13472.jpgsave_picture_13472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13472.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:181A692A87F6F06F1DE133D77D7E697A5AA07169
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14774.jpgsave_picture_14774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14774.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:487C376BF603AFE0C4003AD788CE60C4C1A4DA83
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14863.jpgsave_picture_14863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14863.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:1FF741D3432C63A59EA5F1398F70CEECAA1723DE
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15283.jpgsave_picture_15283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15283.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:1237E63CC8BAAEB7652F47382C6F0F8CF59A0F6A
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16189.jpgsave_picture_16189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16189.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:37610B1AB7B7F0C97E91B25D3352D98ABB55FEC0
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16389.jpgsave_picture_16389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16389.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:C255AA38B6CAB0B0358FDFBBCB8FFBDB65C1E82A
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17179.jpgsave_picture_17179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17179.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:F4A7E308E2FFA03A6010F9F197092372F913F1B1
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17907.jpgsave_picture_17907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17907.jpg" />
 </div>
 
 

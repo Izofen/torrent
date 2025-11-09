@@ -6,7 +6,7 @@ Firefox Browser 114.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211802.jpgsave_picture_211802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211802.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpgsave_picture_211804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211805.jpgsave_picture_211805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211805.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Qulonium - Universal Error (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211807.jpgsave_picture_211807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211807.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:9CEDE0F2774E8B61B9F02F0D12574D5B46DCF85F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211809.jpgsave_picture_211809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211809.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:CE91D9AF883376D5A30CF751CC03C7686F835C2C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211811.jpgsave_picture_211811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211811.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:D2B930B0EB05DB43C01C904CCFCAEB67FE113306
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211813.jpgsave_picture_211813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211813.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:7679F1087666AAF080FF21413A6776F2AD7219C0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211816.jpgsave_picture_211816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211816.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Analog '82 - Youthtopia (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211818.jpgsave_picture_211818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211818.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG. Разрушительный ураган Сэнди / Superstorm New York: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211820.jpgsave_picture_211820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211820.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Shakra - Invincible (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211821.jpgsave_picture_211821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211821.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ MotoGP. Этап 06. Гран-при Италии. Спринт (10.06.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211822.jpgsave_picture_211822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211822.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ MotoGP. Этап 06. Гран-при Италии. Квалификация (10.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211825.jpgsave_picture_211825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211825.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:B5F119AA83F8ED0797ED2DA6A56A54C5ECD75A77
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211826.jpgsave_picture_211826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211826.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ RTG. Путешествие по Валдайскому краю (2014) HDTV [H.
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211829.jpgsave_picture_211829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211829.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Summer 2023: Best Of Deep House (2023) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211830.jpgsave_picture_211830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211830.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ calibre 6.20.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211834.jpgsave_picture_211834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211834.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ON1 Photo RAW 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211836.jpgsave_picture_211836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211836.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:F4C8302093DB8D96D3AA77872131B08F61AFFEA1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211837.jpgsave_picture_211837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211837.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:060C7A7A520A578EDA74E59D6079389F572F562E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211840.jpgsave_picture_211840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211840.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:4DEC2241DAC6E17AF96F1645ACCC366CE6E3E043
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211843.jpgsave_picture_211843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211843.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Leathurbitch - Shattered Vanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211846.jpgsave_picture_211846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211846.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6D8601AF22F1D51E94C1216F8DF4A5DE9231B766
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211847.jpgsave_picture_211847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211847.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:668152DAC3781196A3EBA9E559F18D49EA5E01B1
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211850.jpgsave_picture_211850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211850.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:994F043FC1D8555C6B49A377FF8C1BDE892D9AF1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211851.jpgsave_picture_211851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211851.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:1459CFAA2ECAE2A313782F93D2742454B71D33CE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211855.jpgsave_picture_211855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211855.jpg" />
 </div>
 
 

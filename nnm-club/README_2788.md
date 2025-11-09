@@ -6,7 +6,7 @@
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78845.jpgsave_picture_78845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78845.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:96FC65D87B32B479DFAC7101CC3CB40C11133659
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78848.jpgsave_picture_78848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78848.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Playboy: разденьте девушку / Undress a Woman (27.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78851.jpgsave_picture_78851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78851.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ WinDoZa Boot by Core-2 v.24.2.12 [Английский + Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78858.jpgsave_picture_78858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78858.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ WinDoZa Boot by Core-2 v.24.2.12 - Модифицированный загруз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78860.jpgsave_picture_78860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78860.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:C6D1DDF418D61FFE1B00D5FE683ED38CAF54AF8A
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78862.jpgsave_picture_78862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78862.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Tropico 3 Gold Edition [Ru] [Native]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78863.jpgsave_picture_78863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78863.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Global Ops: Commando Libya / Приказано уничтожить: Опера
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78868.jpgsave_picture_78868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78868.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:0C9BCB467F8F5A35BE8D06FBAAC1DAF5D2968FD1
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78871.jpgsave_picture_78871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78871.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:0502B31A7DD614A9F7F1902239130A932F5490EB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78872.jpgsave_picture_78872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78872.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Patrick Cowley - 6CD (1981 - 2009)[FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78873.jpgsave_picture_78873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78873.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Patrick Cowley - 6CD (1981 - 2009)[FLAC|Lossless]<Disco>
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78875.jpgsave_picture_78875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78875.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ ASUS Eee PC 1001PX вспомогательный DVD-диск Rev 1.2 [Русс
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78879.jpgsave_picture_78879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78879.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Google Sketchup Free & Pro v8.0.11752 [Английский/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78880.jpgsave_picture_78880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78880.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Generation П (2011) BDRip [H.264]
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78885.jpgsave_picture_78885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78885.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Need For Speed: Hot Pursuit 2 [Cider] [Eng]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78889.jpgsave_picture_78889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78889.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:B97CCCC16301D079D31B5B1DC919E46457C1C9E9
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78890.jpgsave_picture_78890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78890.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:35DF97DE8D4B65FC209B15AF4094F1BA2FE43E3F
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78891.jpgsave_picture_78891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78891.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:36271727A9DB6C4EAEF3FA1D5CA3B305E57C6563
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78894.jpgsave_picture_78894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78894.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Airwave - Atlas Winds / Chiricahua (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78897.jpgsave_picture_78897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78897.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:773A1666C96C172DFC65CD9C580AAFE8482DCC58
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78901.jpgsave_picture_78901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78901.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:BFCB568930414975FFBE4649DD34E440AEB6744D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78911.jpgsave_picture_78911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78911.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:BE50B627188870A1A724BCCD929EFFA83CB825DF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78927.jpgsave_picture_78927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78927.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ A State Of Trance 550 Anthem Contest Podcast (2011) HDRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78937.jpgsave_picture_78937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78937.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:A23677DEC3421C66279ABC288C4815394AAA0572
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78941.jpgsave_picture_78941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78941.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ PhotoLine_17.01_ML+RUS_Portable 17.01 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78942.jpgsave_picture_78942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78942.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177315.jpgsave_picture_177315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177315.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ iNet Network Scanner 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177318.jpgsave_picture_177318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177318.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:971EF33D168604F2A977F0251B7A19C0224BB7F5
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177321.jpgsave_picture_177321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177321.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.10 Stable + Portable + Standal
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177322.jpgsave_picture_177322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177322.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:67DABDB3409C9EB0CEDB4E90740D83C12D3444AE
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177324.jpgsave_picture_177324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177324.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:4828270DADC914D5B1772EC473E0D75823861C2D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177325.jpgsave_picture_177325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177325.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:8DEBD4CA7EE22A169FC3187702FFF0F7EADBBB93
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177327.jpgsave_picture_177327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177327.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Geekbench 6.2.1 Pro RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177328.jpgsave_picture_177328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177328.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ MailWasher Pro 7.12.182 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177330.jpgsave_picture_177330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177330.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ HopToDesk 1.40.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177332.jpgsave_picture_177332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177332.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:3297B06E22CFF35430D275C3E0FCEF99682ADFB8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177334.jpgsave_picture_177334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177334.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ PassMark RAMMon 2.5 Build 1000 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177337.jpgsave_picture_177337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177337.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Resource Hacker 5.2.1.376 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177339.jpgsave_picture_177339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177339.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Geekbench 5 v.5.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177343.jpgsave_picture_177343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177343.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:10EB8D8EB7CFD7ED269C13877101A3786795263A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177344.jpgsave_picture_177344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177344.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ App Builder 2023.61 (x64) [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177346.jpgsave_picture_177346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177346.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:B0E12F8897445FE6AAED58FB115A363A7FCFE2F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177348.jpgsave_picture_177348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177348.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Acryl Madness - Afterlife (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177350.jpgsave_picture_177350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177350.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electron
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177352.jpgsave_picture_177352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177352.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Ring Of Fire - Gravity (2022) [FLAC|Lossless|image + .cue] <Neo-Classical Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177354.jpgsave_picture_177354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177354.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:5450C82AB52387E664E03A1BF15CC56B2ADECCC0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177355.jpgsave_picture_177355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177355.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ System Ninja Pro 4.0 Portable by FC Portables [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177358.jpgsave_picture_177358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177358.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:BE297FA438166E9E5787450ECAC16475C4D4BD86
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177360.jpgsave_picture_177360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177360.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mailbird Pro 2.9.83.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177362.jpgsave_picture_177362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177362.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Path Finder 2147 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177364.jpgsave_picture_177364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177364.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ eM Client Pro 9.2.2093.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177366.jpgsave_picture_177366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177366.jpg" />
 </div>
 
 

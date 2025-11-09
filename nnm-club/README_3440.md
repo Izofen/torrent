@@ -6,7 +6,7 @@ VA - British Rock Hits Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109801.jpgsave_picture_109801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109801.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - In Bloom 2024 (Vocal Dance Mix) [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109802.jpgsave_picture_109802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109802.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Tyler Bryant & The Shakedown - Electrified (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109803.jpgsave_picture_109803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109803.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Dj Sava - Vogue Vibes (2024) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109804.jpgsave_picture_109804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109804.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kings Of Leon - Can We Please Have Fun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109805.jpgsave_picture_109805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109805.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Topaz Photo AI 3.0.2 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109806.jpgsave_picture_109806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109806.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ PilotEdit Lite & Pro 18.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109807.jpgsave_picture_109807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109807.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Just Color Picker 6.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109808.jpgsave_picture_109808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109808.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Trance Opera - 11 Albums (1995-2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Cr
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109809.jpgsave_picture_109809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109809.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109810.jpgsave_picture_109810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109810.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wise Care 365 Pro 6.7.2.646 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109811.jpgsave_picture_109811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109811.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:2F2FFE57AE972F0438AC187C25FBDF9C4548642B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109812.jpgsave_picture_109812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109812.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Seiken Gakuin no Maken Tsukai | The Demon Sword Master of Excalibur Academy | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109813.jpgsave_picture_109813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109813.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Top 20 Best Pop Rock Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109814.jpgsave_picture_109814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109814.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:E531BD81EC1A057944BA486F4079F3CA0039CEC1
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109815.jpgsave_picture_109815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109815.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:47F4DA70419EDCA98E460442299D67F6B4B67A05
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109816.jpgsave_picture_109816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109816.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ John’s Background Switcher 5.8.0.2  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109817.jpgsave_picture_109817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109817.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Soul Browser 1.4.18 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109818.jpgsave_picture_109818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109818.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ OfficeSuite Pro + PDF 14.4.51682 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109819.jpgsave_picture_109819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109819.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Sumatra PDF 3.6.16067 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109820.jpgsave_picture_109820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109820.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Charming Smooth Easy Light Jazz for Relaxation (2024) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109821.jpgsave_picture_109821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109821.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109822.jpgsave_picture_109822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109822.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Process Lasso Pro 14.0.3.16 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109823.jpgsave_picture_109823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109823.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Happy Charming Easy Lounge Tunes for Vacation (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109824.jpgsave_picture_109824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109824.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Black Eyed Peas x El Alfa feat. Becky G - TONIGHT (Bad Boys: Ride Or Die) (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109825.jpgsave_picture_109825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109825.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:B27FF9E3A5638C9486C055826EF54D1ED25805BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109826.jpgsave_picture_109826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109826.jpg" />
 </div>
 
 

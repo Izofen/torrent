@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57567.jpgsave_picture_57567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57567.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Internet Download Manager 6.42 Build 10 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57568.jpgsave_picture_57568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57568.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Product University | Основы контент-маркетинга (2024) WEB
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57569.jpgsave_picture_57569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57569.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Product University | Telegram-бот Developer (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57570.jpgsave_picture_57570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57570.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Radiorama - 17 Albums +1 Bootleg+ 12  Compilations + 38 Singles (68 CD)  (1985 -
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57571.jpgsave_picture_57571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57571.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0B Build 25 Public Beta 2 (x64) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57572.jpgsave_picture_57572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57572.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:439B6E3CF850F00801B2DAC5F683B251900B3EB7
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57573.jpgsave_picture_57573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57573.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:AC691A9A9DC1432B54B22BB66F4C88D877C14B5C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57574.jpgsave_picture_57574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57574.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.5.114949/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57575.jpgsave_picture_57575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57575.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:11AAC65EC7862487518160FB488C20AB98D3FF09
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57576.jpgsave_picture_57576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57576.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:74244BD0F4EB3FF6954E21A2636E67CD71376137
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57577.jpgsave_picture_57577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57577.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:E954D3B5F04FE5826D27FF8A5EE36C1DE3CB59A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57578.jpgsave_picture_57578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57578.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ System of a Down - 5 альбомов (1998-2005) [FLAC|Lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57579.jpgsave_picture_57579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57579.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3941F6F69E73FCF80670A2F5E63D8F42A9FD3058
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57580.jpgsave_picture_57580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57580.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7CD5C5F832A31EA58E8B216D900258B5D5C9339A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57581.jpgsave_picture_57581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57581.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:6595DCF1E2292242CF2CB9F309682F1A6A1F3062
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57582.jpgsave_picture_57582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57582.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Gorillaz - Дискография (2001-2010) [FLAC|lossless]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57583.jpgsave_picture_57583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57583.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:99AB6E77E7A5DF2994A434574F4E32989FA2DD62
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57584.jpgsave_picture_57584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57584.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:D30D49CD5A8107EA1705F902460D13A5F2FD6C43
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57585.jpgsave_picture_57585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57585.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:D4D0FA7B65CDFFB6FC3B383D7176168F4CF32F3C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57586.jpgsave_picture_57586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57586.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:31B5F58FA5ACC3E9D0993BED6C9BDED79A2C46E9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57587.jpgsave_picture_57587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57587.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:18829F6EAF0D554B7869076F8BB4B4FC1733648C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57588.jpgsave_picture_57588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57588.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:3F04F12E7D02A91E2EAAC1C6FCA4A661A5CA1D02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57589.jpgsave_picture_57589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57589.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:1EA5AB101E0D2606C4718CB746DD97BB5B6A9723
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57590.jpgsave_picture_57590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57590.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Kenny G - Полная дискография (1982 - 2015) [MP3|320 кб/с] <J
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57591.jpgsave_picture_57591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57591.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:EEF84C5795FDF55AC4369E8B74560153B898DEB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57592.jpgsave_picture_57592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57592.jpg" />
 </div>
 
 

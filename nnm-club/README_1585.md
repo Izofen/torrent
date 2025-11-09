@@ -6,7 +6,7 @@ VA - RetroFutur (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, Rav
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41567.jpgsave_picture_41567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41567.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ XYplorer 26.40.0400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41568.jpgsave_picture_41568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41568.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9962A94A0AA605DA59902D3C809B752FDDACC91C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41569.jpgsave_picture_41569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41569.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Autumn Bride - Bedtime Stories (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41570.jpgsave_picture_41570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41570.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:8B48B534E6E457602744C4D13972CBFB1315B115
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41571.jpgsave_picture_41571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41571.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:988AC755D5F4D73E3B6062571F26A510A2714CFF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41572.jpgsave_picture_41572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41572.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Jan Preston - Pianoland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41573.jpgsave_picture_41573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41573.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:236E55F768D0AC17B1662C8E90FB7823B951F833
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41574.jpgsave_picture_41574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41574.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:3AE0159DAFEB90BD037359DE9402CBC1F6625480
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41575.jpgsave_picture_41575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41575.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:181849EA748C20CD9005BC3D8550F97ADD9779A3
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41576.jpgsave_picture_41576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41576.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C6EBD6E55455D1F61F16F86578D561C3891BA58F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41577.jpgsave_picture_41577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41577.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Cyber Beats Nexus - ROCK 1.0 (1.0) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41578.jpgsave_picture_41578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41578.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:8F34C2CB154F0ACA42C9495734FEEB191B9143B5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41579.jpgsave_picture_41579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41579.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:C693821E9D8C8FB544B5E2BE87298255811640AF
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41580.jpgsave_picture_41580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41580.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Joe Pass - The Best Of Joe Pass (1973 - 1982) 1991, Pablo [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41581.jpgsave_picture_41581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41581.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ R-Studio Network / Technician 9.4 Build 191359 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41582.jpgsave_picture_41582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41582.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:E12D70E6C2F62CB8779F3F84994FA164412FA354
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41583.jpgsave_picture_41583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41583.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:CDBD59509E3ADDA252425B905E6832A3C953D7AD
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41584.jpgsave_picture_41584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41584.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Photo Lab PRO v3.13.30 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41585.jpgsave_picture_41585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41585.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:7026FB1CAB9067FE37C5902EC634AD034A8D6FAC
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41586.jpgsave_picture_41586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41586.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:074D623F859163716E1D83FD5AC63360D28B44D0
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41587.jpgsave_picture_41587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41587.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ WinCatalog 2024.8.1.1002 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41588.jpgsave_picture_41588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41588.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:A96C9C8F7CB9D34C22DCD6FD2F19DCFE1C776EDA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41589.jpgsave_picture_41589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41589.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:5A5618F46152B43C3010A7605CF7FB4AD854FEB1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41590.jpgsave_picture_41590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41590.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ReNamer Pro 7.6 + Standalone (Portable) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41591.jpgsave_picture_41591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41591.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ GoldWave 6.83 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41592.jpgsave_picture_41592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41592.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Jan Preston - Pianoland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41573.jpgsave_picture_41573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41573.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cyber Beats Nexus - ROCK 1.0 (1.0) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41578.jpgsave_picture_41578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41578.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Pavlov's Dog - Essential Recordings 1974-2018 Pavlov's Dog (1974-2018) Remastere
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41662.jpgsave_picture_41662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41662.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cigar Box Band - Time To Go (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41663.jpgsave_picture_41663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41663.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Marigold Bachman Blackout - Phoenix Rise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41673.jpgsave_picture_41673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41673.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Darnell "Showcase" Taylor - Worth the Wait (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41677.jpgsave_picture_41677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41677.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Bryan Ferry (Roxy Music) - Retrospective (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41687.jpgsave_picture_41687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41687.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Helloween - Better Than Raw (1998) Remastered, 2024, Sanctuary Records [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41787.jpgsave_picture_41787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41787.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alphaville - Forever! Best Of 40 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41788.jpgsave_picture_41788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41788.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:C56E14407B8CFCD40F42233CA422227C9E70F36C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41834.jpgsave_picture_41834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41834.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Serj Tankian - Foundations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41873.jpgsave_picture_41873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41873.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Kiko & the Blues Refugees - Ghosts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41877.jpgsave_picture_41877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41877.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Will Gunnell - I Dooz the Blooz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41881.jpgsave_picture_41881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41881.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Urban Rivers - Rockin' The Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41884.jpgsave_picture_41884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41884.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Munarheim - Heimkehr (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41885.jpgsave_picture_41885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41885.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Tad Morose - Studio Albums (11 releases) (1993-2022) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41886.jpgsave_picture_41886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41886.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tommy J Stewart - Turning up the Heat (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41890.jpgsave_picture_41890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41890.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tracy Stafford Platinum VIBES - NAWLIN'S BLUE VIBES (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41891.jpgsave_picture_41891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41891.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ The Pszenny Project - Smokey Bourbon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41892.jpgsave_picture_41892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41892.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Xiaoloulou - Brave Enough to Love Again (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41910.jpgsave_picture_41910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41910.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mylene Farmer - Nevermore (Live) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41927.jpgsave_picture_41927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41927.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Disturbed - Studio Albums (8 releases) (2000-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42076.jpgsave_picture_42076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42076.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:65B6CB03A9DF03D9F99AB8381299B755D0156463
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42189.jpgsave_picture_42189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42189.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Toni Braxton - Secrets (1997) Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42190.jpgsave_picture_42190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42190.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Karaone - Dragon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42205.jpgsave_picture_42205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42205.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Lady Gaga - Harlequin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42220.jpgsave_picture_42220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42220.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22881.jpgsave_picture_22881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22881.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9CE04720525200D779DE9299F510432976C35D8B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22882.jpgsave_picture_22882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22882.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9F222DF62473442740AABAEB562FBDFA6EA237ED
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22883.jpgsave_picture_22883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22883.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Afterimage (2023) [Ru/Multi] (1.2.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22884.jpgsave_picture_22884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22884.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:644E13A381830C5EBCB40366EE16061BEC9C8AA7
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22885.jpgsave_picture_22885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22885.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TapScanner v3.0.62 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22886.jpgsave_picture_22886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22886.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.1 Mod by Balatan  [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22887.jpgsave_picture_22887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22887.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:E6232A83072410506FEA4E26A0FB955995CE5A69
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22888.jpgsave_picture_22888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22888.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Miryam The Polluted Land (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22889.jpgsave_picture_22889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22889.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Icebound Secrets: The Frostwood Bane / Тайны ледяного мира: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22890.jpgsave_picture_22890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22890.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22891.jpgsave_picture_22891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22891.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ WinSCP 6.5.0 Build 16288  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22892.jpgsave_picture_22892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22892.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:BF2759AD5643F33AAD7B8ED08A7EE1FFBF6C9016
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22893.jpgsave_picture_22893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22893.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Joe Bonamassa - Santiago (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22894.jpgsave_picture_22894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22894.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:BC1DCF8270B45442FAFA21054238B82C668100C1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22895.jpgsave_picture_22895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22895.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - National Pop Dance Music Vol.101 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22896.jpgsave_picture_22896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22896.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Rain World (2017) [Ru/Multi] (1.10.1/dlc) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22897.jpgsave_picture_22897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22897.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Magic Kingdom - Studio Albums (6 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22898.jpgsave_picture_22898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22898.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Magic Eraser / Магический ластик v2.21.7 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22899.jpgsave_picture_22899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22899.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:DF3C56FE669A86EFDB38F742E01660C2E4B46A47
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22900.jpgsave_picture_22900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22900.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Duplicate File Detective 7.3.69.0 (x64) Professional / Enterprise / Site Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22901.jpgsave_picture_22901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22901.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:464A9B0CE7C2C31155A06A8602DD57836FFD04CE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22902.jpgsave_picture_22902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22902.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Duplicate Cleaner Pro 5.25.0 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22903.jpgsave_picture_22903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22903.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:B79967943E8F376F7BCCE8A2AAD39424062D0885
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22904.jpgsave_picture_22904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22904.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:2EAAEAD5F0EB83C3AD83C20EFD6DE03891B3ED25
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22905.jpgsave_picture_22905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22905.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ MakeMKV 1.17.9 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22906.jpgsave_picture_22906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22906.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121454.jpgsave_picture_121454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121454.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stats 2.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121455.jpgsave_picture_121455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121455.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:05D6EF6DFBFCBE9EB0891406B1213803FA9B8400
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121456.jpgsave_picture_121456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121456.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121457.jpgsave_picture_121457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121457.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Smooze Pro 2.0.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121458.jpgsave_picture_121458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121458.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:7FFB4D9453EC5DBBFB15452B9BD68320E20C59FF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121459.jpgsave_picture_121459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121459.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Ant Download Manager 2.16.0 Build 91579 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121460.jpgsave_picture_121460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121460.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:6E880F7416B360387C6B34EF47D72DCFCD6E99BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121461.jpgsave_picture_121461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121461.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:652173381B8A3A937D537E243DF58D941F2B11D7
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121462.jpgsave_picture_121462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121462.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:FB08AAA5A608D40E25B739A1530944C68304E2B5
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121463.jpgsave_picture_121463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121463.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121464.jpgsave_picture_121464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121464.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:AE9EA658EF06DE0987DC9A267266918A5ABB1F47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121465.jpgsave_picture_121465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121465.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Lounge O'Clock, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121466.jpgsave_picture_121466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121466.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ DBF Viewer 2000 8.84 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121467.jpgsave_picture_121467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121467.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:BE40F8ADB71FE4FFE7F643E1AAE07E33C712A782
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121468.jpgsave_picture_121468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121468.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121469.jpgsave_picture_121469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121469.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Stateside Red - Far From The Delta (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121470.jpgsave_picture_121470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121470.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121471.jpgsave_picture_121471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121471.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:D3BA656E6030801730126D2B6233C67D0CAD9CB7
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121472.jpgsave_picture_121472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121472.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:446FCF00C3F1F9C035A48E422EDE73E1F905AC57
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121473.jpgsave_picture_121473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121473.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121474.jpgsave_picture_121474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121474.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:B8444BFC65903FDB3AD71A392D53D4CA58B57C73
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121476.jpgsave_picture_121476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121476.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:AC0A338497169617B10F9783963E9756575314F2
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121477.jpgsave_picture_121477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121477.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:0E4C5DE025FD848D1A207F7D07B536894EE5018C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121478.jpgsave_picture_121478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121478.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ L.A. Guns - The Dark Horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam-Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121479.jpgsave_picture_121479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121479.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack Other s [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121480.jpgsave_picture_121480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121480.jpg" />
 </div>
 
 

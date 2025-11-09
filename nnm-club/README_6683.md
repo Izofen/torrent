@@ -6,7 +6,7 @@ VA - Energetic Workout Vol.1 (2019) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229298.jpgsave_picture_229298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229298.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Camile Baudoin - This Old House (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229299.jpgsave_picture_229299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229299.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Johnny Gallagher And The Boxty Band - A 2020 Vision (2020) [MP3|320 Kbps] <Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229300.jpgsave_picture_229300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229300.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:EF120C5395EADA801C701421DD6D52C62E36E623
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229302.jpgsave_picture_229302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229302.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Options Remake 150 Tracks (2018 November) (2018) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229303.jpgsave_picture_229303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229303.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Girlschool - WTFortyfive? (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229304.jpgsave_picture_229304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229304.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Cisdem Data Recovery 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229306.jpgsave_picture_229306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229306.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:15556745DC5DB3F881183C86C509B10EA9EB2302
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229307.jpgsave_picture_229307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229307.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:0702033BBABE9EA019218FC7691B416CC8923882
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229308.jpgsave_picture_229308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229308.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:3EBF5245578D8450F7C11B32C281357D758833AD
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229309.jpgsave_picture_229309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229309.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:FB58CC0DF91E77CEF4D9ED3A6E30C0D41738AC8A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229311.jpgsave_picture_229311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229311.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Chick Corea, Christian McBride, Brian Blade - Trilogy 2 (2019) 2CD, Concord Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229312.jpgsave_picture_229312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229312.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229313.jpgsave_picture_229313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229313.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Fork 2.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229315.jpgsave_picture_229315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229315.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:708661D4AD6EEEF300A8137437A3D8ADE4E609D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229317.jpgsave_picture_229317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229317.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:A84289C0DB8F2F685C03DD601697E3CD9EBFFD0F
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229318.jpgsave_picture_229318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229318.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:2CCDEAE263FCBC7EFD6217444305E2908984D2FB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229319.jpgsave_picture_229319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229319.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:1C0708256008E0D022F547FBD71306EA64963000
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229320.jpgsave_picture_229320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229320.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:08FF35CE3C54FB8FC05E787569A67932F3CFC9A2
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229321.jpgsave_picture_229321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229321.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Cliff (Clifford) Jordan & John Gilmore - Blowing In From Chicago (1957) 2010, An
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229322.jpgsave_picture_229322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229322.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Bob Marley - Concert tribute to Bob Marley(+бонус) (1999) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229323.jpgsave_picture_229323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229323.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ DiGelsomina - Sic Itur Ad Astra (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229324.jpgsave_picture_229324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229324.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Lauver - Celestial Bodies (2019) Past Inside the Present [FLAC 2.0|96/24|tracks|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229326.jpgsave_picture_229326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229326.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Mindjet MindManager 2019 v19.1.198 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229327.jpgsave_picture_229327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229327.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ CULTIC (2022) [En] (9714547) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229328.jpgsave_picture_229328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229328.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:EF3D6A71F93E576218BB89349466F678DF2D613F
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229329.jpgsave_picture_229329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229329.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MinerSearch 1.4.8.1 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1077.jpgsave_picture_1077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1077.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MAX Desktop 25.11.1 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1078.jpgsave_picture_1078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1078.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:65416A6406C9E5C2AF3031DF09DE7B03022F7A89
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1079.jpgsave_picture_1079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1079.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1080.jpgsave_picture_1080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1080.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.5.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1081.jpgsave_picture_1081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1081.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1082.jpgsave_picture_1082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1082.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Rebrain, Александр Марченко, Артемий Дубовой | Gr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1083.jpgsave_picture_1083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1083.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1084.jpgsave_picture_1084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1084.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:1D0762D860CB46D375E2D8E99AE9EA86078C0DDB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1085.jpgsave_picture_1085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1085.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:86099F8B13C4DAC01492B35AF684C3318CF6D2D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1086.jpgsave_picture_1086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1086.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:2EBB50A64C8D38213B75693FF4068ECD5E01DFE5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1087.jpgsave_picture_1087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1087.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1088.jpgsave_picture_1088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1088.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:B2F0B8D68D5CD1106D94229C5B28C82C6636B9A7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1089.jpgsave_picture_1089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1089.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:DBBE5A0B09E32C42FB03CB4A2C5AF3CA2D2DD999
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1090.jpgsave_picture_1090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1090.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:E48D704A953632056E29C80E4FD1B7D196D89DE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1091.jpgsave_picture_1091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1091.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C332567DCA2F0519BBA7F064D0680AC64F55A61C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1092.jpgsave_picture_1092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1092.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:304D30D5FC665E161EC61B3FC17E338843D2D010
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1093.jpgsave_picture_1093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1093.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:22819BEFE5503097E0777A36C09A3E6D109456FB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1094.jpgsave_picture_1094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1094.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:80B0838200334657BCFD83B9C9CB749AA86D4FD1
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1095.jpgsave_picture_1095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1095.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:F9585A894306FFBE7791A2DDF08F7235A0B74D28
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1096.jpgsave_picture_1096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1096.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:6D1D41450144367EDFA4D7C9084D3F690CF19850
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1097.jpgsave_picture_1097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1097.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:F95BCC60930BCCA7AB67409409E0DF490AB24AAE
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1098.jpgsave_picture_1098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1098.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:3D031F471941EEF9AD0823D2DFA43D43F400CE08
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1099.jpgsave_picture_1099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1099.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:EE3B01B573BC4598A28C20D867743E0D6A4E8B44
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1100.jpgsave_picture_1100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1100.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) License GOG [Ul
 >>32
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1101.jpgsave_picture_1101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1101.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1102.jpgsave_picture_1102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1102.jpg" />
 </div>
 
 

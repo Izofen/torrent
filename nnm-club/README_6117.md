@@ -6,7 +6,7 @@ BSPlayer Pro 3.19.247-20230828 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192411.jpgsave_picture_192411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192411.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CB94C0C73FADA1996A6543D61CBE81413CCCCBDB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192412.jpgsave_picture_192412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192412.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BED44E4071D94A7F87D64F0C692882F996C9EF1D
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192413.jpgsave_picture_192413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192413.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ QuickTextPaste 8.67 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192414.jpgsave_picture_192414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192414.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ OneCommander Pro 3.51.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192415.jpgsave_picture_192415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192415.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:10EE0B6DF199F56AF07C6B374D59FD0F13EA3A5E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192416.jpgsave_picture_192416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192416.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.05b) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192417.jpgsave_picture_192417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192417.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:1B2EFC3686987474F4004A08150DA3AE8ACF9DEE
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192418.jpgsave_picture_192418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192418.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192419.jpgsave_picture_192419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192419.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:6D7F0CD4B6878A60FBA71D666DBFAC13B6743E6D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192420.jpgsave_picture_192420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192420.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ U.D.O. - Touchdown (2023) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192421.jpgsave_picture_192421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192421.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7C768AA875ECCD119E34C34A8B64C1A7D3D67F4E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192422.jpgsave_picture_192422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192422.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F66A4DD5C71F0B1450C60282D888E02F824DA06D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192423.jpgsave_picture_192423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192423.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:D2524A460711BB89C47B9EDEC402E4A35BF90B02
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192424.jpgsave_picture_192424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192424.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DE567F25C91FEE351E749D0A00643EB3506C270F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192425.jpgsave_picture_192425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192425.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.28.10.22) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192426.jpgsave_picture_192426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192426.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:97770C31C2FF8635C01D407E08880FB153BDECDF
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192427.jpgsave_picture_192427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192427.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:C1D5F331E7EB34972E3D6809CDA8E0DF41C5F035
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192428.jpgsave_picture_192428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192428.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:1F8FFD991967BC08FDC6262C0696F77208883D5E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192429.jpgsave_picture_192429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192429.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192430.jpgsave_picture_192430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192430.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:E46DE10B92C48F1FFEC7B18AA3C3297CAA091F12
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192431.jpgsave_picture_192431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192431.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:4922D3A7E09DA3BC2C951BAA5F8D9F90E6445D61
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192432.jpgsave_picture_192432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192432.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:05E67BE45D5ABC86AEE8C241DDAAF608222E7401
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192433.jpgsave_picture_192433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192433.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192434.jpgsave_picture_192434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192434.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Midnight - Red, White and Bruised: The Midnight Live (2023) [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192436.jpgsave_picture_192436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192436.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:DAEA008B26A168B94666712FBD60F3B09ADC1657
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192437.jpgsave_picture_192437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192437.jpg" />
 </div>
 
 

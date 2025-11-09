@@ -6,7 +6,7 @@ Grids for Instagram 8.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169123.jpgsave_picture_169123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169123.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C5F874498C2BC2C9AE91EC957911587523DDD526
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169124.jpgsave_picture_169124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169124.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ WinMerge 2.16.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169125.jpgsave_picture_169125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169125.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:48100A6AF14A1E3EBE01B3F99F944149ACCA03EE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169126.jpgsave_picture_169126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169126.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:28F9B3131F05E6F4BE8AD27208C3B96935A4692B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169127.jpgsave_picture_169127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169127.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:9EE708C6848F863E305C5AF9D5FEB9B36E3CB6B1
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169128.jpgsave_picture_169128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169128.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:53C9A1C4E0DC450582D5CAEE0116D4E2859FD4F8
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169129.jpgsave_picture_169129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169129.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Blue System - Behind The Silence 2002 (2002) Unofficial Release [OGG Vorbis|480 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169130.jpgsave_picture_169130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169130.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Udemy, Илья Фофанов | Полное руководство по Python
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169131.jpgsave_picture_169131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169131.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:9463D5A03ED628E1905F60C69ABDDE8EB074334D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169132.jpgsave_picture_169132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169132.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:FB54B98E76ACFC903CD88D0B224428E31AD66FAD
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169133.jpgsave_picture_169133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169133.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Doro - Conqueress - Forever Strong and Proud (2023) [MP3|320 Kbps] <Heavy-Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169134.jpgsave_picture_169134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169134.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ iPulse 3 v3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169135.jpgsave_picture_169135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169135.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:8ABE76AF98942348C6CC00685BE23263EC84C00C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169136.jpgsave_picture_169136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169136.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Wink Plus ATV v1.5.0.3 Mod [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169137.jpgsave_picture_169137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169137.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Soma Planet - Bholenath (2007) [FLAC|Lossless|tracks + .cue] <Progressive Rock /
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169138.jpgsave_picture_169138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169138.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:038C1F128A2E6C04F8863CCF6515C66D0E7FEBED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169139.jpgsave_picture_169139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169139.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:73586E0A096DF9729CC47E5758D98193FC90EE38
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169140.jpgsave_picture_169140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169140.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:2F249B1AED4E9D2F3D63E987152845DFA179ED6D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169141.jpgsave_picture_169141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169141.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Peggy Lee - Trav'lin' Light 1946 - 1949 (2000) Capitol [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169143.jpgsave_picture_169143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169143.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:B907E53DEAC29BB2D32E8F9899AE8F83DEB0FDEA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169144.jpgsave_picture_169144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169144.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Diamond Head - The Coffin Train (2019) [WavPack|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169146.jpgsave_picture_169146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169146.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ FanControl V173 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169147.jpgsave_picture_169147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169147.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ uTorrent 3.5.5 Build 45852 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169148.jpgsave_picture_169148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169148.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:A154636ECFCD6C0921F047129EE31C353AFD2C8A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169149.jpgsave_picture_169149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169149.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ ShadowPlay - ShadowPlay (2007) [FLAC|Lossless|image + .cue] <Gothic Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169150.jpgsave_picture_169150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169150.jpg" />
 </div>
 
 

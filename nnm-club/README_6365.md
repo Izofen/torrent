@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 23.003.20244 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202132.jpgsave_picture_202132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202132.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AE242B2C2218B3D68AC60B94284545C00C5BB9FC
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202133.jpgsave_picture_202133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202133.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Black Star Riders - 5 albums, 7 CD (2013-2023) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202134.jpgsave_picture_202134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202134.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:7735F62E133CB19C290EDE40B1F77FF403F7B94B
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202135.jpgsave_picture_202135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202135.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Any Video Converter Ultimate 7.1.7 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202136.jpgsave_picture_202136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202136.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D78FB5A4C4E739A7831F9B17A7F412AF7B76CE3F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202137.jpgsave_picture_202137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202137.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Apache OpenOffice 4.1.14 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202138.jpgsave_picture_202138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202138.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:0C4464412F086E1939A6D8B3452985D726A23E0E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202139.jpgsave_picture_202139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202139.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8C0285A2FD54842A7BC1FA6865D0592E318E6776
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202140.jpgsave_picture_202140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202140.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:3A91E7E17FC28933F467FDA20DF00E2C3B714D91
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202141.jpgsave_picture_202141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202141.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Winamp Update Pack 5.9.1(c).10030 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202142.jpgsave_picture_202142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202142.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:534AAE318A4EAA709D5957466911A505936437B7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202143.jpgsave_picture_202143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202143.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:087738E7314FD1B059FC52C3D31225B92B809340
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202144.jpgsave_picture_202144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202144.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Deluge 2.1.1 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202145.jpgsave_picture_202145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202145.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:727C9753605D8DCCBD9376BDC315874D92CFC482
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202146.jpgsave_picture_202146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202146.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов [ТВ-1] [2013,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202147.jpgsave_picture_202147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202147.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:EA8E6D7A71C5097E8E782D8A8B5094FB908B4685
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202148.jpgsave_picture_202148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202148.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:280C34C95323A662A7E3E89E107DA4E86FFDB600
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202149.jpgsave_picture_202149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202149.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:E623C0DB1DFD3389A9C31EFD63C96D71B68C0D69
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202150.jpgsave_picture_202150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202150.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:0682BC7183790F4770C62FC54F8645263D8B8685
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202151.jpgsave_picture_202151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202151.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:BAA7AD97C3EC62258DD864752C7F93D4A2DFCB7F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202152.jpgsave_picture_202152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202152.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Spotify 1.2.5.1006 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202153.jpgsave_picture_202153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202153.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:42CE6234F9FEA3D28F70BE2F07CCC2EFEADCFEDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202154.jpgsave_picture_202154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202154.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:D3206A4D322094963A1C32104C9FEA85B3446EE8
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202155.jpgsave_picture_202155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202155.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:DB4145B835877C8DFFE0A871D763F1D157618881
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202156.jpgsave_picture_202156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202156.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ KiCad 7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202157.jpgsave_picture_202157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202157.jpg" />
 </div>
 
 

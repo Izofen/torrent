@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156065.jpgsave_picture_156065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156065.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A18CC3E09F9615E60EC359F4D3F8F4D12B3B71DC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156066.jpgsave_picture_156066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156066.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:841087D215FC5667C57EA3B56D648C2B2F43A3CF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156067.jpgsave_picture_156067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156067.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A1A3831917F2C130C4BC3F67FE6E225D37108A2C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156068.jpgsave_picture_156068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156068.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A1A3831917F2C130C4BC3F67FE6E225D37108A2C
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156070.jpgsave_picture_156070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156070.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Death Angel - The Bastard Tracks (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156071.jpgsave_picture_156071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156071.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Potliquor - Potliquor (1979) Remaster, Reissue, 2010, O-Music [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156072.jpgsave_picture_156072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156072.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:758B4BF150E51574B03AD14BC32234F7193E71ED
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156074.jpgsave_picture_156074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156074.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Nu Urban Jazz 3 (2021) [AAC|~319 Kbps] <Jazz, Nu Jazz, Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156076.jpgsave_picture_156076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156076.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:BC70F8E2FED8C2BE0E9015A56BEDE4D187458704
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156077.jpgsave_picture_156077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156077.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Hotline Miami Collection (2019) [Switch] [USA] 16.0.0 [NSP] [License / 2.03] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156078.jpgsave_picture_156078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156078.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:9F7AC327062494DCC140504CF779051DDFD36A76
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156079.jpgsave_picture_156079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156079.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Purple Disco Machine - Glitterbox - Discotheque (2019) [AAC|~325 Kbps] <House, N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156080.jpgsave_picture_156080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156080.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 12.2017 1 DVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156081.jpgsave_picture_156081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156081.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:FED31F447077BFFA6781FB2564F1DE1666A941B7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156082.jpgsave_picture_156082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156082.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:C62F34968D6880B97B62F9CBEF0F517E2857CE76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156084.jpgsave_picture_156084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156084.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ EdgeView 3 v.3.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156085.jpgsave_picture_156085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156085.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:C400BEAB80AC2C6ED11C48183836032E43FDC006
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156086.jpgsave_picture_156086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156086.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:4FCF5299657111F1BE76CE801AFBD4D29AC662F8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156087.jpgsave_picture_156087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156087.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Vitreous Humor - Posthumous (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156088.jpgsave_picture_156088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156088.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Ultimate Christmas Soulful House (2021) [AAC|~335 Kbps] <Soulful House, Dee
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156089.jpgsave_picture_156089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156089.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:A1DA8425B36CB61B5080A9E8F9F497447E99AAB3
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156091.jpgsave_picture_156091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156091.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:B93049281B35512E0C853646A9EF55A0E2244A12
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156092.jpgsave_picture_156092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156092.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hogwarts Legacy (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.1 / DLC] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156093.jpgsave_picture_156093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156093.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Moviola - The Durable Dream (1999) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156094.jpgsave_picture_156094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156094.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Microsoft Windows 10 10.0.16299.125 Version 1709 (Updated Dec. 2017) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156095.jpgsave_picture_156095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156095.jpg" />
 </div>
 
 

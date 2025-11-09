@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128335.jpgsave_picture_128335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128335.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:568B03F132C9CC8A7AD4FF73B589EA8B49768F94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128336.jpgsave_picture_128336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128336.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CC52A841A4F084F3285039F261AD825651C5A14B
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128337.jpgsave_picture_128337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128337.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9C9378FE2EB0E4C7D7F94E39754320D1780EAA22
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128338.jpgsave_picture_128338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128338.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:854747C4C067859A7E874269F92E7B3BBDD1ED93
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128339.jpgsave_picture_128339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128339.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:18492048C45D5C88524C3F3A098694A962BE7DB3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128340.jpgsave_picture_128340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128340.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:1BB1ABEBF4864EE026D89F9877BBD3F17706A636
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128341.jpgsave_picture_128341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128341.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:A19B54194517F0C03A926DF815158C4BFA27EF25
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128342.jpgsave_picture_128342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128342.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AFA585123DA8F221FADA49B61A9413A80D90A8F7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128343.jpgsave_picture_128343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128343.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ World of Horror (2020) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128344.jpgsave_picture_128344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128344.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F5003880A403000BEB4C0E8714FC6737879F0D35
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128345.jpgsave_picture_128345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128345.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:E4C420EE6FC756B1138D8409E2A2DE1B0040E791
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128346.jpgsave_picture_128346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128346.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Melon VPN - Secure Proxy VPN 8.1.234 Mod By AzadNet [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128347.jpgsave_picture_128347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128347.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Pimpinela - Especial de Navidad (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128348.jpgsave_picture_128348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128348.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Dreamwalkers Inc - The First Tragedy Of Klahera (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128349.jpgsave_picture_128349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128349.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Truculency - The Dome Collector (2022) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128350.jpgsave_picture_128350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128350.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:0D044254BC7B1B9E523E7F8398EA81AD43A1D88B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128351.jpgsave_picture_128351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128351.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:CC4ABFAFDE6CC7A2A7071C261CE3D9C325C70A24
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128352.jpgsave_picture_128352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128352.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:EBDE9959A6C483CBDC259A949E982B52C4675055
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128353.jpgsave_picture_128353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128353.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Jessica Williams - This Side Up (2002) MaxJazz [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128354.jpgsave_picture_128354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128354.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Razörschrieck - Black Magick (2023) [FLAC|Lossless|image + .cue] <Depressive Bl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128355.jpgsave_picture_128355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128355.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:A914DEBAADBD2F56231CB8707B59DEEB94783D06
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128356.jpgsave_picture_128356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128356.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Kalmankantaja - Tekopyhyytta Pyhassa Temppelissa (2011) Reissued 2021 [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128357.jpgsave_picture_128357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128357.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Treachery - The Key To The Abyss (2022) [FLAC|Lossless|image + .cue] <Death Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128358.jpgsave_picture_128358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128358.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Alchemy Of Flesh - By Will Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128359.jpgsave_picture_128359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128359.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Cryptic Conversion - Eldritch Echoes (2023) [FLAC|Lossless|image + .cue] <Brutal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128360.jpgsave_picture_128360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128360.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198607.jpgsave_picture_198607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198607.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:25557421AAFFAE39B0E813863197DD8D322D171A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198608.jpgsave_picture_198608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198608.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DF9F32EE78D82302D07FCE820BF9E2A9A51EACD9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198609.jpgsave_picture_198609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198609.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Infinity Loop / Энергия: антистрессовая петля v6.7.8 [
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198610.jpgsave_picture_198610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198610.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Train Valley 2 v.2.1.5 (2019) [Multi/Ru] [macOS Native game]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198611.jpgsave_picture_198611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198611.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Everything 1.4.1.1023 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198613.jpgsave_picture_198613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198613.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ThisIsWin11 1.5.0 [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198614.jpgsave_picture_198614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198614.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:F8DCB30C7E18B6E6961D01717979048E274D929E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198617.jpgsave_picture_198617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198617.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Solo on Dvorak Keyboard 8.2.1.6 [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198618.jpgsave_picture_198618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198618.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:91C2EB81ED36B4F7AE502C9E7159207ABC5C99C2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198619.jpgsave_picture_198619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198619.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Advanced SystemCare Pro 16.4.0.225 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198620.jpgsave_picture_198620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198620.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:DCE27FBB107E914C1BD5CA9291BA75CC98B543A2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198621.jpgsave_picture_198621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198621.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:FF60E30A81A277F2EB525C50F58CE85AE54BB866
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198622.jpgsave_picture_198622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198622.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AOMEI Partition Assistant Standard Edition 10.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198623.jpgsave_picture_198623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198623.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Psiphon 3 build 179 (09.05.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198624.jpgsave_picture_198624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198624.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198625.jpgsave_picture_198625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198625.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Start Everywhere 1.4.0.40 (x64) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198626.jpgsave_picture_198626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198626.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Total Commander 11.00 beta2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198628.jpgsave_picture_198628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198628.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bangbangeducation, Анна Матвеева | Дизайн мобильных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198629.jpgsave_picture_198629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198629.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ WinToHDD 6.0 Release 1 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198630.jpgsave_picture_198630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198630.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:C175735C676EF091845CF20C825A6A00628F0AB5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198631.jpgsave_picture_198631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198631.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ XviD4PSP 8.1.54 Pro (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198632.jpgsave_picture_198632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198632.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ AOMEI Partition Assistant Technician Edition 10.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198634.jpgsave_picture_198634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198634.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:5771A875B368F76C3BB4C693DD9667112DE97C54
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198635.jpgsave_picture_198635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198635.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:4276D7BC6B24DBD90917908A167590511F3B6238
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198636.jpgsave_picture_198636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198636.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:0EEE130E5594EB7709D374F707A66D85E64EF628
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198637.jpgsave_picture_198637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198637.jpg" />
 </div>
 
 

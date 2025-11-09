@@ -6,7 +6,7 @@
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173928.jpgsave_picture_173928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173928.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:5D9C9787D404C07D396583AC8032247E524B9853
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173929.jpgsave_picture_173929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173929.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ DxO PureRAW 3 for Mac v.3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173931.jpgsave_picture_173931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173931.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Wise Disk Cleaner 11.0.5.819 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173932.jpgsave_picture_173932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173932.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:8BF4CB8C1B3F0DCF615B6568248BEE7C90AA3C13
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173933.jpgsave_picture_173933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173933.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:2D6A456E84FC3631A5D7A181854C3C5896863E93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173935.jpgsave_picture_173935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173935.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ GPU Shark 0.28.1.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173936.jpgsave_picture_173936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173936.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:AEE705D2DEE256AA914D6F27B4A8AF84473A4B2A
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173937.jpgsave_picture_173937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173937.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:1B148FBB3D55B165B0D5F9663340C0D389093662
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173938.jpgsave_picture_173938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173938.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:2368AD404C8B755C12B186D0E0BB3606CED1FFD3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173939.jpgsave_picture_173939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173939.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Blocs 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173940.jpgsave_picture_173940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173940.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:E8F54AF2FDF688CB64517EC2A8117B626A3C9AC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173941.jpgsave_picture_173941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173941.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ DVD-Cloner 2020 v7.40.719[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173943.jpgsave_picture_173943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173943.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:D6BDD2BA44ADBB297D9E300FB04CA38965860F04
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173944.jpgsave_picture_173944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173944.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ John Lennon - Imagine (1971) The Elements Mixes, 2023, UMC [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173945.jpgsave_picture_173945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173945.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ OneCommander Pro 3.55.0.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173946.jpgsave_picture_173946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173946.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ USBclean 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173947.jpgsave_picture_173947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173947.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NIUBI Partition Editor 9.1.0 Technician Edition RePack (& Portable) by TryRooM [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173949.jpgsave_picture_173949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173949.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Perfect Horizon Full 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173950.jpgsave_picture_173950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173950.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:7FA6ABA740D84571DE745CCF54F85A2710F1CB4D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173951.jpgsave_picture_173951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173951.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:A455227C3AA6DB9C7D085BECD9FBD4D6BDB4D001
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173952.jpgsave_picture_173952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173952.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4535 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173953.jpgsave_picture_173953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173953.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Topaz Video AI 3.5.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173954.jpgsave_picture_173954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173954.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:38F25D16B808AEDF648C8EB3CB716F2A59C60325
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173956.jpgsave_picture_173956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_173956.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Sammy Davis, Jr. - Starring Sammy Davis, Jr. (1955) 2007, Collectors' Choice Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173957.jpgsave_picture_173957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173957.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Frowning - Death Requiem (2020) [FLAC|Lossless|image + .cue] <Funeral Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173958.jpgsave_picture_173958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_173958.jpg" />
 </div>
 
 

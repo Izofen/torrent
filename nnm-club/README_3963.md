@@ -6,7 +6,7 @@ The White Stripes - Elephant (2003) SACD, Reissue, Remastered, 2023, Analogue Pr
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123550.jpgsave_picture_123550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123550.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:0C3151263A8469DB17E9CB0C06EA5FDA8BF0016B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123551.jpgsave_picture_123551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123551.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AF0E0CDC99E2D7AE45333FCC1258871841B37E07
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123552.jpgsave_picture_123552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123552.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ V.A. - Chill Out Cafe 60 Essentials Classics (25 Years Celebration) (2024) [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123553.jpgsave_picture_123553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123553.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Joplin 2.13.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123554.jpgsave_picture_123554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123554.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:409A5FBC0702A92EEE045B7BF739A5F4F55BD103
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123555.jpgsave_picture_123555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123555.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:35B48EF8D313B9F848C4BC686A7226EB1BEBAAC3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123556.jpgsave_picture_123556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123556.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Adobe Acrobat Pro 23.8.20458 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123557.jpgsave_picture_123557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123557.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:00DF9C2A11B8AC71F7D5F1EDF34C0A6D74F380F7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123558.jpgsave_picture_123558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123558.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:5EAD47B301EB0D0BBA67167E83A65246A0F14C43
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123559.jpgsave_picture_123559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123559.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Topaz Photo AI 2.2.2 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123560.jpgsave_picture_123560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123560.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ WifiInfoView 2.92 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123561.jpgsave_picture_123561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123561.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:D9F5179A3B735EF98749051AA736B67023D9126C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123562.jpgsave_picture_123562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123562.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Van Halen - Van Halen (1978) SACD, Reissue, Remastered, 2023, Mobile Fidelity So
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123563.jpgsave_picture_123563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123563.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Topaz Video AI 4.0.9 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123564.jpgsave_picture_123564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123564.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:76CC486B73C80D7B3838AEE135EA5A207B7E243B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123565.jpgsave_picture_123565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123565.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:5039A95A36FF7B4F894FA47B9F3A255AFBC1135B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123566.jpgsave_picture_123566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123566.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Red Button 5.98 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123567.jpgsave_picture_123567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123567.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ PDF-XChange Editor Plus 10.2.0.384 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123568.jpgsave_picture_123568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123568.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Serif Affinity Photo 2.3.1.2217 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123569.jpgsave_picture_123569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123569.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Duplicate File Detective 7.2.74.0 (x64) Professional / Enterprise / Site Edition
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123570.jpgsave_picture_123570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123570.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Master PDF Editor 5.9.81 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123571.jpgsave_picture_123571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123571.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Wondershare PDFelement 10.2.4.2612 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123572.jpgsave_picture_123572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123572.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VueScan Pro 9.8.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123573.jpgsave_picture_123573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123573.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ PhotoLine 24.01 + Standalone  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123574.jpgsave_picture_123574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123574.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:64332DC1771775C81D1EFA0148509C1E462C3847
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123575.jpgsave_picture_123575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123575.jpg" />
 </div>
 
 

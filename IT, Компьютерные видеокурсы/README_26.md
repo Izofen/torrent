@@ -6,7 +6,7 @@ Udemy, Zoran Horvat | Рефакторинг под паттерны проек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175634.jpgsave_picture_175634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175634.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Node University | Подборка курсов по разработке на N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176288.jpgsave_picture_176288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176288.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176348.jpgsave_picture_176348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176348.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Rebrain, Алексей Рябов | HashiCorp Vault (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176360.jpgsave_picture_176360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176360.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176368.jpgsave_picture_176368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176368.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Slurm (Слёрм), Пётр Щербаков | Микросервисы: про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176379.jpgsave_picture_176379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176379.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ HolyJS 2020 Moscow | Конференция для JavaScript-разработч
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176449.jpgsave_picture_176449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176449.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Changellenge, Семен Бохер и др. | Excel для карьеры и п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177151.jpgsave_picture_177151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_177151.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:5FEA5693DCD46C8F2EABC784F052E9CC69CE81F0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177214.jpgsave_picture_177214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_177214.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177509.jpgsave_picture_177509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177509.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177521.jpgsave_picture_177521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177521.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Udemy, BHM Engineering Academy, Israel Gbati | ARM GNU Assembly Programming From
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177950.jpgsave_picture_177950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177950.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Infostart | INFOSTART EVENT (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179005.jpgsave_picture_179005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179005.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Udemy, YouRa Allakhverdov | Android разработка - с нуля до пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180082.jpgsave_picture_180082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180082.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Slurm (Слёрм), Владислав Килин, Кирилл Борисов |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180089.jpgsave_picture_180089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180089.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Slurm (Слёрм), Николай Колядко | Чистая архитек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180110.jpgsave_picture_180110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180110.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180297.jpgsave_picture_180297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180297.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ infostart, Александр Кунташов | Системы контроля
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180519.jpgsave_picture_180519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180519.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ ProductStar, Денис Соболев и др. | Курс "Аналитик д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180614.jpgsave_picture_180614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180614.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:9C12A1DD4E86D4F2FB36DEEB330C0E8DD8DC508C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180646.jpgsave_picture_180646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180646.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Javabegin, Тимур Батыршинов | Базы данных и SQL - с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180987.jpgsave_picture_180987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_180987.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Karpov.courses, Александр Сахнов, Валерий Бабушкин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181048.jpgsave_picture_181048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181048.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Slurm (Слёрм), Алексей Барабанов | Rabbit MQ (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181299.jpgsave_picture_181299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181299.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Slurm (Слёрм), Кирилл Борисов | Jenkins: СI/CD для DevOps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181320.jpgsave_picture_181320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181320.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Slurm (Слёрм), Иван Чувашов | Оптимизация запро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181336.jpgsave_picture_181336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181336.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ itProger, Гоша Дударь | C++. Изучение языка C++, WinForms
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181717.jpgsave_picture_181717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181717.jpg" />
 </div>
 
 

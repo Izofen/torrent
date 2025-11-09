@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38445.jpgsave_picture_38445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38445.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E0B27201CEE79AC86129D665683133112241092C
 >>А знаете ли вы..
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38446.jpgsave_picture_38446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38446.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ The Political Machine 2024 (2024) [En] (1.16/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38447.jpgsave_picture_38447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38447.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:68ECBC43E338173BD33D65DEC106D18564B2737F
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38448.jpgsave_picture_38448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38448.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:0B35FBEE4BE1C5D99A9187D78936AFCB775AC5E3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38449.jpgsave_picture_38449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38449.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:B082661E18BD5B63E63E376494D2FFA26B371BED
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38450.jpgsave_picture_38450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38450.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:38BA25F4600524A5D0575CB1B52B0284D23D7597
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38451.jpgsave_picture_38451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38451.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38452.jpgsave_picture_38452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38452.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B066595A792D5FA1A2C67A344FEE55CC2DBAAC16
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38453.jpgsave_picture_38453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38453.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:DF6D3B22FB9EE885F0D4D7BC28F1A0879D3C5310
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38454.jpgsave_picture_38454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38454.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ SolidWorks 2024 Premium SP5.0  [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38455.jpgsave_picture_38455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38455.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:93D846ECE06C32B757892E7C50A1C1B0F98C913B
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38456.jpgsave_picture_38456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38456.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The Lost Village (2024) [Multi] (1.2.8/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38457.jpgsave_picture_38457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38457.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:3415819639F7C660BE37BBE818C5F89CA9C120A6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38458.jpgsave_picture_38458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38458.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:887B85D2F0D98110FC5D12301DA59A6FE7A6D8E1
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38459.jpgsave_picture_38459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38459.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:5D398C7E1D33666F07CC6246691746A2DF9BA1F8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38460.jpgsave_picture_38460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38460.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Wondershare Filmora 14.0.11.9772 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38461.jpgsave_picture_38461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38461.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:EBB9C1E9D4123C0E2B90B2448ED5B9E92282A43E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38462.jpgsave_picture_38462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38462.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:2CF7F7F7D22163B39DCB5B98DECF93522D17A03B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38463.jpgsave_picture_38463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38463.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:23DB6ED1780AE42B0D33A96A952633C17EF521CA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38464.jpgsave_picture_38464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38464.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Song Of The Prairie (2023) [Ru/Multi] (1.1.88) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38465.jpgsave_picture_38465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38465.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.38.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38466.jpgsave_picture_38466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38466.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Harvest Moon: The Winds of Anthos (2023) [Multi] (1.42/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38467.jpgsave_picture_38467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38467.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:CAA6FAAB41ECD491C7B4A3E8E5D7ABD2957C30CB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38468.jpgsave_picture_38468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38468.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Intel была одной из двух технологических акци�
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38469.jpgsave_picture_38469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38469.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:99CA82D34F1F8D3F0773A50278F34F45E84AD4A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38470.jpgsave_picture_38470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38470.jpg" />
 </div>
 
 

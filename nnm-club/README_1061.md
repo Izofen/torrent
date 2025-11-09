@@ -6,7 +6,7 @@
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27936.jpgsave_picture_27936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27936.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:43707E4105192FBA1DB83EEA93E76A4B16BE0737
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27937.jpgsave_picture_27937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27937.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Billboard Top Hits 1975 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27938.jpgsave_picture_27938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27938.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:6675033C5BB4741597E6FAED95BC60C19D13B768
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27939.jpgsave_picture_27939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27939.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Top 8 December 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27940.jpgsave_picture_27940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27940.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:26211915E3C86AF3067DD8A65D910A8FEA959864
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27941.jpgsave_picture_27941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27941.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:E5BA1CCDA9884DB12DF875E6E57CF500D61333E4
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27942.jpgsave_picture_27942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27942.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:04269AA1C711B93E9C7955F069C39B84F95F72E6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27943.jpgsave_picture_27943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27943.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:82D8E19C571003EBE1E1174D69B8055500413F77
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27944.jpgsave_picture_27944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27944.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Door Kickers (2014) [Ru/Multi] (1.1.6) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27945.jpgsave_picture_27945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27945.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Helium Music Manager Premium 17.3.306.0 (x64) RePack (& Portable) by elchupacabr
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27946.jpgsave_picture_27946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27946.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:5386E6F55382323794107BA4CA35F3EDA898A73A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27947.jpgsave_picture_27947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27947.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:D75A2E108F553614318CECF4C0E08651B2C67F77
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27948.jpgsave_picture_27948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27948.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Aiseesoft Screen Recorder 3.1.10 RePack (& Portable) by elchupacabra (x64) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27949.jpgsave_picture_27949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27949.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E0F5FAFEF6B7F221BD20BEB6D598558304DF20BF
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27950.jpgsave_picture_27950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27950.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:C5AE0AB7CF1239409EAC469C5AD344773F46E13A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27951.jpgsave_picture_27951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27951.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:405B5922BBF4413B3750971ED15256489090E026
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27952.jpgsave_picture_27952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27952.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:4A71BE57A2BB033F5E348C01DF08501543B8477D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27953.jpgsave_picture_27953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27953.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:8DA73ED4A74B8617F7EF166642A591423C511459
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27954.jpgsave_picture_27954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27954.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:6733A30A6D59470F6E298B6262E2A55A6756B27C
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27955.jpgsave_picture_27955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27955.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ PrivaZer Pro 4.0.99 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27956.jpgsave_picture_27956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27956.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:0B3A7FEFE2CA51846AF88B16CFFB6E47736D1D83
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27957.jpgsave_picture_27957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27957.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:1B4BBD214D4A782C40DC23639B95FAB9E4863615
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27958.jpgsave_picture_27958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27958.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:5AAF4BF3C11F03A6897C6F2F14FA03722A59BEB8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27959.jpgsave_picture_27959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27959.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:8104E76D7E332BFD605865C42E37ECBB5F08C6BB
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27960.jpgsave_picture_27960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27960.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:CC8458E7D6C87E0DE60E1DCBE697D9136508F3F3
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27961.jpgsave_picture_27961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27961.jpg" />
 </div>
 
 

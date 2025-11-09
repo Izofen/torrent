@@ -6,7 +6,7 @@ UncomOS 2023.03.13-desktop [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197950.jpgsave_picture_197950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197950.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ BricsCAD Ultimate 23.2.04-1 [x64] (rpm,deb,tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198312.jpgsave_picture_198312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198312.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Rider 2023.1.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198317.jpgsave_picture_198317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198317.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MxUntu 20.04 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202340.jpgsave_picture_202340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202340.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Zorin OS 18 Pro 18.0 [X86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205667.jpgsave_picture_205667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205667.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Ubuntu*Pack 20.04 DDE (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209429.jpgsave_picture_209429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209429.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Ubuntu*Pack 20.04 LikeWin (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209480.jpgsave_picture_209480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209480.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209497.jpgsave_picture_209497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209497.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ubuntu*Pack 20.04 Unity (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209511.jpgsave_picture_209511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209511.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209544.jpgsave_picture_209544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209544.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209548.jpgsave_picture_209548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209548.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209553.jpgsave_picture_209553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209553.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209558.jpgsave_picture_209558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209558.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228765.jpgsave_picture_228765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228765.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ SUSE Linux Enterprise Desktop Server 15
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228774.jpgsave_picture_228774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228774.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ pfSense 2.2.5-RELEASE [i386, amd64] 2xCD, 16хIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229065.jpgsave_picture_229065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229065.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233177.jpgsave_picture_233177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233177.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233365.jpgsave_picture_233365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233365.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239989.jpgsave_picture_239989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239989.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240167.jpgsave_picture_240167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240167.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240228.jpgsave_picture_240228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240228.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240245.jpgsave_picture_240245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240245.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240254.jpgsave_picture_240254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240254.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240518.jpgsave_picture_240518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240518.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240559.jpgsave_picture_240559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240559.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240592.jpgsave_picture_240592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240592.jpg" />
 </div>
 
 

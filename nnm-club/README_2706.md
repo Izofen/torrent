@@ -6,7 +6,7 @@ Emin - Юбилейный концерт со звездами (Live) (2025) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71106.jpgsave_picture_71106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71106.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:63ACA5F606C045E469DB5DD55A295913B9DECA93
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71107.jpgsave_picture_71107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71107.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Terrain! - Богемные лица (2025) [FLAC|Lossless|WEB-DL|tracks] <Rapco
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71108.jpgsave_picture_71108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71108.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Dick Hyman & Mary Mayo - Moon Gas (1963) 2003, Vroom Sound Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71109.jpgsave_picture_71109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71109.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Be'lakor - Studio Albums (5 releases) (2007-2021) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71110.jpgsave_picture_71110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71110.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Buddy Rich - The Legendary Buddy Rich (1988) Spectrum Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71111.jpgsave_picture_71111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71111.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dick Hyman - Cincinnati Fats (1981) 1987, Musical Heritage Society [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71112.jpgsave_picture_71112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71112.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Dick Hyman - Solo At The Sacramento Jazz Festivals (1983 - 1988) 2017, Arbors Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71113.jpgsave_picture_71113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71113.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Tibetania GOLD 2023 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Orga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71114.jpgsave_picture_71114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71114.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:4B2B66B16D76CD8ED5A9DD5F3FACC1E2A489ABE5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71115.jpgsave_picture_71115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71115.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:4973DF426A3BA33E52A9B4BD694ACCFEC20C5745
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71116.jpgsave_picture_71116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71116.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:9BB837362F870EAB7E351EAEB20EA48297EE7969
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71117.jpgsave_picture_71117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71117.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:D1DC700BF2987C6067032607BE9B45EAAB3572BD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71118.jpgsave_picture_71118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71118.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:5803E480ECE0495E664C2BAEF8A8FC96B3CEB333
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71119.jpgsave_picture_71119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71119.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:5803E480ECE0495E664C2BAEF8A8FC96B3CEB333
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71120.jpgsave_picture_71120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71120.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - The Best Of Italo Disco Vol. 8 (1987) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71121.jpgsave_picture_71121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71121.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Fates Warning (Arch/Matheos; Ray Alder) - Studio Albums (18 releases) (1984-2023
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71122.jpgsave_picture_71122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71122.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Sandboxie 5.70.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71123.jpgsave_picture_71123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71123.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:4689E54CFE8FE50E716D804AA56890BA811B3E67
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71124.jpgsave_picture_71124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71124.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:4689E54CFE8FE50E716D804AA56890BA811B3E67
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71125.jpgsave_picture_71125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71125.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:B5D9A9EAA51CC408B01951CA761A554FD725C3D5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71126.jpgsave_picture_71126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71126.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ryder - Menagerie (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71127.jpgsave_picture_71127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71127.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:246DCEF4DF0FEA8187CACDC0A3C5CF82F708F7B7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71128.jpgsave_picture_71128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71128.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:3AEDA86CA0E07314CE216632F5BB1D349B70D2EE
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71129.jpgsave_picture_71129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71129.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:4F31D73CCEB34DB7B7594F69E4246BB6BE0690E0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71130.jpgsave_picture_71130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71130.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71131.jpgsave_picture_71131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71131.jpg" />
 </div>
 
 

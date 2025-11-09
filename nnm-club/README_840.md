@@ -6,7 +6,7 @@
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22179.jpgsave_picture_22179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22179.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:21B70DD22FCDB0F3CB380AD804A4FF792DF9582D
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22180.jpgsave_picture_22180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22180.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AlimkhanOV A. - Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22181.jpgsave_picture_22181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22181.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:D5F5B295DB83450F0885E489192FD6B8DCC40DFB
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22182.jpgsave_picture_22182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22182.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Jigsawscapes® - Пазлы v3.8.5 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22183.jpgsave_picture_22183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22183.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:18138D63645940D00212584DE62E29FE857790DA
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22184.jpgsave_picture_22184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22184.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ The Who - The Best Of (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22185.jpgsave_picture_22185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22185.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:EE8D09FA2CD1D100CC85A99BEA7E8885870D2DAF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22186.jpgsave_picture_22186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22186.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:2AAE955FB7F4AD313BAE1A3D907370154D0002E5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22187.jpgsave_picture_22187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22187.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:CDA09410634C3D86FB9B31ED793CB3B0B594BAAE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22188.jpgsave_picture_22188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22188.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Ascold Flow | Цикл "Круизеры" [5 книг] (2024-2025) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22189.jpgsave_picture_22189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22189.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:ED3B6BBB4907CFCD0510D839022A3D0C5BCC35E4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22190.jpgsave_picture_22190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22190.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:55750A8F5137199A0945B3771170206E4E4F8405
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22191.jpgsave_picture_22191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22191.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:CD1FE9743904193EC1A1269309102FEC85E49795
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22192.jpgsave_picture_22192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22192.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sledders (2023) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22193.jpgsave_picture_22193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22193.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E5D4B9F6B96B12EB94E093671B089D254F530F9F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22194.jpgsave_picture_22194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22194.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Red Button 6.3 [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22195.jpgsave_picture_22195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22195.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Ashampoo Music Studio 11.0.5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22196.jpgsave_picture_22196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22196.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:608BD768A672B99FB8B444F63BC64EFA179303CE
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22197.jpgsave_picture_22197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22197.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:009CEBAAA80BAF8F1B84CA4330691E17A1FD5B0E
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22198.jpgsave_picture_22198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22198.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:86D60A3D041FEB93BCAD137A1D75FE80FF40456A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22199.jpgsave_picture_22199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22199.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:77D5B28F267519827B10D24F656769A3052A59F6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22200.jpgsave_picture_22200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22200.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:276242550F8FFB4FF6A20A8926BA055189B16515
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22201.jpgsave_picture_22201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22201.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:ECFF5804CF92DD2F16D5C0474047BBD9DBB69FC4
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22202.jpgsave_picture_22202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22202.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:D5715BEAC80664A40AF8608EE694748396BB888B
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22203.jpgsave_picture_22203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22203.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Trials of Innocence (2025) [Multi] (1.2.0.506) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22204.jpgsave_picture_22204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22204.jpg" />
 </div>
 
 

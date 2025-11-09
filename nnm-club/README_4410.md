@@ -6,7 +6,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137775.jpgsave_picture_137775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137775.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:98716404496B552965385C74BE963FCAD7FC871F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137776.jpgsave_picture_137776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137776.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4BD4084365B2D8169D693468E85F7F6B657104E4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137777.jpgsave_picture_137777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137777.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:4DDE8DB8FD245A8993E5B3540BEB08E5A0629330
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137778.jpgsave_picture_137778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137778.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1882063B84F4F383720863C6AC84C98063E21041
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137779.jpgsave_picture_137779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137779.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FB249343A9398913A307CE74A0936A4104D94969
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137780.jpgsave_picture_137780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137780.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:F856216B19930CA1C3BB993491FA91FBE3DDE754
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137781.jpgsave_picture_137781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137781.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Aho Girl | Дурочка (2017) [FLAC|Lossless] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137783.jpgsave_picture_137783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137783.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:3C2164417417C6A7437633479D6484B90539F8BF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137784.jpgsave_picture_137784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137784.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:2188DD1DDAC5716CEB2A587E7FE06FE8CFCD6D9E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137785.jpgsave_picture_137785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137785.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137786.jpgsave_picture_137786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137786.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:4EBF51DA4588D5F0F4494581950B5D5E72F3EB82
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137787.jpgsave_picture_137787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137787.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Trypogen 1.0 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137788.jpgsave_picture_137788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137788.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hunting Unlimited 2 (2003) [En] (1.0) License Fairlight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137791.jpgsave_picture_137791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137791.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137792.jpgsave_picture_137792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137792.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Polnalyubvi - О чем поет твое сердце (2023) [FLAC|Lossless|WEB
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137793.jpgsave_picture_137793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137793.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137794.jpgsave_picture_137794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137794.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:DF029B88C1E25A0C0A4DDC1DF8ABCDF34D415103
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137795.jpgsave_picture_137795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137795.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:B90CC92D68D7A8171521FB4465FA2B10185B5484
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137796.jpgsave_picture_137796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137796.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137797.jpgsave_picture_137797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137797.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Rockets - Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Space Rock, Synth-p
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137798.jpgsave_picture_137798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137798.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:CFDEE60E051AA9CDD040F3AB70B11425432C363B
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137800.jpgsave_picture_137800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137800.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:D4651928BCFF67DD0B8D20BE12EC79C6412EEA45
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137802.jpgsave_picture_137802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137802.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:27A52A78CE88E4775249E68357562D498D666AB5
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137803.jpgsave_picture_137803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137803.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Alta Reign - Upon the Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137804.jpgsave_picture_137804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137804.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:844615515F06C6F7E30E3CB6C2072152A9347D23
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137806.jpgsave_picture_137806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137806.jpg" />
 </div>
 
 

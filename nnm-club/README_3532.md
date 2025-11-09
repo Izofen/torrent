@@ -6,7 +6,7 @@
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112198.jpgsave_picture_112198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112198.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:89B1D27C868CFF2D8D030B4A423AD7E90A2F4944
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112199.jpgsave_picture_112199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112199.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sigil 2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112200.jpgsave_picture_112200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112200.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Firefox Browser 124.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112201.jpgsave_picture_112201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112201.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:87D4DEFDA893C906ED0AB40501263A9D23049D0A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112203.jpgsave_picture_112203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112203.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:7FE191E4F9C56B80C93F31191A6927A2C8B5F654
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112204.jpgsave_picture_112204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112204.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2567D9B4EEE7DC8DDFF6AAEA0A26CEADA6E3B977
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112205.jpgsave_picture_112205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112205.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:80AF3F6215CE568597028E5F2E6141456BD2926C
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112206.jpgsave_picture_112206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112206.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PageEdit 2.1.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112207.jpgsave_picture_112207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112207.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ NonVisual Desktop Access (NVDA) 2024.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112208.jpgsave_picture_112208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112208.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:C205FFBF4B63ED3BDE24D48DE85439DECD78261F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112209.jpgsave_picture_112209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112209.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:7E0BEA56DC9D9D21CA547F74BD19C46D9B35F428
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112210.jpgsave_picture_112210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112210.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:BA2CF42508A6F0C2F42D6A744B2D2B5F1BCBF376
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112211.jpgsave_picture_112211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112211.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Telegram Desktop 4.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112213.jpgsave_picture_112213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112213.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FreeFileSync 13.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112214.jpgsave_picture_112214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112214.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - Soothing Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112215.jpgsave_picture_112215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112215.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:6855DCEEE337D069E619C9FCE31A97999503A321
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112216.jpgsave_picture_112216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112216.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ LocalSend for Mac 1.14.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112217.jpgsave_picture_112217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112217.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Music News vol.359 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112218.jpgsave_picture_112218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112218.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:9F18138B9EAB381EFA4459A39ED5CBC69CBE264E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112220.jpgsave_picture_112220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112220.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ CrystalMark Retro 1.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112221.jpgsave_picture_112221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112221.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ ToneBoosters Plugin Bundle 1.8.0 VST / VSTi, VST3 / VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112222.jpgsave_picture_112222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112222.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Adelitas Way - Studio Albums (9 releases) (2009-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112223.jpgsave_picture_112223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112223.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ simplewall 3.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112224.jpgsave_picture_112224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112224.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Adobe InCopy 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112225.jpgsave_picture_112225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112225.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Opera One 109.0.5097.38 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112226.jpgsave_picture_112226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112226.jpg" />
 </div>
 
 

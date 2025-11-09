@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112441.jpgsave_picture_112441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112441.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EB630A59DAF81A6484D33964CBFC0D6F16702723
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112442.jpgsave_picture_112442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112442.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CrystalMark Retro 1.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112443.jpgsave_picture_112443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112443.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:07A5E818DBD239E3E38502CAC348E0FDD279A1B0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112444.jpgsave_picture_112444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112444.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112445.jpgsave_picture_112445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112445.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2FB52C1E996FF9368D420DEF3129FABC9D895BF0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112446.jpgsave_picture_112446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112446.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:C6964045E0498E2A8697C40B4F89ED3B88DBDA70
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112447.jpgsave_picture_112447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112447.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E3F097A34B8636F2263C4DDD08ECE61D3BB6191E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112448.jpgsave_picture_112448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112448.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ D16 Group - SilverLine Collection 2024.03 VST, VST 3, AAX (X86/X64) RePack by TC
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112449.jpgsave_picture_112449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112449.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:932F88E5B03D9F9458724F022ACC47F186B0A490
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112450.jpgsave_picture_112450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112450.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Anita O'Day - Essential O'Day: Basin Street West (1964) 2007, Emily Productions 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112451.jpgsave_picture_112451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112451.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FBCD3B83A262E0F63D4F13A2697835C2B96CDA9D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112452.jpgsave_picture_112452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112452.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:DD6DBB77A2C203C0F1070F46BADD40F55DF8A6F7
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112453.jpgsave_picture_112453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112453.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:6855799F7830DF4885470F10B0482B28F37962A5
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112454.jpgsave_picture_112454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112454.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Coffin Storm - Arcana Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112455.jpgsave_picture_112455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112455.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Bar Groove Analog 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112456.jpgsave_picture_112456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112456.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:0CCE2FE6AD0475FC42794745154AB98FA83539A2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112457.jpgsave_picture_112457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112457.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:E088F61E8D93D59729FB30A189BF3F9C01B05846
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112458.jpgsave_picture_112458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112458.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Madness - The Liberty of Norton Folgate (2009) Remaster, 2023, Expanded Edition,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112459.jpgsave_picture_112459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112459.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:5DC89ADE5B6BD47D85849B0B4F28489904CBBA9E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112460.jpgsave_picture_112460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112460.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:6DEB0F53E3153A72C5F471CCC2D29E155B931B03
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112461.jpgsave_picture_112461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112461.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:043F355359E2E539764ACC82892E69AD74F21834
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112462.jpgsave_picture_112462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112462.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:E70FBE4F55EBA2FAD5F6146FD2FD5A7F6200CEF8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112463.jpgsave_picture_112463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112463.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:CE9D23A936F1803C0B9E4A6C6C8C8D5A875B66C8
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112464.jpgsave_picture_112464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112464.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:3C903C17EC7E11F14F6782A9E183B400B387D58A
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112465.jpgsave_picture_112465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112465.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:B6338DC3E89FB885D248D3E7B4172BB21D2B447D
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112466.jpgsave_picture_112466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112466.jpg" />
 </div>
 
 

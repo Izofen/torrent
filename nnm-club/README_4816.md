@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150692.jpgsave_picture_150692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150692.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38FEB54BB697D1209F28AFCFDB2C545A82A9B3B7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150693.jpgsave_picture_150693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150693.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:47EF353AE9601FF5EC9AEC59B2ABD5F4FB5586A9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150694.jpgsave_picture_150694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150694.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4D0DD4F68252E3820AD1C9CB0A6308C5D4B113F4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150695.jpgsave_picture_150695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150695.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Purvpn 10.1+ [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150696.jpgsave_picture_150696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150696.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Papik, Laura Lanzillo & Claudio Fiori - Yes I Know My Way (A Tribute To Pino Dan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150697.jpgsave_picture_150697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150697.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:5F557F215727E075699399E04CFCB06BFE97A24F
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150698.jpgsave_picture_150698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150698.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.265/2160p] [4K, HDR10
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150699.jpgsave_picture_150699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150699.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Tomb Raider I-III Remastered (2024) [Ru/Multi] (Build 19617537) Repack Let'sРla
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150700.jpgsave_picture_150700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150700.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:9C7D2A8466E9CEBB5CD60F76189FB9D53EE96E24
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150701.jpgsave_picture_150701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150701.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ YT Downloader 9.17.9 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150702.jpgsave_picture_150702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150702.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:4D99694E6B2D6F767A577E9E895CB4D60061C59E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150703.jpgsave_picture_150703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150703.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ R-Wipe & Clean 20.0.2530 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150704.jpgsave_picture_150704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150704.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Rose of Wind (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150705.jpgsave_picture_150705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150705.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Mind Diver (2025) [Ru/Multi] (1.0.93) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150706.jpgsave_picture_150706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150706.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150707.jpgsave_picture_150707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150707.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:846F8A275A986E3C660D160C828A2949C8DA0AEB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150708.jpgsave_picture_150708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150708.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Caravan Palace - <I°_°I> (2015) 2025, 10th Anniversary Edition [FLAC 24/44.1|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150709.jpgsave_picture_150709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150709.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:439C7FE74CFDCCB65C35A07D8014DCCD75F5D33D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150710.jpgsave_picture_150710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150710.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:4C82F6097AF212400904A4EE79849A39D6BC5310
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150711.jpgsave_picture_150711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150711.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:6B5B5E3B1C720E2D31AF028A8C2BAE7E9F37072D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150712.jpgsave_picture_150712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150712.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:483AFF8E49ACB5781862A0070DBFD1099353F82C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150713.jpgsave_picture_150713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150713.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:A8BA9CDF76B1864AB6FB6D5579870A9AC31F4BAD
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150714.jpgsave_picture_150714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150714.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Bryan Adams - Down The Marquee (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150715.jpgsave_picture_150715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150715.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ YT Downloader 9.17.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150716.jpgsave_picture_150716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150716.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors - Thomas' Version (20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150717.jpgsave_picture_150717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150717.jpg" />
 </div>
 
 

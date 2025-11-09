@@ -6,7 +6,7 @@ HDCleaner 2.052 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236557.jpgsave_picture_236557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236557.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D9133B619AF749F1F630931F741E38572D012935
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236559.jpgsave_picture_236559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236559.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ED0A4FA38FFECA77423CD02D0A714916636D48EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236560.jpgsave_picture_236560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236560.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ED0A4FA38FFECA77423CD02D0A714916636D48EF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236561.jpgsave_picture_236561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236561.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ start 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236564.jpgsave_picture_236564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236564.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:BBE03DCC69BDD34236B5EBD37DA9E4F2EDB17A28
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236567.jpgsave_picture_236567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236567.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5B2E75D88BB926BC3AE1261AE2027FF9035F97D7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236569.jpgsave_picture_236569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236569.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Yate 6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236570.jpgsave_picture_236570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236570.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Fredrick John Pugsley - Live with Your Fear (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236571.jpgsave_picture_236571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236571.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:5C9ADBE5DB524F85BCDD9EB64F616FC3913A67FA
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236573.jpgsave_picture_236573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236573.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Posterino 3 v3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236577.jpgsave_picture_236577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236577.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:0DA1606694CA3DF012DBE86CA8805C9DA956CFEA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236579.jpgsave_picture_236579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236579.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Max Enix - Far From Home (2023) [MP3|320 Kbps] <Cinematic Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236581.jpgsave_picture_236581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236581.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Omni Recover 3 v3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236582.jpgsave_picture_236582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236582.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236583.jpgsave_picture_236583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236583.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:72678F48F92B771CDCB6FC2B12EE078463507532
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236586.jpgsave_picture_236586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236586.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:C6DB5A258F1AE0BE28A77E1E3D5D6581AC4D1D43
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236587.jpgsave_picture_236587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236587.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Opera GX 99.0.4788.75 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236589.jpgsave_picture_236589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236589.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Lungo 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236590.jpgsave_picture_236590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236590.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:3A0CD229A3BE66B73DB0C91AB173BA2EC2622419
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236593.jpgsave_picture_236593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236593.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:0BC153A07456376977962EFEB4FD541CEB8F2564
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236594.jpgsave_picture_236594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236594.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Plotnik82 - Не любил (2021) [MP3|320 Kbps] <Rock, Electronic>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236595.jpgsave_picture_236595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236595.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ KSA Power Supply Calculator WorkStation v.2.2.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236597.jpgsave_picture_236597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236597.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:E7497591DD1F833CB5D6098EC15643C4D825E055
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236600.jpgsave_picture_236600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236600.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:3CCC4106DF1BB7F26368B46D8F4629562E0A5F17
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236601.jpgsave_picture_236601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236601.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:3D684E6865D0194A807CF5837E7A6947E39E93A5
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236603.jpgsave_picture_236603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236603.jpg" />
 </div>
 
 

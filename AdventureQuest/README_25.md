@@ -6,7 +6,7 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37098.jpgsave_picture_37098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37098.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37120.jpgsave_picture_37120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37120.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37133.jpgsave_picture_37133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37133.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.4b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37153.jpgsave_picture_37153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37153.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gori: Cuddly Carnage (2024) [Multi] (1.0.187/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37162.jpgsave_picture_37162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37162.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Tavern Talk (2024) [Multi] (20241111/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37240.jpgsave_picture_37240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37240.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37245.jpgsave_picture_37245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37245.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37322.jpgsave_picture_37322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37322.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37326.jpgsave_picture_37326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37326.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37390.jpgsave_picture_37390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37390.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37416.jpgsave_picture_37416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37416.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37488.jpgsave_picture_37488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37488.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37511.jpgsave_picture_37511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37511.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37542.jpgsave_picture_37542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37542.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Demonologist (2023) [Ru/Multi] (1.5.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37625.jpgsave_picture_37625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37625.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37714.jpgsave_picture_37714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37714.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37726.jpgsave_picture_37726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37726.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37729.jpgsave_picture_37729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37729.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Chicken Police - Paint it RED! (2020) [Ru/Multi] (438) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37735.jpgsave_picture_37735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37735.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37783.jpgsave_picture_37783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37783.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37806.jpgsave_picture_37806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37806.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lula 3D (2006) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37825.jpgsave_picture_37825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37825.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38006.jpgsave_picture_38006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38006.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Time Machine / Машина времени (2000) [Ru/En] (1.23) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38057.jpgsave_picture_38057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38057.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38116.jpgsave_picture_38116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38116.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ace Ventura (1996) [Ru/En] (1.0) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38164.jpgsave_picture_38164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38164.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ BORE BLASTERS (2024) [Multi] (1.52) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28122.jpgsave_picture_28122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28122.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Drova - Forsaken Kin (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28124.jpgsave_picture_28124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28124.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17294620) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28134.jpgsave_picture_28134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28134.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Grief like a stray dog / А Горюшко вслед собакою... (2025) [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28143.jpgsave_picture_28143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28143.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hero of the Kingdom II / Герой Королевства II (2015) [Ru/Multi] 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28153.jpgsave_picture_28153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28153.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Backyard Boxing (2025) [En] (1.1.3) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28157.jpgsave_picture_28157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28157.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ THE MUTE HOUSE (2025) [Multi] (1.0.39) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28161.jpgsave_picture_28161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28161.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Techno Banter (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28171.jpgsave_picture_28171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28171.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack DjDI 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28172.jpgsave_picture_28172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28172.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hero of the Kingdom: The Lost Tales 2 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28179.jpgsave_picture_28179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28179.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Hero of the Kingdom: The Lost Tales 1 / Герой Королевства: Ут�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28180.jpgsave_picture_28180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28180.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Hero of the Kingdom III / Герой Королевства III (2018) [Ru/Multi
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28182.jpgsave_picture_28182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28182.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sword of the Necromancer: Resurrection (2025) [Multi] (1.0.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28184.jpgsave_picture_28184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28184.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28190.jpgsave_picture_28190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28190.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28195.jpgsave_picture_28195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28195.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Only Lead Can Stop Them (2024) [Ru/Multi] (1.16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28205.jpgsave_picture_28205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28205.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28208.jpgsave_picture_28208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28208.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28222.jpgsave_picture_28222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28222.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28232.jpgsave_picture_28232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28232.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Sims Legacy Collection (2025) [Multi] (17149764/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28265.jpgsave_picture_28265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28265.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6/dlc) Repack seleZen [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28301.jpgsave_picture_28301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28301.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Men of War: Assault Squad 2  / В тылу врага: Штурм 2 (2014) [Ru/E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28311.jpgsave_picture_28311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28311.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hired 2 Die (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28316.jpgsave_picture_28316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28316.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28321.jpgsave_picture_28321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28321.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28324.jpgsave_picture_28324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28324.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Warcraft: Remastered Trilogy (2024) [Ru/Multi] (1.0.0.2137/1.0.0.2157/2.0) Repac
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28331.jpgsave_picture_28331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28331.jpg" />
 </div>
 
 

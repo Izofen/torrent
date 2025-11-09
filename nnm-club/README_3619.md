@@ -6,7 +6,7 @@ iShowU Studio 2 v.2.3.14 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114469.jpgsave_picture_114469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114469.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Affinity Designer 2 v.2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114470.jpgsave_picture_114470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114470.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ ServerCat for Mac 1.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114471.jpgsave_picture_114471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114471.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Affinity Publisher 2 v.2.4.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114472.jpgsave_picture_114472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114472.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ iShowU Instant (Advanced) 1.4.19 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114473.jpgsave_picture_114473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114473.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ CopyQ for Mac 7.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114474.jpgsave_picture_114474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114474.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Absolon - A Portrait of Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114475.jpgsave_picture_114475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114475.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Coltre - To Watch with Hands... To Touch with Eyes (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114476.jpgsave_picture_114476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114476.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Stephanie Haynes With The Cedar Walton Trio - Here's That Rainy Day (1988) Trend
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114477.jpgsave_picture_114477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114477.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:2DDA24FCD02D589B5FED740C7102B7632618B64A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114478.jpgsave_picture_114478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114478.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Saturnalia Temple - Paradigm Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114479.jpgsave_picture_114479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114479.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Clare Fischer & Salsa Picante - Crazy Bird (1985) Discovery Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114480.jpgsave_picture_114480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114480.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Ben Webster & Buck Clayton - Ben And Buck (1967) 1995, Storyville Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114481.jpgsave_picture_114481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114481.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Believer - Sanity Obscure (1990) [FLAC|Lossless|image + .cue] <Progressive, Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114482.jpgsave_picture_114482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114482.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ GrandTotal 8.2.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114483.jpgsave_picture_114483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114483.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:64A2C116C74EEB8626FB643A25D8024F01E3A172
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114484.jpgsave_picture_114484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114484.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ QLab 5.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114485.jpgsave_picture_114485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114485.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Navicat Data Modeler Essentials for Mac 3.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114486.jpgsave_picture_114486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114486.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - EDM Superhits (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114487.jpgsave_picture_114487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114487.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Steve Lawrence & Eydie Gorme - The Original Hits (2024) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114488.jpgsave_picture_114488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114488.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ ProPresenter 7.16.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114489.jpgsave_picture_114489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114489.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Borknagar - Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Viking, Folk,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114490.jpgsave_picture_114490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114490.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:0F38CBDC1C7D7CE990562A5BBFECF9CB01763C7A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114491.jpgsave_picture_114491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114491.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Piotr Figiel - Piotr (1971) [MP3|320 Kbps] <Hammond, Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114492.jpgsave_picture_114492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114492.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:FD2DF73C3B27265BB54F6F348BF07144547E4B17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114493.jpgsave_picture_114493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114493.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:E72DFD63931D2FE3246A865D8DED91F7836D82A9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114494.jpgsave_picture_114494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114494.jpg" />
 </div>
 
 

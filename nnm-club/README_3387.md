@@ -6,7 +6,7 @@ Mary Lou Williams - A Keyboard History (1955) 2011, Poll Winners Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108423.jpgsave_picture_108423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108423.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Slow Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108424.jpgsave_picture_108424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108424.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Avi Rosenfeld & Stefano Stex Sbrignadello - Attack (2024) [MP3|320 Kbps] <Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108425.jpgsave_picture_108425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108425.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:4EC75B08A40D87ECD33A297A1797984AD12FE8FD
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108426.jpgsave_picture_108426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108426.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:F99CAFED4539780585B8B6019AFA313F8582B138
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108427.jpgsave_picture_108427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108427.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:4AA425F5E0771984FC5C2004F07535FAE062EBF5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108428.jpgsave_picture_108428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108428.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:50BC239A208EDFFFA2E2CCD7912FE9C13B1F0922
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108429.jpgsave_picture_108429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108429.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:8AA8A553593847D4D7B6FA5781CF657AD53CFDF7
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108430.jpgsave_picture_108430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108430.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Lucky Patcher 11.4.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108431.jpgsave_picture_108431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108431.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Aphex Twin - Digeridoo (1992) Expanded Edition 2024, R&S Records [FLAC|Lossless|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108432.jpgsave_picture_108432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108432.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Larry Ferlazzo, Katie Hull-Sypniesk | The ESL / ELL Teacher's Survival Guide (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108433.jpgsave_picture_108433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108433.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:C3FF2ACD96DAF3806705AB0DD56054432CD05927
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108434.jpgsave_picture_108434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108434.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:855864E7B6198949063B89B6C8B0D0D6494ECBD5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108435.jpgsave_picture_108435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108435.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:CC6B2182F7CA980C7CE836D84C9496423FBDD18E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108436.jpgsave_picture_108436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108436.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:4A7CA6960D435112B4F6D638896E1197F5153FE5
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108437.jpgsave_picture_108437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108437.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:60583616B3F3FEEE0104BCA9F3DD908DC09B4CDB
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108438.jpgsave_picture_108438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108438.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - DJ Hits Vol. 27 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108439.jpgsave_picture_108439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108439.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:6B7325F31BBB000BD64C6EC510145BBF9C1491E0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108440.jpgsave_picture_108440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108440.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:6234997894DFD2EE800C69F7F2EC0892F254986C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108441.jpgsave_picture_108441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108441.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Ibiza Season Opening 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108442.jpgsave_picture_108442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108442.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Flamingosis - Better Will Come (2024) [FLAC|Lossless|WEB-DL|tracks] <disco, funk
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108443.jpgsave_picture_108443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108443.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Echoes of Despair (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108444.jpgsave_picture_108444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108444.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Music News vol.384 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108445.jpgsave_picture_108445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108445.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:A4873ED1FE04A882F821C9ABD41DFF048A4E9806
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108446.jpgsave_picture_108446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108446.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:6D981AC556621CA28C651FE33239C706293569CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108447.jpgsave_picture_108447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108447.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:6D981AC556621CA28C651FE33239C706293569CF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108448.jpgsave_picture_108448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108448.jpg" />
 </div>
 
 

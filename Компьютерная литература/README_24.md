@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184146.jpgsave_picture_184146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184146.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:CE4B2CA8641C7AC5F184C346BCC6F4772367B3B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184150.jpgsave_picture_184150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184150.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:7FDB46D7D58108207DD6FF77D9879BB54B0536B5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184155.jpgsave_picture_184155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184155.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Magnus Larsson | Microservices with Spring Boot 3 and Spring Cloud, 3rd Edition 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184226.jpgsave_picture_184226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184226.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Holden Karau, Mika Kimmins | Scaling Python with Dask (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184566.jpgsave_picture_184566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184566.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:86F317C3528E997D81BF61A6EFE26A68005693A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184840.jpgsave_picture_184840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184840.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FEE8537D2526A1A4E1C4B191D44910AA88AB3964
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185019.jpgsave_picture_185019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185019.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Madona S. Wambua | Modern Android 13 Development Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185029.jpgsave_picture_185029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185029.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Sufyan bin Uzayr | HTML: The Ultimate Guide (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185032.jpgsave_picture_185032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185032.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Wallace Wang | Pro iPhone Development with SwiftUI, 4th Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185377.jpgsave_picture_185377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185377.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:9E1E779C04A58882E258166EFF56EA6A0F66EDB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185623.jpgsave_picture_185623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185623.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:CACD636D69F0A4E9011173DD35B24E1A8D431A49
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185644.jpgsave_picture_185644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185644.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:633BD5AA8A09E9B9689C80F012944C8C7EFFAF04
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185649.jpgsave_picture_185649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185649.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:5E5DF2FCE167702C245AF2F3C6A3E2105DF83769
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185660.jpgsave_picture_185660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185660.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:58B8E236922F0F5FB90CF7B72DF492DC6FC6A16A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185700.jpgsave_picture_185700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185700.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:39D0EDAA77530C22BDD21F2567740A5308BD1538
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185797.jpgsave_picture_185797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185797.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Julhash U. Kazi | Python Essentials for Biomedical Data Analysis: An Introductor
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185815.jpgsave_picture_185815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185815.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:A8B519B3B45CCCA2368279BF17F21FF0B035644E
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186160.jpgsave_picture_186160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186160.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186314.jpgsave_picture_186314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186314.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:E3C7A9DF0E25B2FDD928A0668C70D28E4F2CB5E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186346.jpgsave_picture_186346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186346.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:3239B3B61BAB12E0C1107A90908A81E1EFE2C0DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186518.jpgsave_picture_186518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186518.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:07C4F45A292ECB09067CDD47B9FA270E80E59F8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186657.jpgsave_picture_186657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186657.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:04A7CC14DAFC506A57F2E2B19372D832716FED6F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186673.jpgsave_picture_186673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186673.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Musa Arda | Hands-On Python / Практический Python (2022) [EPUB] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186693.jpgsave_picture_186693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186693.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:1F816DAB95E7E85756E1EA72F459E230596E1959
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186917.jpgsave_picture_186917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186917.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:1BA54A8ED7988649A28D5BE4B1C6DA443AA1DF3B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186950.jpgsave_picture_186950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186950.jpg" />
 </div>
 
 

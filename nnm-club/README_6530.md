@@ -6,7 +6,7 @@ Process Explorer 17.05 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207832.jpgsave_picture_207832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207832.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:60D593C8049ACA1A8546952820AEE827E18F8F12
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207835.jpgsave_picture_207835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207835.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:60D593C8049ACA1A8546952820AEE827E18F8F12
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207836.jpgsave_picture_207836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207836.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Mi Band 7 Циферблаты 1.1.0 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207838.jpgsave_picture_207838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207838.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207839.jpgsave_picture_207839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207839.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:610BA731C3A37F27D15C0EDED7A7D6C0C65C0899
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207843.jpgsave_picture_207843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207843.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ AMD Radeon Software Adrenalin Edition 23.7.2 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207845.jpgsave_picture_207845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207845.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Joe Dassin - Les Champs-Elysees / La Fleur Aux Dents (2019) Compilation [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207848.jpgsave_picture_207848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207848.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Opera One 101.0.4843.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207851.jpgsave_picture_207851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207851.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ BetterSleep: Сон и Медитация 23.10.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207852.jpgsave_picture_207852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207852.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2AD6FB010E68704AB9D4C9D495F11A8898854F87
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207855.jpgsave_picture_207855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207855.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:6654E81D2FF513F738DF5E95A5FEBB96B82C9934
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207856.jpgsave_picture_207856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207856.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Uninstall Tool 3.7.3 Build 5712 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207858.jpgsave_picture_207858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207858.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:2912273DAD4B730A2D7D2E720253EC29FA289D57
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207863.jpgsave_picture_207863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207863.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Marker School, Вера Шерстобитова | Основы маркерно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207866.jpgsave_picture_207866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207866.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ StartAllBack 3.6.10 StartIsBack++ 2.9.19 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207867.jpgsave_picture_207867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207867.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:34C365B3BBFA7C3EB631432408AE4821559ED2B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207870.jpgsave_picture_207870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207870.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:EF1CB63B2B087A9A46A0EDB3CE3FCDDE1784971E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207871.jpgsave_picture_207871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207871.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:54635D657BC6B47CCD921645DE39A24039546489
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207876.jpgsave_picture_207876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207876.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:A5DBD398508D045A39B67CEB6682D0C3F6731107
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207878.jpgsave_picture_207878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207878.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:3B03CE7BC2EC2CC719A20303F68E319184524F75
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207881.jpgsave_picture_207881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207881.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ StartAllBack 3.6.10 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 Sta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207883.jpgsave_picture_207883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207883.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ macOS 12 Monterey 12.6.8 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207885.jpgsave_picture_207885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207885.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:386C771E37F92141D04803163D02F22929D11710
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207887.jpgsave_picture_207887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207887.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ AMD Ryzen Master 2.11.1.2623 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207888.jpgsave_picture_207888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207888.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:D668DBC7C124D020122E0DC66753CDE59D57539C
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207892.jpgsave_picture_207892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207892.jpg" />
 </div>
 
 

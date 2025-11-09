@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240187.jpgsave_picture_240187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240187.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Montagne - Black Waterfall (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240188.jpgsave_picture_240188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240188.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ iReal Pro 2020.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240189.jpgsave_picture_240189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240189.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:CCD59D6BB0062BA7844C0211C8FF1C7285FE9A6D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240190.jpgsave_picture_240190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240190.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Loveless Blue Jazz Quintet - Loveless Blue Jazz Quintet (2023) [FLAC|Lossless|WE
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240191.jpgsave_picture_240191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240191.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:1903CF34788D524A98AD89BD38E289B79912F31A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240192.jpgsave_picture_240192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240192.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Opera GX 99.0.4788.49 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240193.jpgsave_picture_240193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240193.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:77895D28E37DC14A88361FC958E0C3823EE73D17
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240194.jpgsave_picture_240194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240194.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Dr. Folder 2.9.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240195.jpgsave_picture_240195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240195.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Calca 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240196.jpgsave_picture_240196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240196.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Dan Wilson - Things Eternal (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240197.jpgsave_picture_240197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240197.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ CudaText 1.188.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240198.jpgsave_picture_240198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240198.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:26B56481CBE91FE238FEF4619C734DFAD718676E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240199.jpgsave_picture_240199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240199.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:2B731A602C4123244A297BFC8693ABD64515C60B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240200.jpgsave_picture_240200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240200.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ PrivaZer Pro 4.0.74 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240201.jpgsave_picture_240201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240201.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Девочка Моя Синеглазая - Песни В. Дорохин�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240202.jpgsave_picture_240202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240202.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:6CE0E7A934960643F398F9CD49EE3A6DCDD36852
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240203.jpgsave_picture_240203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240203.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Pixelmator Classic 3.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240204.jpgsave_picture_240204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240204.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ The Marshals - Le Ptit Cham Session (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240205.jpgsave_picture_240205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240205.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ AnyMP4 DVD Copy 3.1.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240206.jpgsave_picture_240206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240206.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Topaz Video AI 3.2.1 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240207.jpgsave_picture_240207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240207.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Name Mangler 3 v3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240208.jpgsave_picture_240208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240208.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:4665F5B5F425F5CCD69FE410825494DAD694469B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240209.jpgsave_picture_240209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240209.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NVIDIA: около 80 % владельцев видеокарт GeForce RTX ис
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240210.jpgsave_picture_240210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240210.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Various Artists - Rock & Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240211.jpgsave_picture_240211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240211.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:2416FA2D9152D2F05EA00DE86C31EF74FC312251
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240212.jpgsave_picture_240212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240212.jpg" />
 </div>
 
 

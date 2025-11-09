@@ -6,7 +6,7 @@ Dead Fields Of Woolwich - Dead Fields Of Woolwich (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226475.jpgsave_picture_226475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226475.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Screens 4 v.4.12.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226481.jpgsave_picture_226481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226481.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Permute 3 v.3.10.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226491.jpgsave_picture_226491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226491.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ SnapMotion Unlimited 5.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226500.jpgsave_picture_226500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226500.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:29EFCF765EBE3D8601304C0E096E055C220A4AFA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226669.jpgsave_picture_226669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226669.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 31.07.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226675.jpgsave_picture_226675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226675.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Anna Fiori - De la Tierra (Un encuentro semiacústico) (2019) EP [MP3|320 Kbps] 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226749.jpgsave_picture_226749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226749.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Stats 2.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226759.jpgsave_picture_226759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226759.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:EAF4D1066C2C31C28B70575E0AA4D929423CAB92
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226768.jpgsave_picture_226768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226768.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Billy Talent - Live At Festhalle Frankfurt (2023) 2 x CD [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226777.jpgsave_picture_226777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226777.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Anna Fiori - Magna Tonalli (Edición Especial) (2022) EP [MP3|320 Kbps] <Symphon
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226785.jpgsave_picture_226785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226785.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Ghost Buster Pro 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226793.jpgsave_picture_226793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226793.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ System Dashboard Pro 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226810.jpgsave_picture_226810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226810.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Anna Fiori - In ohtli tonalli (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226818.jpgsave_picture_226818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226818.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ AI Transcription 1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226827.jpgsave_picture_226827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226827.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:BB0D27D7D0A18809FA3B1AFCA7F26B7EDD4F988C
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226835.jpgsave_picture_226835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226835.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ PhotosRevive 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226843.jpgsave_picture_226843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226843.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Seal Fur Peeling - Daggers Predacious (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226850.jpgsave_picture_226850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226850.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Colibri 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226857.jpgsave_picture_226857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226857.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ SponsorBlock for YouTube 5.4.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226864.jpgsave_picture_226864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226864.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Gateway - Galgendood (2023) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226872.jpgsave_picture_226872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226872.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Occulsed - Parturition of Adulteration (2022) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226880.jpgsave_picture_226880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226880.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Inmundus - Primordia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226888.jpgsave_picture_226888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226888.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Olkoth - At the Eye of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226899.jpgsave_picture_226899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226899.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Occulsed - Crepitation of Phlegethon (2021) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226907.jpgsave_picture_226907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226907.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Codepoint for Mac 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226949.jpgsave_picture_226949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_226949.jpg" />
 </div>
 
 

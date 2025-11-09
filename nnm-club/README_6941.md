@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238265.jpgsave_picture_238265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238265.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - This Is Deep House 2023 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238266.jpgsave_picture_238266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238266.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ BABY Audio - Crystalline 1.3.0 VST, VST 3, AAX (x86/x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238267.jpgsave_picture_238267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238267.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238268.jpgsave_picture_238268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238268.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ MacDroid Pro 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238269.jpgsave_picture_238269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238269.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Autonoesis - Moon of Foul Magics (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238270.jpgsave_picture_238270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238270.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Newt - 37 °C (1999) Flatline Records [FLAC|Lossless|tracks+.cue] <IDM, Drum n B
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238271.jpgsave_picture_238271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238271.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ System Toolkit 5.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238272.jpgsave_picture_238272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238272.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:A7BB46D093D6FDE18DE3027867F2CC98E2BEBB41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238273.jpgsave_picture_238273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238273.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ CyberLink AudioDirector Ultra 13.4.2817.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238274.jpgsave_picture_238274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238274.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Eddie Condon - 1942 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Dixiel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238275.jpgsave_picture_238275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238275.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ TunesKit Video Cutter 2.3.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238276.jpgsave_picture_238276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238276.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Tibet - Tibet (1978) Remastered, 2013, Belle Antique [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238277.jpgsave_picture_238277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238277.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:DC9ACCB809A85983EEF4187103439A6ACB50A071
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238278.jpgsave_picture_238278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238278.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:7F8399A0DD9E1CFD68444BCEAA33A032C8B77ECB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238279.jpgsave_picture_238279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238279.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Brethren Hogg - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238280.jpgsave_picture_238280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238280.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:9F6FE453043A102BA0DB6796171864B754FD6553
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238281.jpgsave_picture_238281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238281.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:B14578CBF4431486812FE1CF4F6E91716C3C718C
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238282.jpgsave_picture_238282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238282.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238283.jpgsave_picture_238283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238283.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:78B02CCB8721FCA99685FD3A09A4233E1BD2B10D
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238284.jpgsave_picture_238284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238284.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238285.jpgsave_picture_238285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238285.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:0C311E8B45967DB36418F650EC55CC820D206ED3
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238286.jpgsave_picture_238286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238286.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Newt - Phaseshifting (1998) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Drum 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238287.jpgsave_picture_238287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238287.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Criminal Madhouse Conspiracy - Criminal Madhouse Conspiracy (2022) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238288.jpgsave_picture_238288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238288.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:3D90868D15C26E683091B2CAF79CF129CC665C49
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238289.jpgsave_picture_238289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238289.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:5CB550CF2111F90D88D1708A8A59AE32526D07D2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238290.jpgsave_picture_238290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238290.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Chicago - Greatest Hits 1982-1989 (1989) CD, Compilation, Club Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15339.jpgsave_picture_15339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15339.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:F8EAF0A3B6AB89461AFC44C79532D890DD67AF00
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15340.jpgsave_picture_15340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15340.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:5FDD5ECA1BB90E36C8544AE7AAC70A01D14B49A9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15341.jpgsave_picture_15341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15341.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:E61B8AA9FBD0241446E2B7933413804A95AEB152
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15342.jpgsave_picture_15342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15342.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:FE1719AF83A2C5D2E9D597FAF3C706D0988479DE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15343.jpgsave_picture_15343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15343.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:F3805A31C51BECAF509AF61158DBAB255CA63746
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15344.jpgsave_picture_15344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15344.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Paul McCartney - Снова В СССР (1988) Japanese Edition, SHM-CD, Reissue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15345.jpgsave_picture_15345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15345.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:266156D1D027B419351F427F1EF9D7EB86C98DD9
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15346.jpgsave_picture_15346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15346.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:2D0575D5CCC15D43E448D490C4A657B4BADFAB66
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15347.jpgsave_picture_15347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15347.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:0E2F7B3FA5BC5EDAFF183960CAC9C7D57C04827E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15348.jpgsave_picture_15348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15348.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ The Black Eyed Peas - Monkey Business (20th Anniversary Edition) (2025) [FLAC|Lo
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15349.jpgsave_picture_15349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15349.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Blank & Jones - Milchbar - Seaside Season 17 (2025) [FLAC 24/44.1 - 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15350.jpgsave_picture_15350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15350.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:5CF1141004A837F38618CAF8B3D2EA8DD4E81516
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15351.jpgsave_picture_15351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15351.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:5FBBBD555EE790998433BDD740EBF2BC0D6AD77A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15352.jpgsave_picture_15352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15352.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:AE42419684844ED1D91E9DDA731371149857B3EE
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15353.jpgsave_picture_15353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15353.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Blue Flower (Sri Chinmoy, Голубой цветок) - O Beauty-Infinity (О, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15354.jpgsave_picture_15354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15354.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:788DA8B6C8024DA684D0F57ED5FF655753C3132A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15355.jpgsave_picture_15355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15355.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Brian Eno & Beatie Wolfe - 2 Albums (2025) [FLAC 24/44.1, 96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15356.jpgsave_picture_15356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15356.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:A1E5A3867BE3B8B7279C0EC75DCB46CB61A7A75D
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15357.jpgsave_picture_15357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15357.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:1B95F827ADC96E59CB824A978CF209D24744C1E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15358.jpgsave_picture_15358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15358.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:44363DAEC37774C19DF7F8EDA2600C28F9AA34A4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15359.jpgsave_picture_15359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15359.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:CE77B908FA0AB600E1411215FB25D3CBB0D59D6A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15360.jpgsave_picture_15360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15360.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:ACA59C545E3D4F5EC8A9ECE671C8AFBC629E1AB9
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15361.jpgsave_picture_15361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15361.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:DA020DAD461160D5C69CDAB324E7CACEFDC91143
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15362.jpgsave_picture_15362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15362.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:FD13725E7FB5276B034A43A099687BEF55769590
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15363.jpgsave_picture_15363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15363.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:3DFBCBAFC2276F7BC950272C218887C22FDEB38E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15364.jpgsave_picture_15364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15364.jpg" />
 </div>
 
 

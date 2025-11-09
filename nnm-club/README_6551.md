@@ -6,7 +6,7 @@ Wise Disk Cleaner 11.0.3.817 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209033.jpgsave_picture_209033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209033.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BE8CA041519FC3245D83C6E5C043B9C5E6868513
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209037.jpgsave_picture_209037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209037.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pale Moon 32.3.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209038.jpgsave_picture_209038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209038.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Viber 20.5.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209041.jpgsave_picture_209041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209041.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1CEE6F82403DE66EF3F95DB7C5F0092F84A07731
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209042.jpgsave_picture_209042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209042.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:A526F2B8FEFA3BEC95350351A58E41B2052C5D2C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209044.jpgsave_picture_209044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209044.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:65F88EBBC1824EF9AB741008D3F0FAB1F6024DFC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209047.jpgsave_picture_209047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209047.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Powerwolf - Interludium (2023) 2 x CD [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209048.jpgsave_picture_209048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209048.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ NetTraffic 1.68.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209051.jpgsave_picture_209051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209051.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:EDB0008DE9A85AB1230ECA854EAA379B66CD7418
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209054.jpgsave_picture_209054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209054.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wireshark 4.0.7 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209057.jpgsave_picture_209057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209057.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ NeoAxis Engine 2023.1.2 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209059.jpgsave_picture_209059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209059.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:49AB74ADE4DBAF9A82B11D59FD3C89BD4ECFA121
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209061.jpgsave_picture_209061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209061.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:A9878B0A55AAA6FF52A6A62AF240DD1CA717ADD8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209063.jpgsave_picture_209063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209063.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:BA77B9FA1F66D0563DB7BADE575E3D8DBA4B0832
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209065.jpgsave_picture_209065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209065.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:26C08207CAA6CF64CD23872D0ADAD148C3B28C8B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209066.jpgsave_picture_209066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209066.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Auslogics Duplicate File Finder 10.0.0.3 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209070.jpgsave_picture_209070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209070.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:7D3F884097E857E82356CC6615A80C8D8BEFFEEE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209071.jpgsave_picture_209071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209071.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Kate 23.04.3 Build 2090 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209075.jpgsave_picture_209075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209075.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Auslogics File Recovery 11.0.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209076.jpgsave_picture_209076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209076.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - 60 minutes. Old School Dance Music vol.19 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209077.jpgsave_picture_209077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209077.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8C18AC2076CBABC4A153FE38A5B41F48D7BB0CA7
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209078.jpgsave_picture_209078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209078.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:FF1CE29B3A72166DA8A27C0A81E646E7A179A971
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209081.jpgsave_picture_209081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209081.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Pink Floyd - Ummagumma (1969) Japanese Edition, 2 x CD, Reissue, 1994, Toshiba E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209082.jpgsave_picture_209082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209082.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ StaxRip 2.22.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209085.jpgsave_picture_209085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209085.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Topaz Video AI 3.3.4 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209088.jpgsave_picture_209088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209088.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Asaf Avidan - Compilation (2024) [MP3|320 Kbps] <Pop-Rock, Folk, Indie Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108137.jpgsave_picture_108137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108137.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ D*Wise Ft Sarah Ann - Crying At The Discotheque [2021 Spacer remix EP] (2021) [F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108138.jpgsave_picture_108138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108138.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:478DFF6421E10CB1BFDDE50B005A23E2A020694D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108139.jpgsave_picture_108139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108139.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:0C14F0A5CEE17E70FC61B49F338EB5DF6E4E5BFC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108140.jpgsave_picture_108140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108140.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:0FFBCC698BC9961AF1BECBCE3CAABFE58689F77E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108141.jpgsave_picture_108141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108141.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:63295041FF4D29B9CBEC59D15FA4815DE2D1766C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108142.jpgsave_picture_108142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108142.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:777ED8D0954DAA969316ABCC44029FE2EB350D9B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108143.jpgsave_picture_108143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108143.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:F0D8CED98D6FD910A622F8A4E6EEFE6040B421DF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108144.jpgsave_picture_108144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108144.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:231B6295D5E71F617D285E2148528C435FD324F8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108145.jpgsave_picture_108145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108145.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ VA - DJ Hits 37 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108146.jpgsave_picture_108146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108146.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Etta Jones - 1944 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108147.jpgsave_picture_108147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108147.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ The Measure - Heaven Is Only In Our Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108148.jpgsave_picture_108148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108148.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Gurt - Satan etc (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108149.jpgsave_picture_108149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108149.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Sonny Stitt - 1951 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108150.jpgsave_picture_108150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108150.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Intranced - Muerte Y Metal (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108151.jpgsave_picture_108151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108151.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Goat Girl - Below The Waste (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108152.jpgsave_picture_108152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108152.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Cristiano Giardini - Odisseya (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108153.jpgsave_picture_108153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108153.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Folkrim - Tales of Tumult (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108154.jpgsave_picture_108154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108154.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Adjentist - Ill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108155.jpgsave_picture_108155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108155.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Krec - Сухой Закон (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108156.jpgsave_picture_108156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108156.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Sant Andreu Jazz Band - Jazzing 14 Vol.2 (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108157.jpgsave_picture_108157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108157.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ADX - Lempire du crepuscule (2024) [FLAC|Lossless|image + .cue] <Speed Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108158.jpgsave_picture_108158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108158.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Dizzy Gillespie - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108159.jpgsave_picture_108159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108159.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Void Commander - Void Commander (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108160.jpgsave_picture_108160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108160.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Sons of Arrakis - Volume II (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychede
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108161.jpgsave_picture_108161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108161.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Lee Ritenour - Rit/2 (1982) 2005, Collectables [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108162.jpgsave_picture_108162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108162.jpg" />
 </div>
 
 

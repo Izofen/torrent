@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32803.jpgsave_picture_32803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32803.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3286E1998447C0985FAB05312C150F6399DCB605
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32804.jpgsave_picture_32804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32804.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:73ED4922D3D3D7C9884C0E30C75276AF5A92E736
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32805.jpgsave_picture_32805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32805.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Video AI 6.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32806.jpgsave_picture_32806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32806.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:9B084DE56D45EF63E9A816127ECA3E84DEE6A13B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32807.jpgsave_picture_32807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32807.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C14387619B7DBAC64D41FDE45A8D418C8D53CAC7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32808.jpgsave_picture_32808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32808.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - Happy New Year 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32809.jpgsave_picture_32809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32809.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:74C70847421126E876F53759194C0AEAF0BF9752
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32810.jpgsave_picture_32810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32810.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:717BC70CE765D172078164A7F8D2DDCBEE3F11D9
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32811.jpgsave_picture_32811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32811.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:59449F83C42C2DCA2D1A2C7B0D9CCBEF9923D497
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32812.jpgsave_picture_32812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32812.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:A680B7FCCB4727E02492A2320E62897928B6411B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32813.jpgsave_picture_32813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32813.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:1100F6F5F09D97E272E0927BAB9E4FFA637160C6
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32814.jpgsave_picture_32814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32814.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:FA381BF41323BACEA0FD6EE03423FE4AE63EA57A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32815.jpgsave_picture_32815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32815.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:553DA15A021335BF33EFD360A07D729870EBFE17
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32816.jpgsave_picture_32816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32816.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:95559CD9F178BC5B78CE3749B44A02011DDC9C7C
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32817.jpgsave_picture_32817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32817.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Classical Music Heritage (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32818.jpgsave_picture_32818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32818.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Super Woden GP 2 (2023) [Ru/Multi] (1.3) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32819.jpgsave_picture_32819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32819.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:22762FF5757B7243FEB8CD4B09CD899BF501C53E
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32820.jpgsave_picture_32820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32820.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:0315D5A04CB617EBFDE6C3757F6234FF09F7FC14
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32821.jpgsave_picture_32821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32821.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:C1B25D37B9B2C30D3CA15A28C9D0824A1F48FFC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32822.jpgsave_picture_32822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32822.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:5D3C7599FC21B7116E127F056B9C29944DFA7940
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32823.jpgsave_picture_32823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32823.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Russian Rapcore Vol. 1-2 (2008-2009) [FLAC|Lossless|tracks + .cue] <Rapcore
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32824.jpgsave_picture_32824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32824.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:738EF9CB39186E433A560F44E31B97E2DF63A8CE
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32825.jpgsave_picture_32825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32825.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Paranormal Files 12: Fatal Flaw (2024) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32826.jpgsave_picture_32826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32826.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:FA4EC25DE4045A6BCACA9A15AF3E6E38D75ED399
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32827.jpgsave_picture_32827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32827.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kyau & Albert - All in Good Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32828.jpgsave_picture_32828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32828.jpg" />
 </div>
 
 

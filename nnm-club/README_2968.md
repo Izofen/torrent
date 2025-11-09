@@ -6,7 +6,7 @@ VA - The Very Best Of Old Tracks (2012) [MP3 320 kbps]<Pop,Retro>
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88306.jpgsave_picture_88306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88306.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Two Worlds II + Pirates of the Flying Fortress / Два Мира 2 + Пират�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88311.jpgsave_picture_88311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88311.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dungeon Keeper 2 {1.7} (RePack) [Ru/En] 1999 | Sash HD
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88313.jpgsave_picture_88313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88313.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C4EA0C57A3ABEC4FDB3B6DF058B3C0A1B6779B88
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88314.jpgsave_picture_88314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88314.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Avernum: Escape from the Pit (P) [En] 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88315.jpgsave_picture_88315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88315.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:93A08585E9282BB8AE4D03ACB6C263D542952C50
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88316.jpgsave_picture_88316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88316.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:9FE533F6DEBCF8915ADD46AD7D3DBD28C4842BBD
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88317.jpgsave_picture_88317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88317.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ SolidWorks – система автоматизированного проек�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88318.jpgsave_picture_88318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88318.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Cutting Line 2.49 [Eng +Rus]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88319.jpgsave_picture_88319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88319.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Cutting Line 2.49 [Eng +Rus]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88320.jpgsave_picture_88320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88320.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:424908D054D18D18E1130FD7479FC6BC102087F0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88321.jpgsave_picture_88321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88321.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:424908D054D18D18E1130FD7479FC6BC102087F0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88322.jpgsave_picture_88322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88322.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:424908D054D18D18E1130FD7479FC6BC102087F0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88324.jpgsave_picture_88324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88324.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:424908D054D18D18E1130FD7479FC6BC102087F0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88325.jpgsave_picture_88325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88325.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:AD6DEE2C8A885F9CCA6A83AD4E7FB08D918ADB14
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88326.jpgsave_picture_88326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88326.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:AD6DEE2C8A885F9CCA6A83AD4E7FB08D918ADB14
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88330.jpgsave_picture_88330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88330.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:AD6DEE2C8A885F9CCA6A83AD4E7FB08D918ADB14
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88336.jpgsave_picture_88336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88336.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:022724A4176DAB9C1ECC6615EE65A9A870696A15
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88337.jpgsave_picture_88337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88337.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Топ 100-ка блатных песен (2012) [MP3|256 кб/с]<Шанс
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88342.jpgsave_picture_88342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88342.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:3E0AC2DBE9C0156A06261EB8B6C32AE9CB476921
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88344.jpgsave_picture_88344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88344.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:C06A08040E63CDBAF188E76B1935AAEE3935C01E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88345.jpgsave_picture_88345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88345.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Mamono Hunter Youko / Devil Hunter Yohko / Ёко - охотница на дем
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88347.jpgsave_picture_88347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88347.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Alabama Shakes - Boys & Girls (2012) [FLAC|Lossless]<Southern Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88353.jpgsave_picture_88353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88353.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Alabama Shakes - Boys & Girls (2012) [FLAC|Lossless]<Southern Rock, Blues Rock>
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88354.jpgsave_picture_88354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88354.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:A288FF7CC5A90BCE32A8884494EB00C653A01009
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88355.jpgsave_picture_88355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88355.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:091381F6B67D3944048E8D5BA1FAE2B804ABC25E
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88359.jpgsave_picture_88359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88359.jpg" />
 </div>
 
 

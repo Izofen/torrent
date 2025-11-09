@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241631.jpgsave_picture_241631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241631.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Kreeature - Two Leaves / Dos Hojas (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241632.jpgsave_picture_241632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241632.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7D1071EA212CC901104DD2487877EFB099A1C8B9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241633.jpgsave_picture_241633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241633.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6D5E6C2DB491B04B8ADF5F61EBCEB6313B3074AE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241634.jpgsave_picture_241634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241634.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Two Sinners - Brutal Emotion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241635.jpgsave_picture_241635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241635.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Dapayk & Padberg - Harbour (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241636.jpgsave_picture_241636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241636.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:E18743A288459435229309E7E0155A10D94FFCE3
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241637.jpgsave_picture_241637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241637.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ GroupsPro 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241638.jpgsave_picture_241638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241638.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:5716053F238AE3D1AA9992AE76604AA86605A59C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241639.jpgsave_picture_241639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241639.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:C120B620B7870211955082BD49DF4781E079FAD6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241640.jpgsave_picture_241640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241640.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Motus - Here Comes the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241641.jpgsave_picture_241641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241641.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241642.jpgsave_picture_241642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241642.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Dagoba - By Night (2022) [FLAC|Lossless|tracks + .cue] <Groove Metal, Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241643.jpgsave_picture_241643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241643.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:DDD4E890EEFFB2E986B95B430F44A84C7870FCF1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241644.jpgsave_picture_241644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241644.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Harry Chapin - Cats In the Cradle (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Fol
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241645.jpgsave_picture_241645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241645.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:BC82A84022679EBF8BB0145397E6B1F544E54D3F
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241647.jpgsave_picture_241647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241647.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:CE8520256AFCF8EFF02020E5FBD9D858E68FA2FB
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241648.jpgsave_picture_241648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241648.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:195C812A45514B636A476C154891F52AE12AB31B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241649.jpgsave_picture_241649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241649.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Image Plus - Easy Photo Editor 1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241650.jpgsave_picture_241650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241650.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:1ADCE416874004C507B6A9533312F46FA054D60B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241651.jpgsave_picture_241651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241651.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Microsoft анонсировала новую службу Windows Autopatch д�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241652.jpgsave_picture_241652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241652.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ NirLauncher Package 1.30.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241653.jpgsave_picture_241653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241653.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Witherfall - Curse Of Autumn (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241654.jpgsave_picture_241654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241654.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ reaConverter Pro 7.782 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241655.jpgsave_picture_241655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241655.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:AC8A6FFABDE31830B7398463A8C954C84C991DF5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241657.jpgsave_picture_241657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241657.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:207B5D2042865C15416135285D167F9186FE72F1
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241658.jpgsave_picture_241658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241658.jpg" />
 </div>
 
 

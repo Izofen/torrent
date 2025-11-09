@@ -6,7 +6,7 @@ Gabriel Agudo - Tales & Thunders (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171233.jpgsave_picture_171233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171233.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AirMail Pro 5 v.5.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171234.jpgsave_picture_171234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171234.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Death - Human (1991) Reissue 2021, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171235.jpgsave_picture_171235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171235.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:0FE311C7FF8BB2A7F2ED42C507E7132C9BCFEB03
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171236.jpgsave_picture_171236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171236.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ ConceptDraw PROJECT 14 v.14.0.0.302 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171237.jpgsave_picture_171237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171237.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ NetWorker Pro 9.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171238.jpgsave_picture_171238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171238.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - 30 Cozy, Harmonious, Pleasing to the Ear and Relaxing Tunes (2023) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171239.jpgsave_picture_171239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171239.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:D729408C58E36E8ECF90E5FA532BE34E6A50F88A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171240.jpgsave_picture_171240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171240.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:15BF307B95A622088118F7011402A5E93784108D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171241.jpgsave_picture_171241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171241.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171242.jpgsave_picture_171242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171242.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:B53FF547D04294B8DDD7410CFF313E4439F0494D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171243.jpgsave_picture_171243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171243.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F925208D4FDB3A7EAFD729AF406146FDB9287A48
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171244.jpgsave_picture_171244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171244.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ PDF Squeezer 4 v.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171245.jpgsave_picture_171245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171245.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ GM CHM Reader Pro for Mac 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171246.jpgsave_picture_171246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171246.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sinful Way - Revolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171247.jpgsave_picture_171247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171247.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Speedtest от Ookla 5.2.1 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171248.jpgsave_picture_171248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171248.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Giant Flying Turtles - Let the Love In (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171249.jpgsave_picture_171249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171249.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Color Wheel 8.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171250.jpgsave_picture_171250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171250.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:F0D0A099ED2996DB0B68D14D70660F4223B74DFF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171251.jpgsave_picture_171251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171251.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:9834CA6E4FA6859D4C3C58E3D0B296CF74C5AD8D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171252.jpgsave_picture_171252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171252.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Web Confidential for Mac 5.4.1 U2B [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171253.jpgsave_picture_171253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171253.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ OmniReader Pro for Mac 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171254.jpgsave_picture_171254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171254.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ CADintosh X 8.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171255.jpgsave_picture_171255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171255.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:CE6CDB11F28F1850F8E3F98A92203AE9CF008847
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171256.jpgsave_picture_171256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171256.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:1AAC9596A8A133DA72CE9E6B3A0E92E972B57400
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171257.jpgsave_picture_171257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171257.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:46A3C183E71026341B972057002D4836E4EC8068
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171258.jpgsave_picture_171258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171258.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Amorphis - Дискография (26 releases) (1991-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpgsave_picture_193411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193427.jpgsave_picture_193427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193427.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193512.jpgsave_picture_193512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193512.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194449.jpgsave_picture_194449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194449.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Frank Sinatra - 16LP Box Set Mobile Fidelity 'Sinatra Silver Box' VinylRip 24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194900.jpgsave_picture_194900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_194900.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpgsave_picture_196226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196226.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197851.jpgsave_picture_197851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197851.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198016.jpgsave_picture_198016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_198016.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:142276DB4C98E42D32D55206876FF2255603C103
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198325.jpgsave_picture_198325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198325.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198677.jpgsave_picture_198677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198677.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202040.jpgsave_picture_202040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202040.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202566.jpgsave_picture_202566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202566.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpgsave_picture_203055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Р�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpgsave_picture_203173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpgsave_picture_203349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203370.jpgsave_picture_203370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203370.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpgsave_picture_203527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpgsave_picture_203562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpgsave_picture_203599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Mus
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203631.jpgsave_picture_203631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203631.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpgsave_picture_203748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpgsave_picture_203795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204160.jpgsave_picture_204160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204160.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpgsave_picture_204266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204295.jpgsave_picture_204295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204295.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpgsave_picture_204462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Trance 2023 Vol. 7 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225547.jpgsave_picture_225547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_225547.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eguana - Night Ambient Vol​.​2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228347.jpgsave_picture_228347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228347.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sven Van Hees - Airflow (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228529.jpgsave_picture_228529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228529.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brian Hamilton - Metro Man (1984) LP [MP3|320 Kbps] <Rock, New Wave, Lo-Fi, Elec
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228540.jpgsave_picture_228540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228540.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Daydreamer's Chillout Sounds (2015) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228592.jpgsave_picture_228592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228592.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 22 (2022) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228663.jpgsave_picture_228663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228663.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Mystic State - Discography 28 Releases (2013-2020) Artikal Music UK, The Chikara
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228951.jpgsave_picture_228951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228951.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Ahmed Romel ‎– The Manifesto (Blue Soho 10th Year Anniversary) (2020) [
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228988.jpgsave_picture_228988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_228988.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Skold - Seven Heads (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Indus
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229093.jpgsave_picture_229093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229093.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - The Chill Collective: Blissful Summer Vibes (2023) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229101.jpgsave_picture_229101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229101.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ db and Ishq - Inbetween (2020) Virtual [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229106.jpgsave_picture_229106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229106.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Trance Aliens (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229109.jpgsave_picture_229109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229109.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Polar Moon - As Above, So Below (2020) Past Inside The Present [FLAC 2.0|48/24|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229123.jpgsave_picture_229123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229123.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229130.jpgsave_picture_229130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229130.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Qulonium - Hexia (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Indust
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229146.jpgsave_picture_229146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229146.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gym Workout DJ Team - Workout Mix 2020 New Year, New You [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229177.jpgsave_picture_229177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229177.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Anjunabeats The Yearbook (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229251.jpgsave_picture_229251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229251.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Best Driving EDM 2020 (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229266.jpgsave_picture_229266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229266.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Energetic Workout Vol.1 (2019) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229298.jpgsave_picture_229298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229298.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lauver - Celestial Bodies (2019) Past Inside the Present [FLAC 2.0|96/24|tracks|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229326.jpgsave_picture_229326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229326.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ PGD/MV - Morvan (2019) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229334.jpgsave_picture_229334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229334.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dj De Key - Friday Evening Disco (2019) [MP3|320 Kbps] <Disco House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229358.jpgsave_picture_229358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229358.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Droneghost - Curse (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229385.jpgsave_picture_229385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229385.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Paul Van Dyk - Music Rescues Me (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229400.jpgsave_picture_229400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229400.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Kyle Bobby Dunn - FHTE-B (2019) Past Inside the Present [FLAC 2.0|44.1/24|tracks
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229511.jpgsave_picture_229511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229511.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Justice - Woman Worldwide (2018) 2CD, Japan [FLAC|Lossless|tracks + .cue] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229829.jpgsave_picture_229829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229829.jpg" />
 </div>
 
 

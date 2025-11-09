@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117232.jpgsave_picture_117232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117232.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Pink Floyd - Live At Vienna Stadthalle, Austria, 13 October 1973 (2023) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117233.jpgsave_picture_117233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117233.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Devils - Let The World Burn Dow (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117365.jpgsave_picture_117365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117365.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Always Naked - Just Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117382.jpgsave_picture_117382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117382.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:E0EE1A3E68CC83B4B91A2CAB38A6451038DE9102
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117384.jpgsave_picture_117384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117384.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:BD35D06A767BCBC88376126AF86AB8BEB87E13C7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117385.jpgsave_picture_117385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117385.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cesare Verdacchi - Psychotrip (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117391.jpgsave_picture_117391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117391.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Twin Souls - Family & Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117397.jpgsave_picture_117397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117397.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Anthony Phillips - Private Parts & Pieces IX-XI (2018) 4CD [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117398.jpgsave_picture_117398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117398.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:F6DA4990578D015F0595EBAD68D0E9F5EBE22467
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117403.jpgsave_picture_117403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117403.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Achilles - There Will Be Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117406.jpgsave_picture_117406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117406.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:A69BB3F1D2C2C6034EE91CAC5E196A0A30DA3427
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117407.jpgsave_picture_117407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117407.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Paul Rodgers - Midnight Rose (2023) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117410.jpgsave_picture_117410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117410.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Honeymoon Suite - Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117416.jpgsave_picture_117416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117416.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:DC08A391AD787E32235AFE7965550361D0F28BDB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117420.jpgsave_picture_117420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117420.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ UFO - The Misdemeanor Tour - Live At The Oxford Apollo (1985) Reissue, 2025, HNE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117537.jpgsave_picture_117537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117537.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Voight Kampff - Substance rêve (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117551.jpgsave_picture_117551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117551.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Voight Kampff - More Human than Human (2012) [FLAC|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117559.jpgsave_picture_117559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117559.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Mean Mistreater - Razor Wire (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117575.jpgsave_picture_117575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117575.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Witherfall - What Have You Done? (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117585.jpgsave_picture_117585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117585.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Honeyblood - Serpentine Patterns (2024) [FLAC|Lossless|WEB-DL|tracks] <Drone Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117586.jpgsave_picture_117586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117586.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Misanthrope - Misanthrope Immortel (2000) 20th Anniversary Edition, 2021, Remast
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117592.jpgsave_picture_117592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117592.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Trivax - Eloah Burns Out (2023) [MP3|320 Kbps] <Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117620.jpgsave_picture_117620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117620.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ LASCALA - Play-Off (2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117629.jpgsave_picture_117629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117629.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ magnet:?xt=urn:btih:10C67DA370AB868AD50B76B1402314B924FD75E0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117632.jpgsave_picture_117632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117632.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ TattooIN - Звёзды и руны (2025) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117634.jpgsave_picture_117634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117634.jpg" />
 </div>
 
 

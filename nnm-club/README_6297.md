@@ -6,7 +6,7 @@ Adobe Acrobat Pro 23.003.20201.0 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197324.jpgsave_picture_197324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197324.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3E941691744608CCE29ECD74B11558D7C693EDA0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197325.jpgsave_picture_197325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197325.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:66D96B69E37468E8E72FFC43F797A42DECF817E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197326.jpgsave_picture_197326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197326.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Topaz Photo AI 1.3.8 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197327.jpgsave_picture_197327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197327.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:30E448659DA6430EA852DC97A4AF6A584FB516DF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197328.jpgsave_picture_197328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197328.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:3AC54696DBA1E5411B07A58DEB1DA6A65A2374B2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197329.jpgsave_picture_197329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197329.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ We Love Katamari REROLL+ Royal Reverie (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197330.jpgsave_picture_197330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197330.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Visual Studio Code 1.79.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197331.jpgsave_picture_197331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197331.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Revo Uninstaller Pro 5.1.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197332.jpgsave_picture_197332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197332.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:F3857F00502E10FFDAF14432B0B0F9FEF5EC3413
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197333.jpgsave_picture_197333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197333.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bastard Bonds (2016) [En] (1.2.9) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197334.jpgsave_picture_197334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197334.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:ADD1C47E1CB4ABD7DFAF3AE5F323FF0913739783
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197335.jpgsave_picture_197335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197335.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mullvad Browser 12.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197337.jpgsave_picture_197337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197337.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:FE0B7FC4BA45241283BE0974C69114FB2FF46BBC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197338.jpgsave_picture_197338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197338.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:11F04F52CD5F5F05C023DF6C3CDFF7E3FE5FBE45
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197339.jpgsave_picture_197339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197339.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AIDA64 Extreme Edition 6.88.6426 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197340.jpgsave_picture_197340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197340.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Advanced Renamer 3.89.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197341.jpgsave_picture_197341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197341.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Legend of Radiance (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197342.jpgsave_picture_197342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197342.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ IObit Smart Defrag Pro 8.5.0.299 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197343.jpgsave_picture_197343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197343.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Auslogics Driver Updater 1.25.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197344.jpgsave_picture_197344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197344.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ LibreOffice 7.5.4.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197345.jpgsave_picture_197345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197345.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ DxO PhotoLab Elite 6.7.0 build 219 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197346.jpgsave_picture_197346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197346.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:0ECA43EC4826FDA231C0E9BEA8197065816C1653
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197347.jpgsave_picture_197347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197347.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ AOMEI Backupper Technician Plus 7.2.3 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197348.jpgsave_picture_197348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197348.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Rammstein - Sehnsucht (1997) Anniversary Edition, 2023, Remastered, Universal Mu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197349.jpgsave_picture_197349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197349.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Adguard 7.13.1 (7.13.4278.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197350.jpgsave_picture_197350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197350.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145745.jpgsave_picture_145745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145745.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ExoMiner - Idle Miner Adventure v0.7.8 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145746.jpgsave_picture_145746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145746.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Winter Chill 2022 (Relaxed Nu-Disco & Deep House Sounds) (2021) [AAC|~320 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145749.jpgsave_picture_145749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145749.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145750.jpgsave_picture_145750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145750.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:BA2FAE9E2901D2143B60C7DED97F1BF7D532888F
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145751.jpgsave_picture_145751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145751.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:0389C945D74394F5C0859BD9520FD21162363A36
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145752.jpgsave_picture_145752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145752.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:D6B6BD70C959F6FC2F645ECC23165CE07F3B7FB6
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145753.jpgsave_picture_145753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145753.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:477857A1EC4EF470E642072F63ECDBF72E72205D
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145754.jpgsave_picture_145754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145754.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ VA - ЕвроХит Топ 40 Europa Plus 25.12.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145755.jpgsave_picture_145755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145755.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:E93DB816AA8CEDBF15F74D937A8B24EA82E2E4BC
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145756.jpgsave_picture_145756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145756.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:E93DB816AA8CEDBF15F74D937A8B24EA82E2E4BC
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145758.jpgsave_picture_145758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145758.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:2EBD3A17A12C8349BDBAE66733EBA25E81A808C7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145759.jpgsave_picture_145759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145759.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ SupRemo 4.0.3.2214 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145760.jpgsave_picture_145760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145760.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:08EC759021471A98EAE246E40239A06EF258B657
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145761.jpgsave_picture_145761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145761.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145762.jpgsave_picture_145762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145762.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Sarah Connor - Not So Silent Night (2022) The Cozy Edition, 2023, Polydor [FLAC|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145763.jpgsave_picture_145763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145763.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:BE11028372B27D176FED6D7BDB80643E71A3C9BA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145764.jpgsave_picture_145764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145764.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Bercana Ritual 2 (2021) [AAC|~349 Kbps] <Organic House, Deep House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145767.jpgsave_picture_145767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145767.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Catharsis - Время потерь (2018) EP [MP3|320 Kbps] <Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145768.jpgsave_picture_145768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145768.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:61DA5C436B14F74A7D98EE4CA73DFAA8377ECB41
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145769.jpgsave_picture_145769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145769.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Immortal Guardian - Unite and Conquer (2023) [MP3|320 Kbps] <Progressive, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145770.jpgsave_picture_145770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145770.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Faces - Stay With Me: Faces Anthology (2012) 2CD Compilation, Remastered [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145771.jpgsave_picture_145771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145771.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:06D564596B0BB1A7F92FD4F144154C32E5337588
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145773.jpgsave_picture_145773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145773.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:6E8BE5C77DC0D11175F5C099E6EBDAC4EA57089F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145774.jpgsave_picture_145774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145774.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:8533786ED673B28C3A54FB749638D5419F33832F
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145775.jpgsave_picture_145775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145775.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:99BFE77BA95FEF9F6F51AE67DAD5B48FD7F5A6DC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145777.jpgsave_picture_145777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145777.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181649.jpgsave_picture_181649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181649.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Jean-Michel Jarre - The Concerts In China (1982) 2xCD, 40th Anniversary - Remast
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181651.jpgsave_picture_181651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181651.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WSCC (Windows System Control Center) 7.0.5.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181652.jpgsave_picture_181652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181652.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:E4BB938681E959521A93A8B1DF08E6B6C0C9F97B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181656.jpgsave_picture_181656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181656.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:5252834DA7EBAF6B60B9949091CBFCDD1426616C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181659.jpgsave_picture_181659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181659.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, 40th Aniversary – Remast
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181675.jpgsave_picture_181675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181675.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:FA9A7671A5CD1A2B14861003F07FEDA451CA2493
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181678.jpgsave_picture_181678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181678.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:861302D8E7FD771A4613F3F3817097FA9BA40335
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181679.jpgsave_picture_181679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181679.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Dynamic Island - dynamicSpot 1.32 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181681.jpgsave_picture_181681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181681.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:64963BB70AC33D038B22FE0C536D73FC6283C100
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181685.jpgsave_picture_181685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181685.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ PIDKey Lite 1.64.4 b26 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181687.jpgsave_picture_181687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181687.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Whale Browser 3.17.145.17 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181691.jpgsave_picture_181691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181691.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:2B863CF2CA5878AD28639ADC0FC4044BD5674393
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181693.jpgsave_picture_181693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181693.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:82BFA5CBA13121EAE3EB38DFC5C9418A20D8742C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181695.jpgsave_picture_181695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181695.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:EAE5E5215393A57AFAB53370F42BF603B29F80D9
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181697.jpgsave_picture_181697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181697.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:2AEA362624570B07884E25BA48B665452BD07C86
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181700.jpgsave_picture_181700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181700.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:751187C78423D920BDEC2946BDDF70255764E1E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181704.jpgsave_picture_181704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181704.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:A5DBFD79E896A92ED71044404E6BF76A47D05942
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181705.jpgsave_picture_181705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181705.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ iZotope - Stutter Edit 2 2.1.0 VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181708.jpgsave_picture_181708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181708.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:68FB383645C034D05DC5419530B02BEDABA24289
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181709.jpgsave_picture_181709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181709.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:68FB383645C034D05DC5419530B02BEDABA24289
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181712.jpgsave_picture_181712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181712.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181713.jpgsave_picture_181713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181713.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Withering Surface - Meet Your Maker (2020) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181715.jpgsave_picture_181715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181715.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ itProger, Гоша Дударь | C++. Изучение языка C++, WinForms
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181717.jpgsave_picture_181717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181717.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Daisy George - see me now (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Alternative & I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181719.jpgsave_picture_181719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181719.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ XYZ - XYZ (1989) Japanese Edition, Reissue, 1990, Enigma Records [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181723.jpgsave_picture_181723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181723.jpg" />
 </div>
 
 

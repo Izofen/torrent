@@ -6,7 +6,7 @@ VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108683.jpgsave_picture_108683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108683.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108684.jpgsave_picture_108684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108684.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Jazz Tempoe Doeloe (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108685.jpgsave_picture_108685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108685.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Alluring Sweet Relaxing Chill Lounge Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108686.jpgsave_picture_108686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108686.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kurt Flavin - Six String Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108687.jpgsave_picture_108687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108687.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jeff Shirley - Contigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108688.jpgsave_picture_108688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108688.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108689.jpgsave_picture_108689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108689.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:CAC9E45030351DED6912692A664F7D72E26405FF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108690.jpgsave_picture_108690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108690.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Dead Head - Kill Division (1999) [FLAC|Lossless|image + .cue] <Thrash, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108691.jpgsave_picture_108691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108691.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108692.jpgsave_picture_108692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108692.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Celestial Season - Mysterium III (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108693.jpgsave_picture_108693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108693.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Eliza Neals - Colorcrimes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108694.jpgsave_picture_108694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108694.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - Footsteps On The Dancefloor, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108695.jpgsave_picture_108695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108695.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108696.jpgsave_picture_108696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108696.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:42726AB5494EA6A759B47F8EC01A2A93817B083E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108697.jpgsave_picture_108697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108697.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Cosmo's Midnight - Stop Thinking Start Feeling (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108698.jpgsave_picture_108698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108698.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Modern Rock New Anthems (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108699.jpgsave_picture_108699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108699.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Radio Slave - Venti (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108700.jpgsave_picture_108700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108700.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Night Sins - A Silver Blade In The Shadow (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108701.jpgsave_picture_108701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108701.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Hell Riders - Rising Phoenix (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108702.jpgsave_picture_108702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108702.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Kalad - Arkamine (2024) [MP3|320 Kbps] <Modern Metal, Symphonic Metal, Female Vo
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108703.jpgsave_picture_108703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108703.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Karfagen - Land of Chameleons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108704.jpgsave_picture_108704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108704.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:48D244006D90981048D9ACED718DF9A7E8D2D33C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108705.jpgsave_picture_108705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108705.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Fughu - Stolen Pictures (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108706.jpgsave_picture_108706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108706.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Freeways - Dark Sky Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108707.jpgsave_picture_108707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108707.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ twikipedia - for the rest of your life (2024) [FLAC|Lossless|WEB-DL|tracks] <alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108708.jpgsave_picture_108708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108708.jpg" />
 </div>
 
 

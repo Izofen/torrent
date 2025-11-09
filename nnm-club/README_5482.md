@@ -6,7 +6,7 @@
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169473.jpgsave_picture_169473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169473.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E0BD65291E14699F7BBD9FDCF7650C3028F5440B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169474.jpgsave_picture_169474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169474.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Forces United - Hits From Metal Musicals (2021) [FLAC|Lossless|image + .cue] <He
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169475.jpgsave_picture_169475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169475.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ MotoGP. Этап 17. Гран-при Тайланда. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169476.jpgsave_picture_169476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169476.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:11908A9A07304B7AFFC84F4AAAC4C4B80FA17A0A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169478.jpgsave_picture_169478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169478.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Psychedelic Goa Trance 2022 (2021) [AAC|~330 Kbps] <Psy Trance, Goa Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169479.jpgsave_picture_169479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169479.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:7F2B1FEF3BE4C8D95B80493C46EF2F75EA5E1EB2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169480.jpgsave_picture_169480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169480.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:A63C0CEB9A13116D487D642615D45C1DBF53E6B9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169481.jpgsave_picture_169481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169481.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:43612F37001D7EE9EB6A64C48520911DEE9CC8F8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169482.jpgsave_picture_169482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169482.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:DBDFDC23F119AF72716A7504833BCB7FBA2E425F
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169483.jpgsave_picture_169483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169483.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:8CB44570324E40632E697B6B48DB2CFB4A615C3E
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169484.jpgsave_picture_169484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169484.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:CF535A6C1CD408CA6A5C9B124F54F47782B8E52F
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169485.jpgsave_picture_169485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169485.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:2385FE51F3AB5C5ED9A114D1C1F7710D157F8173
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169486.jpgsave_picture_169486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169486.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ VA - Best of Chill Jazz 4 (2020) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169487.jpgsave_picture_169487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169487.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:4974F3590F69AFC9431B3603FC2F0606B6A64AF6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169488.jpgsave_picture_169488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169488.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:1E95E3F48CE97677C655D5DD536C1E6C2EE4311C
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169489.jpgsave_picture_169489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169489.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:6DCB6450D8DAE3646CBC9A73461B85404B8E81D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169490.jpgsave_picture_169490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169490.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Picture Instruments Mask Integrator 2.0.10 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169491.jpgsave_picture_169491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169491.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:0BD8E8F30298DC9B6A6C0C26680F8B13A76E9C2C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169492.jpgsave_picture_169492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169492.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:9531506C697CE5FA3DCCEA8197F2A288B7A7FB2F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169493.jpgsave_picture_169493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169493.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VA - A Tribe Called Kotori 7 (2021) [AAC|~330 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169495.jpgsave_picture_169495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169495.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:AF030F98BA4FE37E7AFBF4B08D74F4634F38C9C5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169496.jpgsave_picture_169496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169496.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:2FB3CDB26B42F5A782394781CA954996F7863C69
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169497.jpgsave_picture_169497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169497.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:8F2871374274947C4E79BA87BA5B7B9B24192C03
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169498.jpgsave_picture_169498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169498.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Tool - Ænima (AEnima) (1996) [AAC|~311 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169499.jpgsave_picture_169499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169499.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:A35E5F515233569B8C2F4A665D42ACFE8600A995
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169500.jpgsave_picture_169500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169500.jpg" />
 </div>
 
 

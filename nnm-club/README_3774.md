@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118504.jpgsave_picture_118504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118504.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:923E7DE797C6669AD84B0FDD538F2AA2002D089C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118505.jpgsave_picture_118505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118505.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118506.jpgsave_picture_118506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118506.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9977BDF3BC0AAB7CCAEC61E5CF3661419E4F29A5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118507.jpgsave_picture_118507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118507.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A697B07B403E639E97904738BCF78E0C7C52952D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118508.jpgsave_picture_118508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118508.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:DE1FE3BFC7F0887FA7EE5CF78B1EDBAED38F895F
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118509.jpgsave_picture_118509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118509.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:D8122D91209F290B7A8F87715E61038E0D1C9DB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118510.jpgsave_picture_118510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118510.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118511.jpgsave_picture_118511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118511.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:C044B80D8ADAEE3AE6E5C1B1A26DE1FA22162554
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118512.jpgsave_picture_118512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118512.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:EE5BF7AA38500570945AE6AF4EB706FB5C27D010
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118513.jpgsave_picture_118513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118513.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118514.jpgsave_picture_118514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118514.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:2607A6DEA1DB6AEDFC3FD8E89AE4D02FAA7CC0E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118515.jpgsave_picture_118515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118515.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:432CB832913D1F23E2C4E6ED66EA17F1A2A89FFE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118516.jpgsave_picture_118516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118516.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:F4E0523C912ACC897E46800392BCAA41FF1CA6C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118517.jpgsave_picture_118517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118517.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:92EA25E58E83397C652866F89F434C7E5FB9E924
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118518.jpgsave_picture_118518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118518.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:79DB644C6BC359CF65B8D736827275079BF1E93A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118519.jpgsave_picture_118519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118519.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:0B5D8335B5C8ADBCB618F6830FB7CD5A6938A268
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118520.jpgsave_picture_118520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118520.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:0C66DDC5B0828F9DA7BABD3BFA6D81EAA47D4D75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118521.jpgsave_picture_118521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118521.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Samsung и SanDisk завалили рынок флешками отвратит
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118522.jpgsave_picture_118522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118522.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Samsung и SanDisk завалили рынок флешками отвратит
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118523.jpgsave_picture_118523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118523.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:3132B1CD2780EAB184AE89DAC42EA39CD27B8543
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118524.jpgsave_picture_118524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118524.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:606BFCF11AA22FAB4B23758977E7193C43BED4AC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118525.jpgsave_picture_118525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118525.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:123E03FE56A9708E7AF2C3A5BC47CB2D7E07A11B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118526.jpgsave_picture_118526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118526.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:8AE6415883E1388539AF03B5322DDF39F2DB9AAB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118527.jpgsave_picture_118527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118527.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118528.jpgsave_picture_118528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118528.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:5DBBC317FD3E3F6518D18C2886BE8F8C99520FF1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118529.jpgsave_picture_118529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118529.jpg" />
 </div>
 
 

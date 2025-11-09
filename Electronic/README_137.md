@@ -6,7 +6,7 @@ Valentino Mora - Underwater (2021) Spazio Disponibile [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243306.jpgsave_picture_243306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243306.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Infinite Contemporary Lounge Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243312.jpgsave_picture_243312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243312.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kosling - Live @ Fireland Festival,France (2021-03-19) [MP3|320 Kbps] <Big Room,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243369.jpgsave_picture_243369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243369.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243394.jpgsave_picture_243394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243394.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - 20 Years Sprout Music (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243454.jpgsave_picture_243454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243454.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Paul Sawyer: 30 Years A DJ (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243475.jpgsave_picture_243475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243475.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Global Trance Masters Vol. 5 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243556.jpgsave_picture_243556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243556.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2016) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243587.jpgsave_picture_243587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243587.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Armin van Buuren - Feel Again (2023) [MP3|320 Kbps] <Trance, Progressive, Electr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243591.jpgsave_picture_243591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243591.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Silent Shore Trance: Winter (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243595.jpgsave_picture_243595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243595.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ V.A. - All I Ever Wanted - A Tribute to Depeche Mode (2023) [FLAC|Lossless|WEB-D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243600.jpgsave_picture_243600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243600.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ V.A. - Lounge & Coffee, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243619.jpgsave_picture_243619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243619.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Francesca Lee - Moonhattan (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Synthpop,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243623.jpgsave_picture_243623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243623.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Ibiza Vibes 2023 - Tech House & Techno Only (2023) [MP3|320 Kbps] <Dark Tec
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243654.jpgsave_picture_243654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243654.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - This Is My Church Vol.2: The Lounge Edition (2016) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243661.jpgsave_picture_243661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243661.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Armada Deep House Selection Vol.15 (The Finest Deep House Tunes) (2016) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243673.jpgsave_picture_243673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243673.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Space Odyssey - Trip Five: New Year's Voyage 2019 (2018) 2 CD [OGG Vorbis|4
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243714.jpgsave_picture_243714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243714.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Nu Deep Gold Series:01 (2015) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243741.jpgsave_picture_243741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243741.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Midnight Lounge Vol.13: Lounge Lunatic (2016) [MP3|320 Kbps] <Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243759.jpgsave_picture_243759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243759.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Void Stasis - Viral Incubation (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243772.jpgsave_picture_243772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243772.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Happy Valentine's Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243947.jpgsave_picture_243947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243947.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ghosthost - Testament of a Wretched Dogma (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243978.jpgsave_picture_243978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243978.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Keep It Trance Vol. 09 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243982.jpgsave_picture_243982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243982.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Katty Heath - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243984.jpgsave_picture_243984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243984.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - 25 Years Technoclub Compilation (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243990.jpgsave_picture_243990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243990.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Flower Blooms: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243992.jpgsave_picture_243992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243992.jpg" />
 </div>
 
 

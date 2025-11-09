@@ -6,7 +6,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1080.jpgsave_picture_1080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1080.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.5.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1081.jpgsave_picture_1081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1081.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1082.jpgsave_picture_1082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1082.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1088.jpgsave_picture_1088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1088.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1114.jpgsave_picture_1114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1114.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ METAL GEAR SOLID Δ SNAKE EATER (2025) [Ru/Multi] (1.1.4/dlc) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1116.jpgsave_picture_1116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1116.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Old World (2022) [Ru/Multi] (1.0.79871/dlc) Repack Let'sРlay [Complete Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1117.jpgsave_picture_1117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1117.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1216.jpgsave_picture_1216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1216.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Hell is Us (2025) [Ru/Multi] (1.4.22.43941) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1225.jpgsave_picture_1225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1225.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1235.jpgsave_picture_1235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1235.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157967) Repack Wanterlude [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1236.jpgsave_picture_1236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1236.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Lightkeeper (2025) [Ru/En] (Build 20068430) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1239.jpgsave_picture_1239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1239.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1248.jpgsave_picture_1248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1248.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Let'sРlay [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1250.jpgsave_picture_1250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1250.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1252.jpgsave_picture_1252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1252.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1258.jpgsave_picture_1258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1258.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Victoria 3 (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1261.jpgsave_picture_1261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1261.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1262.jpgsave_picture_1262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1262.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1263.jpgsave_picture_1263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1263.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1272.jpgsave_picture_1272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1272.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.1/dlc) Repack dixen18 [Deluxe Edition
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1316.jpgsave_picture_1316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1316.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mateusz Skutnik Collection (2021-2025) [Ru/Multi] (2.3.49/1.0.50/1.1.7a ) Licens
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1317.jpgsave_picture_1317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1317.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Decepticon [Digital Delu
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1334.jpgsave_picture_1334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1334.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ ENDLESS Legend 2 (2025) [Ru/Multi] (0.0.71.157915-S35) Repack seleZen [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1335.jpgsave_picture_1335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1335.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1349.jpgsave_picture_1349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1349.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Dying Light The Beast (2025) [Ru/Multi] (1.2.1/dlc) Repack Wanterlude [Deluxe Ed
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1352.jpgsave_picture_1352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1352.jpg" />
 </div>
 
 

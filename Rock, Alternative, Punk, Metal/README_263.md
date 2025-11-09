@@ -6,7 +6,7 @@ John Miles - 7 Studio Albums (1976-1983) Collection [MP3|320 Kbps] <Rock, Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163806.jpgsave_picture_163806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163806.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ John Elefante - 4 альбома (1995-2013) Collection [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163849.jpgsave_picture_163849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163849.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rorcal - Muladona (2019) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163940.jpgsave_picture_163940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163940.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Severals - Algorithm (2022) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163953.jpgsave_picture_163953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163953.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Halestorm - Back From the Dead (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163991.jpgsave_picture_163991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163991.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Is This Love - Best Rock Ballads (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164007.jpgsave_picture_164007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164007.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:B5794E34DB69FC48176BD65BB1C4483AB45FA3D4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164042.jpgsave_picture_164042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164042.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Till Lindemann - Zunge (2023) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164105.jpgsave_picture_164105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164105.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Frank Zappa - Waka/Wazoo (1972) Remastered, 2022, Frank Zappa Catalog, UMG Recor
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164132.jpgsave_picture_164132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164132.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bon Jovi - 2020 (2020) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164138.jpgsave_picture_164138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164138.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Classic Rock Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164188.jpgsave_picture_164188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164188.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Americas Greatest Rock Anthems (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164209.jpgsave_picture_164209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164209.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Allman Brothers Band - Shades Of Two Worlds (1991) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164219.jpgsave_picture_164219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164219.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Summer Soft Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164221.jpgsave_picture_164221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164221.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:681802E7082B712BB6F3443AF354BED62ACBA759
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164234.jpgsave_picture_164234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164234.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Summer Rock Vibes (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164241.jpgsave_picture_164241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164241.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:AA41F1B151AEE26A706B083352436D497792923A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164247.jpgsave_picture_164247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164247.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Highway Horizon - Twilight Dimension (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164252.jpgsave_picture_164252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164252.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Indie Rock This Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164273.jpgsave_picture_164273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164273.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Damiano's Elysium - The Land Beyond Dreams Part 2 (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164295.jpgsave_picture_164295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164295.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Mostly Autumn - Back in These Arms (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164301.jpgsave_picture_164301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164301.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Witchcult - Witchcult (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Doom>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164314.jpgsave_picture_164314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164314.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Iron Savior - Skycrest (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164316.jpgsave_picture_164316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164316.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Soniq Circus - Chapter 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164325.jpgsave_picture_164325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164325.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tol Galen - Swamp Castle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164326.jpgsave_picture_164326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164326.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Clouds of Clarity - Superficial Society (2022) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164341.jpgsave_picture_164341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164341.jpg" />
 </div>
 
 

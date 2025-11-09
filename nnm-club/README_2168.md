@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56735.jpgsave_picture_56735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56735.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1972CB620D8BB867CECF10665C675C91D6DC0B42
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56736.jpgsave_picture_56736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56736.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:798479861F8E45E14566D08CCAF3C2298A042B53
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56737.jpgsave_picture_56737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56737.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:EFF5D777DAE305BC2C8327C5E04904D15300FAB6
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56738.jpgsave_picture_56738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56738.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F766E7212C99732627988B6664AD3F88EEC53D6F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56739.jpgsave_picture_56739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56739.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:AFCF667143D3B1EE5535A9C49873C0D301DD95C1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56740.jpgsave_picture_56740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56740.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:C4BA338083C9EFC924780B63A52C042CE628FC9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56741.jpgsave_picture_56741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56741.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Need for Speed: ProStreet HD (2024) [Ru] (1.1) Repack/Mod Финиган
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56742.jpgsave_picture_56742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56742.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:A73E08BD0C8A87B17B5FCBDE31AB4D72246B83FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56743.jpgsave_picture_56743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56743.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:67DE538824F3A53F9568BB7D5DE2C7E92C4860DE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56744.jpgsave_picture_56744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56744.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ ZBrush 2024.0.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56745.jpgsave_picture_56745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56745.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:773DF6835B5AD0EA94C204DFF565786777FA5046
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56746.jpgsave_picture_56746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56746.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:47779893F02FE1A585C9281495DA0B6392F69E92
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56747.jpgsave_picture_56747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56747.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:947A500942EF31D0506DE4F074F03279D3C99BCC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56748.jpgsave_picture_56748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56748.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:3B371481C20AC99BA4C17C69AA2E272616AB6B85
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56749.jpgsave_picture_56749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56749.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:F028B092CF6859AC8AE8497BB722AFBCA2815374
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56750.jpgsave_picture_56750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56750.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:631C2E59E212D97BEB714E5F87B54D81817F6E2E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56751.jpgsave_picture_56751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56751.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Clive 'N' Wrench (2023) [Multi] (Patch 1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56752.jpgsave_picture_56752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56752.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:084BFCAFAFDAC75904E5136B136FE1996094A5E2
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56753.jpgsave_picture_56753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56753.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:169FC02963EE0F6348E9435E72BA82F6FEFBECE3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56754.jpgsave_picture_56754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56754.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:252F3440761617C6226DF0EA7878F88FA41CBE30
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56755.jpgsave_picture_56755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56755.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:931E51CA7FA2FAEF636F30E8CCDD6D6D622150CB
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56756.jpgsave_picture_56756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56756.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ RTG. Горнолыжный курорт Красная Поляна (2013) HDTV
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56757.jpgsave_picture_56757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56757.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ HDCleaner 2.072 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56758.jpgsave_picture_56758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56758.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ FreeFileSync 13.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56759.jpgsave_picture_56759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56759.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Danny & Armi - Toinen (1979) LP [MP3|320 Kbps] <Pop Rock, Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56760.jpgsave_picture_56760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56760.jpg" />
 </div>
 
 

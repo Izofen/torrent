@@ -6,7 +6,7 @@ IObit Uninstaller Free 12.4.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245006.jpgsave_picture_245006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245006.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Display Driver Uninstaller 18.0.5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245007.jpgsave_picture_245007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245007.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DiskCatalogMaker 8.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245008.jpgsave_picture_245008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245008.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Dead Original - Bought & Sold (2021) [FLAC|Lossless|WEB-DL|tracks] <Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245009.jpgsave_picture_245009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245009.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:471519D60443111C88CF6F5A5B171E70A763D734
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245010.jpgsave_picture_245010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245010.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Amon Amarth - Тhе Рursuit Оf Vikings (2018) Live [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245011.jpgsave_picture_245011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245011.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:3743C6EA8E3BE2E67D865702B9B5B56B5CB2EC8A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245012.jpgsave_picture_245012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245012.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ VA - 10 Years (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245013.jpgsave_picture_245013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245013.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:47E8F75B82FCBA1E42F93752BAE17D0B7DF7BE4F
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245014.jpgsave_picture_245014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245014.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ CrystalDiskInfo 8.17.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245015.jpgsave_picture_245015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245015.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:064AB3A87738AA982C7D9036BB11A7F4E622A55A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245016.jpgsave_picture_245016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245016.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ URL Manager Pro 5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245017.jpgsave_picture_245017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245017.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VideoDuke 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245018.jpgsave_picture_245018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245018.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1A72EBE768BE5546C0A950D7C2BB953324F1E820
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245019.jpgsave_picture_245019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245019.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:8DE12B00A93CE983529AA86F653AD6AF74F05454
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245020.jpgsave_picture_245020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245020.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Mp3tag 3.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245021.jpgsave_picture_245021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245021.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Yre Den - Soilstretch (2020) OK SPIRIT [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245022.jpgsave_picture_245022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245022.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:2E7945A7C17AEE6981F2B6168CDF9E1DE0E869CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245023.jpgsave_picture_245023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245023.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:4324F51A43965D91E174CBE7FA3151B6C787F6F4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245024.jpgsave_picture_245024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245024.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:86C3E992A8A32D2D231E14F2896E238007A659E2
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245025.jpgsave_picture_245025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245025.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ RAW Power 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245026.jpgsave_picture_245026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245026.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - W9 Hits 2019 (2018) 4CD Multipack [MP3|320 Kbps] <Pop, Dance, Rap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245027.jpgsave_picture_245027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245027.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ BusyContacts 1.6.4 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245028.jpgsave_picture_245028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245028.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ R.A.F. - Restless Spirit (1986) [MP3|320 Kbps] <AOR, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245029.jpgsave_picture_245029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245029.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245030.jpgsave_picture_245030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245030.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:BBFC619C8081DCB53DA523F02D791701E4D625C9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245031.jpgsave_picture_245031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245031.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ AIMP 5.10 Build 2414 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168882.jpgsave_picture_168882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168882.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F36F7F8F275E97041401CAE9289BE662F4E1A239
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168883.jpgsave_picture_168883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168883.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SoftMaker Office Professional 2021 rev. S1040.1126 RePack (& portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168884.jpgsave_picture_168884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168884.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CF66634F4A8CF42F08DF6E18DA2ED246CEE456D6
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168885.jpgsave_picture_168885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168885.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1978598F815F32C249E59D54FD118CE16947BC74
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168886.jpgsave_picture_168886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168886.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:FE3BEC241AABC368C011370774A57791AA7D4246
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168887.jpgsave_picture_168887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168887.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:94D94A939261BB44D5ECD840AB87E9F8854AFCDE
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168888.jpgsave_picture_168888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168888.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:CF47452BBAF0512ACB7E2C401EB597C1454E2F6C
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168890.jpgsave_picture_168890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168890.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:E2C7DC599F09573DFE3141D88C882B42F629BE5F
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168891.jpgsave_picture_168891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168891.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Record Super Chart 666 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168892.jpgsave_picture_168892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168892.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Athentech Perfectly Clear Complete 3.9.0.1707 Repack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168893.jpgsave_picture_168893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168893.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Football Manager 2022 v21.1.1 (2021) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168894.jpgsave_picture_168894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168894.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Christmas Stories 11: Taxi of Miracles / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168895.jpgsave_picture_168895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168895.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Blues Rocking (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168896.jpgsave_picture_168896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168896.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - В машине с музыкой Vol.324 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168897.jpgsave_picture_168897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168897.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Wise Care 365 Pro 5.4.5.541 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168898.jpgsave_picture_168898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168898.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:866F7726CEE5BDF878050CCE59FE3863D4F58FFE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168899.jpgsave_picture_168899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168899.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Strange Investigations 3: Secrets Can Be Deadly / Удивительные ра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168900.jpgsave_picture_168900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168900.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:8D9B26EAEB30545DA37E7FC2FEEC00ACD4FF597C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168901.jpgsave_picture_168901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168901.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:EEB09CE7AAF889EDA251794D4B4D7F0D201DE79E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168902.jpgsave_picture_168902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168902.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:F65A8F4C939CA7B38E1A831E285CA819F812120A
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168903.jpgsave_picture_168903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168903.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:3859814FFB84F3F250524A3257BFD37AF9366760
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168904.jpgsave_picture_168904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168904.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:D930B77209943C848459C88C88EFDB1960389F4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168905.jpgsave_picture_168905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168905.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:BA38642BF0B10954B645F74B5D907F1A9979C5DC
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168906.jpgsave_picture_168906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168906.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ AIDA64 Extreme Edition  6.80.6226 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168907.jpgsave_picture_168907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168907.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ DxO PureRAW 2 for Mac v.2.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168908.jpgsave_picture_168908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168908.jpg" />
 </div>
 
 

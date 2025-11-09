@@ -6,7 +6,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239715.jpgsave_picture_239715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239715.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cran Arcanaria - Raging Raven (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239716.jpgsave_picture_239716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239716.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Java SE Development Kit 20.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239717.jpgsave_picture_239717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239717.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Sandboxie 5.64.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239718.jpgsave_picture_239718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239718.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Room Arranger 9.6.2.625 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239719.jpgsave_picture_239719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239719.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ John Lewis - Four Classic Albums Plus (1955 - 1957) 2CD, 2009, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239720.jpgsave_picture_239720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239720.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:5732A67787F53F7795FA62AFF3831ECBB79A09A0
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239721.jpgsave_picture_239721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239721.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Money Pro - Personal Finance 2.7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239722.jpgsave_picture_239722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239722.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3CEFFB47109CC7AEEFBD8C19529E07F1C2826351
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239723.jpgsave_picture_239723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239723.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Video Converter X2 for Mac 1.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239724.jpgsave_picture_239724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239724.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:8EE72F345ED0536DC8FB64B6C7749313FC5AB92B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239725.jpgsave_picture_239725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239725.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Terrifier - Trample the Weak, Devour the Dead (2023) [MP3|320 Kbps] <Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239726.jpgsave_picture_239726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239726.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:491B0374D5D676FA6D051E3FA76880C186523656
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239727.jpgsave_picture_239727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239727.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Wise Data Recovery Pro 6.1.3.495 RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239728.jpgsave_picture_239728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239728.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:EC95605F5E82DD0C03C4C693EC49BF17CA8FF141
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239729.jpgsave_picture_239729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239729.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:411DF09748FB1746182485A209F9D04E3E4F7F13
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239730.jpgsave_picture_239730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239730.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:08402823A4A8FD842C7663F56C6379C2B7074C17
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239731.jpgsave_picture_239731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239731.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Alien - Into The Future (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239732.jpgsave_picture_239732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239732.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Black Hawk - Soulkeeper (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239733.jpgsave_picture_239733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239733.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Trespass - Wolf At The Door (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239734.jpgsave_picture_239734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239734.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:6935EB021C7886429C16A34E7254C636E189F728
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239735.jpgsave_picture_239735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239735.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:A86B6D8D24F5DA61AB32D50A52B4C2C3639958C5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239736.jpgsave_picture_239736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239736.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:2E6D4B0451510228D0F0D42A07056D5D8DB732FD
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239737.jpgsave_picture_239737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239737.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Windows 10 Manager 3.6.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239738.jpgsave_picture_239738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239738.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:248F2FC0A9B2A4033D8A5CEAC93A0E43C474286E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239739.jpgsave_picture_239739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239739.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Smart Disk Image Utilities 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239740.jpgsave_picture_239740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239740.jpg" />
 </div>
 
 

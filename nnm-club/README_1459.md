@@ -6,7 +6,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38289.jpgsave_picture_38289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38289.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Woodscream - Коллекция (2008 - 2024) [MP3|320 Kbps] <Folk, Metal, Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38290.jpgsave_picture_38290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38290.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:CAAEE0C5B3AE659710C6ABAA179B8D2503CF1723
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38291.jpgsave_picture_38291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38291.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:FAC67DFC8655B2BBAE75364A4D5F936F05C2AF88
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38292.jpgsave_picture_38292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38292.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Alchemist: The Potion Monger (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38293.jpgsave_picture_38293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38293.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:77CE9A3ED05C76311D2FB6F3E6CA718A9FA06DA5
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38294.jpgsave_picture_38294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38294.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38295.jpgsave_picture_38295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38295.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Vision Divine - Studio Albums (9 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38296.jpgsave_picture_38296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38296.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:0C2A7313DF0C0AD47EB459EECD38503B0A76631F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38297.jpgsave_picture_38297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38297.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:BA4C7FB563FA768F4D77725339C898F64430178E
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38298.jpgsave_picture_38298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38298.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:9F8EB21FFBE5E42D7F75CD7F31B89B718E224663
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38299.jpgsave_picture_38299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38299.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:EC998062059CDA9E8E37D931DE27D1E51B2CD40E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38300.jpgsave_picture_38300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38300.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - In Search of Sunrise 20 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38301.jpgsave_picture_38301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38301.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:429F3ED633C0EE4345F3C9E9916E550F22E81277
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38302.jpgsave_picture_38302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38302.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:5839B42C5641ADDCA3A54B54D8230B2955D9AED5
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38303.jpgsave_picture_38303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38303.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:BD53BEA080DCA511C6251283B2395C849964EA37
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38304.jpgsave_picture_38304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38304.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ CRUELTY (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38305.jpgsave_picture_38305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38305.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Totally Spies! - Cyber Mission (2024) [Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38306.jpgsave_picture_38306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38306.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:8466F177F35B2134CC0A9D9F8EFD66D1B1C45230
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38307.jpgsave_picture_38307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38307.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Monster High Skulltimate Secrets (2024) [Multi] (1.12) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38308.jpgsave_picture_38308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38308.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (2.0.0-cs56908/dlc) Repack FitGirl [Complet
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38309.jpgsave_picture_38309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38309.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:19524C549F28BDF22EEE7189698D11EF0AC544C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38310.jpgsave_picture_38310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38310.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Barbie Project Friendship (2024) [Multi] (1.16) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38311.jpgsave_picture_38311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38311.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:578E1F97B9E3CFFB0FE640F0D6C2F0C0AB4E30AB
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38312.jpgsave_picture_38312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38312.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:696DD22FF4338D2238CF347D77A6538189A8FCB0
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38313.jpgsave_picture_38313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38313.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:2D3F9E16F33D9A6A17926EFD044CD4B7568F013D
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38314.jpgsave_picture_38314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38314.jpg" />
 </div>
 
 

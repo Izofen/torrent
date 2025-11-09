@@ -6,7 +6,7 @@ Big Wolf Band - Rebel's Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110087.jpgsave_picture_110087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110087.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:76F05E39DBA8991FE3F201BB848199A18748247D
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110088.jpgsave_picture_110088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110088.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Val Starr & the Blues Rocket - To the Blues and Back Again (2024) [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110089.jpgsave_picture_110089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110089.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dug Masters - Fantastic Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacewave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110090.jpgsave_picture_110090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110090.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Milk Men - Holy Cow! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110091.jpgsave_picture_110091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110091.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Willow - empathogen (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative pop, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110092.jpgsave_picture_110092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110092.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Keith Wallen - Infinity Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110093.jpgsave_picture_110093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110093.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Chill Out Vibes (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110094.jpgsave_picture_110094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110094.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Futurenow 2.0 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, C
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110095.jpgsave_picture_110095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110095.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ MaidaVale - Sun Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110096.jpgsave_picture_110096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110096.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:3947FDE27736FF6459BE978989BFE22F240811D7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110097.jpgsave_picture_110097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110097.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Top 8 April 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110098.jpgsave_picture_110098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110098.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Deep Six Blues - The Devil's Hand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110099.jpgsave_picture_110099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110099.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ VA - The Best Of Sounemot 2023 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110100.jpgsave_picture_110100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110100.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Yusef Lateef - Atlantis Lullaby: The Concert From Avignon (1972) 2CD, 2024, Elem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110101.jpgsave_picture_110101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110101.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A2AA487285DC8E080D54FB05B0FC9633980F4874
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110102.jpgsave_picture_110102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110102.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:486D5B14B882FDD6A5B8CEC33CAA34CBE88D8F63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110103.jpgsave_picture_110103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110103.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:486D5B14B882FDD6A5B8CEC33CAA34CBE88D8F63
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110104.jpgsave_picture_110104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110104.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Шансон премьера 2023 июнь (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110105.jpgsave_picture_110105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110105.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110106.jpgsave_picture_110106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110106.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Glen Campbell - Glen Campbell Duets: Ghost On The Canvas Sessions (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110107.jpgsave_picture_110107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110107.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я оказалась зл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110108.jpgsave_picture_110108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110108.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Takt Op.Destiny | Такт. Опус Дестини [2021, TV, 12 эп.] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110109.jpgsave_picture_110109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110109.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:09291F887E09322841AA168FCE4378E13C3196FA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110110.jpgsave_picture_110110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110110.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:EBFC986381B39770DB3BE4029C2D0DFF93610C6E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110111.jpgsave_picture_110111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110111.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:4F68C6154F72DFA631C4FF64510860C5009C5023
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110112.jpgsave_picture_110112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110112.jpg" />
 </div>
 
 

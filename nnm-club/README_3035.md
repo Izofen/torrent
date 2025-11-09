@@ -6,7 +6,7 @@ Dutch - A Bright Cold Day (2010) [MP3|320 кб/с]<Folk, Trip-Hop, Downtempo, In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95115.jpgsave_picture_95115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95115.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:69A6074DCA171D1C57DC2DC18127986DF524B3A2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95122.jpgsave_picture_95122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95122.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:1AFA7E05C1F426A6B898863105748273748995FA
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95127.jpgsave_picture_95127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95127.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:23185D5D43C689B13D7463FB656D3C6C62DA911B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95144.jpgsave_picture_95144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95144.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ National Geographic: Профессия - разрушитель / National Geog
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95154.jpgsave_picture_95154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95154.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95157.jpgsave_picture_95157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95157.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:C1BBE7D0FB9245538E7856411ED8A94721501A08
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95163.jpgsave_picture_95163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95163.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:D7328B93261628BD5878215C8037056597368484
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95171.jpgsave_picture_95171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95171.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Shaltu (2012) [MP3|320 кб/с]<Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95207.jpgsave_picture_95207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95207.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ VA - Straight Up Drum & Bass! (2012) [MP3|320 кб/с]<Drum'n'Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95224.jpgsave_picture_95224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95224.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ MegaTroll Media - All Music (2011-2012) [MP3|320 кб/с]<Troll Music>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95243.jpgsave_picture_95243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95243.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:815A75EAC5EA3D33455876EF64DC4DF481D6F2F3
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95265.jpgsave_picture_95265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95265.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:E160BF7B2DF663DC418BE6FC109DC4D6DFD44AB7
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95277.jpgsave_picture_95277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95277.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:2DF41AD75F56890B81D9D247F55BF07B4D206CC3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95281.jpgsave_picture_95281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95281.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:52FC1E705FA2C5C815648612C54A40BD57733C4D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95315.jpgsave_picture_95315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95315.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:7E3CB1900C759EEE0477F87A1294FD5615EFCD93
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95318.jpgsave_picture_95318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95318.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Xubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95324.jpgsave_picture_95324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95324.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:3FDE7CFE612E9D709BD5FF11E7CC2BDED50AED67
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95325.jpgsave_picture_95325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95325.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:50BF4523B8F839AB17857DA1AC762D3733CB1BFB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95329.jpgsave_picture_95329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95329.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:2183CF5262BFA8D470AFA57753267BBA69080D4C
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95343.jpgsave_picture_95343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95343.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:7057E22CFA9CF843DC4C77F2B6BB21309A524231
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95345.jpgsave_picture_95345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95345.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:7CD4B1DF1ECA584E8FA3A9D4AF53CB4267C96AA4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95363.jpgsave_picture_95363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95363.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:9C8D7A1D3F30A240A12C2696DAF849D83A0E4CCE
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95368.jpgsave_picture_95368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95368.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ NG: Суперсооружения древности / Ancient Megastructures (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95370.jpgsave_picture_95370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95370.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95409.jpgsave_picture_95409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95409.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95410.jpgsave_picture_95410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95410.jpg" />
 </div>
 
 

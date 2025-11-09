@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189135.jpgsave_picture_189135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189135.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:79B142C96E0FA0C435B22B0ED960D91534942A64
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189136.jpgsave_picture_189136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189136.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:950F0C819609C2960848A79703663A8C6CDA39BC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189137.jpgsave_picture_189137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189137.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CE165E3F361EB6371CCA63D86C136111B09D8896
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189138.jpgsave_picture_189138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189138.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189139.jpgsave_picture_189139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189139.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:677FA7B913C35F56A196DE9208E46B96B01582C4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189140.jpgsave_picture_189140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189140.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189141.jpgsave_picture_189141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189141.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:738A1D34026AAC6314AC0E10CA9A5E31911C7111
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189142.jpgsave_picture_189142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189142.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:6B51F20B7F907FE94CFC4A2C3438C436F20CFD3C
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189143.jpgsave_picture_189143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189143.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:332B8A1F3A166912477DF26C2688DEDE56C3AD91
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189144.jpgsave_picture_189144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189144.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:8526CD3E7DEBA0BA6E71BFEE4448D6ECC959A67D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189145.jpgsave_picture_189145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189145.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:6CFA2395B7DB964AD2D53AC709F3807BE8E3D172
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189146.jpgsave_picture_189146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189146.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:BE8735880D4E2D060E7A04307F785C33D6568505
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189147.jpgsave_picture_189147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189147.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:5D9EBA001F9D5B00E7388123E1E6F5DEF1D0BC19
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189148.jpgsave_picture_189148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189148.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Honeyview 5.51 Build 6240 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189149.jpgsave_picture_189149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189149.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Johnny Smith - The Complete Roost Johnny Smith Small Group Sessions (1952 - 1964
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189150.jpgsave_picture_189150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189150.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Living in a Box - Blow the House Down (1989) Single [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189151.jpgsave_picture_189151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189151.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:871CFF66D334BCE754E4004E0AF01CD9BE093BE2
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189152.jpgsave_picture_189152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189152.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:1B10C81B082E490946C7291F354F9AD25EAB651C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189153.jpgsave_picture_189153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189153.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:1398F1E2CF9B1029F883F1BA4DA728A15FEDA0F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189154.jpgsave_picture_189154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189154.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:1398F1E2CF9B1029F883F1BA4DA728A15FEDA0F0
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189155.jpgsave_picture_189155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189155.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Capital FM (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189156.jpgsave_picture_189156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189156.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Rook Road - Rook Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189157.jpgsave_picture_189157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189157.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6A2D177243B257004E7583DA62ABF2CFB08EE604
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189158.jpgsave_picture_189158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189158.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Munroe's Thunder - The Black Watch (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189159.jpgsave_picture_189159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189159.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ GPU-Z 2.55.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189160.jpgsave_picture_189160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189160.jpg" />
 </div>
 
 

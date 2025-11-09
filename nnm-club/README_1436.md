@@ -6,7 +6,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37691.jpgsave_picture_37691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37691.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ MasterQuest Fantasy (2024) [En] (1.0.5b) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37692.jpgsave_picture_37692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37692.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EF220DCDE6BC33D3E9328CD02E2DD973BD4E0E51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37693.jpgsave_picture_37693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37693.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:75E461651E556649C48BF0A33AE9D3FAD177AEEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37694.jpgsave_picture_37694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37694.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:D1DE4DB6258CF56464F960F17D5314855992E83E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37695.jpgsave_picture_37695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37695.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Zombie Flick / 僵尸快打 (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37696.jpgsave_picture_37696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37696.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Dystopika (2024) [Ru/Multi] (1.1.3+504) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37697.jpgsave_picture_37697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37697.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:11AF1946F89E8720A791AEF38C4C3311E44BF57B
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37698.jpgsave_picture_37698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37698.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:27DD1BACC9929052EE94292EB2303A267D5C9A5B
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37699.jpgsave_picture_37699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37699.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ PrivaZer Pro 4.0.95 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37700.jpgsave_picture_37700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37700.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:588D4350507BD7E39FA115BEACBF04490E72E123
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37701.jpgsave_picture_37701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37701.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:5B835200CD30A375BD450E2894FF3E14C8E77AB5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37702.jpgsave_picture_37702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37702.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A220DB909935FD44B95F2EC45C8AC5F2D3699A9A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37703.jpgsave_picture_37703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37703.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:40E2C61EBB5D4431FB864F2A30C2F6AFB509C262
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37704.jpgsave_picture_37704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37704.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:974E29DB1648D4B21737109FF46CEFF6D5FFC530
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37705.jpgsave_picture_37705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37705.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:17F5D5A5711915494F17051A62D66EFED29EFB4C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37706.jpgsave_picture_37706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37706.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Bus Simulator 21 Next Stop (2021) [Ru/Multi] (2.34) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37707.jpgsave_picture_37707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37707.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ USB Device Tree Viewer 4.4.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37708.jpgsave_picture_37708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37708.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:BFEB2A2C98B5838C7EEA7C1F5F702CD1B89D8900
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37709.jpgsave_picture_37709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37709.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Techtonica (2023) [Ru/Multi] (1.0.1c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37710.jpgsave_picture_37710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37710.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E8A626500C470AC9D08FE01348D2A528AE01DB55
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37711.jpgsave_picture_37711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37711.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9BE3C44501898B312D8E9ED4B7FC61A9705E01D6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37712.jpgsave_picture_37712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37712.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:E8345909372FB809242F41656E618D9BD1F74A92
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37713.jpgsave_picture_37713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37713.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37714.jpgsave_picture_37714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37714.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:93759C90A7DCCFA43F5226E19EA77EC0E7C96F6B
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37715.jpgsave_picture_37715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37715.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ GTA - Flame's Story (2024) [Ru/En] (1.7) Repack/Mod CTXMaps
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37716.jpgsave_picture_37716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37716.jpg" />
 </div>
 
 

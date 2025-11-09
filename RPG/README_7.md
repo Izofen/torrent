@@ -6,7 +6,7 @@ Forgotten Mines (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13494.jpgsave_picture_13494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13494.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13585.jpgsave_picture_13585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13585.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13615.jpgsave_picture_13615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13615.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13656.jpgsave_picture_13656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13656.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13724.jpgsave_picture_13724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13724.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Fallout 3 (2009) [Ru] (1.7.0.4/dlc) Repack EXROW [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13728.jpgsave_picture_13728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13728.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Svarog's Dream (2023) [En] (7.0.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13747.jpgsave_picture_13747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13747.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13764.jpgsave_picture_13764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13764.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13765.jpgsave_picture_13765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13765.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Yao-Guai Hunter (2023) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13770.jpgsave_picture_13770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13770.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13796.jpgsave_picture_13796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13796.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13798.jpgsave_picture_13798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13798.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Stolen Realm (2021) [Ru/Multi] (1.2.7/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13837.jpgsave_picture_13837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13837.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13861.jpgsave_picture_13861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13861.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Soulstone Survivors (2022) [Ru/Multi] (1.0f/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13921.jpgsave_picture_13921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13921.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Empire of Sin (2020) [Ru/Multi] (1.08.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13930.jpgsave_picture_13930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13930.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Cryptmaster (2024) [Multi] (1.112) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13935.jpgsave_picture_13935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13935.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Heads Will Roll: Reforged (2023) [Ru/En] (2.07b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13960.jpgsave_picture_13960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13960.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11166) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14074.jpgsave_picture_14074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14074.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ The Bard's Tale IV (4): Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Licen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14276.jpgsave_picture_14276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14276.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Prison Simulator (2021) [Ru/Multi] (1.4.3.18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14322.jpgsave_picture_14322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14322.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14471.jpgsave_picture_14471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14471.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14491.jpgsave_picture_14491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14491.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fort
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14542.jpgsave_picture_14542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14542.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14809.jpgsave_picture_14809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14809.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14889.jpgsave_picture_14889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14889.jpg" />
 </div>
 
 

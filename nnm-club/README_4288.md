@@ -6,7 +6,7 @@ GDS Project - Chess (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark-Electro, EBM, Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133089.jpgsave_picture_133089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133089.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Status Quo - Official Archive Series Vol. 2 (Live in London 2012) (2023) New Mix
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133091.jpgsave_picture_133091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133091.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rein - God Is A Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <EBM, Electro-Industr
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133093.jpgsave_picture_133093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133093.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kenny G - Innocence (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133095.jpgsave_picture_133095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133095.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C594527BD2964AA6C1389751E14EF75EECA647F5
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133096.jpgsave_picture_133096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133096.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:1027139B338803526A8ADAE4E9134F243BC0201A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133097.jpgsave_picture_133097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133097.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133099.jpgsave_picture_133099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133099.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Blissful Journey: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133101.jpgsave_picture_133101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133101.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:5C543F937D36EDDA2F83F2480505016E401DEE21
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133103.jpgsave_picture_133103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133103.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:772007727D9A531E04E1E0C43A09A22A76C14DE9
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133104.jpgsave_picture_133104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133104.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ EdgeView 4..4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133105.jpgsave_picture_133105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133105.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Britny Fox - Britny Fox (1988) Remaster, Expanded Edition, 2023,  SBCMG [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133106.jpgsave_picture_133106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133106.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:BE000B0D09EA90078EE059C7C0B849B4AD97A9D5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133108.jpgsave_picture_133108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133108.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - The Best Of House 2023 Part 4 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133109.jpgsave_picture_133109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133109.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Winsent Messenger 2.3.25 + Portable [English/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133111.jpgsave_picture_133111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133111.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133112.jpgsave_picture_133112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133112.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:5944BB768695F2D49FFDCAC5A22056ED29DBD84A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133114.jpgsave_picture_133114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133114.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Steely Dan - Gaucho (1980) Reissue, 2023, UMG [FLAC 24/192|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133115.jpgsave_picture_133115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133115.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133116.jpgsave_picture_133116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133116.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Bruce Springsteen - The Live Series: Songs on Keys (2023) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133117.jpgsave_picture_133117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133117.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - The Best Of Suanda Music 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133119.jpgsave_picture_133119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133119.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:A9BF95B8ADA3B8EE138F8E3DFB00CD5C98850881
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133120.jpgsave_picture_133120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133120.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133121.jpgsave_picture_133121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133121.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:96AA8A1522AFB0E1210C0AEBD725D71AB81BF202
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133123.jpgsave_picture_133123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133123.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Elvis Presley - If Every Day Was Like Christmas (1994) [FLAC|Lossless]<Rock, Bal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133124.jpgsave_picture_133124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133124.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - The Best Of Suanda Future (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133125.jpgsave_picture_133125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133125.jpg" />
 </div>
 
 

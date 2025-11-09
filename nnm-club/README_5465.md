@@ -6,7 +6,7 @@ Knobs - Discography 14 Releases (2009-2016) Nachtstrom Schallplatten [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169017.jpgsave_picture_169017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169017.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Loqiemean - Пов3стка (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169018.jpgsave_picture_169018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169018.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:85A9C812D57B4AFA3816BF0E548B5F040A0B84C2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169019.jpgsave_picture_169019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169019.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 26) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169020.jpgsave_picture_169020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169020.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Jacopo Pausa - My Favourite Colour Is Blues (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169021.jpgsave_picture_169021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169021.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:56D1123883AEDC66A7C26C1E866AEED2C1D95FB7
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169022.jpgsave_picture_169022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169022.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:66C7AB1BFC5828A0871DAB810176E1FAE5C7E13A
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169023.jpgsave_picture_169023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169023.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ BetterTouchTool 3 v3.213 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169024.jpgsave_picture_169024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169024.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:F38F6883407FAC2E6BDD34EA7ED1B07545E6580F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169025.jpgsave_picture_169025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169025.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ HiBit Uninstaller 3.0.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169026.jpgsave_picture_169026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169026.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Goa Psy Trance - The Hits 2024 (2023) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169027.jpgsave_picture_169027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169027.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:03D8EF62697BD2F09408BA49EB5CE5E1E7957CE6
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169028.jpgsave_picture_169028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169028.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ CherryPlayer 3.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169029.jpgsave_picture_169029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169029.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Mozilla Thunderbird 68.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169030.jpgsave_picture_169030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169030.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:D11452078F54E4B2961C31557CCAD51AE9749651
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169031.jpgsave_picture_169031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169031.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:85DC225DF972D5FC9E435056259C3941986615C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169032.jpgsave_picture_169032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169032.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169033.jpgsave_picture_169033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169033.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Wondershare PDFelement 12.0.7.3749 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169034.jpgsave_picture_169034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169034.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:1F061C91BFDC91DBE4FFF91AB22C13EEDA35D3EC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169035.jpgsave_picture_169035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169035.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:E079DD55CB3CF4BF0445DE5823B0F2374FA4DAA5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169036.jpgsave_picture_169036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169036.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ The Flaming Mudcats - Forever and A Day (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169037.jpgsave_picture_169037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169037.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:A234E550CBEB0BBF33098D5D216F0C3E00398946
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169038.jpgsave_picture_169038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169038.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:20FBF779D3CDD57722ED49ED5B8340C90C63FD0B
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169039.jpgsave_picture_169039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169039.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:B93720A4DC00B93F71843706F72621A308F91C7F
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169040.jpgsave_picture_169040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169040.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:1390C712C4415E58D7EBC4C91D5E3E94799B9CF1
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169041.jpgsave_picture_169041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169041.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Calibre 5.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169042.jpgsave_picture_169042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169042.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MediaHuman YouTube Downloader 3.9.9.81 (1605) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234097.jpgsave_picture_234097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234097.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Electronic Clouds, Vol. 2 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234098.jpgsave_picture_234098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234098.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:8BCF47E0FC5766A4D6BAA480B871A8813E5F64E6
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234099.jpgsave_picture_234099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234099.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ RTG. Путешествие на Соловецкие острова (2012) HDTV
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234100.jpgsave_picture_234100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234100.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Satan's Host - This Legacy Will Never Die (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234101.jpgsave_picture_234101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234101.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Jake Stack & The Unincorporated - Heavy Is the Head (2023) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234102.jpgsave_picture_234102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234102.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:AB738BF5993F96DC797BB4B406C7448ECAF1BF99
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234103.jpgsave_picture_234103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234103.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Smooth Jazz n Chill 3 (2018) [AAC|~310 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234104.jpgsave_picture_234104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234104.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Professional Recorder & Editor 6.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234105.jpgsave_picture_234105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234105.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY: Ледяная импери
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234106.jpgsave_picture_234106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234106.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Maxthon Browser 7.0.2.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234107.jpgsave_picture_234107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234107.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:562E24303C111FA95B5B1D3B69B52B7B2BECA2EF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234108.jpgsave_picture_234108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234108.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Bulk Image Downloader 6.24.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234109.jpgsave_picture_234109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234109.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Sideless - Choose the Way (2022) [MP3|320 Kbps] <Heavy Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234110.jpgsave_picture_234110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234110.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:5F6F33D9F016E5D95820CF1E82945DEC906979D2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234111.jpgsave_picture_234111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234111.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bill Heid - Dealin' Wid It (2022) Savant [FLAC|Lossless|tracks + .cue] <Soul-Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234112.jpgsave_picture_234112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234112.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Tilintetgjort - In Death I Shall Arise (2023) [FLAC|Lossless|WEB-DL|tracks] <Ava
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234113.jpgsave_picture_234113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234113.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Microsoft Windows 10.0.19043.2006, Version 21H1 (Updated September 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234114.jpgsave_picture_234114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234114.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Summer Pop 100 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234115.jpgsave_picture_234115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234115.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Smooth Jazz n Chill 5 (2020) [AAC|~347 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234116.jpgsave_picture_234116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234116.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Slomatics & Domkraft - Ascend/Descend (2022) Split [MP3|320 Kbps] <Psychedelic S
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234117.jpgsave_picture_234117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234117.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Vangelis - Nocturne (2019) [FLAC|Lossless|WEB-24Bit] <New Age, Classical Crossov
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234118.jpgsave_picture_234118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234118.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Summer Megamix 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234119.jpgsave_picture_234119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234119.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:A62A5C3B60E8DB0638C1E9FA67837584A48EE0BA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234120.jpgsave_picture_234120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234120.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Pro Microphone: Audio Recorder 1.4.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234121.jpgsave_picture_234121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234121.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Raptor King - Omnivoracious (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234122.jpgsave_picture_234122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234122.jpg" />
 </div>
 
 

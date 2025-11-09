@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71938.jpgsave_picture_71938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71938.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:890A08B7429F6BC536E06F854E2F67ED68517592
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71939.jpgsave_picture_71939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71939.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0B31438B6731E0648CDD1D8646AB37D7BC4802BD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71940.jpgsave_picture_71940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71940.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Trance - Charted Only (Winter Edition), Vol. 1 (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71941.jpgsave_picture_71941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71941.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:7FDA8ABB487F3250C879E8450E205A531BCEF5AB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71942.jpgsave_picture_71942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71942.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Lord Agheros - Anhedonia (2025) [FLAC|Lossless|WEB-DL|tracks] <Italian ambient b
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71943.jpgsave_picture_71943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71943.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Armin van Buuren - A State Of Trance 1206 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71944.jpgsave_picture_71944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71944.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ VA - Raw Deep Hypnotic Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71945.jpgsave_picture_71945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71945.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:EE1E9F2BF005ACEB3253179D4B302296A0860414
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71946.jpgsave_picture_71946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71946.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:2EF0992577346AA2E6E6491D871D78DA14E209C9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71947.jpgsave_picture_71947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71947.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Soultide - Deep Blue Reverie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71948.jpgsave_picture_71948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71948.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Code Cowboy - Bootleg Ballads (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71949.jpgsave_picture_71949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71949.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Gina and Johnny - Free your Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71950.jpgsave_picture_71950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71950.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:626A08077DE218EBD2857539893271A51F766D2F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71951.jpgsave_picture_71951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71951.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:C5C08900DB167BE5029DE5AB1052982B9FBC15B1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71952.jpgsave_picture_71952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71952.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Paleface Swiss - Cursed (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Metalco
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71953.jpgsave_picture_71953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71953.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Canaan - Some last echo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Doom 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71954.jpgsave_picture_71954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71954.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Lord Spikeheart - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71955.jpgsave_picture_71955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71955.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Ultima Audio: Essentials 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71956.jpgsave_picture_71956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71956.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:D1856D4023DD3EAB83E5EEA6CD384236563F31A1
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71957.jpgsave_picture_71957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71957.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:5C6C96AB9224C8C64D413CE35B3317F9A1F090EA
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71958.jpgsave_picture_71958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71958.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Subway To Sally - Post Mortem (2024) (Deluxe Version) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71959.jpgsave_picture_71959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71959.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71960.jpgsave_picture_71960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71960.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Until I Wake - Renovate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71961.jpgsave_picture_71961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71961.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:A3194D61CB813BF6621EF98E7F64831B7BC07C6D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71962.jpgsave_picture_71962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71962.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:BBD80B4D4F57BE405BC145AFDC5A2CB4F57FED04
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71963.jpgsave_picture_71963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71963.jpg" />
 </div>
 
 

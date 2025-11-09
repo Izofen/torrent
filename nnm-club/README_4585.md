@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143515.jpgsave_picture_143515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143515.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:405AB0AC777896ADA8160306DD687D1ACFF6FC8E
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143516.jpgsave_picture_143516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143516.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:8154EF30352DD875DAACED94AC8234EBFAEEFD3D
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143518.jpgsave_picture_143518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143518.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:BEB2ACB632D85393D80A27BC7CEC8B14D888832A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143519.jpgsave_picture_143519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143519.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143520.jpgsave_picture_143520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143520.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:7BF1FE95DBFD7983A1F5152D72B6AF3D7AA74E0A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143521.jpgsave_picture_143521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143521.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8740CEE8AD027AACC016A67651B5E56FE7B86762
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143522.jpgsave_picture_143522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143522.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:64D7570EF625928B8398DDE34C2F288A7D2DDB95
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143524.jpgsave_picture_143524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143524.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:3BA438EC1C6A4BEF396E5368D7D64F9850AF2566
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143525.jpgsave_picture_143525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143525.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Viber 21.4.0.0 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143526.jpgsave_picture_143526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143526.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:25F32CCB4FA2F36B3854B22571B5FA0E9787507D
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143527.jpgsave_picture_143527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143527.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:C13437B54E45CD777C1B385110E13FDB5B391036
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143528.jpgsave_picture_143528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143528.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Return to Castle Wolfenstein (2001) [En/Ge] (1.41) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143529.jpgsave_picture_143529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143529.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ MediaHuman YouTube Downloader 3.9.9.51 (1412) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143530.jpgsave_picture_143530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143530.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:74B74F95D85601D77B101A792E1283C6B43283AC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143532.jpgsave_picture_143532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143532.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:3437F9C7445E9F3E013F2C9885FB51CAC8A86528
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143533.jpgsave_picture_143533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143533.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:D344C59AD8DFD2094CEA0AFE473CB714A37EA7A3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143535.jpgsave_picture_143535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143535.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:CFB163553B9097709FC9F35A3F7FC409C9ECCA49
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143537.jpgsave_picture_143537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143537.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epi
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143538.jpgsave_picture_143538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143538.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:8A90AD8805A238A07F739DAAED49E0E3D71740F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143539.jpgsave_picture_143539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143539.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:FAC6939521FEE105383ECBA1FFACA0763B6B5CA4
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143541.jpgsave_picture_143541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143541.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:30F2F14B2C1F9F674CE9BE133ADC758B67846341
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143542.jpgsave_picture_143542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143542.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:99B057ED7ED77865B61BC19282708F89EC9C15AC
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143543.jpgsave_picture_143543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143543.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:AFB71617DD4A39454CF24EEB4A95758EE8229829
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143544.jpgsave_picture_143544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143544.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:CC63AC9F3774ED390194C6D249D062E5918931D0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143546.jpgsave_picture_143546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143546.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ AnyMP4 Mac Blu-ray Ripper 8.2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143547.jpgsave_picture_143547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143547.jpg" />
 </div>
 
 

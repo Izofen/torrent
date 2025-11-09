@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185492.jpgsave_picture_185492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185492.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Blowmind - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185495.jpgsave_picture_185495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185495.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ DCommander 3 Premium v3.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185496.jpgsave_picture_185496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185496.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Do Your Data Recovery Professional 7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185499.jpgsave_picture_185499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185499.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Applehead - The Light Side Of The Apple (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185500.jpgsave_picture_185500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185500.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Riccardo D'attis - The Right Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185504.jpgsave_picture_185504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185504.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Final Gasp - Mourning Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185507.jpgsave_picture_185507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185507.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Shawn Pittman & Jay Moeller - Straight Blues From Crooked Fools (2020) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185508.jpgsave_picture_185508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185508.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:21D33A193F9431C820D1A730E0415178238925A3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185509.jpgsave_picture_185509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185509.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Symphorce - Godspeed (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185512.jpgsave_picture_185512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185512.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Saltwound - In the Shadow of the Valley of Death (2023) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185513.jpgsave_picture_185513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185513.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Troll - Collection (1995 - 2010) 5 CD [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185514.jpgsave_picture_185514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185514.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ West Alley - A Night To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185517.jpgsave_picture_185517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185517.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Virgin Snatch - In The Name Of Blood (2006) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185518.jpgsave_picture_185518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185518.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:051093CEE088F26ADB48BFCC63BD0CE994BD3DAE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185519.jpgsave_picture_185519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185519.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Bio-Cancer - Revengeance (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185522.jpgsave_picture_185522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185522.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Permute 3 v3.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185523.jpgsave_picture_185523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185523.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Otus - Torch (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185524.jpgsave_picture_185524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185524.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Barrence Whitfield & The Savages - Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185526.jpgsave_picture_185526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185526.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:06D777C6D06D54E90BF1C00408BBAD93E9B4A52A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185527.jpgsave_picture_185527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185527.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:9735BB9B9FD7FDC828578CA80078D064932DFE3C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185528.jpgsave_picture_185528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185528.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Viscerate - Everybody Dies (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185530.jpgsave_picture_185530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185530.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ The Real McKenzies - Songs of the Highlands, Songs of the Sea (2022) [FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185532.jpgsave_picture_185532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185532.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Prospective - Haunt Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185533.jpgsave_picture_185533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185533.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:555FFBDB5A86952DBA497504A3B7C20C02C3C56E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185535.jpgsave_picture_185535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185535.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Ataraxie - The Other Path (2003) Demo [FLAC|Lossless|image + .cue] <Funeral Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185536.jpgsave_picture_185536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185536.jpg" />
 </div>
 
 

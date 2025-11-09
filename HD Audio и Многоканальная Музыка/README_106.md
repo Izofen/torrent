@@ -6,7 +6,7 @@ Toby Lee - House On Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103857.jpgsave_picture_103857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103857.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eric Clapton - Meanwhile (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103864.jpgsave_picture_103864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103864.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kant - Paranoia Pilgrimage (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103876.jpgsave_picture_103876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103876.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Soul Asylum - Slowly But Shirley (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103880.jpgsave_picture_103880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103880.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Wayback Machine - Future History (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103882.jpgsave_picture_103882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103882.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ JD McPherson - Nite Owls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103883.jpgsave_picture_103883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103883.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Randall Bramblett - Paradise Breakdown (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103884.jpgsave_picture_103884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103884.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Glorious Bankrobbers - Rock'n'Roll Church (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103885.jpgsave_picture_103885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103885.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Morgana Lefay (a.k.a. Lefay) - Studio Albums (10 releases) (1993-2007) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103886.jpgsave_picture_103886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103886.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sleeper's Keep - Tales Beyond the Past (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103887.jpgsave_picture_103887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103887.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Walter Smith III - three of us are from Houston and Reuben is not (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103889.jpgsave_picture_103889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103889.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Heart 2 Heart - Alley of Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103894.jpgsave_picture_103894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103894.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bad Love Junkie - The Fool Is On The Ledge (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103900.jpgsave_picture_103900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103900.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Helloween - The Time of the Oath (1996) Remastered, 2024, Sanctuary Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103907.jpgsave_picture_103907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103907.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Helloween - Metal Jukebox (1999) Remastered, 2024, Sanctuary Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103909.jpgsave_picture_103909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103909.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Thomas Stieger - Choices (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103917.jpgsave_picture_103917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103917.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bound To B - Here I am! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103918.jpgsave_picture_103918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103918.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:9A9EC8BB17A369E53D8E140A71E9601FE8F071F8
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103919.jpgsave_picture_103919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103919.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Lyberarchelulo - WyndSpring (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103920.jpgsave_picture_103920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103920.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Joe Spencer - Mistakespeare (2024) [FLAC 24/48, 24/96|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103925.jpgsave_picture_103925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103925.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ The Name Droppers - Starshine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103926.jpgsave_picture_103926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103926.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ The Eric Mathews Band - Doc's Blues : An Appreciation of Mike Westbrook (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103928.jpgsave_picture_103928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103928.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103948.jpgsave_picture_103948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103948.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Serious Black - Studio Albums (7 releases) (2015-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103951.jpgsave_picture_103951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103951.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The Gapp Project - 'Atmos Sphere' (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103957.jpgsave_picture_103957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103957.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Jade Macrae - In My Veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103967.jpgsave_picture_103967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103967.jpg" />
 </div>
 
 

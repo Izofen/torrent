@@ -6,7 +6,7 @@ Battlemaster - Greedgripped & Spellspoilt (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140612.jpgsave_picture_140612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140612.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DCB7DFFE937205742D53EC686C6853403CCC0C56
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140613.jpgsave_picture_140613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140613.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Greta Van Fleet - From The Fires (2017) [AAC|~330 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140615.jpgsave_picture_140615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140615.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AudioGrail 7.10.0.213 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140617.jpgsave_picture_140617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140617.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ OBS Multiplatform 0.12.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140618.jpgsave_picture_140618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140618.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Tuner - experience YouTube music 3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140619.jpgsave_picture_140619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140619.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:78B1BBEC9D719A3630CB31C54DDB2B0E3CC4493E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140620.jpgsave_picture_140620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140620.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:EC18C25A4DB71A39CD7F398E26EE9CC424C9E6E7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140621.jpgsave_picture_140621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140621.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ MZed, Ollie Kenchington | Углубленное изучение и овлад�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140622.jpgsave_picture_140622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140622.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Phil Woods, Tommy Flanagan, Red Mitchell - Three For All (1981) 1989, Enja Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140624.jpgsave_picture_140624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140624.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:1176AD92CAFB77028F9D1E131291E0599DEB9E18
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140626.jpgsave_picture_140626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140626.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:B98225875E73A5B3EB53DFA6F04672424C943ECE
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140627.jpgsave_picture_140627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140627.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:B9D27889F1E4A364D88C64118D7E3E5A0936E954
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140628.jpgsave_picture_140628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140628.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Michael Forster - Christmas Piano Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140629.jpgsave_picture_140629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140629.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:645E8C63AF497CEE7999F5245F14A5488F015AC2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140631.jpgsave_picture_140631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140631.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:097B8BAAF0FFCC71F860E6F8968CBFA89945D036
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140632.jpgsave_picture_140632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140632.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:6716388893D030BB5044EB9F76935554F99E6B07
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140633.jpgsave_picture_140633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140633.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:EDD287EE57859905AF114891BE92EC0B0175E3D4
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140635.jpgsave_picture_140635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140635.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ ReviverSoft Driver Reviver 5.27.0.22 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140636.jpgsave_picture_140636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140636.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - Romantic Collection Gold (2002) [MP3|192 кб/с] <Jazz, Blues, Guitar Musi
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140638.jpgsave_picture_140638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140638.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:E5AC96C7F6807377142CE09DA50D686F2808F1DB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140639.jpgsave_picture_140639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140639.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:007F97D3213C3FFA8C3BBBCFBCBF8031BD3AE3F2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140640.jpgsave_picture_140640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140640.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:05F6E68F20BA628B411F1EF9AC103FFF3DD27709
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140641.jpgsave_picture_140641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140641.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Computer Desktop Wallpapers Collection (17.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140642.jpgsave_picture_140642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140642.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ SamDrivers 19.12 OLD - Сборник драйверов для Windows [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140643.jpgsave_picture_140643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140643.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ FileZilla 3.29.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140644.jpgsave_picture_140644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140644.jpg" />
 </div>
 
 

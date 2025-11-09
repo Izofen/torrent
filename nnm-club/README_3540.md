@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112414.jpgsave_picture_112414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112414.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:502FF351C4FCC9DF1D624A34241C6558360BE1B4
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112415.jpgsave_picture_112415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112415.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ OneCommander Pro 3.73.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112416.jpgsave_picture_112416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112416.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SyncBird Pro 4.0.14 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112417.jpgsave_picture_112417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112417.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:2661127DDB313987CB9C67BB02F2A35634D0C44D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112418.jpgsave_picture_112418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112418.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:FB72570AC0F1CF7911413C9E8816F7919087F0CE
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112419.jpgsave_picture_112419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112419.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ The Unseen Fears 6: Fortunes Consequence / Невидимые страхи 6: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112420.jpgsave_picture_112420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112420.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:1142ABCBFAA27FCDE04B5CDE18EE4DFFBC676D3C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112421.jpgsave_picture_112421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112421.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:D20CB56DF63F416CCEA82BB188D70F292F41BCD2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112422.jpgsave_picture_112422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112422.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Omni Recover 3.6.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112423.jpgsave_picture_112423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112423.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ MUSYNX (2018) [Multi] (1.0/dlc) Scene PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112424.jpgsave_picture_112424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112424.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Auto blur: Авторазмытие v2.6.7 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112426.jpgsave_picture_112426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112426.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Anyma - Genesys II (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112427.jpgsave_picture_112427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112427.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Laserdance - Mission Hyperdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112428.jpgsave_picture_112428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112428.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ PrivaZer Pro 4.0.84 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112429.jpgsave_picture_112429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112429.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Valentina Studio Pro 13.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112430.jpgsave_picture_112430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112430.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ OfficeSuite Pro + PDF 14.3.51316 Extra Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112431.jpgsave_picture_112431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112431.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:DB61D6916216B8B8237D198FEFC74D568617E216
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112432.jpgsave_picture_112432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112432.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:6304F3A1332F4A6FE6606CF97FB0F4037B225D66
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112433.jpgsave_picture_112433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112433.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:FE4ED52A260A35B4CA5429A9382A64081A9C69DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112434.jpgsave_picture_112434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112434.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Mop Mop - Ritual Of The Savage (2010) [FLAC|Lossless|image + .cue] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112435.jpgsave_picture_112435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112435.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Mop Mop - Lunar Love (2016) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112436.jpgsave_picture_112436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112436.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:FF8C3AB632676B09B0890979F19FE1968B2B15B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112437.jpgsave_picture_112437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112437.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:C17F3F39B6A84C8277E8C08F20584D7BC749C62A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112438.jpgsave_picture_112438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112438.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:2A7FE8C3A79F2B0A7E95595A1C962EF75D5C50A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112439.jpgsave_picture_112439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112439.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:ECF1F600ED03F7B8648BE30B12031455A240A3DA
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112440.jpgsave_picture_112440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112440.jpg" />
 </div>
 
 

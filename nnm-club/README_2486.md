@@ -6,7 +6,7 @@ Steve Angello - Live @ Ibiza Global Festival, Spain (2025-07-05) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65386.jpgsave_picture_65386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65386.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Oliver Heldens - Live  @ Marquee Skydeck, The Edge NYC, United States (2025-06-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65387.jpgsave_picture_65387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65387.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:3172B37F0B733E7879BD73E426523916F73F3C2E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65388.jpgsave_picture_65388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65388.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Red Mitchell - Red Mitchell (1955) 1999, Bethlehem [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65389.jpgsave_picture_65389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65389.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Death Heaven - Techno Decomposition World (2005) (Demo) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65390.jpgsave_picture_65390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65390.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sam Jones - The Bassist! (1979) 2006, M&I [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65391.jpgsave_picture_65391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65391.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Devilskin - Re-Evolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65392.jpgsave_picture_65392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65392.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Ori Uplift - Uplifting Only Episode 648 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65393.jpgsave_picture_65393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65393.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:9B39BB6022D1DA6BDE6E10A853EF482CF30372D0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65394.jpgsave_picture_65394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65394.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:7A3E4B2FF94637FE43C803400A4E1DC0CEDC3C67
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65395.jpgsave_picture_65395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65395.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:10CC086707569A0BB0B5E9AA0177FFA951EA76ED
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65396.jpgsave_picture_65396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65396.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:87224A349E7C7BD3F062853978A9E31382666001
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65397.jpgsave_picture_65397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65397.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:E5C219C25A748F03A7C59395BF16B2E34A9A6A88
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65398.jpgsave_picture_65398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65398.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:37A9E45FEBE8DE38A6D17F70CEFDCF82D55E4704
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65399.jpgsave_picture_65399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65399.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:4E82497B7F4D565D8216F6AE67F07EF38FBE30BE
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65400.jpgsave_picture_65400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65400.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:6609447A1D15AEE9E8FA7517CF9F3351EED8647B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65401.jpgsave_picture_65401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65401.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Armin van Buuren - A State Of Trance 1233 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65402.jpgsave_picture_65402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65402.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Trance Fusion, Vol. 11 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65403.jpgsave_picture_65403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65403.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:336768DEB7F88A1B215C40348767C5C210843C31
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65404.jpgsave_picture_65404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65404.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Boguslaw Balcerak's Crylord - Lost Bloody Heroes (2025) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65405.jpgsave_picture_65405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65405.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Philosophobia - The Constant Void (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65406.jpgsave_picture_65406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65406.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Kohl's Cares For Kids: Songs Of The Season 2001 (2001) CD, Compilation [FLA
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65407.jpgsave_picture_65407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65407.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ John Denver - Windsong (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Soft Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65408.jpgsave_picture_65408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65408.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Jorum - Vortex of Madness (2025) [MP3|320 Kbps] <Heavy, Doom Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65409.jpgsave_picture_65409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65409.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:95411BF2C80AFD16546417E13CEE67E14E327493
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65410.jpgsave_picture_65410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65410.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ magnet:?xt=urn:btih:B52E649E9BEF21D1B9E2A8729FB9733190754C49
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65411.jpgsave_picture_65411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65411.jpg" />
 </div>
 
 

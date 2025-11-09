@@ -6,7 +6,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132989.jpgsave_picture_132989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132989.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2E3111BC36D315B7AC0A570B33E2C65C8942DFE3
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132990.jpgsave_picture_132990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132990.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Legend of Grimrock [En] (L/1.3.6) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132992.jpgsave_picture_132992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132992.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ AirReceiver AirPlay Cast DLNA v5.0.6 Mod by Alex.Strannik [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132994.jpgsave_picture_132994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132994.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:CAB84E9ECBB8F58DB47E0012743A94A64C0994D1
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132995.jpgsave_picture_132995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132995.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:22222B6E0D0B3476C5F1DB7CCBE46ABA15A31CA0
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132996.jpgsave_picture_132996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132996.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ OmniReader Pro for Mac 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132997.jpgsave_picture_132997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132997.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Teorex Inpaint 10.2.3 Portable by Spirit Summer [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132998.jpgsave_picture_132998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132998.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:73CB3A0E31370872E58EABE1ED75131CAC82AEE0
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132999.jpgsave_picture_132999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132999.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:73CB3A0E31370872E58EABE1ED75131CAC82AEE0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133000.jpgsave_picture_133000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133000.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Baldur's Gate: Dark Alliance II [PS2] [English] [PAL] (2004)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133001.jpgsave_picture_133001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133001.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Bass Boosted Car Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133002.jpgsave_picture_133002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133002.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Hinder - 5 альбомов (2003-2012) Дискография [FLAC|Losless] <H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133003.jpgsave_picture_133003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133003.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Hinder - 5 альбомов (2003-2012) Дискография [FLAC|Losless] <H
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133004.jpgsave_picture_133004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133004.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:F6AA428FD06E8C7D83F147C9343F37D53E2176B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133006.jpgsave_picture_133006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133006.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:B26420275D6A6FBF2AD4F9A28E9B86F78470A29F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133008.jpgsave_picture_133008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133008.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:AF6DE775DE41E3E27FA0E7B60BB0EA1E623920F1
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133009.jpgsave_picture_133009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133009.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Paul Lidel’s Scream Therapy - Paul Lidel’s Scream Therapy (2023) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133010.jpgsave_picture_133010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133010.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Chicane - The Greatest Misses (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Hous
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133012.jpgsave_picture_133012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133012.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:F4B46BCF5A66B283F744E10E41965AA44BB461EE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133013.jpgsave_picture_133013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133013.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ iA Writer 7.0.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133014.jpgsave_picture_133014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133014.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Jazzamor - 6 Альбомов (2002 - 2011) [MP3|320 кб/с]<Jazz Lounge>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133015.jpgsave_picture_133015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133015.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Bazanova Art, Ольга Базанова | Тёплые пейзажи. Тар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133016.jpgsave_picture_133016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133016.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:5DB297B0188C30AA682D002A4C1D8035A75DBB35
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133017.jpgsave_picture_133017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133017.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Armada Music - 20 Years (Remixed) (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133018.jpgsave_picture_133018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133018.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Baldur's Gate: Dark Alliance [GameCube] [English] [NTSC] (2002)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133019.jpgsave_picture_133019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133019.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Diablo: Hellfire - The Hell 2 (2019) [En] (1.2504) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191189.jpgsave_picture_191189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191189.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193466.jpgsave_picture_193466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193466.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194136.jpgsave_picture_194136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194136.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194927.jpgsave_picture_194927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194927.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194929.jpgsave_picture_194929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194929.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194991.jpgsave_picture_194991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194991.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195091.jpgsave_picture_195091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195204.jpgsave_picture_195204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195204.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195241.jpgsave_picture_195241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195241.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195511.jpgsave_picture_195511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195511.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195565.jpgsave_picture_195565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195565.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195688.jpgsave_picture_195688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195688.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ European Air War (1998) [En] (1.20) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195703.jpgsave_picture_195703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195703.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195737.jpgsave_picture_195737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195737.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195891.jpgsave_picture_195891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195891.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196018.jpgsave_picture_196018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196018.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196051.jpgsave_picture_196051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196051.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196123.jpgsave_picture_196123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196123.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Velaya - Geschichte einer Kriegerin / Велая - сказание о воит�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196131.jpgsave_picture_196131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196131.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196461.jpgsave_picture_196461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196461.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196908.jpgsave_picture_196908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196908.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Veil of Darkness (1993) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197372.jpgsave_picture_197372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197372.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ An Elder Scrolls Legend: Battlespire (1997) [En] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197385.jpgsave_picture_197385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197385.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197402.jpgsave_picture_197402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197402.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198400.jpgsave_picture_198400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198400.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199748.jpgsave_picture_199748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_199748.jpg" />
 </div>
 
 

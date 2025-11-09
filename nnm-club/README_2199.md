@@ -6,7 +6,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57541.jpgsave_picture_57541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57541.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:25F446D9EFE3549D7508AE0ABEFFF1F8DBAA1228
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57542.jpgsave_picture_57542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57542.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:25F446D9EFE3549D7508AE0ABEFFF1F8DBAA1228
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57543.jpgsave_picture_57543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57543.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ CLO Standalone 7.3.240.46861 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57544.jpgsave_picture_57544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57544.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:266DD2768BEB84B32EDD5BABA7D7828AB991A9FD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57545.jpgsave_picture_57545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57545.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Product University | Антистартап (2024) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57546.jpgsave_picture_57546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57546.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Internet Download Manager 6.42 Build 10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57547.jpgsave_picture_57547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57547.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:92D7E3771FAC1F530B943F0F518C7BB4E78CBFC2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57548.jpgsave_picture_57548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57548.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:EA10C7DA23D1B750BB528507E5A61899E4767FFE
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57549.jpgsave_picture_57549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57549.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:EA10C7DA23D1B750BB528507E5A61899E4767FFE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57550.jpgsave_picture_57550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57550.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57551.jpgsave_picture_57551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57551.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Topaz Mask AI 1.3.9 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57552.jpgsave_picture_57552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57552.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Microsoft Edge 124.0.2478.80 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57553.jpgsave_picture_57553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57553.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:84A479EB86E4D3AAA6C2F3F7306D2AF57BE55AE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57554.jpgsave_picture_57554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57554.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ DevEducation | Курс Frontend 2.0  (2022 -2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57555.jpgsave_picture_57555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57555.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Avril Lavigne - 6 альбомов (2002-2007) [FLAC|Lossless] <Pop-Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57556.jpgsave_picture_57556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57556.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Bryan Ferry - Discography (1973..2009) [MP3|320 kbps]<Rock, Glam Rock, Art Rock,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57557.jpgsave_picture_57557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57557.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Product University | UX/UI Design. Дизайнер интерфейсов  (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57558.jpgsave_picture_57558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57558.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:128993A4F9877FE7BB4DBFA1847C509E471A8D3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57559.jpgsave_picture_57559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57559.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Marvelous Designer Personal 2024.0.125.47553 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57560.jpgsave_picture_57560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57560.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:81364A053B4FB404E9C5C2F2C647D13322642DDD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57561.jpgsave_picture_57561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57561.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:5CF9532DB00C584E5FE625AA0757CEDAB321EBCD
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57562.jpgsave_picture_57562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57562.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:F8F4544CFA2D34A65AAEC3ECD9ED614CC90C9CF0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57563.jpgsave_picture_57563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57563.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E66DB0A3D095B2097657F4D79AB0976402CFCC16
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57564.jpgsave_picture_57564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57564.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:49D3EA38129675665DF8013A5D859807C012F4C3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57565.jpgsave_picture_57565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57565.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Boney M - Hit Story (2010) 4CD Set Sony Music [FLAC|Lossless]<Disco / Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57566.jpgsave_picture_57566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57566.jpg" />
 </div>
 
 

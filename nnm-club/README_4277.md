@@ -6,7 +6,7 @@ Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132721.jpgsave_picture_132721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132721.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132723.jpgsave_picture_132723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132723.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Kings Crown - Closer To The Truth (2023) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132725.jpgsave_picture_132725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132725.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Nitrate - Feel The Heat (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132727.jpgsave_picture_132727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132727.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Xtrueder - Забытая Станция (2023) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132728.jpgsave_picture_132728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132728.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ magnet:?xt=urn:btih:8296B1D4D046C02D7F2EF53365418E8A5ADCE63A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132730.jpgsave_picture_132730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132730.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:B3D33490CB9A427AAFA6D9271B5643903F7994F0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132731.jpgsave_picture_132731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132731.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ magnet:?xt=urn:btih:D8288387F71CA68A5DDE4F78C307A8C66FDD8236
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132732.jpgsave_picture_132732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132732.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ New year wallpapers 2013 (27.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132734.jpgsave_picture_132734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132734.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:DA1AE9D3030B4C4CB37EA5A22DE2A9EA228E6634
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132738.jpgsave_picture_132738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132738.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ EmEditor Professional 12.0.8 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132739.jpgsave_picture_132739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132739.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ EmEditor Professional способен открывать очень больш�
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132740.jpgsave_picture_132740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132740.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132741.jpgsave_picture_132741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132741.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132742.jpgsave_picture_132742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132742.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Slice of Sorrow - Covered with Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Occul
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132743.jpgsave_picture_132743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132743.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:349EEC99EC82660175AA87D8D34733684CC4AAB0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132744.jpgsave_picture_132744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132744.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:73EFDABEA6D0448C601509BA72A95BED5516A3B8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132745.jpgsave_picture_132745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132745.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:CBE9BFA5CCBDB7AE3B83CCAECD0A47F5A17337F5
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132746.jpgsave_picture_132746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132746.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:A47525B6CF47FB2AFD59D4ED72F366487141EAB7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132748.jpgsave_picture_132748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132748.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:CDBDA619176EB0DABF18A36353D1916DB51BF1DB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132751.jpgsave_picture_132751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132751.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:81DAC0A8CE0608B18FAFE9B814A8F5B04E044732
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132752.jpgsave_picture_132752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132752.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Pioneer of Deep Space - Северное лето (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132753.jpgsave_picture_132753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132753.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:0758BC101D6CD68D369EEE6157BDD5C2CAE669C4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132755.jpgsave_picture_132755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132755.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:6FAB0EA667931EFD63C90351748A709474B31BAB
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132756.jpgsave_picture_132756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132756.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Vitalines - Wheels Within Wheels (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132757.jpgsave_picture_132757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132757.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Ewiniar - Another World (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132759.jpgsave_picture_132759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132759.jpg" />
 </div>
 
 

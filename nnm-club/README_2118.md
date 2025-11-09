@@ -6,7 +6,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55435.jpgsave_picture_55435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55435.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55436.jpgsave_picture_55436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55436.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ubuntu EducationPack 22.04 (май 2024) [amd64] [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55437.jpgsave_picture_55437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55437.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9CD0305E9B5C877394A0ACD12D751BF8B0BFE08D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55438.jpgsave_picture_55438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55438.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ The Journey of AutUmn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55439.jpgsave_picture_55439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55439.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:AD49EA612065E7D5FEE10E41091A23330468746E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55440.jpgsave_picture_55440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55440.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ DefenderUI 1.22 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55441.jpgsave_picture_55441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55441.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:529EA7EB525B903DE740378CBD0811E92F170EAD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55442.jpgsave_picture_55442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55442.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Driver Easy Pro 6.0.0.25691 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55443.jpgsave_picture_55443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55443.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:E598FD01DF23776DE6FE682241EA727C21B8E87B
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55444.jpgsave_picture_55444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55444.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4EFE703F2B0F5836B7F4E7D0D953F9DED79DB01B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55445.jpgsave_picture_55445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55445.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:6A4D786156466AF6762C3F4665A6CE79B3DDE6A6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55446.jpgsave_picture_55446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55446.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Besiege (2020) [Ru/Multi] (1.50/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55447.jpgsave_picture_55447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55447.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Navier HUD 3.4.22 Lite-Mod by NURIK [Ru/En]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55448.jpgsave_picture_55448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55448.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Slash (Saul Hudson, Slash's Snakepit, Velvet Revolver) - Studio Albums (10 relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55449.jpgsave_picture_55449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55449.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Robert C. Martin | Clean Code Collection (2012) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55450.jpgsave_picture_55450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55450.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Duplicate File Finder Pro 2403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55451.jpgsave_picture_55451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55451.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:CFD199B57CF82BF9AB9332FDF050FAED18719557
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55452.jpgsave_picture_55452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55452.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:CFD199B57CF82BF9AB9332FDF050FAED18719557
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55453.jpgsave_picture_55453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55453.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Nebula: Learn Volumes, GeoNodes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55454.jpgsave_picture_55454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55454.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:9DA7292BB634C4E5DFE5B18A2414110FF4AD7656
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55455.jpgsave_picture_55455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55455.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:EEC8C9758D4D5E039FD2E82CA4D09FFF0B0B7E10
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55456.jpgsave_picture_55456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55456.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55457.jpgsave_picture_55457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55457.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:A6B831E6B6ADA84C599E57843A8818D528957452
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55458.jpgsave_picture_55458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55458.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Air Explorer Pro 5.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55459.jpgsave_picture_55459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55459.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:76696C40A5A98EF1FC3F4480EC004F944870F59D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55460.jpgsave_picture_55460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55460.jpg" />
 </div>
 
 

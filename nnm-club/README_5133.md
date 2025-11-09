@@ -6,7 +6,7 @@ iCalamus 2 v.2.3 beta [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160191.jpgsave_picture_160191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160191.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Wipe & Clean 20.0.2429 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160192.jpgsave_picture_160192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160192.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:1C657DACE06A5196D6ABABF74B3DD4DB8F53A1F4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160193.jpgsave_picture_160193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160193.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:67D85B0A295D712E2AA1638A01F7E5B2DCAAA3B7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160194.jpgsave_picture_160194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160194.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Vectorworks 2022  SP3 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160195.jpgsave_picture_160195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160195.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Wise Memory Optimizer 4.2.0.123 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160196.jpgsave_picture_160196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160196.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:FD572D0AF8E5A4ABA0B3B118B6D5E43364FF6090
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160197.jpgsave_picture_160197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160197.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:E685F41C5B4384559C7446FE49BFFB66232F6D87
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160198.jpgsave_picture_160198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160198.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ VA - Music News vol.313 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160199.jpgsave_picture_160199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160199.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ TunesKit AceMovi Video Editor 4.9.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160200.jpgsave_picture_160200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160200.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Roger Shah and Ambedo - Tribute To Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <U
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160201.jpgsave_picture_160201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160201.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ O&O DiskImage Professional 18.5 Build 342 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160202.jpgsave_picture_160202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160202.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Chris B. - Crispy Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160203.jpgsave_picture_160203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160203.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:CE2A17D50C32B7920174CA8CE8E28FAA8726235E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160204.jpgsave_picture_160204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160204.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Aiseesoft 4K Converter for Mac 9.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160205.jpgsave_picture_160205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160205.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VueScan Pro for Mac 9.8.21 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160206.jpgsave_picture_160206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160206.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Amadeus Pro 2.8.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160207.jpgsave_picture_160207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160207.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Aiseesoft Mac Blu-ray Player 6.6.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160208.jpgsave_picture_160208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160208.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E773244D44911C43DC270D3EB8E6B18902F71DC6
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160209.jpgsave_picture_160209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160209.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Nat King Cole - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160210.jpgsave_picture_160210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160210.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VK X 6.6.2_pub [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160211.jpgsave_picture_160211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160211.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wolfsbane - Massive Noise Injection (1993) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160212.jpgsave_picture_160212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160212.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:F3C8B04D3A02FC687BB99DB90C0516C58D09D2D3
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160213.jpgsave_picture_160213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160213.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ FastFlix 5.6.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160214.jpgsave_picture_160214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160214.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:CD9AE682533AF70CB1808CB1D9256AA222A77D08
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160215.jpgsave_picture_160215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160215.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Naglfar - Cerecloth (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160216.jpgsave_picture_160216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160216.jpg" />
 </div>
 
 

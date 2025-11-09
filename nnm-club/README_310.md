@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8152.jpgsave_picture_8152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8152.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Radio Hits 2025 - Radio Music Playlist [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8153.jpgsave_picture_8153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8153.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ XnView MP 1.9.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8154.jpgsave_picture_8154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8154.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Shields of Loyalty (2021) [Ru/Multi] (1.0.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8155.jpgsave_picture_8155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8155.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8156.jpgsave_picture_8156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8156.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.6216 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8157.jpgsave_picture_8157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8157.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:15618B6C6D4BE898DF5FEACEAE97F01C75A72646
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8158.jpgsave_picture_8158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8158.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:38B9A7AEF4EE4E11BB84F8427C272FF1266C7863
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8159.jpgsave_picture_8159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8159.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.48) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8160.jpgsave_picture_8160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8160.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ CyberCorp (2024) [Ru/Multi] (1.03) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8161.jpgsave_picture_8161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8161.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:11151AD1197EFC78523B25DF93F21678CB083C7F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8162.jpgsave_picture_8162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8162.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:11F8E15A6F443A1809DBDC7CBF998EA2D1EE7CFF
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8163.jpgsave_picture_8163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8163.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:DE2980F349C43A60A1794976462A99F8862FA202
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8164.jpgsave_picture_8164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8164.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:937232C3B616F515D0619A0789DC95E4AAAA0EB6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8165.jpgsave_picture_8165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8165.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Proton VPN 5.3.81.321 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8166.jpgsave_picture_8166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8166.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:12616248AF9D4BE3CEF6912DCC1160F0C497F5BA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8167.jpgsave_picture_8167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8167.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:487FBF98522C4B6AA025F008C723C3D512484320
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8168.jpgsave_picture_8168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8168.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:07893B6D6592AF41E8F69885D39AEDBC844E2CE7
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8169.jpgsave_picture_8169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8169.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E8DCFD74A21A901901408C10E9F374E4745894BD
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8170.jpgsave_picture_8170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8170.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:8A0E710AFA594BC5289C9A17B046D7E30A23E7E4
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8171.jpgsave_picture_8171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8171.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:C6C8FB151BAAA882A6EB5859E539FB13D0F6BDD8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8172.jpgsave_picture_8172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8172.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Call of Duty: Modern Warfare II (2) (2022) [Ru/Multi] (9.7/9.40) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8173.jpgsave_picture_8173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8173.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:BE7B270688C4DBF718AD0268BCE1D4A3E523B681
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8174.jpgsave_picture_8174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8174.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:ED05752ECEF4C1053DB370047FF749950C98CFD2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8175.jpgsave_picture_8175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8175.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8176.jpgsave_picture_8176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8176.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:47545901E9F8AF8FCCF2493DCC897A2E04554E2D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8177.jpgsave_picture_8177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8177.jpg" />
 </div>
 
 

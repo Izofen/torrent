@@ -6,7 +6,7 @@ VA - Feel-Good Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8418.jpgsave_picture_8418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8418.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [MP3|320 Kbps] <Gothic Rock, Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8422.jpgsave_picture_8422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8422.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Hard Rock 2000s (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8428.jpgsave_picture_8428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8428.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Paul McCartney - Amoeba Gig (2019) SHM-CD, Japanese Edition, Reissue, 2025, Capi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8434.jpgsave_picture_8434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8434.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Rock para estallar los parlantes (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8440.jpgsave_picture_8440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8440.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - 90s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8457.jpgsave_picture_8457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8457.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Rock Klassiker: 80er & 90er (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8459.jpgsave_picture_8459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8459.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Architects - Сollection (2006 - 2025) 13CD [FLAC|Lossless|tracks + .cue] <Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8471.jpgsave_picture_8471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8471.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Impureza - Alcazares (2025) [FLAC|Lossless|image + .cue] <Death Metal, Flamenco>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8527.jpgsave_picture_8527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8527.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:5F25F6A191612B4E30F3FFB4A23727EA3DC40D11
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8560.jpgsave_picture_8560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8560.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Tardigrade Inferno - Made in Hell (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Dar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8621.jpgsave_picture_8621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8621.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Entrails - Grip Of Ancient Evil (2025) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8642.jpgsave_picture_8642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8642.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Dieth - To Hell And Back (2023) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8666.jpgsave_picture_8666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8666.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Queen - Rock N Roll (2025) Remastered, 2011 [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8786.jpgsave_picture_8786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8786.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Paul McCartney - New (2013) Japanese Edition, SHM-CD, Reissue, 2025, Capitol Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8907.jpgsave_picture_8907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8907.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Sting - ...Nothing Like The Sun (1987) 2025 2CD Japan Expanded Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9097.jpgsave_picture_9097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9097.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Heavy Rock - Heavy Guitars (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9107.jpgsave_picture_9107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9107.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Sting - The Soul Cages (1991) 2025 Japan 2CD Expanded Edition [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9109.jpgsave_picture_9109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9109.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ The Alan Parsons Project - Limelight - The Best Of Vol. 2 (1987) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9133.jpgsave_picture_9133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9133.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Paul McCartney - Chaos And Creation In The Backyard (2005) SHM-CD, Japanese Edit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9219.jpgsave_picture_9219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9219.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ James Gang - 12 альбомов (1969 - 2000) 19 CD [FLAC|Lossless|tracks/image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9267.jpgsave_picture_9267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9267.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Enigma Project - Maze of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9329.jpgsave_picture_9329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9329.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Golden Earring - 31 Albums, 3 Box Set (1965 - 2022) (91 CD) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9397.jpgsave_picture_9397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9397.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Reef - 6 Albums, 9 Singles (1995 - 2019) 17 CD [FLAC|Lossless|tracks + .cue|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9457.jpgsave_picture_9457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9457.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Styx - 19 Studio Albums, 6 Live, 12 Compilations, 1 Box Set (1972 - 2025) 66 CD 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9580.jpgsave_picture_9580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9580.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Queen - Greatest Hits II (1991) 1st UK Press [APE|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9617.jpgsave_picture_9617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9617.jpg" />
 </div>
 
 

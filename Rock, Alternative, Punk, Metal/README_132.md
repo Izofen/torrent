@@ -6,7 +6,7 @@ Cistvaen - At Light's Demise (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109157.jpgsave_picture_109157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109157.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cthulhuss - Cthulhu Cult (2019) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109159.jpgsave_picture_109159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109159.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Jack - Tribute to AC/DC - Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109161.jpgsave_picture_109161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109161.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Michael Quatro - Bottom Line (1981) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109165.jpgsave_picture_109165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109165.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Cthulhuss - Obliteration of Souls (2022) [FLAC|Lossless|image + .cue] <Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109175.jpgsave_picture_109175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109175.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Catalepsia - World of Cliche (2015) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109195.jpgsave_picture_109195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109195.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Catalepsia - Pavisam (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109198.jpgsave_picture_109198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109198.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Bismarck - Vourukasha (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal, stoner, s
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109201.jpgsave_picture_109201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109201.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Things - Coloured Heaven (1984) Remastered, 2024, Teen Sound [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109218.jpgsave_picture_109218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109218.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Boys of Fall - Boys of Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109219.jpgsave_picture_109219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109219.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Resurrect Tomorrow - The Eagle (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109220.jpgsave_picture_109220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109220.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:FEE0E4BA22B84D2AACA4247228423D0D27AF0944
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109227.jpgsave_picture_109227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109227.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Daunt - Daunt (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109241.jpgsave_picture_109241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109241.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Datcha Mandala - Koda (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psychedelic, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109248.jpgsave_picture_109248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109248.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Gjenferd - Gjenferd (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, , Psych, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109255.jpgsave_picture_109255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109255.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Agusa - Noir (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109258.jpgsave_picture_109258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109258.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Combichrist - History of Madness (Live at Complex, L.A.) (2016) [MP3|320kbps] <I
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109259.jpgsave_picture_109259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109259.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Combichrist - CMBCRST (2024) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109271.jpgsave_picture_109271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109271.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Crooked Ways - No Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109283.jpgsave_picture_109283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109283.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Pig - Red Room (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109295.jpgsave_picture_109295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109295.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ayreon - 01011001 - Live Beneath The Waves (2024) Live [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109305.jpgsave_picture_109305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109305.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Combichrist - Everybody Hates You - Darkside (2005) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109311.jpgsave_picture_109311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109311.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Combichrist - One Fire (2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109316.jpgsave_picture_109316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109316.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Combichrist - We Love You (2014) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109320.jpgsave_picture_109320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109320.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Combichrist - Live at Summer Breeze 2015 (2016) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109322.jpgsave_picture_109322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109322.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Combichrist - Cmbcrst (2CD) (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109339.jpgsave_picture_109339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109339.jpg" />
 </div>
 
 

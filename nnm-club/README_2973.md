@@ -6,7 +6,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88586.jpgsave_picture_88586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88586.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:0C1CE8D21095A1DBF1D345DF3931D0AB42841DE9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88587.jpgsave_picture_88587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88587.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:C6BCDF226D49C96F21BCFBF7F4A301D968A948B3
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88588.jpgsave_picture_88588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88588.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:000D8D213F257FD890C481BD7A45F32736293FB5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88589.jpgsave_picture_88589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88589.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:B3F4235D0522847D63B7E54013CE5A2E783B0B19
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88591.jpgsave_picture_88591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88591.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ KUBANA 2012 пройдет 1,2,3,4,5 августа.Жанр: Музыка:  п�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88597.jpgsave_picture_88597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88597.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:28704AE020C7060C1AE3A3E3C0E5EAAD12F1D172
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88598.jpgsave_picture_88598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88598.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:613F2CF7C0469977960148DDA628A245475C5CFD
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88600.jpgsave_picture_88600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88600.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:0404F6AC4797CD58BB8AB1EA5454181302DD2C38
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88602.jpgsave_picture_88602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88602.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:0A0319784F3A020655B71B4F5CBEFC20A9F1FD00
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88604.jpgsave_picture_88604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88604.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:0A0319784F3A020655B71B4F5CBEFC20A9F1FD00
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88605.jpgsave_picture_88605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88605.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Russian Tracks Remix DJ(2012) [MP3|256 kbps]<Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88607.jpgsave_picture_88607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88607.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:6E190A62C6AE8705C0E238E48192DE7B23BAD7AA
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88608.jpgsave_picture_88608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88608.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Romantic Collection - Spring Tenderness (2012) [MP3|256 кб/с]<Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88611.jpgsave_picture_88611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88611.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Digimortal - 3 альбома, 1 сингл (2007-2011) [MP3|320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88613.jpgsave_picture_88613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88613.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:A55F1C5108A26F6424C52C82D01E20980E20B5A2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88617.jpgsave_picture_88617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88617.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:7E1C9B1999A71DC3101D759E672C56F119EC5B13
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88622.jpgsave_picture_88622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88622.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:A868B4B87C13FF7CC07D0005176602BC7A68DC80
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88623.jpgsave_picture_88623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88623.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:A868B4B87C13FF7CC07D0005176602BC7A68DC80
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88625.jpgsave_picture_88625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88625.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Hidden Mysteries: Return to Titanic (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88631.jpgsave_picture_88631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88631.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:A41A75DEE6642CB7E16BC292B5BFD5B7AE6388A5
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88633.jpgsave_picture_88633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88633.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:A41A75DEE6642CB7E16BC292B5BFD5B7AE6388A5
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88634.jpgsave_picture_88634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88634.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:CE0730019A7D1A6CE0E1DA8F760B7234C3062B25
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88635.jpgsave_picture_88635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88635.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:420BEC04286E9FAC5EB3CCA0CE1BD5DAF8614AF3
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88637.jpgsave_picture_88637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88637.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:FAB76B05787A659CC4713515EBA15FB5CC0C38D0
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88638.jpgsave_picture_88638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88638.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Lostprophets - 5 альбомов - Дискография (2000-2012) [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88639.jpgsave_picture_88639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88639.jpg" />
 </div>
 
 

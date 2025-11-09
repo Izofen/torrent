@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109697.jpgsave_picture_109697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109697.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:1231422CE6A9F8DC003455D4452BCE8A791AAC4C
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109698.jpgsave_picture_109698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109698.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:A2826C200A7D3123D9CFD41CBA30DDD3BFEDEC44
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109699.jpgsave_picture_109699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109699.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ David "Fathead" Newman, Ellis Marsalis, Cornell Dupree - Return To The Wide Open
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109700.jpgsave_picture_109700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109700.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gigi Gryce - The Rat Race Blues (1960) 1991, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109701.jpgsave_picture_109701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109701.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpgsave_picture_109702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - Deep House Summer Charts 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109703.jpgsave_picture_109703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109703.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Deep House Essentials (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109704.jpgsave_picture_109704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109704.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:FC5AC26C45950E95C00DDEC38160AC9814831CCB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109705.jpgsave_picture_109705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109705.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Krissy Matthews - Krissy Matthews & Friends (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109706.jpgsave_picture_109706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109706.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:7458EBF20DF12EFE3F56CF452252191C2A8C630F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109707.jpgsave_picture_109707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109707.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:BE4964E7A90BDCCAE87284B68C8DA0B2C51019FE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109708.jpgsave_picture_109708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109708.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:8E6A5C75290550278425D17E6201BEBCCD0CA9D7
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109709.jpgsave_picture_109709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109709.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Soundcheck Nightclub Washington 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109710.jpgsave_picture_109710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109710.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Спринт (11.05
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109711.jpgsave_picture_109711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109711.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B510ECECA96534D7217675B5CC75B835B9F4502B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109712.jpgsave_picture_109712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109712.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:4FECE70841652913D3D1A4457609C5973402FD06
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109713.jpgsave_picture_109713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109713.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:2BDC477F0046D62E5801B2EBC375496DBA061793
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109714.jpgsave_picture_109714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109714.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Refestramus - Intouríst (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109715.jpgsave_picture_109715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109715.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Sonic Universe - It Is What It Is (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109716.jpgsave_picture_109716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109716.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Firestorm - Rooted Future (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109717.jpgsave_picture_109717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109717.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ In Flames - Colony (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109718.jpgsave_picture_109718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109718.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Reflection of Flesh - We Are Legion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109719.jpgsave_picture_109719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109719.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Burden of Oath - Shattered Realms (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109720.jpgsave_picture_109720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109720.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Fjordheksa - Ashlad (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109721.jpgsave_picture_109721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109721.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Fange - Perdition (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, sludge, doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109722.jpgsave_picture_109722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109722.jpg" />
 </div>
 
 

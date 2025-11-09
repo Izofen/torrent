@@ -6,7 +6,7 @@ VA - Spring Light Deep 2023 [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198548.jpgsave_picture_198548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198548.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:61DEB545BDDA320562871EDC98D160181EADB371
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198549.jpgsave_picture_198549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198549.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BA54D56386CB0377BFDB7A30259F9C010FF7405D
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198551.jpgsave_picture_198551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198551.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:40652D66EF07DB56832F10A39043F00C28AF01C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198552.jpgsave_picture_198552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198552.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ EasyUEFI Technician 5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198553.jpgsave_picture_198553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198553.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ XviD4PSP 8.1.54 Pro (x64) Portable by conservator [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198554.jpgsave_picture_198554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198554.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:560388D6486413BCA9FF8E9044621ABACE52BCB0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198555.jpgsave_picture_198555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198555.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:97CC0F9FFB9EC823F79F03EFC8783C76A06A361B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198557.jpgsave_picture_198557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198557.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:F9087E8CBA313B14125767B734CAC342E080AE1B
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198558.jpgsave_picture_198558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198558.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198559.jpgsave_picture_198559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198559.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:79927CE64C43FD38F7772AEB06DCFEE35DBD4616
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198560.jpgsave_picture_198560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198560.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:6F14FB6664AB4A3FC7A0444EDE7D85F3125F34D0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198561.jpgsave_picture_198561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198561.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:531ABE02E2EF04316B3AF50C1188C8619AD64A62
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198563.jpgsave_picture_198563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198563.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ FileXile 3.00 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198564.jpgsave_picture_198564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198564.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:88A5D529FD1815ED6647ED7271BF892A546ADB73
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198566.jpgsave_picture_198566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198566.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:BB1D7EBF9DEA683F5844037DF39552EF03664F7E
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198567.jpgsave_picture_198567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198567.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Smooth Jazz Performance (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198568.jpgsave_picture_198568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198568.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ FITLAB, Юлия Агеева | Интенсив по подбору запас�
 >>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198569.jpgsave_picture_198569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198569.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Rock & Blues part 18 Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198570.jpgsave_picture_198570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198570.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:D91EB310981E342E54B11F827A90AF8410FA399A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198571.jpgsave_picture_198571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198571.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:92893CBFDF69AF0C5A64D6FA6099E89FD3D06BE5
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198572.jpgsave_picture_198572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198572.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:6EF14C85C4958D90F60F18B1915C7C58BE5813F0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198573.jpgsave_picture_198573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198573.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ my_revit | Оформление чертежей (2023) WEB-DL [AD] [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198574.jpgsave_picture_198574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198574.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:7868F7B70D772E1111D9F16A21EE338C3D22F14B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198576.jpgsave_picture_198576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198576.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ jv16 PowerTools 8.1.0.1564 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198577.jpgsave_picture_198577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198577.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:2A71D3018F2D718F7B6880632CB78BE3A4EDBD14
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198578.jpgsave_picture_198578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198578.jpg" />
 </div>
 
 

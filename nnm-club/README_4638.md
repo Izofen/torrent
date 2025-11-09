@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145177.jpgsave_picture_145177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145177.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F3C32099ACC1A2CB526DC2CF95FF3EE0867CD308
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145178.jpgsave_picture_145178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145178.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:389C9064B64390D015CC439E01389CFEAA178DEA
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145180.jpgsave_picture_145180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145180.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:45D9B98082B18D7E25CB0677855A4A9821CD1C20
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145182.jpgsave_picture_145182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145182.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ IObit Driver Booster PRO 6.2.0.197 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145183.jpgsave_picture_145183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145183.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:82F7D08D7411316BE7EA1AC4297A9C24BB7FD11F
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145184.jpgsave_picture_145184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145184.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:AF5C5F41D128946E9D71A80D043052021AF322A3
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145185.jpgsave_picture_145185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145185.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Violence Fog & Jerusalem - SWF-Sessions Volume 6 (1971) 2001,  Long Hair [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145186.jpgsave_picture_145186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145186.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F2129FC166DAA558BDE64325FE098F745DE59C97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145188.jpgsave_picture_145188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145188.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145189.jpgsave_picture_145189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145189.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Убойные хиты на Шансоне Часть № 6 (2016) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145190.jpgsave_picture_145190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145190.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:57930404FBCFA15CD6AE89F2E9E86DE43B57C6A8
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145191.jpgsave_picture_145191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145191.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VueScan Pro 9.7.71 (DC 24.12.2021) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145192.jpgsave_picture_145192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145192.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:C72EDD633FCC66735AFDF264BE2B6682C151C237
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145193.jpgsave_picture_145193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145193.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Christmas Hits 2023 - Pop Rock Xmas Songs (2023) [MP3|320 Kbps] <Pop, Rock,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145194.jpgsave_picture_145194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145194.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:FF681FF0DA370D901B776EE8603051E9FDEBC272
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145196.jpgsave_picture_145196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145196.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Ushinawareta Mirai wo Motomete / В поисках утраченного буд
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145197.jpgsave_picture_145197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145197.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:096EEE3EC706F81ACF9359731C3796A12846A414
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145198.jpgsave_picture_145198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145198.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:866FF325EF27004C4A149BC59E4F272B5D72978A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145199.jpgsave_picture_145199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145199.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Eran Dinur | SPT201 SpeedTree Techniques for VFX (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145200.jpgsave_picture_145200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145200.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bratz: The Movie [Wii] [PAL] [Multi 2] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145201.jpgsave_picture_145201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145201.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:FCED8E0F7F0F645F33BBB08705ED292E5021CEAC
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145202.jpgsave_picture_145202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145202.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:2B2822CC458D8794C0B265B162B78E2D52C06479
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145203.jpgsave_picture_145203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145203.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:F5FA0A26069C9C47CDA474A3E945F133D38103B3
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145204.jpgsave_picture_145204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145204.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:D9CAE86D9F1A8DD96FA7AFCB446945F4440DF3BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145206.jpgsave_picture_145206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145206.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.1_4 [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145207.jpgsave_picture_145207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145207.jpg" />
 </div>
 
 

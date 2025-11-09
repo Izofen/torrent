@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57983.jpgsave_picture_57983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57983.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.7.9 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57984.jpgsave_picture_57984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57984.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7FC1EFB831B5D799A1521872C0C3E010915DB233
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57985.jpgsave_picture_57985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57985.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:7FC1EFB831B5D799A1521872C0C3E010915DB233
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57986.jpgsave_picture_57986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57986.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F00A4019D0D2FF178D0566D48D7CA94DDE104783
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57987.jpgsave_picture_57987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57987.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.8) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57988.jpgsave_picture_57988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57988.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Adobe Substance 3D Designer 2024 13.1.2 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57989.jpgsave_picture_57989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57989.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:757225B4E8C8F6DF98ACF31CE187A13A297D6FEA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57990.jpgsave_picture_57990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57990.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B2B942E0BAEB57E1A6380BFA88488E9E7B3B158D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57991.jpgsave_picture_57991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57991.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:327656F6139426249360623E80E5E3EEB9611F11
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57992.jpgsave_picture_57992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57992.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ FictionBook Editor 2.7.4 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57993.jpgsave_picture_57993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57993.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:021E51D053CF7255B27411BA2B0543BBA89457A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57994.jpgsave_picture_57994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57994.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:F96E0C164C6D5F88C99C4A0CA7664189A7035A56
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57995.jpgsave_picture_57995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57995.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Stronghold (2023) [Ru/Multi] (1.3/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57996.jpgsave_picture_57996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57996.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:0A9B07CA6E5878531EAEDBE0381C8DE23430AF23
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57997.jpgsave_picture_57997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57997.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:EDCE66B2BB6A0C5B59F06F3DFB164DE62E4E46AD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57998.jpgsave_picture_57998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57998.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:2CD67483E83A36BB52080AE8C9B8A0F7780BDB5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57999.jpgsave_picture_57999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57999.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:849B48853E9D08D7AAD1B2D25B4CA20AF4954A0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58000.jpgsave_picture_58000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58000.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:48A889CC29BE50E579092EB4BCEA0D20BC7203EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58001.jpgsave_picture_58001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58001.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (8410_27382) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58002.jpgsave_picture_58002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58002.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:3E1A512C1A3D70375F00E302769A0E32BF17A043
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58003.jpgsave_picture_58003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58003.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:1F044C4F8FC47D521D55E9B0004F22EDCAE203CE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58004.jpgsave_picture_58004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58004.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:0A9739876DF0D66AD37F559EE1671F40791DB56C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58005.jpgsave_picture_58005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58005.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:8CD942F7E06E2B32B119130D66AF4D2A519805CC
 >>Обсуждение Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58006.jpgsave_picture_58006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58006.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:8CD942F7E06E2B32B119130D66AF4D2A519805CC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58007.jpgsave_picture_58007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58007.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ POOLS (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58008.jpgsave_picture_58008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58008.jpg" />
 </div>
 
 

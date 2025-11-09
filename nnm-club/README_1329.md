@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34909.jpgsave_picture_34909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34909.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Xara Photo & Graphic Designer+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34910.jpgsave_picture_34910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34910.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:F6DDAF0BD935EFD35353803BECAC698B5AE176FF
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34911.jpgsave_picture_34911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34911.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ticket to Ride (2023) [Multi] (1.6.0/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34912.jpgsave_picture_34912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34912.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Xara Web Designer+ 24.5.1.70738 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34913.jpgsave_picture_34913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34913.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:132CE29687F02CEE6AB100BD2BF922A9DA2829D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34914.jpgsave_picture_34914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34914.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:B080FEE9B4BD94AF504F7CEAB083D26C35E864BF
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34915.jpgsave_picture_34915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34915.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Fatal Midnight (2024) [Ru/Multi] (Build 16185793) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34916.jpgsave_picture_34916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34916.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:AC8B47C801776D948B969CB610FC6E77EBE021FC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34917.jpgsave_picture_34917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34917.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:3D78405D28305047D566155896D8F910F5995B42
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34918.jpgsave_picture_34918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34918.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cher - Christmas (2023) Deluxe Edition, 2024, Warner Records [FLAC 24/44.1|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34919.jpgsave_picture_34919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34919.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Any Video Downloader Pro 9.1.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34920.jpgsave_picture_34920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34920.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7F6F2D4614C9D530C402D0B0084405DAE6E94D82
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34921.jpgsave_picture_34921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34921.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:80BB78E74FA2840E4DB9F19F5D7676D742D9384E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34922.jpgsave_picture_34922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34922.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WPS Office + PDF v18.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34923.jpgsave_picture_34923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34923.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:9B68B58523B6F4554131A98133F2F1FF9E914D05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34924.jpgsave_picture_34924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34924.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ FreeFileSync 13.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34925.jpgsave_picture_34925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34925.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:AF243B5BD576A6E9E065642638DF5CAB11398146
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34926.jpgsave_picture_34926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34926.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:55284C06E7B7964EDA9F3879A53F5A47EE8C3DE2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34927.jpgsave_picture_34927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34927.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:F1F2AFFCB73F990045905CAAE4CBBD8945F2821F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34928.jpgsave_picture_34928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34928.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:F1F2AFFCB73F990045905CAAE4CBBD8945F2821F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34929.jpgsave_picture_34929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34929.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ CCleaner Pro: ПО для очистки 24.22.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34930.jpgsave_picture_34930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34930.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ World War Z (2019) [Ru/Multi] (2.36/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34931.jpgsave_picture_34931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34931.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:15B836C6D81CF16DA93626CE66AF35F32ADE941A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34932.jpgsave_picture_34932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34932.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.8.2 Stable + Portable + Standalo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34933.jpgsave_picture_34933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34933.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.1) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34934.jpgsave_picture_34934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34934.jpg" />
 </div>
 
 

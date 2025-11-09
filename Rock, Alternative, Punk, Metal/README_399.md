@@ -6,7 +6,7 @@ Sacred Outcry - Towers Of Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232619.jpgsave_picture_232619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232619.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coma Waves - Coming To Your Senses (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232621.jpgsave_picture_232621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232621.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hex Engine - Other People (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232625.jpgsave_picture_232625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232625.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Star of Madness - Into the Realm of Cthulhu (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232631.jpgsave_picture_232631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232631.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:54A1C98EFDE6A10F7EC15D80CB99C93B76074C20
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232632.jpgsave_picture_232632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232632.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chicago - Summer In Chicago (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232641.jpgsave_picture_232641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232641.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Feelers - Reimagined - Greatest Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232642.jpgsave_picture_232642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232642.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Starseed - Cosmic Conspiracy (1997) EP, 931576 Records DK, Reissue 2018 [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232651.jpgsave_picture_232651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232651.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Swamp Lordz - Cosmic Swamp (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232658.jpgsave_picture_232658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232658.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Atomic Symphony - Nemesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232663.jpgsave_picture_232663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232663.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Heathen Kings - Fealty to None (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232669.jpgsave_picture_232669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232669.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Star Of Madness - Into the Realm of Cthulhu (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232672.jpgsave_picture_232672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232672.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:5CAC4354E74D22082FC9AA0DE702C991115E84E8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232676.jpgsave_picture_232676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232676.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Membrance - Undead Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232683.jpgsave_picture_232683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232683.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:6F4102BBB8B9FA7ECCA6963D04376D7E0715AC82
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232685.jpgsave_picture_232685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232685.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Spiritus Mortis - Spiritus Mortis (2004) Firebox Records, Reissue 2010 [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232693.jpgsave_picture_232693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232693.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Distant Past - The Final Stage (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232703.jpgsave_picture_232703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232703.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:1129F71127DC08DB4EA9B93CD07545F8FABAD768
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232707.jpgsave_picture_232707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232707.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:C902E23B35FEDB438AE39F585EE51797F3C80B8D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232713.jpgsave_picture_232713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232713.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Inmortalia - Alegorias (2023) [MP3|320 Kbps] <Gothic Metal, Female Vocals>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232721.jpgsave_picture_232721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232721.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Ockra - Gratitude (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232722.jpgsave_picture_232722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232722.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ MelloW - Полураспад (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232726.jpgsave_picture_232726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232726.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Hrothgar - Rise of Ragnarok (2023) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232733.jpgsave_picture_232733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232733.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Fresh Air - Fresh Air (1973) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232739.jpgsave_picture_232739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232739.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ L’Homme Absurde - Stranger (2023) [FLAC|Lossless|image + .cue] <Black Metal, B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232741.jpgsave_picture_232741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232741.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:A3A1A186AFE0A2E6B375FE38ED22A45005844C09
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232747.jpgsave_picture_232747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232747.jpg" />
 </div>
 
 

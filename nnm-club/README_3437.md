@@ -6,7 +6,7 @@ Crownshift - Crownshift (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109723.jpgsave_picture_109723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109723.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:3A1F48978FD3B27BBC4599A7266F8A48CCC8374D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109724.jpgsave_picture_109724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109724.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3A1F48978FD3B27BBC4599A7266F8A48CCC8374D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109725.jpgsave_picture_109725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109725.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Demersal - Demersal (2024) [FLAC|Lossless|WEB-DL|tracks] <Emotional Hardcore, Sc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109726.jpgsave_picture_109726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109726.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Junk Boat Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109727.jpgsave_picture_109727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109727.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Mick Clarke - Winter Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109728.jpgsave_picture_109728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109728.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:B8ABADC3ADD46D1BC90D2724727790379AF12C58
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109729.jpgsave_picture_109729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109729.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:7B49AE5E60A77083E49F98B4D5FAD21D05AAF099
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109730.jpgsave_picture_109730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109730.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Warlord - Free Spirit Soar (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109731.jpgsave_picture_109731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109731.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ It Will Last - Mankind (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109732.jpgsave_picture_109732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109732.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Anette Olzon - Rapture (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109733.jpgsave_picture_109733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109733.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Mr. Coma - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109734.jpgsave_picture_109734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109734.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Glen Ample - Living in Desire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109735.jpgsave_picture_109735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109735.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ JD Miller - Empyrean (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109736.jpgsave_picture_109736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109736.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Uncle Acid & the Deadbeats - Nell' Ora Blu (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109737.jpgsave_picture_109737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109737.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Ogdimora - Songs for the Gremlins (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109738.jpgsave_picture_109738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109738.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Zacharie Defaut - Milady (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109739.jpgsave_picture_109739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109739.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Unleash The Archers - Phantoma (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109740.jpgsave_picture_109740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109740.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Falls Circus - Falls Circus (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109741.jpgsave_picture_109741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109741.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:404EB958E956F9A80789AF2B5EC310703B7A2C61
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109742.jpgsave_picture_109742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109742.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Mario Abney - Right Now (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109743.jpgsave_picture_109743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109743.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Powerman 5000 - Abandon Ship (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109744.jpgsave_picture_109744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109744.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:B4C84FF04E241AA5A484FE33E0AA16698F0CE351
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109745.jpgsave_picture_109745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109745.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Six Feet Under - Killing for Revenge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109746.jpgsave_picture_109746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109746.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ PhotoRoom 4.9.4 (b1368) Mod by CMAPTOC [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109747.jpgsave_picture_109747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109747.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ The Treatment - Wake Up The Neighbourhood (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109748.jpgsave_picture_109748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109748.jpg" />
 </div>
 
 

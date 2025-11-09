@@ -6,7 +6,7 @@ Chris Cain - Good Intentions Gone Bad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106291.jpgsave_picture_106291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106291.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A8894148B57AC445797F68D95B7FAB4DCE48D9CC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106292.jpgsave_picture_106292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106292.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Neko to Ongaku (Cats & Music) - Swing Tails ~Cats Jazz Band~ (2024) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106293.jpgsave_picture_106293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106293.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Saxtribution - Relaxing Smooth Saxophone Tunes (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106294.jpgsave_picture_106294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106294.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Historia - Echoes Of The Will (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106295.jpgsave_picture_106295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106295.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Saxtribution - Refreshing Soothing Saxophone Classics (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106296.jpgsave_picture_106296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106296.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Fault Lines - 60 Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106297.jpgsave_picture_106297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106297.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Mark Lettieri - Can I Tell You Something (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106298.jpgsave_picture_106298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106298.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sara D'Angelo - Drunken Monkey (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106299.jpgsave_picture_106299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106299.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tixati 3.28 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106300.jpgsave_picture_106300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106300.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ ISO Workshop Pro 13.0  [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106301.jpgsave_picture_106301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106301.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:6499E1A37DBD8681B8896B6DD6F1252F2F2DFE0C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106302.jpgsave_picture_106302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106302.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FotoJet Collage Maker 1.3.0 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106303.jpgsave_picture_106303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106303.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Peter Frampton - Frampton (1975) SACD, Remastered, 2023, Intervention Records [D
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106304.jpgsave_picture_106304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106304.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Compilation part 101 Electronic (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106305.jpgsave_picture_106305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106305.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Bossa Nova Lush Life (2024) [MP3|320 Kbps] <Easy Listening, Bosa Nova>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106306.jpgsave_picture_106306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106306.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:918B010982CF876C8BFDA9FFF883677C8D358CE3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106307.jpgsave_picture_106307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106307.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:3B898C51ED9D58850D1D35E8B31B4401C02D149D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106308.jpgsave_picture_106308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106308.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ FotoJet Designer 1.3.5 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106309.jpgsave_picture_106309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106309.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Sonic Tribe - 2 Albums (2000-2002) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tranc
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106310.jpgsave_picture_106310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106310.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ OCCT 13.1.2 Final Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106311.jpgsave_picture_106311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106311.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Wild Cherry - 4 Albums (1976-1979) Collection LP [MP3|320 Kbps] <Rock, Funk, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106312.jpgsave_picture_106312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106312.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ InnoExtractor Ultra 8.0.0.603 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106313.jpgsave_picture_106313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106313.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Google Chrome 126.0.6478.183 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106314.jpgsave_picture_106314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106314.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106315.jpgsave_picture_106315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106315.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106316.jpgsave_picture_106316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106316.jpg" />
 </div>
 
 

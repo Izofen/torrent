@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20190.jpgsave_picture_20190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20190.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:816C4B75586B083AEF6ED565F37A1506A535BBCC
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20191.jpgsave_picture_20191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20191.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Domestika, Davide Virdis | Intro to 3D Livery Design: Decals for Digital Cars (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20192.jpgsave_picture_20192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20192.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:31C35B6E459F98C8D9C21D8D866FB4CCC9F7899B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20193.jpgsave_picture_20193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20193.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ R-Wipe & Clean 20.0.2505 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20194.jpgsave_picture_20194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20194.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:6AC716092AAE67001806DD5454527BA5485E9A9E
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20195.jpgsave_picture_20195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20195.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:D5D18FB9ADF9AEDEFACABBFF3C624A8EFD531650
 >>Секретные материалы / X-Files
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20196.jpgsave_picture_20196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20196.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Udemy, Canopy Games, Michael Bridges | Blender Python Scripting - A Step-by-Step
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20197.jpgsave_picture_20197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20197.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Days Gone (2021) [Ru/Multi] (1.08/dlc) Repack FitGirl [Remastered]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20198.jpgsave_picture_20198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20198.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:43D6CAB71411DA543A628AAFEBA14A3FB0F869A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20199.jpgsave_picture_20199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20199.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:F3026837FCBA468F0CEC71E9BF1B486E26866E61
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20200.jpgsave_picture_20200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20200.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ MKVToolNix 92.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20201.jpgsave_picture_20201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20201.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:7759E53ED05D154CCCBF85D274507066B6CCC6A2
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20202.jpgsave_picture_20202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20202.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:7BA95A499B61DB3B4432ABE6964BCCACBE995A48
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20203.jpgsave_picture_20203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20203.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:6B781FC87FCE614F47B379E1EE869384F09AFBC6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20204.jpgsave_picture_20204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20204.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:372A9B15137FE282885A5B1B38E5FF06B29A2E93
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20205.jpgsave_picture_20205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20205.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:34E22A84974783ACBA6C58E9DC0CC0B98B36551C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20206.jpgsave_picture_20206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20206.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Skillshare, Gui Jorge Porto | Blender Grease Pencil: Combining 3D and 2D Animati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20207.jpgsave_picture_20207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20207.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ ArtStation, Navid Valizadeh | Master Creating Optimized Sci-Fi Space Station Doo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20208.jpgsave_picture_20208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20208.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:5FFF843C2C7087FEEBB015C684F1C91B5D1E268B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20209.jpgsave_picture_20209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20209.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:DD034C4BB090FE8E181628D4EBE8C91549FB1F38
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20210.jpgsave_picture_20210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20210.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:A149820922644F5B1590D1BC27197383B37DCF62
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20211.jpgsave_picture_20211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20211.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Billy Idol - Compilation (1981-2025) [MP3|320 Kbps] <Punk rock, Post punk, New w
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20212.jpgsave_picture_20212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_20212.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Udemy, Hamood Mehmood | Beginner Car Rigging & Animation in Blender (2025) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20213.jpgsave_picture_20213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20213.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:9FCE1A6B590D41EC064B1FAEADAA16D189D0D3BA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20214.jpgsave_picture_20214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20214.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Blender Studio, Simon Thommes | Stylized Rendering with Brushstrokes (2024) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20215.jpgsave_picture_20215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_20215.jpg" />
 </div>
 
 

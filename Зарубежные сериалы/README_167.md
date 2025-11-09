@@ -6,7 +6,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202191.jpgsave_picture_202191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202191.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:16568D813DBFD22062B152BB0D8287FE0272325C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202201.jpgsave_picture_202201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202201.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:76FC366E58A6EE91716EA71AB6C594B24495CDA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202202.jpgsave_picture_202202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202202.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E8452007E39DCC16DC63B6E6AD26D81620B6817B
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202262.jpgsave_picture_202262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202262.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0AC591B84D6CFD6DFB3210E35698B0F2381CE9AA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202274.jpgsave_picture_202274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202274.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:9519E927B3B0240CB419FBD8853A98D2D22137B8
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202307.jpgsave_picture_202307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202307.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:F3740C4EC2B764A1F1FD885C860572CDBD8127E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202314.jpgsave_picture_202314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202314.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:4D5D2AA0109194B4FD42206A7CE6729D60B9E9B8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202319.jpgsave_picture_202319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202319.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E6952E81E25C42FD0937B7A92CD69B1035F73ADF
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202321.jpgsave_picture_202321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202321.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:EF4E348D6A936AED10EB4118D881EA14EDFA575C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202327.jpgsave_picture_202327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202327.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:6F46E205494C4CEEC09441366038E376539B49F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202335.jpgsave_picture_202335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202335.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B9134CFB5EBC172131019FD619E9769B420F57E2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202354.jpgsave_picture_202354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202354.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:1A647A145CE9BF7952DD53C3C435A43B6614675B
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202360.jpgsave_picture_202360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202360.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:4F4B71AF6BE4442A9951C33746DB8F2D24712F9E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202366.jpgsave_picture_202366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202366.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:515D402C23094D8B2347E7885002692D009A7F55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202436.jpgsave_picture_202436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202436.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:3DF7A83B0DD5AA54F140A32E0C78FFD334DA016F
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202503.jpgsave_picture_202503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202503.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:3680AFE86586A090218AF0E9A54AFFE65E03F138
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202505.jpgsave_picture_202505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202505.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:EF50C3C3BD89B8CBC38874BA099C79B37940620D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202509.jpgsave_picture_202509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202509.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:394DBA9985988FE6AFF9FDFA2C7638F55FC6B678
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202515.jpgsave_picture_202515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202515.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:B662915E104A493072F1552CC8946416D68A0D1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202549.jpgsave_picture_202549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202549.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:43FD55816E97E58B7AADB3FA8E86EE6E63EAE512
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202581.jpgsave_picture_202581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202581.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:6CB7C37A0EE71C561691AA4346EE77FA8323FC6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202618.jpgsave_picture_202618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202618.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:FAFA8C5CADDC84A664CFE69924F41E49895F0132
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202639.jpgsave_picture_202639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202639.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:EB15D71D359DF4368B693DB5D721DBDE66B6CEF6
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202680.jpgsave_picture_202680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202680.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:DC1F3C5821C44E77C1E853A69A22351976295DBC
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202683.jpgsave_picture_202683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202683.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:E23EBFA06D3C4CDD3975E212977DD18B9CD8B4BB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202715.jpgsave_picture_202715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202715.jpg" />
 </div>
 
 

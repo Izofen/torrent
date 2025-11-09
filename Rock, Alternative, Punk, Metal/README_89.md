@@ -6,7 +6,7 @@ Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99270.jpgsave_picture_99270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99270.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Amongst The Deceit - Tribulations Of Man (2011) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99491.jpgsave_picture_99491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99491.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:EDD4F0C6BBE039F7786672B9365D7E775E5CFBE7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99499.jpgsave_picture_99499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99499.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Ceremonial Perfection - Alone In The End (2010) [MP3|320 кб/с]<Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99584.jpgsave_picture_99584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99584.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Working For A Nuclear Free City - Jojo Burger Tempest (2010) [MP3|320 кб/с]<S
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99720.jpgsave_picture_99720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99720.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99760.jpgsave_picture_99760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99760.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99869.jpgsave_picture_99869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99869.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Nevergreen - Karmageddon (2012) [MP3|320 кб/с]<Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99907.jpgsave_picture_99907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99907.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Dotma - Sleep Paralyses (2011) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100013.jpgsave_picture_100013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100013.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100024.jpgsave_picture_100024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100024.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100063.jpgsave_picture_100063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100063.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100213.jpgsave_picture_100213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100213.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Adamantine - Chaos Genesis (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100404.jpgsave_picture_100404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100404.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100528.jpgsave_picture_100528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100528.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:2571F896146CC13E196060FAE05C3EECEBB75CAA
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100538.jpgsave_picture_100538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100538.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Dominum - The Dead Don't Die (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100542.jpgsave_picture_100542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100542.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100546.jpgsave_picture_100546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100546.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Among These Ashes - Embers of Elysium (2024) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100552.jpgsave_picture_100552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100552.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Queen - Innuendo (1991) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100561.jpgsave_picture_100561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100561.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Queen - The Works (1984) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100563.jpgsave_picture_100563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100563.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Los Lobos - Earthquake Relief Concert 1989 (Live) (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100603.jpgsave_picture_100603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100603.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Melyazm - Чтобы было (2014) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100605.jpgsave_picture_100605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100605.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:BA2224F5476FF801E248A6EC77A980745D8D2F3C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100646.jpgsave_picture_100646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100646.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:D1E081DBC004BFE62A4DC15458CBF9FF15AD0C12
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpgsave_picture_100699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100699.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Adrian von Ziegler - Of the Old World (2024) [FLAC|Lossless|WEB-DL|tracks] <Celt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100702.jpgsave_picture_100702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100702.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ magnet:?xt=urn:btih:FE56AAFFBA20E239610FB8447A7CFEA1701E40A6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100703.jpgsave_picture_100703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100703.jpg" />
 </div>
 
 

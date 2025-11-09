@@ -6,7 +6,7 @@ Six Ages: Ride Like the Wind (2019) [En] (1.0.12-1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124417.jpgsave_picture_124417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124417.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FastTrackTutorials, Tilmann Milde | Ultimate Lighting Course - In-Depth Tutorial
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124418.jpgsave_picture_124418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124418.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:3A0471C84D88AC87DAC197C31F9506943E1AC96E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124419.jpgsave_picture_124419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124419.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:70BFC50C6D84F8BC8BCD1102B5987DE2F2BFDC1F
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124420.jpgsave_picture_124420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124420.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:548B10BF55827965F725D2A962982DF7B8A0E668
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124421.jpgsave_picture_124421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124421.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ KiCad 7.0.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124422.jpgsave_picture_124422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124422.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Velvet Dreamer - Tomorrow Is A New Day (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124423.jpgsave_picture_124423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124423.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:0C31E372B51E135B5E0706C3192946AEFDBF5860
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124424.jpgsave_picture_124424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124424.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:74EF121030B2EF5AD5F5A6F8582CB06BAF4873F2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124425.jpgsave_picture_124425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124425.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:22FD7C890DBD6E77557A6DCD8DCAEDA777DD2C51
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124426.jpgsave_picture_124426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124426.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:4B0D7BC57DC03E43EF96D7EAAEBE834C866F57EB
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124427.jpgsave_picture_124427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124427.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:83D244539CFD8CB5BC46999D548D397506F642C4
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124428.jpgsave_picture_124428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124428.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:A8B2480E3B1BBAC7C3049D7B5E7F2D2474F84ECC
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124429.jpgsave_picture_124429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124429.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:C56EFFD1E9658B31512DBB2B754B13A8A0B8E7A4
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124430.jpgsave_picture_124430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124430.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Genesis - The Lamb Lies Down On Broadway (1974) Deluxe Edition, Reissue, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124431.jpgsave_picture_124431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124431.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:A84D9C5D5771309394D2141037F98866B9C08D52
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124432.jpgsave_picture_124432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124432.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Hotrod Frankie - My father was a madman (2006) Reissue 2014, Dim Records [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124433.jpgsave_picture_124433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124433.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ MKVToolNix 82.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124434.jpgsave_picture_124434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124434.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Hot Rod Frankie - 1 Album, 1 Single (2008, 2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124435.jpgsave_picture_124435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124435.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:0D3608BA7573C81B1C16FDDBEC3788BEBE5499D0
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124436.jpgsave_picture_124436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124436.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Serious Sam 3: BFE / Крутой Сэм 3: BFE (2011) [Ru/En] (3.0.3.0.249955/d
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124437.jpgsave_picture_124437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124437.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ VueScan Pro 9.8.48.03 RePack (& Portable) by elchupacabra (DC 07.10.2025) [Multi
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124438.jpgsave_picture_124438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124438.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A9CD096B71B7DFDE827AE6EB5C2ED6E71337EAC5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124439.jpgsave_picture_124439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124439.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:0F455F4FF5A5B7310DCC3CFBA3B6E3A585D2904F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124440.jpgsave_picture_124440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124440.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:6D620898B723135B081C05FA271E3CC811D940E6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124441.jpgsave_picture_124441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124441.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Lighting calculations / Расчеты освещения v6.1.9 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124442.jpgsave_picture_124442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124442.jpg" />
 </div>
 
 

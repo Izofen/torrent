@@ -6,7 +6,7 @@ AmanVPN 2.3.2.0812 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241907.jpgsave_picture_241907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241907.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:45BF1E55C01C51C381DBBA72CF0CE62B164075AD
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241908.jpgsave_picture_241908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241908.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Instant Translate – translator, dictionary, voice 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241910.jpgsave_picture_241910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241910.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Europe - Collections (2005) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241911.jpgsave_picture_241911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241911.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:14F077D32D1564B8E7094D942D7B01118935A0A9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241912.jpgsave_picture_241912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241912.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Deckset 2.0.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241913.jpgsave_picture_241913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241913.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Integrity Pro 12.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241914.jpgsave_picture_241914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241914.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows 11 Manager 1.2.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241915.jpgsave_picture_241915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241915.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Directory Lister Enterprise 2.48 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241916.jpgsave_picture_241916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241916.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:E0C64FB846F9F618F5946F6820C316E40C592ABF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241917.jpgsave_picture_241917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241917.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.10.0.1782 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241918.jpgsave_picture_241918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241918.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:DF032065CF7A9AD8D25D3AB49DE195C520612548
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241919.jpgsave_picture_241919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241919.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:811E93EFC6CAD4E0CEFBA7B8FAB4CA1146FF4D14
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241920.jpgsave_picture_241920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241920.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Wrack - Altare der Verganglichkeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241922.jpgsave_picture_241922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241922.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ KStars 3.6.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241923.jpgsave_picture_241923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241923.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Adobe Photoshop for Mac 2022 v23.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241924.jpgsave_picture_241924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241924.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Harry Allen - A Little Touch Of Harry (1997) Sound Hills Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241925.jpgsave_picture_241925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241925.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Udemy, DJ Nicke | Become a Professional Character Animator (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241926.jpgsave_picture_241926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241926.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ magnet:?xt=urn:btih:B5343EF6131A901FD790FF076A174D1EDFAA07E5
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241928.jpgsave_picture_241928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241928.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:130F2A261BD16C42E2014459E236894F4DE1F54C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241929.jpgsave_picture_241929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241929.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:EB654A56F6E54F457C6B3067C57500982C7BE85C
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241930.jpgsave_picture_241930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241930.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:CDB03D1E7E370368B6F0E1F875055DE7536C3CC8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241931.jpgsave_picture_241931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241931.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ CCleaner 5.92.9652 Professional / Business / Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241932.jpgsave_picture_241932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241932.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Vengeance - Retaliation (2020) EP [MP3|320 Kbps] <Metallic Hardcore, Beatdown Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241933.jpgsave_picture_241933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241933.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Calibre 6.15.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241935.jpgsave_picture_241935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241935.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:FFB1400274D63769AA5CA799B8850BF77EDEBD6D
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241936.jpgsave_picture_241936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241936.jpg" />
 </div>
 
 

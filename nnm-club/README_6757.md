@@ -6,7 +6,7 @@ Admiral Justice - Admiral Justice (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232457.jpgsave_picture_232457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232457.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Animal State - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232459.jpgsave_picture_232459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232459.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Elegant Weapons - Horns For A Halo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232460.jpgsave_picture_232460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232460.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ King Howl - Homecoming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232462.jpgsave_picture_232462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232462.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C98C1E14651A3E5479AE5BD99234D48C402D6B74
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232463.jpgsave_picture_232463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232463.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Tina Turner - Foreign Affair (Deluxe) (1989) 2021, Remaster [FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232465.jpgsave_picture_232465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232465.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Taskforce Toxicator - Skull Splitting Force (2023) Compilation [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232466.jpgsave_picture_232466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232466.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ magnet:?xt=urn:btih:CB10C7D967E58AB863C72F6E8974E437EB124C1A
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232468.jpgsave_picture_232468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232468.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ The Black and Blues Band - Bootleg Live! (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232469.jpgsave_picture_232469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232469.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:F00D130E96AE38A2C72A6AF4302D43497D20A794
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232471.jpgsave_picture_232471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232471.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Talizman - Taken by Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232472.jpgsave_picture_232472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232472.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Metal Church - Congregation of Annihilation (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232475.jpgsave_picture_232475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232475.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VueScan Pro 9.8.11 (12.07.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232476.jpgsave_picture_232476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232476.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Artstudio Pro 5.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232477.jpgsave_picture_232477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232477.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:79009666BD4B6B88FDC07AB80AFB9D12F4991566
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232478.jpgsave_picture_232478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232478.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ System Trashed - Oxygen Thieves (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232479.jpgsave_picture_232479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232479.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:0AF1E5A45026CF8043E6D7347E36A2E9EE49ED1B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232483.jpgsave_picture_232483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232483.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Ray Alder - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232484.jpgsave_picture_232484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232484.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:BB3D76CE711D451C4EF6F6A21397A9B6334CA580
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232485.jpgsave_picture_232485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232485.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Music News vol.266 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232487.jpgsave_picture_232487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232487.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Sergeant Steel - Mister Sippi (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232488.jpgsave_picture_232488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232488.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Extreme - Six (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232491.jpgsave_picture_232491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232491.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:6415E14767419B0AD2ADC06C00F6895FB0D287D2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232492.jpgsave_picture_232492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232492.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Janet Gardner - Justin James - No Strings (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232493.jpgsave_picture_232493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232493.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ System Trashed - Outlaw (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232494.jpgsave_picture_232494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232494.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Motoriot - Harmonic Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232496.jpgsave_picture_232496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232496.jpg" />
 </div>
 
 

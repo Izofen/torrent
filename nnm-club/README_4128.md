@@ -6,7 +6,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127903.jpgsave_picture_127903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127903.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AECC77ED7D48CCD44F01423F92B5E7A7F53CEE9E
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127904.jpgsave_picture_127904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127904.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe Photoshop Lightroom Classic 2024 13.1.0.8 (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127905.jpgsave_picture_127905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127905.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:69B4B25227A8A2FC8E2F075E19A0FE6BE6EED146
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127906.jpgsave_picture_127906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127906.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ CCleaner 6.19.10858 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127907.jpgsave_picture_127907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127907.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:831BFC4D72BBF9BE95A80E44C362CCDCA9C071BA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127908.jpgsave_picture_127908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127908.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:00990105EECE30E6CCDBE596897AB373F8E4EF5D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127909.jpgsave_picture_127909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127909.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:641CECD0458F8C246305AB2A68642192D97878E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127910.jpgsave_picture_127910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127910.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:432091860924EDB85CDAC32224A577F742EC11F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127911.jpgsave_picture_127911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127911.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:B07012C40E0C3653FE75EB806F5C9E83B42B309C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127912.jpgsave_picture_127912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127912.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B4A83802AA81A0809081A0CD28CE6EBD8F6039B2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127913.jpgsave_picture_127913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127913.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:F23743CC30F07D90934B45C3391B099E5882D61A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127914.jpgsave_picture_127914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127914.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Chrome начнёт блокировать сторонние cookie с 4 янв
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127915.jpgsave_picture_127915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127915.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Chrome начнёт блокировать сторонние cookie с 4 янв
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127916.jpgsave_picture_127916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127916.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:AB37A06E4B71CA3AFE3A7038E32313436D8DF39C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127917.jpgsave_picture_127917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127917.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:2267377380D289C2E3FA32969772756189BFFBD6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127918.jpgsave_picture_127918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127918.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:0AF14681F912E6375702B7F770ED5F2236FBE0DD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127919.jpgsave_picture_127919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127919.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Videosmile, Михаил Бычков | Супер Cinema 4D (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127920.jpgsave_picture_127920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127920.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Need for Speed: Most Wanted (2012) [Ru/En] (1.5.0.0/dlc) Repack Decepticon [Limi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127921.jpgsave_picture_127921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127921.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Broforce (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127922.jpgsave_picture_127922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127922.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Adobe Photoshop Lightroom Classic 2024 13.1.0.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127923.jpgsave_picture_127923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127923.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:F82A4D26D21EC3C200A76600778CFED656024204
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127924.jpgsave_picture_127924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127924.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:531365C9318BC610AD05B697CBA12B493E23908F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127925.jpgsave_picture_127925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127925.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:990A36BDC08C5EC945FE41BDE0AA6D72F3A41872
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127926.jpgsave_picture_127926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127926.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:382519C0A56251AAE44454992026BE8B3627FC02
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127927.jpgsave_picture_127927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127927.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Need for Speed: Porsche Unleashed (2000) [Ru] (3.6) Repack/Mod Финиган
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127928.jpgsave_picture_127928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127928.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ FolderSizes 9.7.517 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68116.jpgsave_picture_68116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68116.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:436CE26F23086FD85CF81EFC3A603681F9C320D2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68117.jpgsave_picture_68117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68117.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Arida Vortex - Hail to Rock (2014) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68118.jpgsave_picture_68118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68118.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:061505904208390EC495AB518DD7B001B524F0DC
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68119.jpgsave_picture_68119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68119.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Dream Theater - Metropolis Pt. 2: Scenes from a Memory (1999) Reissue, 2025, Rhi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68120.jpgsave_picture_68120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68120.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:4C74B60F260D1526D8A489986E9C9D5FFA70DCA1
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68121.jpgsave_picture_68121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68121.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:F30E600571A8FFABD79BD0899F131CB62EC54F0C
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68122.jpgsave_picture_68122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68122.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Sports Club Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68123.jpgsave_picture_68123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68123.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:02515E742B324C2FECC0194A317AC183222D2D41
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68124.jpgsave_picture_68124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68124.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - The Best Of Italo Disco - Unreleased Tracks (2008) 2 CD [OGG Vorbis|480 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68125.jpgsave_picture_68125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68125.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:F7E475C4DE17C764BE95B2F731213DD0FC448F87
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68126.jpgsave_picture_68126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68126.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:1E678761739D12C0D1829E3ABD51819FF95D0BCC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68127.jpgsave_picture_68127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68127.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:B8620C10A8A89F1A3B1F5EC4AC52672F736A22FC
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68128.jpgsave_picture_68128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68128.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:9897879DB24BCCEAA6A8963145FE4AA1B2045B51
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68129.jpgsave_picture_68129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68129.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:4A8138E52EEF5EF64FB8A2C46EFFF684FBDC03DF
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68130.jpgsave_picture_68130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68130.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:23D6CB060BC713F375817DC8E788301AD067B24F
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68131.jpgsave_picture_68131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68131.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:E6BBBE4A6349C9862DC60CA7AD3002E1957AA249
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68132.jpgsave_picture_68132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68132.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Orbital - Radiccio (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68133.jpgsave_picture_68133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68133.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:2C58D228655000B17C4AF509F8C7394484535487
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68134.jpgsave_picture_68134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68134.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:4C4DCB9710534D087B609DF690EEB447DB4E041B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68135.jpgsave_picture_68135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68135.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:A39F2B061F9C8D8EA66BE115EC6D88320BB38453
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68136.jpgsave_picture_68136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68136.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:0B2010A98E2B75E56E9FCD0121438D608FCC161F
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68137.jpgsave_picture_68137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68137.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:EBE5AB3FBC10BAD016AFF5C21745E62A42F70E03
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68138.jpgsave_picture_68138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68138.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:B70F43930163A00C89ABD42BDA8620AB3864225C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68139.jpgsave_picture_68139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68139.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 09 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68140.jpgsave_picture_68140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68140.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68141.jpgsave_picture_68141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68141.jpg" />
 </div>
 
 

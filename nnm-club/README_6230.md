@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195488.jpgsave_picture_195488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195488.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ CCleaner 6.14.10584 Free-Professional-Business-Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195490.jpgsave_picture_195490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195490.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0D5E32AD2B89D43C36FD4ED8743BAAE0D4BFE155
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195491.jpgsave_picture_195491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195491.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:37DE4ACD9A68F237D9EAA5F4D29EBE85518E8F20
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195492.jpgsave_picture_195492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195492.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Screenshot touch v2.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195493.jpgsave_picture_195493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195493.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:0AA9F0B0899825E4CE4EB0884B5F38C7614FE5E9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195494.jpgsave_picture_195494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195494.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:0DAA5B33D0A75A3CC2632619E1D94B45CB169DAF
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195495.jpgsave_picture_195495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195495.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:68D3D95C4DBC7AAF7FD55496063F63EE5A764248
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195496.jpgsave_picture_195496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195496.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 3 (2023) [MP3|192-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195497.jpgsave_picture_195497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195497.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:898E380CCD393384DC8B2A34E4D88FB629C8986F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195498.jpgsave_picture_195498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195498.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 6.90.6500 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195499.jpgsave_picture_195499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195499.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:3DEA6A0C73D2837FBE10E4C593384F4C0EE20677
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195500.jpgsave_picture_195500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195500.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:C9DC6D6253D966EDC44144B9C8968B1D76D2866D
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195501.jpgsave_picture_195501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195501.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VirtualBox 7.0.10 Build 158379 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195502.jpgsave_picture_195502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195502.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ MSMG ToolKit 13.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195503.jpgsave_picture_195503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195503.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:C986D9C6BD3C49153DC0EF5203C5E6F89A089F05
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195504.jpgsave_picture_195504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195504.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1850 (Updated July 2023) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195505.jpgsave_picture_195505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195505.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:32129A61E9F5DEE244CF5607DC9F3F60486331B9
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195506.jpgsave_picture_195506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195506.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F38B9C2DB7483FED7119F35AFB7DDCEBC83CA5C2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195507.jpgsave_picture_195507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195507.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:FA38D9DBA52A97B0EBF129D388E9CAA678D6184D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195508.jpgsave_picture_195508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195508.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:EED0426406E383CDCEDEF176C53B961FA8EB8313
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195509.jpgsave_picture_195509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195509.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:901FB60C24983A16C21E901D347065DF45B66BAB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195510.jpgsave_picture_195510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195510.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195511.jpgsave_picture_195511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195511.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Microsoft Windows 11 [10.0.22621.1992], Version 22H2 (Updated July 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195512.jpgsave_picture_195512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195512.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Stepik, Startgram | Аналитик мобильных приложений: к
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195513.jpgsave_picture_195513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195513.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:DB3B4D81835C6B5496AEF70D82C2CB35EEBC65E1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195514.jpgsave_picture_195514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195514.jpg" />
 </div>
 
 

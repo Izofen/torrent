@@ -6,7 +6,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59334.jpgsave_picture_59334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59334.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Die Again (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59355.jpgsave_picture_59355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59355.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59436.jpgsave_picture_59436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59436.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Harold Halibut (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59455.jpgsave_picture_59455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59455.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Yet Another Fantasy Title / YAFT (2024) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59565.jpgsave_picture_59565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59565.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Deber (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59721.jpgsave_picture_59721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59721.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Shadow Corridor 2 (2024) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59722.jpgsave_picture_59722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59722.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ One Last Breath (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59747.jpgsave_picture_59747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59747.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59757.jpgsave_picture_59757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59757.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59803.jpgsave_picture_59803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59803.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59806.jpgsave_picture_59806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59806.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59819.jpgsave_picture_59819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59819.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59834.jpgsave_picture_59834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59834.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Turbo Kid (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59837.jpgsave_picture_59837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59837.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ MythForce (2023) [Ru/Multi] (1.0.5.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59838.jpgsave_picture_59838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59838.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Scene Rune [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59863.jpgsave_picture_59863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59863.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59938.jpgsave_picture_59938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59938.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59948.jpgsave_picture_59948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59948.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59955.jpgsave_picture_59955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59955.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59958.jpgsave_picture_59958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59958.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ The Cursed Legacy (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59967.jpgsave_picture_59967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59967.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59983.jpgsave_picture_59983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59983.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Other s [AD]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60034.jpgsave_picture_60034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60034.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Dark Days (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60041.jpgsave_picture_60041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60041.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Paradise Marsh (2022) [Multi] (1.0) Scene Tenoke [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60136.jpgsave_picture_60136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60136.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60396.jpgsave_picture_60396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60396.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126577.jpgsave_picture_126577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126577.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Edward De Rosa - Darkness Falls (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126578.jpgsave_picture_126578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126578.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Rencontre Nocturne - Recap 2023 (2023) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126579.jpgsave_picture_126579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126579.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Power Reset - Son Of The Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126580.jpgsave_picture_126580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126580.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Vargrav - The Nighthold (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126581.jpgsave_picture_126581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126581.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kaos Krew - Blackout (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126582.jpgsave_picture_126582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126582.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Damnationis - The Fallen Princess (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126583.jpgsave_picture_126583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126583.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Randy VanWarmer - Warmer (1979) Japanese Edition, Reissue, 1995, Bearsville [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126584.jpgsave_picture_126584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126584.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:2EB0059ECB507506B653DF3A7843BB2DE1935A2F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126585.jpgsave_picture_126585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126585.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:83A2D8A914FF2160458740983D2F1D91F87939F1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126586.jpgsave_picture_126586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126586.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126587.jpgsave_picture_126587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126587.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Arch Enemy - Stigmata (Deluxe Edition) (1998) Reissue, 2009, Century Media [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126588.jpgsave_picture_126588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126588.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Karminsky Experience Inc. - The Power of Suggestion (2003) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126589.jpgsave_picture_126589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126589.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Animal ДжаZ - Корни (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126590.jpgsave_picture_126590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126590.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:B382784E870DE950E1E1D48439E1B9841A5820EB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126591.jpgsave_picture_126591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126591.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:ACDE581F39FEA83945C9369E5DA8A47C489054EC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126592.jpgsave_picture_126592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126592.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - Armin Van Buuren - A State Of Trance 1152 (Top 50 Of 2023) (2023) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126593.jpgsave_picture_126593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126593.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:80A27FCA1B6DA6BFA1C7DD23D7757978E9778A55
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126594.jpgsave_picture_126594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126594.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:2135C5503692E86483B8BEC00977044AAC78B873
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126595.jpgsave_picture_126595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126595.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Animal Джаz - Корни (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126596.jpgsave_picture_126596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126596.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:0167B4F9001DADDCAF523824C15B597005799294
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126597.jpgsave_picture_126597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126597.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:D326AB6D38D73C5109C3475927AC4D82016A936E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126598.jpgsave_picture_126598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126598.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:66AE8F936655C9846BE0A625BE86FF3655E56A43
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126599.jpgsave_picture_126599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126599.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Horilka - Хай буде треш! (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126600.jpgsave_picture_126600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126600.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ From Fall to Spring - RISE (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126601.jpgsave_picture_126601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126601.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Albert - Береговое братство (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126602.jpgsave_picture_126602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126602.jpg" />
 </div>
 
 

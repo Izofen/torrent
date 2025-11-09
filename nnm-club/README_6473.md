@@ -6,7 +6,7 @@ Sketch 98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205003.jpgsave_picture_205003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205003.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MAGIX Vegas Pro 20.0 Build 214 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205004.jpgsave_picture_205004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205004.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Adobe InDesign 2023 18.0.0.312 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205005.jpgsave_picture_205005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205005.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:61BA606004F7F2388CAEA811DBBD65EC79125919
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205006.jpgsave_picture_205006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205006.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe Illustrator 2023 27.0.0.602 RePack by PooShock [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205007.jpgsave_picture_205007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205007.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Adobe Audition 2023 23.0.0.54 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205008.jpgsave_picture_205008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205008.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205009.jpgsave_picture_205009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205009.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205010.jpgsave_picture_205010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205010.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205011.jpgsave_picture_205011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205011.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|trac
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205013.jpgsave_picture_205013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205013.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205014.jpgsave_picture_205014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205014.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ OneLoupe 5.71 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205015.jpgsave_picture_205015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205015.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:CE4B677AF9498753C100F0AF469C297DFED86A07
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205016.jpgsave_picture_205016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205016.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ GetWindowText 4.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205017.jpgsave_picture_205017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205017.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:ED657D90972CBED1A283F8A42397ABCF14356673
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205018.jpgsave_picture_205018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205018.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ ProcessKO 6.31 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205019.jpgsave_picture_205019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205019.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205020.jpgsave_picture_205020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205020.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:64FFAB89B6982158893F72FB19B862690AD3D7B3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205021.jpgsave_picture_205021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205021.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:32819F7173B34DE4B969E66C9FAB79751DE3B774
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205022.jpgsave_picture_205022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205022.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:1CFECC616A0AF722EA43FE1CA66871B8C0250D73
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205023.jpgsave_picture_205023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205023.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Telegram Desktop 4.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205024.jpgsave_picture_205024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205024.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Adobe Animate 2023 23.0.0.407 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205025.jpgsave_picture_205025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205025.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Adobe Media Encoder 2023 23.0.0.57 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205026.jpgsave_picture_205026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205026.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:4CBC34ED6ACE27BD96175C1CEBB58D1968CD4043
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205027.jpgsave_picture_205027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205027.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:7C2652577D9C370B2ED223934E49A66B2D0CC76F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205028.jpgsave_picture_205028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205028.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:33BBDBC8FAC4B28C99A2BA6865C73E0B2855AC0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205029.jpgsave_picture_205029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205029.jpg" />
 </div>
 
 

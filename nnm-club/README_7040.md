@@ -6,7 +6,7 @@ Helslave - An Endless Path (2015) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241241.jpgsave_picture_241241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241241.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Crisix - Full HD (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241242.jpgsave_picture_241242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241242.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Redemption - I Am the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241243.jpgsave_picture_241243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241243.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Cookie 6.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241244.jpgsave_picture_241244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241244.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:F456C55F50DADB3B628E9611113B87CA8D030AB2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241245.jpgsave_picture_241245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241245.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:F456C55F50DADB3B628E9611113B87CA8D030AB2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241246.jpgsave_picture_241246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241246.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:304FAAEF4806A503C42D138A3B7DE15E1DC4127F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241247.jpgsave_picture_241247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241247.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ magnet:?xt=urn:btih:A3324504A0F9112FCD013C8412E992A8CE5CBC96
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241249.jpgsave_picture_241249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241249.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Apeaksoft DVD Creator for Mac 1.0.36 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241250.jpgsave_picture_241250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241250.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:C47D3788ABDE9A5D08A7AB04A5A174C31CA12D89
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241251.jpgsave_picture_241251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241251.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:D4F17F43C6BB179471CA1C00D443D8D341D9C8EC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241252.jpgsave_picture_241252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241252.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Marianas Rest - Horror Vacui (2016) [FLAC|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241253.jpgsave_picture_241253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241253.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Overloud Gem studio plug-ins 08.2022 Standalone, VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241254.jpgsave_picture_241254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241254.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:EEBA33D5B415CDB7593388C795CFD2B784DE35B2
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241255.jpgsave_picture_241255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241255.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:A8EFB3E8D94AA56A2D7ADA312528C71F8A3B972E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241256.jpgsave_picture_241256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241256.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:94B9FB51AC5AD081ADBDD5D5FA1A5F5E027DF57A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241257.jpgsave_picture_241257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241257.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Paul Motian - On Broadway, Vol. 3 (1991) 2004, Winter & Winter [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241259.jpgsave_picture_241259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241259.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Miseration - Black Miracles And Dark Wonders (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241260.jpgsave_picture_241260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241260.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Johnny King and Friends - Call It Confusion (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241261.jpgsave_picture_241261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241261.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ FullReader - читалка всех форматов книг v4.3.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241262.jpgsave_picture_241262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241262.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Aurica - Pride Of Immortals (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241263.jpgsave_picture_241263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241263.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ JRiver Media Center 30.0.91 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241264.jpgsave_picture_241264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241264.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Eric Dolphy - Blue Note Best Jazz Collection, Vol. 59 (2014) EMI Music Japan [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241265.jpgsave_picture_241265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241265.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Jotunspor - Gleipnirs Smeder (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241266.jpgsave_picture_241266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241266.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:D31DDB687FBC49580D9F8BA60E93348279DEFF9C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241268.jpgsave_picture_241268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241268.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Dominus Meus - DM2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241269.jpgsave_picture_241269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241269.jpg" />
 </div>
 
 

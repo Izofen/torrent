@@ -6,7 +6,7 @@ MotoGP. Этап 18 из 22. Гран-при Индонезии. Гонка (05.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99142.jpgsave_picture_99142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99142.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2EC71E8A84EC7E2A24CD1F6B6508239007286F91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99143.jpgsave_picture_99143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99143.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Smart Tools 2 v1.2.1 Mod by TryRoon [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99144.jpgsave_picture_99144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99144.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3FEEB0A0D415709185466115215F860B3EF9A5F4
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99145.jpgsave_picture_99145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99145.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99146.jpgsave_picture_99146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99146.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C90706EDC07C26E0BF894AB7F6C744AB6AE9AD13
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99150.jpgsave_picture_99150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99150.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ S.K.V. - Обратно на Землю (2012) [MP3|256 кб/с]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99153.jpgsave_picture_99153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99153.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:898B531196AC96A8145E844E218D8D80F0AC6199
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99154.jpgsave_picture_99154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99154.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:CA3F27C424754DE3500B4A2A6A6C9C4013596666
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99156.jpgsave_picture_99156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99156.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:0BB3A734D282896F3985D24E7F8CF6EAC660FCED
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99161.jpgsave_picture_99161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99161.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - BIG Trance 2012.2 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99166.jpgsave_picture_99166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99166.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C29C6FB2509251E34098B065D1C99D88ECBDF67B
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99170.jpgsave_picture_99170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99170.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Te
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99173.jpgsave_picture_99173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99173.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B05790455A7CD4BDB69E1B4CAD37D65D74E4DA54
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99174.jpgsave_picture_99174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99174.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Marc O' Tool - Serious (2012) [MP3|320 кб/с]<House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99176.jpgsave_picture_99176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99176.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99177.jpgsave_picture_99177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99177.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99179.jpgsave_picture_99179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99179.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99181.jpgsave_picture_99181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99181.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99184.jpgsave_picture_99184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99184.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99185.jpgsave_picture_99185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99185.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99186.jpgsave_picture_99186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99186.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99193.jpgsave_picture_99193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99193.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:933D252E9326D22AC945027504C94B9A8E262E5A
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99196.jpgsave_picture_99196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99196.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99197.jpgsave_picture_99197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99197.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99199.jpgsave_picture_99199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99199.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99203.jpgsave_picture_99203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99203.jpg" />
 </div>
 
 

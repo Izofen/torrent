@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84550.jpgsave_picture_84550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84550.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6D4A91C7AB0ADBB903762F7FE2EC2D85BFF2628F
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84551.jpgsave_picture_84551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84551.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DEBA30CB1CCAA54DACE0EDCFEE91AB55C2FB46D4
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84553.jpgsave_picture_84553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84553.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DE638F5DB7B58A7D3FCDFFC8FD055A2510DB156A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84554.jpgsave_picture_84554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84554.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:DE638F5DB7B58A7D3FCDFFC8FD055A2510DB156A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84555.jpgsave_picture_84555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84555.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:DE638F5DB7B58A7D3FCDFFC8FD055A2510DB156A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84556.jpgsave_picture_84556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84556.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:DE638F5DB7B58A7D3FCDFFC8FD055A2510DB156A
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84558.jpgsave_picture_84558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84558.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F0F57598DD44C9B415894A799773BDF01953D7A4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84559.jpgsave_picture_84559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84559.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:4FD2F78454E3E3847CBB319F6062B8E1B76A76C4
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84560.jpgsave_picture_84560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84560.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны др�
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84562.jpgsave_picture_84562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84562.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - The Complete 90's Music Collection (10CD) (2012) [MP3|128 kbps]<Pop|Rock|Me
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84563.jpgsave_picture_84563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84563.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:ED4DE7980F694CB8A1DF3F4280A9130AF49029C4
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84564.jpgsave_picture_84564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84564.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:DD1D492D4070D753105B6FED4F88412568C13792
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84567.jpgsave_picture_84567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84567.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Microsoft WorldWide Telescope (WWT) 3.0.72.1 Beta [Мульти, есть рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84568.jpgsave_picture_84568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84568.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84570.jpgsave_picture_84570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84570.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:DF1CDC0F2B6AA6E854325983086DCB0B69D898E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84571.jpgsave_picture_84571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84571.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Malwarebytes' Anti-Malware v1.61.0.1300 Beta  Portable от СССР1 [Multi/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84572.jpgsave_picture_84572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84572.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Malwarebytes Anti-Malware - новая версия программы от со
 >>Вокал
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84574.jpgsave_picture_84574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84574.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Ieshua's Live-DVD/USB 2.06
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84575.jpgsave_picture_84575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84575.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ieshua's Live-DVD/USB 2.06
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84576.jpgsave_picture_84576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84576.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Burn Zombie Burn! [Ru] (RePack) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84577.jpgsave_picture_84577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84577.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:04885F2F89B922AC9705763F91C09E41089E6C73
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84578.jpgsave_picture_84578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84578.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:16CED7F315544E70559A9DE8D38E40B482DA8170
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84580.jpgsave_picture_84580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84580.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Black Mirror III [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84582.jpgsave_picture_84582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84582.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Maxim (Prodigy) - Hell's Kitchen (2000) [APE|Lossless]<Big Beat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84584.jpgsave_picture_84584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84584.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:AF9496AEDA940A172307418F4727DF6EDC3D5060
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84585.jpgsave_picture_84585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84585.jpg" />
 </div>
 
 

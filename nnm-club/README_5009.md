@@ -6,7 +6,7 @@ Keith Richards - Crosseyed Heart (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156526.jpgsave_picture_156526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156526.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:4F32F6EEF7C75A6845BEA02B4AA7A32495D5E093
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156527.jpgsave_picture_156527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156527.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E67EACB66EF293098DCA1931D3E95EF4BDBADF34
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156529.jpgsave_picture_156529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156529.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ SamDrivers 23.11 Expert [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156530.jpgsave_picture_156530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156530.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156531.jpgsave_picture_156531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156531.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D0BF07E1A49AFF27D07D5CD7BA11E4A4E917E96D
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156533.jpgsave_picture_156533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156533.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:737EB81556AD0CCB734DD3CD563A7E403D6A1DA1
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156535.jpgsave_picture_156535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156535.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:A51524D7BD6CA43E83098F88C25626FE3E850041
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156536.jpgsave_picture_156536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156536.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:7F271B349F8B6A2A3436D46E5EB7C1735896956E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156537.jpgsave_picture_156537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156537.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:AA22D3F2F384AEEFD4FB618B241177369504F4E9
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156539.jpgsave_picture_156539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156539.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Adobe Photoshop 2022 23.1.0.143 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156540.jpgsave_picture_156540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156540.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:1E8A529536FCE6228E7896D3D0E9BF5EB06798F5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156541.jpgsave_picture_156541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156541.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:F53C0C93E67BC977D3DA11CEF66BC8DE37AE1B52
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156543.jpgsave_picture_156543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156543.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Dance Paradise: December Party (2016) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156544.jpgsave_picture_156544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156544.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:AAD0876F4E0527828F284D8A802BB93CCBED8AFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156545.jpgsave_picture_156545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156545.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Skillbox, Алина Гончаренко, Александр Чайка | Ос�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156546.jpgsave_picture_156546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156546.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Elcomsoft Phone Breaker Forensic Edition 9.40.35257 [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156548.jpgsave_picture_156548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156548.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Aston Grey Project - The Sensual Side (2016) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156549.jpgsave_picture_156549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156549.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:5E82AB0357D075BFFDF55A7D4DD79701B8694676
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156550.jpgsave_picture_156550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156550.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:E2553D0D93B2FDF4C157E14DCEA2379433BBC35C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156552.jpgsave_picture_156552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156552.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:0E8E0201E8E614F1AAB8F6540092FC8883FB320A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156553.jpgsave_picture_156553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156553.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:8C168A6383B734A291EF25321278175AD3603724
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156554.jpgsave_picture_156554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156554.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:9EAD2C3CD6690BF34F6B71425002C94807A680C7
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156555.jpgsave_picture_156555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156555.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:7FE0E34F64B814FE1B043DCABA0FAB4363EBC1D5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156556.jpgsave_picture_156556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156556.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Secret Government (2020) [Ru/Multi] (1.0.6.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156559.jpgsave_picture_156559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156559.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:0FE749D7A03F655072E9EA1D61D7998D8F7995B1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156560.jpgsave_picture_156560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156560.jpg" />
 </div>
 
 

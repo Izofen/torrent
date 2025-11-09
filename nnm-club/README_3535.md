@@ -6,7 +6,7 @@ Ungoogled Chromium 123.0.6312.86-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112283.jpgsave_picture_112283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112283.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:49124769D27EDEE6BACC1793D03AED711AC68DBD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112284.jpgsave_picture_112284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112284.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Norah Jones - Visions (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112285.jpgsave_picture_112285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112285.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Dino Jelusick - Chosen Gems (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112286.jpgsave_picture_112286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112286.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ EarthView 7.9.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112287.jpgsave_picture_112287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112287.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Bob Sinclar - Paradise (Remixed) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112288.jpgsave_picture_112288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112288.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Glary Disk Cleaner 6.0.1.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112290.jpgsave_picture_112290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112290.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:5015D130164FC3517726FB6A74DCB40D6426ECBE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112291.jpgsave_picture_112291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112291.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Uplifting Only Top 15: March 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112292.jpgsave_picture_112292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112292.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:084506BB81344012DF17296ED7A0DEA1B5457F64
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112293.jpgsave_picture_112293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112293.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Caroline Polachek - Desire, I Want To Turn Into You (2023) [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112294.jpgsave_picture_112294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112294.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:2BC1538E18300F328F8ED4FCD474858D81A5A462
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112295.jpgsave_picture_112295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112295.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:E0714F35108EF3BB14570B0EF97A9005F495444D
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112296.jpgsave_picture_112296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112296.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ PrivaZer 4.0.84 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112297.jpgsave_picture_112297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112297.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Avi Rosenfeld & John E Mendel - Instead Of Worrying (2024) [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112298.jpgsave_picture_112298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112298.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Roger Meno - The Singles Collection (2023) Compilation [FLAC|Lossless|image + .c
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112299.jpgsave_picture_112299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112299.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ USB Device Tree Viewer 4.2.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112300.jpgsave_picture_112300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112300.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:36E7BBC6CFFF65B3FA560AA863160FED81F7898D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112301.jpgsave_picture_112301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112301.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Topaz Photo AI 2.4.2 (x64) RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112302.jpgsave_picture_112302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112302.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Anyma - Genesys II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Hou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112303.jpgsave_picture_112303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112303.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:B2A4EBF015EC1541840FC7B7971A52DF404439F9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112304.jpgsave_picture_112304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112304.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Cookie 7.2.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112305.jpgsave_picture_112305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112305.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.0 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112306.jpgsave_picture_112306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112306.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:4AB63972E476B5057FC0FBD2A515606C88182907
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112307.jpgsave_picture_112307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112307.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:E870B0B58E1309B6AF884A6466DCFDD6E034CD0D
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112308.jpgsave_picture_112308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112308.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ FanControl V186 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112309.jpgsave_picture_112309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112309.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208527.jpgsave_picture_208527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208527.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Lasso Pro 12.3.1.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208529.jpgsave_picture_208529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208529.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - Hot Pop Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208531.jpgsave_picture_208531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208531.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:9F25C56B670B195F4406CCB07A880C7A85290F0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208533.jpgsave_picture_208533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208533.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:25EF3462E44FC296E9815D19720F05C0E83EE2A3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208534.jpgsave_picture_208534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208534.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:F3D37949B0EB6E7765B07A79645546A2FE7C6E27
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208537.jpgsave_picture_208537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208537.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:CBB779AA1FF70CD116AE1A1AEB9EAC2D289AEAE6
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208540.jpgsave_picture_208540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208540.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ AIDA64 Engineer Edition 6.90.6500 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208543.jpgsave_picture_208543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208543.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:CF32539D8772C861BE50E9EE6F2B59A55065793F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208546.jpgsave_picture_208546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208546.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:E847A17E9D2C853CB42A06E02063DE880C9CB8A7
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208549.jpgsave_picture_208549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208549.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:389CFCBB701B79FF4A9519C98B16D144678D169A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208550.jpgsave_picture_208550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208550.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Microsoft Windows 11 [10.0.22000.2176], Version 21H2 (Updated July 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208553.jpgsave_picture_208553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208553.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:C8CD1F61A502B1FFAC43FB9196C1917ED3CDA518
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208554.jpgsave_picture_208554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208554.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:A6C6B1489A19B8EF8DB291057165B6A2B1C80B3F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208555.jpgsave_picture_208555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208555.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:F8627144E11B8D3D8D6A7F7712B8DE3C8FBED21F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208557.jpgsave_picture_208557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208557.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VA - Музыка для машины Vol.32 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208562.jpgsave_picture_208562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208562.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Udemy, Eric Ebling | Houdini FX : Creating a Building Explosion (2021) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208563.jpgsave_picture_208563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208563.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Topaz Video AI 3.3.5 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208566.jpgsave_picture_208566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208566.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ CareUEyes 2.2.7.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208567.jpgsave_picture_208567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208567.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:174AD81320212B96CC3D2F123D9E4094F7850B77
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208568.jpgsave_picture_208568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208568.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ IObit Smart Defrag Pro 9.0.0.307 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208571.jpgsave_picture_208571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208571.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Java SE Runtime Environment 8.0.3810.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208573.jpgsave_picture_208573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208573.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:848FBDDB332AABC4E974881ACCD0F0129C083AB5
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208575.jpgsave_picture_208575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208575.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Fort Firewall 3.9.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208579.jpgsave_picture_208579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208579.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:2468FA990464214A6866C3C0EFE4DE398765A305
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208580.jpgsave_picture_208580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208580.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ The Gnomon Workshop, Alessandro Cangelosi | Introduction to Particle FX in Houdi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208583.jpgsave_picture_208583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208583.jpg" />
 </div>
 
 

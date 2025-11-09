@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230764.jpgsave_picture_230764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230764.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Музыка для машины Vol.23 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230767.jpgsave_picture_230767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230767.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Legba - Oscuro (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-rock, blues>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230768.jpgsave_picture_230768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230768.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Coventrate - Roots of All Evil (2019) [FLAC|Lossless|image + .cue] <Speed, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230769.jpgsave_picture_230769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230769.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Crazy Space Gun - Тройничок (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230770.jpgsave_picture_230770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230770.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:4DBA16AD936C46D0FC02371B8914741BAA55DB17
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230771.jpgsave_picture_230771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230771.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:D59FB50A6276569E25FBE6AD306ACEB981A4C2B8
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230772.jpgsave_picture_230772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230772.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:253149D7E0B98F9A3F3365199278AE10A695B0C4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230773.jpgsave_picture_230773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230773.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Emurasoft EmEditor Professional 22.4.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230776.jpgsave_picture_230776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230776.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Pixelmator Pro 3.3.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230777.jpgsave_picture_230777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230777.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:2013584AF7DF8159E9057F77162C97E44A8113C3
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230779.jpgsave_picture_230779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230779.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Edu Falaschi - The Glory Of The Sacred Truth (2018) EP, Japan Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230780.jpgsave_picture_230780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230780.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единств�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230782.jpgsave_picture_230782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230782.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ ssshhhiiittt! - rawlove (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230784.jpgsave_picture_230784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230784.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Darktable 4.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230785.jpgsave_picture_230785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230785.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Ankhagram - ReANKHarnation (2006) Reissue, 2014, Satanarsa Records [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230786.jpgsave_picture_230786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230786.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:883D84D07069E70A5A8F0E27DCB753CAD232D037
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230787.jpgsave_picture_230787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230787.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:642F3723490A50092006BF31F21958F8C8DB8D66
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230788.jpgsave_picture_230788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230788.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Frappe Books 0.17.1 + Portable [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230791.jpgsave_picture_230791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230791.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ TuneIn Radio 31.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230793.jpgsave_picture_230793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230793.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Microsoft Visual Studio 2022 Enterprise 17.6.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230794.jpgsave_picture_230794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230794.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Voidfallen - The Atlas of Spiritual Apocalypse (2021) [MP3|320 Kbps] <Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230795.jpgsave_picture_230795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230795.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Chris Beard - Compilation (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230797.jpgsave_picture_230797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_230797.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Cisdem Video Converter 7.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230798.jpgsave_picture_230798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230798.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Kdenlive 23.04.3 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230799.jpgsave_picture_230799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230799.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:98D5FA32360C2AA91BB067A9AFD938C843A48D3E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230802.jpgsave_picture_230802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230802.jpg" />
 </div>
 
 

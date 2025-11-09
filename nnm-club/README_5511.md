@@ -6,7 +6,7 @@ Call Notes Pro  v20.11.7 [Ru/Multi] - заметки и другая инфор�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170251.jpgsave_picture_170251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:01609FF384AC818A5E7FEF8ACF37BBB24FCCA490
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170252.jpgsave_picture_170252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170252.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Prince & The New Power Generation - Diamonds and Pearls (1991) Super Deluxe Edit
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170253.jpgsave_picture_170253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170253.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A316B959113C202093B8D92063A7CCF91FEA3A07
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170255.jpgsave_picture_170255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170255.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Jazz Improvisational Collection (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz, I
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170256.jpgsave_picture_170256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170256.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CCF8B8361F957225EEB8B09EE6EE5F032FC6D440
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170257.jpgsave_picture_170257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170257.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:77908C1579AC23C3B3BD6FED2DD12946951A3069
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170258.jpgsave_picture_170258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170258.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:4B09C1CF096E50CDE6906521A4FBFB0A5ABA9A47
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170259.jpgsave_picture_170259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170259.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:657B2ECBF583D776AC0B42E595E0842F4DB3EE01
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170260.jpgsave_picture_170260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170260.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:10091EE307ED38C4DF8393251D732B9BF9FBCE41
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170261.jpgsave_picture_170261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170261.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:2539087E1880EBF5B14EB4AE1B1DCA874B819BDB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170262.jpgsave_picture_170262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170262.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170263.jpgsave_picture_170263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170263.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Taylor Swift - 1989 (Taylor's Version) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170264.jpgsave_picture_170264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170264.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170265.jpgsave_picture_170265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170265.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:301BE66F3C6FEBA4914A5B592B2C745361BBE04C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170266.jpgsave_picture_170266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170266.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Disco Laser (1979) LP [MP3|320 Kbps] <Electronic, Rock, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170267.jpgsave_picture_170267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170267.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Brave Browser 1.46.140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170268.jpgsave_picture_170268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170268.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Music News vol.154 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170269.jpgsave_picture_170269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170269.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:5C9559462249E810329417F8F9985A4E75F4064A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170270.jpgsave_picture_170270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170270.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Screenshot touch 1.8.9 Pro + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170271.jpgsave_picture_170271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170271.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ QuickTextPaste 8.74 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170272.jpgsave_picture_170272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170272.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Anacondaz - Мои дети не будут скучать (2019) [FLAC|Lossless
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170273.jpgsave_picture_170273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170273.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:81BB9510B1199BFBC441FFD4D994813E02D41145
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170274.jpgsave_picture_170274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170274.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:49A3E8D3ECA21EBF03B98671E6A276B6604CCAE8
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170275.jpgsave_picture_170275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170275.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:4D53EE26087E4EBEFF54FADDBE93455DD91D1A6D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170276.jpgsave_picture_170276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170276.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:D3B9A9946B87753E08710054D7E2836309C4422D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170277.jpgsave_picture_170277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170277.jpg" />
 </div>
 
 

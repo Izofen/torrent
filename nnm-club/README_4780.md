@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149586.jpgsave_picture_149586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149586.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149587.jpgsave_picture_149587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149587.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fleshworks - Diabolus ex Machina (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149588.jpgsave_picture_149588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149588.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Fleshworks - Diabolus ex Machina (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Met
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149589.jpgsave_picture_149589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149589.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ AIMP 5.01 Build 2357 RePack (& Portable) by TryRooM [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149590.jpgsave_picture_149590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149590.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AIMP – проигрыватель, включающий в себя множе
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149591.jpgsave_picture_149591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149591.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AIMP – проигрыватель, включающий в себя множе
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149593.jpgsave_picture_149593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149593.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ VA - Munix Music Best of 2015 (Hands Up Edition) (2015) [MP3|320 кб/с] <Dance
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149594.jpgsave_picture_149594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149594.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Enmortem - Displeasure, Sorrow and Disgust (2023) Compilation [FLAC|Lossless|WEB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149595.jpgsave_picture_149595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149595.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AIMP 5.01 Build 2357 + Portable [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149596.jpgsave_picture_149596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149596.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 5.5 RePack (& Portable) by Try
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149597.jpgsave_picture_149597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149597.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Hetman Uneraser Home / Office / Unlimited Edition 5.5 RePack (& Portable) by Try
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149598.jpgsave_picture_149598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149598.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Space Odyssey. New Year's Voyage (2016) [MP3|320 Kbps] <Spacesynth>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149599.jpgsave_picture_149599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149599.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VA - Space Odyssey. New Year's Voyage (2016) [MP3|320 Kbps] <Spacesynth>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149600.jpgsave_picture_149600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149600.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Cheri Knight - The Knitter (1996) [MP3|320 кб/с]<Country-rock, Rock>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149601.jpgsave_picture_149601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149601.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ BookReader 5.15 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149602.jpgsave_picture_149602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149602.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Lady GaGa - Chromatica (2020) Japanese Еdition [FLAC|Lossless|tracks + .cue] <P
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149603.jpgsave_picture_149603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149603.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Wallpapers Sexy Girls (08.12.12) [Wallpapers 16+]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149604.jpgsave_picture_149604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149604.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Wallpapers Sexy Girls (08.12.12) [Wallpapers 16+]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149606.jpgsave_picture_149606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149606.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Wallpapers Sexy Girls (08.12.12) [Wallpapers 16+]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149607.jpgsave_picture_149607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149607.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wallpapers Sexy Girls (08.12.12) [Wallpapers 16+]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149608.jpgsave_picture_149608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149608.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Lovers Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149609.jpgsave_picture_149609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149609.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - Lovers Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149610.jpgsave_picture_149610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149610.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Lovers Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149611.jpgsave_picture_149611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149611.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Lovers Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149613.jpgsave_picture_149613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149613.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Double V (The ЛП) - Сольная поп-запись (2011) [MP3|320 кб/с
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149614.jpgsave_picture_149614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_149614.jpg" />
 </div>
 
 

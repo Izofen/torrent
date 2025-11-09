@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139308.jpgsave_picture_139308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139308.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Best of 2021 Desert Hearts Black (2021) [AAC|~327 Kbps] <Melodic House & Te
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139309.jpgsave_picture_139309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139309.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:CB6F72A9259ABF1280E5F79B2007C1C00C968490
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139311.jpgsave_picture_139311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139311.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Gateways, Vol. 1 (2020) [AAC|~318 Kbps] <Melodic House & Techno, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139312.jpgsave_picture_139312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139312.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Infostart | Tech Event (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139313.jpgsave_picture_139313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139313.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Say, Turn It Up! (2020) [MP3|320 Kbps] <Hip-Hop, Rap, Trip>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139314.jpgsave_picture_139314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139314.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:8EE9CEF1649CDF4549A637903C235B89B3FCFEAC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139316.jpgsave_picture_139316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139316.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:5400D9BF9F3BB280886A8014AF4720AFDB965E2E
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139317.jpgsave_picture_139317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139317.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:C2F09501C1F841D60EB484BF2F5AD11582DC1F98
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139319.jpgsave_picture_139319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139319.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - UNDERGROUND VIBES Compilation (2021) [AAC|~313 Kbps] <Tech House, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139320.jpgsave_picture_139320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139320.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:C5323252510D1F85666C4F50E56CD72739A30613
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139321.jpgsave_picture_139321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139321.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:496CB13ED658DD0E5DBE3FE6B30348B87701A1D4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139322.jpgsave_picture_139322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139322.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.0 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139323.jpgsave_picture_139323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139323.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Зарубежные Хиты-Декабрь (2018) [MP3|320 Kbps] <Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139324.jpgsave_picture_139324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139324.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:E2EC0B944FC1E280E159ED7B48CC546537611DB4
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139325.jpgsave_picture_139325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139325.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:49807B24E2D597C52293C48FF9F0FE9246D1EF18
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139326.jpgsave_picture_139326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139326.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:206B76D358B07C25EE24CD0C19B39B5C90530999
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139327.jpgsave_picture_139327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139327.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:4A1AA303AFB19E50C0D21EAC3501434290FFF00F
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139330.jpgsave_picture_139330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139330.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:6C0A64975FD678DC7E41F02DF53C45EF2205DC8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139331.jpgsave_picture_139331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139331.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - Gateways, Vol. 2 (2021) [AAC|~335 Kbps] <Melodic House & Techno, Progressiv
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139332.jpgsave_picture_139332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139332.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:F82695E7824EF260954E5253CAF0354632106373
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139333.jpgsave_picture_139333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139333.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:3894143A8A3FCA66701B2BAB888F5654BAB0BEB5
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139335.jpgsave_picture_139335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139335.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:40593BE4255F126DD5E602A1255B68B7E75D2DBA
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139336.jpgsave_picture_139336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139336.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:AA7C7E39E964ADA2F1E33E4B9415BADA0F5D1B29
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139338.jpgsave_picture_139338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139338.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:FC05425572AD0DB6245C70ACA02631AC201F6E1A
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139339.jpgsave_picture_139339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139339.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:4DF92E5B5DB4CE98C15A4B6111077977C5B90E51
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139340.jpgsave_picture_139340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139340.jpg" />
 </div>
 
 

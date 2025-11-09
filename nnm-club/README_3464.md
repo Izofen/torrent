@@ -6,7 +6,7 @@ Smash Into Pieces - Ghost Code (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110425.jpgsave_picture_110425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110425.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Lounge Sexiest Ladies, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110426.jpgsave_picture_110426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110426.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:04E914E5BBD91AD47D16B82FB54A2C5A87F047AB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110427.jpgsave_picture_110427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110427.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Severed Angel - Skyward (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110428.jpgsave_picture_110428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110428.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (Olly James remix
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110429.jpgsave_picture_110429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110429.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Telegram Desktop 5.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110430.jpgsave_picture_110430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110430.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Sandboxie 5.68.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110431.jpgsave_picture_110431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110431.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Sumatra PDF 3.6.16059 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110432.jpgsave_picture_110432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110432.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:6D946EE9BCAD9B2ACAED29BFFABEF153262348A4
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110433.jpgsave_picture_110433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110433.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 07 (2022) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110434.jpgsave_picture_110434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110434.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Vivaldi 6.7.3329.24 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110435.jpgsave_picture_110435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110435.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Soul Browser 1.4.16 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110436.jpgsave_picture_110436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110436.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 05 (2021) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110437.jpgsave_picture_110437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110437.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Auslogics BoostSpeed 13.0.0.7 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110438.jpgsave_picture_110438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110438.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Telegram Desktop 5.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110439.jpgsave_picture_110439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110439.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:C9DA5AD699D2FE88F08EDD555F72021E2B4E2F98
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110440.jpgsave_picture_110440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110440.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ USB Device Tree Viewer 4.2.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110441.jpgsave_picture_110441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110441.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 06 (2022) [MP3|320 Kbps] <D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110442.jpgsave_picture_110442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110442.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ TikTok 34.5.4 Mod by Dmitry Nechiporenko + Plugin 1.35 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110443.jpgsave_picture_110443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110443.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:0817E95BB3DC0333D9FC01AA28AC09CEF705846E
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110444.jpgsave_picture_110444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110444.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ OfficeSuite Pro + PDF 14.4.51682 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110445.jpgsave_picture_110445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110445.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:3C86FDD9BCCC38D498FF33D63761C20CD840F94A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110446.jpgsave_picture_110446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110446.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:9137689C17D9E85045F302E2B919AE8BD5F2B7D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110447.jpgsave_picture_110447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110447.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Black Tusk - The Way Forward (2024) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110448.jpgsave_picture_110448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110448.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:24FC7E04A8A5A1FAA5FC22FB67006056AAF254FD
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110449.jpgsave_picture_110449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110449.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Invalid Yellow - Hendecagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110450.jpgsave_picture_110450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110450.jpg" />
 </div>
 
 

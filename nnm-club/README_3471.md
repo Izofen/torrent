@@ -6,7 +6,7 @@ Stefano Paolini - Modern Jazz Drumming, Vol. 1 (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110607.jpgsave_picture_110607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110607.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Barbara Morrison featuring Houston Person - A Sunday Kind Of Love (2010 - 2012) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110608.jpgsave_picture_110608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110608.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bruno Montrone - Unaware Beauty (Studio) (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110609.jpgsave_picture_110609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110609.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Nigel Price Organ Trio - That's It. Right There (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110610.jpgsave_picture_110610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110610.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Juan Pablo Balcazar - Otro Quatuor Pour La Fin Du Temps (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110611.jpgsave_picture_110611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110611.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Rob Stoneback Big Band - Caught In The Web (1996) Sea Breeze [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110612.jpgsave_picture_110612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110612.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:E5AA929BE1D119903539CFEC4223BDBEDD5275BC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110613.jpgsave_picture_110613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110613.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:E10E94E6FCD851CDE14DA6FBE791CABA439BA42A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110614.jpgsave_picture_110614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110614.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:EED22243541C72B5AB00B5B80D78C835D3DBEB6E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110615.jpgsave_picture_110615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110615.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:B7A27C022F7083436E360898EA89105C02B8B198
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110616.jpgsave_picture_110616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110616.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ magnet:?xt=urn:btih:6D91985232B9EA64E8F7481FB42F24CBE8CB0229
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110617.jpgsave_picture_110617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110617.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Marina Kaye - Heavenbound (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <World, Eur
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110618.jpgsave_picture_110618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110618.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:6C06BC1945B7E3E5BFB56958CEFF6CF6CF22A2D9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110619.jpgsave_picture_110619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110619.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Bar Music Masters - Lemonade Lounge: Jazz Beats in Every Refreshing Glass (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110620.jpgsave_picture_110620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110620.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:519D002A47DF8D9F99264F3610A42F08A99CCD95
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110621.jpgsave_picture_110621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110621.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Bobby Watson & Horizon - No Question About It (1988) Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110622.jpgsave_picture_110622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110622.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Instrumental Wedding Music Zone - Romantic Saxophone Jazz for Wedding (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110623.jpgsave_picture_110623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110623.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ In My Hands - Крепче (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110624.jpgsave_picture_110624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110624.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:7208C1C74BA34B048EFE8A050A8352731FED09CA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110625.jpgsave_picture_110625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110625.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Instrumental Music Ensemble - Focus Grooves: Smooth Jazz for Concentration (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110626.jpgsave_picture_110626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110626.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:D4F678EFE76E9073C1CA40326DD8BCE3F740F7D5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110627.jpgsave_picture_110627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110627.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:8771080EB9FBC604DDCA7D2E1E001F16A8F583D2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110628.jpgsave_picture_110628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110628.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Wayne S. Hicks - Resilence (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110629.jpgsave_picture_110629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110629.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Cousin Kula - Vitamin D (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110630.jpgsave_picture_110630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110630.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Judy Wexler - Under A Painted Sky (2011) Jazzed Media [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110631.jpgsave_picture_110631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110631.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Attic - Return of the Witchfinder (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110632.jpgsave_picture_110632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110632.jpg" />
 </div>
 
 

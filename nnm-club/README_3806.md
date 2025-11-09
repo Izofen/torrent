@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119336.jpgsave_picture_119336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119336.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2436477FFC195024F6A6BD07B7CCE40DFB8DC559
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119337.jpgsave_picture_119337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119337.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8DF122B4C8D8B4467A8F7FD3C7884CFBFA814EFD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119338.jpgsave_picture_119338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119338.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:BD6A4FCA69CB8C6C2924240550B1F7DFAF3F4FDB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119339.jpgsave_picture_119339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119339.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Skype 8.112.0.206 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119340.jpgsave_picture_119340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119340.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ James Blake - Playing Robots Into Heaven (Endel Focus Soundscape) (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119341.jpgsave_picture_119341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119341.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ PictureThis - Plant Identification v3.77 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119342.jpgsave_picture_119342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119342.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:D25DC27CB83617796FFBD7E01DB0D569EF5678FC
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119343.jpgsave_picture_119343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119343.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Simply Piano: Learn Piano Fast v7.22.7 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119344.jpgsave_picture_119344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119344.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:624312BC00112ECCA9987F1CEB3358EADBAB912E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119345.jpgsave_picture_119345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119345.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Paul Mauriat - Bossa Nova Wave (1991) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Lis
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119346.jpgsave_picture_119346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119346.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Love Music Zone - Sexy Valentine’s Day 2024 [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119347.jpgsave_picture_119347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119347.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Rock Identifier - Stone ID v2.3.36 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119348.jpgsave_picture_119348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119348.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Eguana - Exploration (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ambient Chil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119349.jpgsave_picture_119349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119349.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Telegram Desktop 4.14.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119350.jpgsave_picture_119350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119350.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Eventide - Blackhole Immersive 1.1.3 VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119351.jpgsave_picture_119351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119351.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Music News vol.337 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119352.jpgsave_picture_119352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119352.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:18B410B2BA0091ABAA61FE61FBEBA7A8C130FBFA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119353.jpgsave_picture_119353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119353.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:32B89E2286AD3B0C49EE4DC1FAB57851C48918C8
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119354.jpgsave_picture_119354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119354.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:2E58C093F9EA29727523EE3506650B44D525B74C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119355.jpgsave_picture_119355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119355.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Paul Mauriat - Souvenirs D'Ete (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Classica
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119356.jpgsave_picture_119356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119356.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kmfdm - Let Go (2024) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119357.jpgsave_picture_119357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119357.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Paul Mauriat - Iberia (1990) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119358.jpgsave_picture_119358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119358.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Paul Mauriat - Nagekidori (1987) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listenin
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119359.jpgsave_picture_119359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119359.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Paul Mauriat - Love Sounds Journey (1988) [OGG Vorbis|480 Kbps] <Jazz, Pop, Clas
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119360.jpgsave_picture_119360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119360.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Avi Rosenfeld - Very Heepy Very Purple XV (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119361.jpgsave_picture_119361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119361.jpg" />
 </div>
 
 

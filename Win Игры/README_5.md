@@ -6,7 +6,7 @@ BeamNG.drive (2015) [Ru/Multi] (0.37.2.0.18718) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1539.jpgsave_picture_1539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1539.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.0) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1647.jpgsave_picture_1647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1647.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1648.jpgsave_picture_1648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1648.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Other s [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1651.jpgsave_picture_1651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1651.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Lawn Mowing Simulator (2021) [Ru/Multi] (1.0.15.0/dlc) Repack FitGirl [Complete 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1664.jpgsave_picture_1664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1664.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ TRAIL OUT (2022) [Ru/Multi] (5.0/dlc) Repack FitGirl [Complete]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1673.jpgsave_picture_1673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1673.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1690.jpgsave_picture_1690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1690.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Greedland (2025) [Ru/Multi] (1.0.02) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1703.jpgsave_picture_1703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1703.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1704.jpgsave_picture_1704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1704.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1705.jpgsave_picture_1705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1705.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1709.jpgsave_picture_1709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1709.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack seleZen [Digi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1717.jpgsave_picture_1717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1717.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bloons TD 6 (2018) [Ru/Multi] (50.2.9835) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1720.jpgsave_picture_1720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1720.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Bad Cheese (2025) [Ru/Multi] (1.00.035) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1724.jpgsave_picture_1724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1724.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1727.jpgsave_picture_1727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1727.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ SCP: 5K / SCP: Pandemic (2022) [Multi] (0.17.0.154) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1729.jpgsave_picture_1729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1729.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ RoadCraft (2025) [Ru/Multi] (4.0.526486 526543/dlc) Repack FitGirl [Rebuild Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1731.jpgsave_picture_1731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1731.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1736.jpgsave_picture_1736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1736.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ TerraTech Worlds (2024) [Ru/Multi] (0.6.6.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1737.jpgsave_picture_1737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1737.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Last Epoch (2024) [Ru/Multi] (1.3.3.1/dlc) Repack Other s [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1743.jpgsave_picture_1743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1743.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1761.jpgsave_picture_1761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1761.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1762.jpgsave_picture_1762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1762.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1763.jpgsave_picture_1763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1763.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Rep
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1764.jpgsave_picture_1764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1764.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1765.jpgsave_picture_1765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1765.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack seleZen [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1893.jpgsave_picture_1893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1893.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249551.jpgsave_picture_249551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249551.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:847370C3A4A52A819AA3F383F440ECAA43E25E43
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249552.jpgsave_picture_249552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249552.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SUNLESS SKIES v2.0.4.fcf0af7a [En] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249553.jpgsave_picture_249553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249553.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:E30E0875D6F5558D766A81748473243052DAF8C5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249554.jpgsave_picture_249554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249554.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A96D09ADAA03A8B5EEF50775720BF72C5D74E0ED
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249555.jpgsave_picture_249555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249555.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:31C71512100127E6FB1783C35A485C3D5DA6E888
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249556.jpgsave_picture_249556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249556.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:205785EFA50413ACCA819101D7BB41E042C63751
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249557.jpgsave_picture_249557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249557.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:8A3B7F80F0CD6DF30ED2AB62B24F629BE930B928
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249558.jpgsave_picture_249558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249558.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:3DA43FA20032B2541EFB68DE722F472857970DF5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249559.jpgsave_picture_249559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249559.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ HitPaw Video Editor 1.4.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249560.jpgsave_picture_249560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249560.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Marvel’s Avengers – Deluxe Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249561.jpgsave_picture_249561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249561.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:815BAE9C138588BA7B237BF14C1F9488FFD99925
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249562.jpgsave_picture_249562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249562.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002, Break
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249563.jpgsave_picture_249563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249563.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:8F8EA8797AF8E997020CB922B1BC6D025BC66878
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249564.jpgsave_picture_249564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249564.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ PageEdit 1.9.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249565.jpgsave_picture_249565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249565.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:5F167AC1EA77773090F419CC62B76760033A0EE9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249566.jpgsave_picture_249566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249566.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:2BC04A23F8FE6DA8771988DB17C8BAD41DD8A1C2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249567.jpgsave_picture_249567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249567.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:C9278A582CCBC643AC69B81B323A3FDB2375C9F8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249568.jpgsave_picture_249568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249568.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:A502621F8308D7DA20F6ACECC0CB0D242408777B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249569.jpgsave_picture_249569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249569.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:376DEDAD59F3AB8A53035926C6E9391064A99128
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249570.jpgsave_picture_249570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249570.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249571.jpgsave_picture_249571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249571.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ WRC 10 FIA World Rally Championship (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249572.jpgsave_picture_249572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249572.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249573.jpgsave_picture_249573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249573.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249574.jpgsave_picture_249574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249574.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:67708780FF85D3D5395BCACE0FF52608B54C2AAC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249575.jpgsave_picture_249575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249575.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:FD7501C3D523CCC19C02FA606732B0D7295A549C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249576.jpgsave_picture_249576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249576.jpg" />
 </div>
 
 

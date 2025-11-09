@@ -6,7 +6,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168879.jpgsave_picture_168879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168879.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Christmas Stories 11: Taxi of Miracles / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168895.jpgsave_picture_168895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168895.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Strange Investigations 3: Secrets Can Be Deadly / Удивительные ра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168900.jpgsave_picture_168900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168900.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ The Christmas Spirit 3: Grimm Tales (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168953.jpgsave_picture_168953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168953.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168955.jpgsave_picture_168955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168955.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Unto The End (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169154.jpgsave_picture_169154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169154.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Trailmakers The Centrifuge (2019) [Ru/Multi] (1.0.4.30476) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169278.jpgsave_picture_169278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169278.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ IXION (2022) [Ru/Multi] (1.0.0.3) Repack DjDI [Deluxe Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169437.jpgsave_picture_169437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169437.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Togges (2022) [Ru/Multi] (1.03) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169439.jpgsave_picture_169439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169439.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ NecroBouncer (2022) [Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169460.jpgsave_picture_169460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169460.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231023) Scen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169624.jpgsave_picture_169624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169624.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ X-Force Under Attack (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169633.jpgsave_picture_169633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169633.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Airport CEO (2021) [Ru/Multi] (1.1/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169783.jpgsave_picture_169783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169783.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Grand Theft Auto III (2021) [Ru/Multi] (1.14718) Repack Other s [The Definitive 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169822.jpgsave_picture_169822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169822.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Divine Invasion (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169833.jpgsave_picture_169833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169833.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Street Outlaws 2: Winner Takes All (2021) [En] (7729942) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169860.jpgsave_picture_169860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169860.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169905.jpgsave_picture_169905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169905.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Oddworld: Soulstorm (2021) [En] (1.162/dlc) License CODEX [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169912.jpgsave_picture_169912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169912.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Castle on the Coast (2021) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169938.jpgsave_picture_169938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169938.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169976.jpgsave_picture_169976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169976.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Detective Olivia: The Cult of Whisperers / Детектив Оливия: Кул
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169992.jpgsave_picture_169992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169992.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fury Unleashed (2020) [Ru/Multi] (1.9.1.0) License GOG (обновляемая)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170035.jpgsave_picture_170035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170035.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170083.jpgsave_picture_170083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170083.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170202.jpgsave_picture_170202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170202.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Christmas Stories 8: Enchanted Express / Рождественские истор
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170353.jpgsave_picture_170353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170353.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Stray Souls (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170581.jpgsave_picture_170581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170581.jpg" />
 </div>
 
 

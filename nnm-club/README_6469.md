@@ -6,7 +6,7 @@ Seven Ravens - After the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204898.jpgsave_picture_204898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204898.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:DBC95D2B4E00767030481B902411844D559C87DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204899.jpgsave_picture_204899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204899.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0BD30516036C18F9013B89701294B014FF565B05
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204900.jpgsave_picture_204900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204900.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ LaunchBar 6 v.6.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204901.jpgsave_picture_204901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204901.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8DB36FB7B65A6C141376A0701201C6E164729BAA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204902.jpgsave_picture_204902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204902.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Imperial Night - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204903.jpgsave_picture_204903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204903.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Harvard Business Review (HBR) | Управление и лидерство дл�
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204904.jpgsave_picture_204904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204904.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Ofnus - Time Held Me Grey and Dying (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmosp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204905.jpgsave_picture_204905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204905.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:088891A4D95126367540EB0809760E694961C867
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204906.jpgsave_picture_204906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204906.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Red Jasper - 777 (2016) Deluxe Edition, 2023, Universal Records [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204907.jpgsave_picture_204907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204907.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:933271C1964FC2EDA34E72A8A27943368A9EF733
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204908.jpgsave_picture_204908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204908.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:4E3672BF4F9110052B4FD376BA0A52E34136CB33
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204909.jpgsave_picture_204909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204909.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Lazarvs - Blackest (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Groove Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204910.jpgsave_picture_204910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204910.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Apeaksoft DVD Creator for Mac 1.0.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204911.jpgsave_picture_204911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204911.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:F659AF91172C2A8E029160EE298CEDB646131E89
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204912.jpgsave_picture_204912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204912.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Stats 2.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204913.jpgsave_picture_204913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204913.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:DCBFB12C0B032F2EBE43B75D331866264519959E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204914.jpgsave_picture_204914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204914.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:533F885FC07C4DA4AFA6D6A6F6BA5BAFC2801BA3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204915.jpgsave_picture_204915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204915.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:8B43C2D154A7ED53526D7C8A8C5A1B5E83DF30CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204916.jpgsave_picture_204916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204916.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ MAGIX Vegas Pro 20.0 Build 214 [Multi]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204917.jpgsave_picture_204917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204917.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Indoorlands (2022) [Multi] (1.0.0f3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204918.jpgsave_picture_204918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204918.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:2780B8875BEE32CEF130CA1035D6AD3C26A43804
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204919.jpgsave_picture_204919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204919.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Jorn - 40 albums, 54CD (1994-2022) [FLAC|Lossless|image + .cue |tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204920.jpgsave_picture_204920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204920.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Grateful Dead - Wake of the Flood: The Angel's Share (2023) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204921.jpgsave_picture_204921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204921.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:14F1E2463AFE868A43FEB8F47823F26BDE893062
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204922.jpgsave_picture_204922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204922.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Mountain Of Power - Volume Five (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204923.jpgsave_picture_204923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204923.jpg" />
 </div>
 
 

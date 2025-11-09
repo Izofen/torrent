@@ -6,7 +6,7 @@ VA - Super Instrumental Collection Vol 1-35 (1994-2011) [MP3|320 кб/с]<Instru
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85642.jpgsave_picture_85642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85642.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Beelzebub / Вельзевул [2011, TV, 60] HDTV 720p Raw
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85643.jpgsave_picture_85643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85643.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Resident Evil 5 [Multi9\+] (RePack/1.0.0.129) 2009 | R.G. Shift
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85645.jpgsave_picture_85645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85645.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:91DE01AC5C38DA126A4FFD02D965646722FB2FA7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85646.jpgsave_picture_85646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85646.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Disco Remix Hits Русский (2012) [MP3|256 кб/с]<Disco, Dance, Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85647.jpgsave_picture_85647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85647.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Fallout: New Vegas Ultimate Edition [Ru/En] (RePack/1.4.0.525) 2012 l R.G. ReCod
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85648.jpgsave_picture_85648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85648.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:7B493DDBC850082C413D416F090BFEC33069BFF8
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85651.jpgsave_picture_85651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85651.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ West One Music - Collection Volumes 001 - 140 (2003 - 2012)
 >>Р—РІСѓРєРѕРІС‹Рµ Р±РёР±Р»РёРѕС‚РµРєРё
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85652.jpgsave_picture_85652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85652.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:56508DE97207292D14DE48070F45A5F1BE252DDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85656.jpgsave_picture_85656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85656.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:56508DE97207292D14DE48070F45A5F1BE252DDA
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85657.jpgsave_picture_85657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85657.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:56508DE97207292D14DE48070F45A5F1BE252DDA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85658.jpgsave_picture_85658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85658.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:56508DE97207292D14DE48070F45A5F1BE252DDA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85659.jpgsave_picture_85659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85659.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:88F6D913DDBA2CB38D41BB4FF976F7E4DABB8AA8
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85661.jpgsave_picture_85661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85661.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:8C59D34C64CE45C67FDBEFBC727B5333F8E68ECE
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85662.jpgsave_picture_85662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85662.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:AEB338FF224745C71B5C6C27AF921D9235B14EB0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85663.jpgsave_picture_85663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85663.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Philter - Beyond the Perimeter (2009) [FLAC|Lossless]<Psychedelic / Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85664.jpgsave_picture_85664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85664.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Photo Magician 2.1.0.0 [Мульти, Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85667.jpgsave_picture_85667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85667.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Photo Magician – отличная программа для быстрого �
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85668.jpgsave_picture_85668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85668.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:6AC1726E1B8EE9E6DE24E28BE33A60A97347E74E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85669.jpgsave_picture_85669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85669.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:6AC1726E1B8EE9E6DE24E28BE33A60A97347E74E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85670.jpgsave_picture_85670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85670.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:41A2135F3D4C724843E7B5020BE205E560758D61
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85677.jpgsave_picture_85677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85677.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ian Anderson - Thick As A Brick 2 - Whatever Happened to Gerald Bostock? (2012) 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85679.jpgsave_picture_85679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85679.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Ian Anderson - Thick As A Brick 2 - Whatever Happened to Gerald Bostock? (2012) 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85680.jpgsave_picture_85680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85680.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Шоферские Истории (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85684.jpgsave_picture_85684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85684.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ magnet:?xt=urn:btih:8D7D920B9E0479A585518035676AE8B004212C91
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85690.jpgsave_picture_85690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85690.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ magnet:?xt=urn:btih:752F9CADA506726C4E7E4FE9A1FC7EF4ECFDF45C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85693.jpgsave_picture_85693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85693.jpg" />
 </div>
 
 

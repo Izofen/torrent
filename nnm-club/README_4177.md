@@ -6,7 +6,7 @@ Mozilla Thunderbird 13.0 Beta 1 [Русский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129299.jpgsave_picture_129299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129299.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129300.jpgsave_picture_129300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129300.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129301.jpgsave_picture_129301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129301.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129302.jpgsave_picture_129302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129302.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129303.jpgsave_picture_129303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129303.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129304.jpgsave_picture_129304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129304.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129305.jpgsave_picture_129305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129305.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129306.jpgsave_picture_129306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129306.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129307.jpgsave_picture_129307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129307.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129308.jpgsave_picture_129308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129308.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129309.jpgsave_picture_129309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129309.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129310.jpgsave_picture_129310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129310.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Thunderbird - простая и удобная бесплатная програ
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129311.jpgsave_picture_129311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129311.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ CD - 1 - Оригинальная Версия:
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129312.jpgsave_picture_129312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129312.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ GOM Player Plus 2.3.73.5337 RePack (& Portable) by Dodakaedr [Ru/En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129313.jpgsave_picture_129313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129313.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Keb' Mo' - Good To Be... (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129314.jpgsave_picture_129314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129314.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Keb' Mo' - Good To Be... (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129315.jpgsave_picture_129315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129315.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Keb' Mo' - Good To Be... (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129317.jpgsave_picture_129317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129317.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Java SE Runtime Environment 8.0.3210.7 [En]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129319.jpgsave_picture_129319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129319.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ WinASO EasyTweak 3.0.3 Portable [Русский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129320.jpgsave_picture_129320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129320.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ WinASO EasyTweak Portable - мощный инструмент для очист�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129321.jpgsave_picture_129321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129321.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Wondershare Recoverit 10.0.9 [Multi/Ru]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129323.jpgsave_picture_129323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129323.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Wondershare Recoverit - профессиональное приложение, �
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129325.jpgsave_picture_129325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129325.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Посвящение Друзьям (2012) [MP3|256 кб/с]<Шансон>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129326.jpgsave_picture_129326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129326.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Посвящение Друзьям (2012) [MP3|256 кб/с]<Шансон>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129327.jpgsave_picture_129327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129327.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Посвящение Друзьям (2012) [MP3|256 кб/с]<Шансон>
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129329.jpgsave_picture_129329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129329.jpg" />
 </div>
 
 

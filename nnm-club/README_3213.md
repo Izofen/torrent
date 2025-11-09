@@ -6,7 +6,7 @@ Walter Smith III - three of us are from Houston and Reuben is not (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103889.jpgsave_picture_103889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103889.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B4C1CEB95A3C222941FDFEF1FE48DDBDDEBACB72
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103890.jpgsave_picture_103890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103890.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4A3A57B442045885CA4220730FD0D6200B4F635E
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103891.jpgsave_picture_103891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103891.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:25D2961A730826A1810ADB11EDBA78AFF389DC71
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103892.jpgsave_picture_103892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103892.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1A6A25306E00A82EE4963E013C28CB30F4EC914C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103893.jpgsave_picture_103893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103893.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Heart 2 Heart - Alley of Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103894.jpgsave_picture_103894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103894.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:6D5C92839C451374F1E9C84E7C71A13189B4C3A1
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103895.jpgsave_picture_103895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103895.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E1861476922BD7978C171736A45C0A74691C943F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103896.jpgsave_picture_103896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103896.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:84FAA98C4A3CAE511822C1F2A355E1192892346A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103897.jpgsave_picture_103897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103897.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:79636CE613441307EA87C366F4181B734C41EFC3
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103898.jpgsave_picture_103898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103898.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:94F71E53942A8C4C60B959E4D7702D54F23CD960
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103899.jpgsave_picture_103899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103899.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Bad Love Junkie - The Fool Is On The Ledge (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103900.jpgsave_picture_103900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103900.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:292EE378E183FA1744B7A4E9B0C6102DFEFC795C
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103901.jpgsave_picture_103901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103901.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:55318693E3D39B00536D6245B329BC370971318B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103902.jpgsave_picture_103902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103902.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Iterum Nata - From the Infinite Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103903.jpgsave_picture_103903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103903.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:E4E6AC2B76477D65626B8F86E4E76074031E88CF
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103904.jpgsave_picture_103904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103904.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Jesse "The Rad Hatter" Bedard - Lonely Busker Blues (2024) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103905.jpgsave_picture_103905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103905.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Glenn Gatsby - Mission Prohibition (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103906.jpgsave_picture_103906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103906.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Helloween - The Time of the Oath (1996) Remastered, 2024, Sanctuary Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103907.jpgsave_picture_103907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103907.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Aisha Khan - The Magnificent Twelve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103908.jpgsave_picture_103908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103908.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Helloween - Metal Jukebox (1999) Remastered, 2024, Sanctuary Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103909.jpgsave_picture_103909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103909.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Greg Nagy - The Real You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103910.jpgsave_picture_103910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103910.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Chick Corea & Bela Fleck - Remembrance (2024) Thirty Tigers [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103911.jpgsave_picture_103911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103911.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Cannonball Adderley - Poppin' In Paris: Live At L'Olympia (1972) 2024, Elemental
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103912.jpgsave_picture_103912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103912.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ magnet:?xt=urn:btih:45C906B77D289D4A8F31F5958C9CE742A7E2259C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103913.jpgsave_picture_103913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103913.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ magnet:?xt=urn:btih:B2C6A23F97F00FBC8BA7C5CA6A96D417DD13B5AA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103914.jpgsave_picture_103914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103914.jpg" />
 </div>
 
 

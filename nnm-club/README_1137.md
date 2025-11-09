@@ -6,7 +6,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29917.jpgsave_picture_29917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29917.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A30A3FA4CD4271A5A3E1E8F8B294348C1F3E0515
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29918.jpgsave_picture_29918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29918.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Google Chrome 132.0.6834.111 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29919.jpgsave_picture_29919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29919.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:A5AA0960C1C99D7ED2728EAB9D5973C86C224DF7
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29920.jpgsave_picture_29920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29920.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:A8701870917318EAA2DECDA0C9D3226EB66360F1
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29921.jpgsave_picture_29921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29921.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:6FA0E2527D0D4BF0E6E6535AFA3A7DB2B9E07B41
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29922.jpgsave_picture_29922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29922.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Armik - Gitano Amor (2025) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29923.jpgsave_picture_29923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29923.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:E53715FF24196061FC5D63069C75A9AEAB3C4B5B
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29924.jpgsave_picture_29924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29924.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:17D4BD69615912DF3F93983476C9E84A7DE8D7F9
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29925.jpgsave_picture_29925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29925.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8D30A9F816C26B8ABF307A92FAF7E3E15DC3B78A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29926.jpgsave_picture_29926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29926.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:FBBF7EF9D4C3ACD05F6E785274185C8A4E051FAF
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29927.jpgsave_picture_29927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29927.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ FxSound 1.1.28.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29928.jpgsave_picture_29928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29928.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29929.jpgsave_picture_29929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29929.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:8B6BA02F6B36086A69304D5455FEE7E8563248AA
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29930.jpgsave_picture_29930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29930.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:D8BBC58F751E8806CA30C8DB1C7B884E5460D040
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29931.jpgsave_picture_29931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29931.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:D8BBC58F751E8806CA30C8DB1C7B884E5460D040
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29932.jpgsave_picture_29932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29932.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:351F34FC9B6E1A17588D53FE813160627BE9532F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29933.jpgsave_picture_29933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29933.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:8E583411C2CC13254DB1B8483E2AA974D2FF5A15
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29934.jpgsave_picture_29934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29934.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:848FFE87C3A9DC0B4CB4860C709D270571953B97
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29935.jpgsave_picture_29935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29935.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:848FFE87C3A9DC0B4CB4860C709D270571953B97
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29936.jpgsave_picture_29936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29936.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.325) Repack Let'sРlay [Premium E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29937.jpgsave_picture_29937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29937.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Venom (& Venom inc., ex-M:Pire of Evil) - Studio Albums (11 releases) (1997-2022
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29938.jpgsave_picture_29938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29938.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Aiarty Image Enhancer 3.2 Portable by FC Portables [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29939.jpgsave_picture_29939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29939.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:6EEB27C95AE41461A44108D35D787488CD8ABCD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29940.jpgsave_picture_29940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29940.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Wondershare PDFelement 11.4.5.3307 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29941.jpgsave_picture_29941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29941.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Deepest Chamber: Resurrection (2021) [Multi] (1.088) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29942.jpgsave_picture_29942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29942.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ AIMP 5.11 Build 2428 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242134.jpgsave_picture_242134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242134.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Iris 1.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242135.jpgsave_picture_242135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242135.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - I Love Lounge Beach (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242136.jpgsave_picture_242136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242136.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ GoodNotes 5 v5.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242137.jpgsave_picture_242137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242137.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:49735200FDC89962868D5051B4AB3091AE019366
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242138.jpgsave_picture_242138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242138.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Christopher Lawrence - Un-Hooked: The Hook Sessions (2004) [MP3|320 Kbps] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242139.jpgsave_picture_242139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242139.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Perfectly Clear WorkBench 4.4.0.2473 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242140.jpgsave_picture_242140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242140.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Amplitude Studios | Артбук по игре Endless Space / The Art of Endles
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242142.jpgsave_picture_242142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242142.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Private Room - The Winter Lounge Session (2016) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242143.jpgsave_picture_242143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242143.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Infinite & Divine - Ascendancy (2023) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242144.jpgsave_picture_242144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242144.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Cause N Effect - Validation Through Suffering (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242145.jpgsave_picture_242145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242145.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:75C05EB135233ED410AE7A146BC54E3093C4E2FC
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242146.jpgsave_picture_242146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242146.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - TrackWolves Best Of 2021 DJ Mix (2021-2022) [MP3|320 Kbps] <Electro House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242147.jpgsave_picture_242147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242147.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Electronic Wunderland Vol.1 20 Chill out Master Pieces (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242149.jpgsave_picture_242149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242149.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Amplitude Studios | Артбук по игре Endless Legend / The Art of Endle
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242150.jpgsave_picture_242150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242150.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:D633AFDE03F3E52026D82BD4E4B872000C101004
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242151.jpgsave_picture_242151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242151.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Tacticool (2019) [Ru] (28.07.22) License (обновляемая)
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242152.jpgsave_picture_242152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242152.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ August Burns Red - Guardians (2020) [MP3|320 Kbps] <Progressive Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242153.jpgsave_picture_242153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242153.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Emotions (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242155.jpgsave_picture_242155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242155.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:CC17D1F72272E51A5788A8F9FEDAFEB4BCB6CA05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242156.jpgsave_picture_242156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242156.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ magnet:?xt=urn:btih:F2D5CA6E5B7739C2B75690F9FD9485B45F7C22E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242157.jpgsave_picture_242157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242157.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ MediaInfoXP 2.45 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242158.jpgsave_picture_242158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242158.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Acoustica MixCraft Pro Studio 9 9.0 Build 470 (x86/x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242159.jpgsave_picture_242159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242159.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:C2C71A10766B4EB6FF9D094F3DF1D3BEF7021B62
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242160.jpgsave_picture_242160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242160.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Superdog - SuPerDoG (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242161.jpgsave_picture_242161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242161.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Twilight - Sign of the Times (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242162.jpgsave_picture_242162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242162.jpg" />
 </div>
 
 

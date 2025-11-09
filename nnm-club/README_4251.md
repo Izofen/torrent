@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131846.jpgsave_picture_131846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131846.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4E01FB9EAF7C91ADC99BFC9A54B7E2F80A260F0B
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131847.jpgsave_picture_131847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131847.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ HWiNFO 7.67 Build 5280 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131848.jpgsave_picture_131848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131848.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:B5431E2B9B9B9ABF2029B066C63F97DFF42B220C
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131849.jpgsave_picture_131849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131849.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Coffee Jazz Melody - Autumn Colors (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131850.jpgsave_picture_131850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131850.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Smooth Jazz Music Ensemble - Warm Winter Wine (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131852.jpgsave_picture_131852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131852.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:1A9A07E6842C3FECB4EC78C03B3BA5CC42D0B674
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131853.jpgsave_picture_131853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131853.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:56410EC5F31D33C771584388804E8152391AB83F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131854.jpgsave_picture_131854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131854.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:1878C030629CAEB4B7C86EECC60F156F4136F622
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131856.jpgsave_picture_131856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131856.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:0501C5B2C5B64BBD3AF27FA3BFD6F1E4B822FF15
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131857.jpgsave_picture_131857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131857.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:99B377349380A7A632DAD2120649E5E18AE76801
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131858.jpgsave_picture_131858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131858.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:A301EC74F3EF46ED87E1C03BA3055115F9AAC685
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131860.jpgsave_picture_131860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131860.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Satanic Warmaster - Strength and Honour (2001) Reissue, 2007, Northern Heritage 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131861.jpgsave_picture_131861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131861.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:5D4DB25FDB041BAEDAE23B0B0D0AE63F3EBC4260
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131862.jpgsave_picture_131862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131862.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:DEFA258C575250580FD50C0B4EDBCE4E527326C0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131863.jpgsave_picture_131863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131863.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Andrew Hill - The Complete Blue Note Sessions (1963 - 1966) 7CD, 1995, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131864.jpgsave_picture_131864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131864.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:2481B7AA83AE728D221F48DD32E193E225B5050E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131865.jpgsave_picture_131865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131865.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:C55DD0A6EF4C73563D75951AB9E9F8566EDDC0FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131866.jpgsave_picture_131866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131866.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:06B041034FEE0E4C9F8C4FE168E8C6FDF0C1F5BF
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131867.jpgsave_picture_131867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131867.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Kaban - В Мире Животных (2021) [FLAC|Lossless|image + .cue] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131868.jpgsave_picture_131868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131868.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:252BA71549F33D2F739C7D368D68AC9CE75225FD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131871.jpgsave_picture_131871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131871.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:44F57495F019A4FE7B155B587B699005A0325006
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131873.jpgsave_picture_131873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131873.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:F551B2A2EE05203B5E3B62C27740C06204E569DE
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131874.jpgsave_picture_131874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131874.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:6D8762CC53BF0B23D7EBCB24ADF634F1D8B85A61
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131875.jpgsave_picture_131875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131875.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:6D7DCBEF64B03B750CC0EC77F4411B5EB5B9198C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131879.jpgsave_picture_131879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131879.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:32CFA9F881D739F3A9CE9E6EED58EB99722BB41C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131880.jpgsave_picture_131880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131880.jpg" />
 </div>
 
 

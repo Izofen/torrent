@@ -6,7 +6,7 @@ Luminar Neo 1.15.0.12363 (x64) Portable by conservator [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162317.jpgsave_picture_162317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162317.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:CF10F5874E56626E19528ED6C5552C216022BA1D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162318.jpgsave_picture_162318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162318.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:5D55024A4906FDA5AED911D74519B7D1B7465EE7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162319.jpgsave_picture_162319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162319.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:77FBDD622CCAC7B87E208669AC35AEEF023B8318
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162320.jpgsave_picture_162320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162320.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:534A7F76A4AA3457CFAB19CEAA6A0DF4D30AC7E3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162321.jpgsave_picture_162321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162321.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Wise Disk Cleaner 11.0.5.819 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162322.jpgsave_picture_162322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162322.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A05377D32FFB892825EB2E97F4ACAF6C0D8DC888
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162323.jpgsave_picture_162323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162323.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:2126726A24BCA332BDBAAE5E042F5C1D54A42235
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162324.jpgsave_picture_162324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162324.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Serial Box & SerialSeeker 11-2023 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162325.jpgsave_picture_162325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162325.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BEEF5CC276C673FFB04D5BA5310615ADC2A34D94
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162326.jpgsave_picture_162326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162326.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:6C1231A9EC15E4297D47186C1CF8C4B12523F99A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162327.jpgsave_picture_162327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162327.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:631C7A09288392D28B740F34308DD0A49547BCD3
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162328.jpgsave_picture_162328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162328.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Lone Crow Rebellion - Ain't No Shame (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162329.jpgsave_picture_162329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162329.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:BF103CA2931CB83DB1FA436553DC2A14D453F677
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162330.jpgsave_picture_162330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162330.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Topaz Photo AI for Mac 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162331.jpgsave_picture_162331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162331.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Kyle Kelly Pleasants - Why Can't We All Just Get Along (2020) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162332.jpgsave_picture_162332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162332.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C5B5B38C042C078673717248A3409FD170617CC9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162333.jpgsave_picture_162333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162333.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Chicago - Greatest Christmas Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162334.jpgsave_picture_162334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162334.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:ADDCFC6283CE71AF6B47E86338186664588CBD7E
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162336.jpgsave_picture_162336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162336.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:BC81215CCEC8FCBBB33C5CE0107306495196B294
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162337.jpgsave_picture_162337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162337.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:28D21C37844F6AEA3D9A24291C1C49DCEA48E77E
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162338.jpgsave_picture_162338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162338.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NCH Debut Professional 6.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162339.jpgsave_picture_162339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162339.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:4974659C572DAD754296274FF8CFF6F037A46BB9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162340.jpgsave_picture_162340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162340.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ DJ Calma - Favorites Collection (2025) [MP3|320 Kbps] <Pop, Dance, Electronic, O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162341.jpgsave_picture_162341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162341.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Moaning Silence - A Waltz Into Darkness (2020) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162342.jpgsave_picture_162342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162342.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ MemTest86 10.1 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162343.jpgsave_picture_162343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162343.jpg" />
 </div>
 
 

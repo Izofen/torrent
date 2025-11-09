@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142214.jpgsave_picture_142214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142214.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Mirillis Splash 2.2.0.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142215.jpgsave_picture_142215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142215.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Swing Sisters, Volume One (2021) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, S
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142217.jpgsave_picture_142217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142217.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:943425734F51EB110719B3BE3ECAF3B6E32BE0F1
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142218.jpgsave_picture_142218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142218.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:AE047A79EACC03DADA3D6C1AB7461449F058C775
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142221.jpgsave_picture_142221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142221.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:CA54319791E163FF42C1A296116EC9C51BFB4189
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142223.jpgsave_picture_142223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142223.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:AAC0585B0345A71006DE184186475A1E57228FAA
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142224.jpgsave_picture_142224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142224.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:56DE00235754D6FD5A26ACA67C269A3BB0D70639
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142225.jpgsave_picture_142225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142225.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:088B10530501E593C7685CAC12D3B418AD032D10
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142226.jpgsave_picture_142226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142226.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Gorgoroth - Дискография (8 альбомов + Bootleg) (1994-2009) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142227.jpgsave_picture_142227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142227.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Kiss FM Top 40: December (2017) [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142229.jpgsave_picture_142229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142229.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Deep Blue Sea, Vol. 1: Deep Ambient Moods (2013) [AAC|~319 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142230.jpgsave_picture_142230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142230.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Tower Pro 10 v.10.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142231.jpgsave_picture_142231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142231.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:0D75E87246F4FFA550F9C66BD6C9780F43413761
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142232.jpgsave_picture_142232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142232.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Mozilla Firefox Quantum 57.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142234.jpgsave_picture_142234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142234.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:EAF6D5AFACB84CF870F1AC5B44A6F551F33F63CA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142235.jpgsave_picture_142235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142235.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:281D13C22519895895E18252BEF891AAC2FCC170
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142238.jpgsave_picture_142238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142238.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Cookie 6.6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142239.jpgsave_picture_142239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142239.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142240.jpgsave_picture_142240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142240.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:58E0F6F232DB6497DBC2C3C5DD5E0499F4395533
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142241.jpgsave_picture_142241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142241.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ OBS (Open Broadcaster Software) 0.657 Beta Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142242.jpgsave_picture_142242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142242.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142243.jpgsave_picture_142243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142243.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:0B08F2848DFD6ABE9B7B56F5D4260D3A9DCA4F42
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142244.jpgsave_picture_142244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142244.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:91F8E8EBA481ADDBE80CF1109F4BDD58FA0E2CD4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142245.jpgsave_picture_142245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142245.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:B730210AAEDE4F636E9958F6214666B6CF44C6FD
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142247.jpgsave_picture_142247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142247.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Privatus 6 v6.3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142248.jpgsave_picture_142248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142248.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ David Coverdale - Whitesnake (1977) [FLAC|24/192|image |Vinyl-Rip] <Hard Rock, B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160421.jpgsave_picture_160421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160421.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160655.jpgsave_picture_160655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160655.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Seventh Wonder - Mercy Falls (2008) Reissue, 2023, Frontiers Music SRL [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160667.jpgsave_picture_160667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160667.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160770.jpgsave_picture_160770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160770.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Euro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160800.jpgsave_picture_160800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160800.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160835.jpgsave_picture_160835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160835.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160839.jpgsave_picture_160839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160839.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ DGM - Momentum (2013) Reissue, 2014, Night Of The Vinyl Dead Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160861.jpgsave_picture_160861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160861.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161365.jpgsave_picture_161365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161365.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ HIM - Studio Albums (10 releases) (1997 - 2013) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161775.jpgsave_picture_161775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161775.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162138.jpgsave_picture_162138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162138.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Аракс / Веселые Ребята - Песни На Стихи Ви�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163119.jpgsave_picture_163119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163119.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Riverside - ID.Entity (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163549.jpgsave_picture_163549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163549.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163596.jpgsave_picture_163596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163596.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Stratovarius (Kotipelto, Cain's Offering) - Studio Albums (23 releases) (1989 - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163795.jpgsave_picture_163795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163795.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ In This Moment - Studio Albums (8 Releases) (2007-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164935.jpgsave_picture_164935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164935.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165358.jpgsave_picture_165358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165358.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bernie Marsden - And About Time Too (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165395.jpgsave_picture_165395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165395.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ DGM - Tragic Separation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165417.jpgsave_picture_165417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165417.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:584311E08528C64FED8854D83F3CC5B28E56DACE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165887.jpgsave_picture_165887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165887.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166534.jpgsave_picture_166534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166534.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Fozzy - Studio Albums (8 releases) (2000 - 2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166735.jpgsave_picture_166735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166735.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Танец На Барабане. Поют Н. Гнатюк, Е. Голов
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166749.jpgsave_picture_166749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166749.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:CA7D22189496E1CCE8E36D661D60FE6C3C44E893
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167741.jpgsave_picture_167741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167741.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Bolt Thrower - Studio Albums (8 releases) (1988-2005) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167966.jpgsave_picture_167966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167966.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167985.jpgsave_picture_167985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167985.jpg" />
 </div>
 
 

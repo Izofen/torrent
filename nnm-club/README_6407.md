@@ -6,7 +6,7 @@ JetBrains WebStorm for Mac 2023.2.1 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203251.jpgsave_picture_203251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203251.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Google Earth Pro 7.3.6.9345 (x64) Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203252.jpgsave_picture_203252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203252.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BF13B0FC868B323B1DCA2F8C82C25334B62C5E99
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203253.jpgsave_picture_203253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203253.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C34D7594B187F0457FB9B5A1CAB66A9AAB9B277C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203254.jpgsave_picture_203254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203254.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MacCleaner 3 PRO 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203255.jpgsave_picture_203255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203255.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:1151C3007CAF94251338C6F7C7758CE45286ED58
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203256.jpgsave_picture_203256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203256.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:28060BDA6C1F32056165B19CE3CEB3796B5BE6E2
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203257.jpgsave_picture_203257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203257.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Windows 10 Manager 3.8.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203258.jpgsave_picture_203258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203258.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:DF666D667ADEDB3C5D5FA15F5965645A03177EE6
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203259.jpgsave_picture_203259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203259.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:5D6E7422D0996A3C4B0565E9DCCF0A72EAD61678
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203260.jpgsave_picture_203260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203260.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:E082F5C246FF19A1D172BFAF837DC22F47168227
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203261.jpgsave_picture_203261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203261.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:06E1417C0921F6B380CFCF070775798B453F458F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203262.jpgsave_picture_203262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203262.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AIDA64 Extreme Edition  6.85.6329 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203264.jpgsave_picture_203264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203264.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:DF578596F2F3F01FA64448078922FAE5F9557EF9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203265.jpgsave_picture_203265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203265.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:234685B195E2743527D64B674A5A33036823A172
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203266.jpgsave_picture_203266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203266.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203267.jpgsave_picture_203267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203267.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Prime Creation - Tell Freedom I Said Hello (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203268.jpgsave_picture_203268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203268.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Joel Astley - Seattle to Greaseland (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203269.jpgsave_picture_203269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203269.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:F952C533AEB4B7DF785D805AB8A8A4E4B9E85270
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203270.jpgsave_picture_203270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203270.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Triple Kill - Blackened Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203271.jpgsave_picture_203271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203271.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:407AA1CA5FF27A696E56BC3E1A9BB31A1D580EC5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203272.jpgsave_picture_203272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203272.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Steve Kilbey - The Hall Of Counterfeits (2021) 2 CD, Reissue, 2023, Easy Action 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203273.jpgsave_picture_203273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203273.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:DB7728C0FD3AEE2B3D0F1FEB1341E6A64F3B8372
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203274.jpgsave_picture_203274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203274.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Candlebox - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203276.jpgsave_picture_203276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203276.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:1CF82B280F0902AA9EC760ED31E58FF423CE7420
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203277.jpgsave_picture_203277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203277.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:104F2703F09D9EF33527E7B5CFA6C3003DF525EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203278.jpgsave_picture_203278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203278.jpg" />
 </div>
 
 

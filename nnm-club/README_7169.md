@@ -6,7 +6,7 @@ R.saver 9.5 [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245347.jpgsave_picture_245347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245347.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Pastebot 2.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245348.jpgsave_picture_245348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245348.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Jim Keller - By No Means (2021) [FLAC|Lossless|WEB-DL|tracks] <Roots Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245349.jpgsave_picture_245349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245349.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:B3B0284CD36C3886D807E6F40CCD66AE0AFFF503
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245350.jpgsave_picture_245350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245350.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Tayasui Sketches Pro 6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245351.jpgsave_picture_245351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245351.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9901B0995543ADE5D9E2FF3269E67FDD18B1EEDE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245352.jpgsave_picture_245352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245352.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Moonlight Benjamin - Wayo (2023) [MP3|320 Kbps] <Blues Rock, Voodoo Rock, Native
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245353.jpgsave_picture_245353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245353.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:E3CFCE11847B1647E79ACCC1BAC120C184EC8ED2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245354.jpgsave_picture_245354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245354.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:3305F602EB3A12546FE22B14BF3226E353A69014
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245355.jpgsave_picture_245355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245355.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Movie Thumbnails Maker 4.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245356.jpgsave_picture_245356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245356.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:2EA17CEA4B6FE8685181B4EA78AE4A0A12A8E11B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245357.jpgsave_picture_245357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245357.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Panopticon - Roads To The North (2014) [FLAC|Lossless|image + .cue] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245358.jpgsave_picture_245358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245358.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ RAR Extractor – The Unarchiver Pro 6.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245359.jpgsave_picture_245359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245359.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:CB9B9FEA6BC55A71972316444A61C72D209C920E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245360.jpgsave_picture_245360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245360.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:0827057669896A496CCB7F23C41EE2280181B21E
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245361.jpgsave_picture_245361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245361.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:DC1077E386B508728DE3789926A30E384D3F9D13
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245362.jpgsave_picture_245362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245362.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ ByClick Downloader Premium 2.3.38 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245363.jpgsave_picture_245363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245363.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:2AB92A75A720BAC839088D9EAA1E02F9B8B3EAB0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245364.jpgsave_picture_245364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245364.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Manegarm - Manegarm (2015) [FLAC|Lossless|image + .cue] <Viking Metal, Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245365.jpgsave_picture_245365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245365.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Mirko Hirsch - Flashes in the Night (2021) [AAC|~352 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245366.jpgsave_picture_245366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245366.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Sketch 95.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245367.jpgsave_picture_245367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245367.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:39B1D09EDBAA8BDB521AA9121951AE5CA7F2169A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245368.jpgsave_picture_245368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245368.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:4CECEFF8E66C29BD365A2377751896EE520301DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245369.jpgsave_picture_245369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245369.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Legacy Pilots - Helix (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Sy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245370.jpgsave_picture_245370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245370.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:771B9DB4583CB5FF3600DC9E1DD4811F7C012C99
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245371.jpgsave_picture_245371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245371.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Sedmina - Melita & Veno Dolenc (1980) Reissue,  2014,  Mellotron Records [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245372.jpgsave_picture_245372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245372.jpg" />
 </div>
 
 

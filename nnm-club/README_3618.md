@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114443.jpgsave_picture_114443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114443.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AF59784C65FF20FFB08F13FDC9B59F4DBB1882B3
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114444.jpgsave_picture_114444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114444.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114445.jpgsave_picture_114445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114445.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:69E820F81468CD6A12CD41802DE492D5FEB84476
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114446.jpgsave_picture_114446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114446.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:F57584E26A92365E0863E702CEC97F97914607ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114447.jpgsave_picture_114447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114447.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D56E52F0D0A10F8EFD0130A8914B1319057C918D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114448.jpgsave_picture_114448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114448.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:A8CD2D2B4836777436086A7C83E4E44D7E7B8D76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114449.jpgsave_picture_114449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114449.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:FB93D8ED3CD409C89CE8313DF5148DEBE1C3B731
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114450.jpgsave_picture_114450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114450.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Malwarebytes AdwCleaner 8.4.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114451.jpgsave_picture_114451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114451.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:57571D6E8E4AFD5D8E6C4159AB4077B0167FE13C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114452.jpgsave_picture_114452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114452.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:D369AC8D8A7D630FCA1DE176BB6EC3626A3B21C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114453.jpgsave_picture_114453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114453.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Granblue Fantasy: Relink (2024) [Multi] (1.0.4/dlc) Repack FitGirl [Special Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114454.jpgsave_picture_114454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114454.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Stardock Start 2.0.6.4 RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114455.jpgsave_picture_114455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114455.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Branford Marsalis - Trio Jeepy (1989) CBS [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114456.jpgsave_picture_114456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114456.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Text Workflow 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114457.jpgsave_picture_114457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114457.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ PullTube 1.8.5.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114458.jpgsave_picture_114458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114458.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Navicat Charts Viewer for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114459.jpgsave_picture_114459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114459.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Ellis Marsalis - An Open Letter To Thelonious (2008) ELM Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114460.jpgsave_picture_114460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114460.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Navicat for SQL Server on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114461.jpgsave_picture_114461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114461.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:22B30B0E67FC48B053F3E4F9F6294729CF291756
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114462.jpgsave_picture_114462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114462.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Navicat for MySQL for Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114463.jpgsave_picture_114463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114463.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Navicat Charts Creator for Mac 1.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114464.jpgsave_picture_114464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114464.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Wynton Marsalis - My Funny Valentine: Live At Bubba's (1980) 1998, Pulse [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114465.jpgsave_picture_114465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114465.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Navicat for SQLite on Mac 16.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114466.jpgsave_picture_114466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114466.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:54F43540AC0645623C98C882D57068DC5E2B8F0D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114467.jpgsave_picture_114467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114467.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Serial Box & SerialSeeker 03-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114468.jpgsave_picture_114468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114468.jpg" />
 </div>
 
 

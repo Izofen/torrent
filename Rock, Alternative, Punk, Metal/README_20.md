@@ -6,7 +6,7 @@ Feral Cry - Shadow Whisper (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29120.jpgsave_picture_29120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29120.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nagart - 13 этаж (2025) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29133.jpgsave_picture_29133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29133.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Perpetual Rage - The Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29143.jpgsave_picture_29143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29143.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Stand Up And Shout - A Tribute To Ronnie James Dio (2015) [MP3|320 Kbps] <H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29361.jpgsave_picture_29361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29361.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Piah Mater - Under The Shadow Of A Foreign Sun (2024) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29378.jpgsave_picture_29378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29378.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Halo Effect - March Of The Unheard (2025) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29572.jpgsave_picture_29572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29572.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Uriah Heep - 26 Studio Albums, 8 Live, 27 Compilations (1970 - 2023) 167 CD [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29654.jpgsave_picture_29654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29654.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Led Zeppelin - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29701.jpgsave_picture_29701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29701.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Linkin Park - From Zero: A Cappellas (2025) [MP3|320 Kbps] <Alternative & Indie>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29782.jpgsave_picture_29782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29782.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:83B96CA09284FEC0993FD2C4773D0EFF27681C26
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29893.jpgsave_picture_29893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29893.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:7BE6570ACC433DA1C953609E1FF92E05A3E1469F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29897.jpgsave_picture_29897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29897.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Mogwai - The Bad Fire (2025) [FLAC|Lossless|Web-DL|tracks] <Post-Rock, Shoegaze,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29901.jpgsave_picture_29901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29901.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Soniq Circus - Cursed Cruise (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29906.jpgsave_picture_29906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29906.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Jack Lancaster & Robin Lumley - Peter And The Wolf (1975) [MP3|320 Kbps] <Progre
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29907.jpgsave_picture_29907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29907.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:5CD785FD205DCDA83642227D7F94C53646D16EBD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29979.jpgsave_picture_29979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29979.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:A5B57D307FA2EE248A8C6EA6C9EF1C63A82F4E9F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29991.jpgsave_picture_29991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29991.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Bloodhound Gang - Hooray For Boobies (1999) Expanded Edition, 2024, Geffen [FLAC
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30005.jpgsave_picture_30005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30005.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Dream Theater - Midnight Messiah (2025) EP [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30009.jpgsave_picture_30009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30009.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Grave Digger - Bone Collector (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30011.jpgsave_picture_30011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30011.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Bonfire - Higher Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30027.jpgsave_picture_30027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30027.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Riot V - Mean Streets (2024) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30097.jpgsave_picture_30097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30097.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Vessel - Another Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30101.jpgsave_picture_30101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30101.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Dave Matthews Band - Big Whiskey and the GrooGrux King (2009) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30318.jpgsave_picture_30318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30318.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Grand Magus - Sunraven (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30319.jpgsave_picture_30319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30319.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ In Vain - Solemn (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30321.jpgsave_picture_30321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30321.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Def Leppard - One Night Only: Live At The Leadmill (2024) [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30423.jpgsave_picture_30423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30423.jpg" />
 </div>
 
 

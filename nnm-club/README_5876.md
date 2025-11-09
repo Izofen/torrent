@@ -6,7 +6,7 @@ Chasys Draw IES 5.28.01 include Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184740.jpgsave_picture_184740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184740.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184743.jpgsave_picture_184743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184743.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Smartpoly | Unreal Engine 5 Multiplayer Steam Survival Game Course (2022) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184744.jpgsave_picture_184744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184744.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Sabbra Cadabra - Kissmoker (A Stoner Rock Tribute To Kiss) (2023) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184745.jpgsave_picture_184745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184745.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Text Edit Plus 13.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184748.jpgsave_picture_184748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184748.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184749.jpgsave_picture_184749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184749.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184750.jpgsave_picture_184750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184750.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:33EBC63D261526CAA7F6E6EBE19BF3FE21461F86
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184753.jpgsave_picture_184753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184753.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:3C65CACBB4FE824EE786715BCADF5B63387EB3A9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184755.jpgsave_picture_184755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184755.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:726A629BE068F8FDEC7849A7A8BE7635F78C747F
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184758.jpgsave_picture_184758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184758.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ LP Giobbi - Light Places (2023) Deluxe Edition [FLAC 24/44.1/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184759.jpgsave_picture_184759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184759.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:55DE6AB75D5484F9E170A266DF6F28C2554A0D93
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184760.jpgsave_picture_184760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184760.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:1862E0CCDACF3891D6107F246BACD8D964560076
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184763.jpgsave_picture_184763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184763.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:B93E1B1C46D240410FA493AE8FECF0127AC20276
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184764.jpgsave_picture_184764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184764.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:0D1043EE82038B50A9364935830FC70FBADCDA0C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184765.jpgsave_picture_184765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184765.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184767.jpgsave_picture_184767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184767.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Romantic Melodies - Moonlight Sax (2004) [APE|Lossless|image + .cue] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184769.jpgsave_picture_184769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184769.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Autograf - Affirmations (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Pro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184770.jpgsave_picture_184770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184770.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:A54AB74722904F698D8859E45DFEB3D2A8592965
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184771.jpgsave_picture_184771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184771.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Maya - Maya (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184774.jpgsave_picture_184774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184774.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Udemy, Andrei Neagoie и др. | JavaScript веб проекты: 20 проек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184775.jpgsave_picture_184775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184775.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:CCA3A0B4201D43904C64D9684CE80E2A164417C3
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184777.jpgsave_picture_184777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184777.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Crimson Dawn - It Came From The Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184779.jpgsave_picture_184779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184779.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pixel, Татьяна Климань | Иллюстрации в Adobe Illustrat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184780.jpgsave_picture_184780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184780.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Sandboxie 5.66.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184783.jpgsave_picture_184783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184783.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Terraria v.1.4.4.9 v3 (2011) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184784.jpgsave_picture_184784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184784.jpg" />
 </div>
 
 

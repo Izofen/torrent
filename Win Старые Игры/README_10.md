@@ -6,7 +6,7 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140080.jpgsave_picture_140080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140080.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141252.jpgsave_picture_141252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141252.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141907.jpgsave_picture_141907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141907.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Star Wars Jedi Knight: Mysteries of the Sith (1998) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142044.jpgsave_picture_142044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142044.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Big Fish Games Universal Crack / Активатор игр Big Fish Games (2016)
 >>NoCD/NoDVD/Crack для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143659.jpgsave_picture_143659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143659.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143815.jpgsave_picture_143815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_143815.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144025.jpgsave_picture_144025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144025.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144242.jpgsave_picture_144242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144242.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:561A324397E3C849E4A285FB1E0032240A343D1B
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146594.jpgsave_picture_146594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146594.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Space Clash: The last frontier / Космические войны: Послед
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147974.jpgsave_picture_147974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147974.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Grand Theft Auto Mission Pack: London 1969 & 1961 (1999) [Ru/Multi] (1.0) Lossle
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148086.jpgsave_picture_148086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148086.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Flight Simulator 2004: A Century of Flight (2003) [Ru/En] (9.1) Repack
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150576.jpgsave_picture_150576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150576.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150707.jpgsave_picture_150707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150707.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151566.jpgsave_picture_151566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151566.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Imperialism (1997) [Multi] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152279.jpgsave_picture_152279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152279.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06/1.02 RUS) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152345.jpgsave_picture_152345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152345.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Thief: Deadly Shadows / Thief 3: Тень смерти (2004) [Multi] (1.1) Lice
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153125.jpgsave_picture_153125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153125.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154585.jpgsave_picture_154585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154585.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:854A65829FAB9D92A7BA7BE906045F855BC48376
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154619.jpgsave_picture_154619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154619.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155095.jpgsave_picture_155095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155095.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Civilization 2: Test of Time [Ru] (P) 1999
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpgsave_picture_155945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155945.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Black Moon Chronicles (1999) [En/Fr/Ge] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156400.jpgsave_picture_156400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156400.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156455.jpgsave_picture_156455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156455.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157499.jpgsave_picture_157499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157499.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Quake II (1997) [Ru/Multi] (5984/dlc) License GOG [Enhanced]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160715.jpgsave_picture_160715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160715.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ StarCraft (1998) [Ru/En] (1.16.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpgsave_picture_162256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162256.jpg" />
 </div>
 
 

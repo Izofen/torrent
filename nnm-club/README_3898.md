@@ -6,7 +6,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121812.jpgsave_picture_121812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121812.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:65AEB697031CDA379444A6F086474A837B71F99D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121813.jpgsave_picture_121813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121813.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5AD1106D4277F7BCEBE97FBD3D69F4222BF7E158
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121814.jpgsave_picture_121814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121814.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9E39CB33FDAD4944D0CF2F556D91B1EF16E0D888
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121815.jpgsave_picture_121815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121815.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Howard Alden & Jack Lesberg - No Amps Allowed (1988) Chiaroscuro Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121817.jpgsave_picture_121817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121817.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:B1C04383BF153AEBF66AC6B943CCDD17C5F7EAD9
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121818.jpgsave_picture_121818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121818.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Scrutiny 12.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121819.jpgsave_picture_121819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121819.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Animarum - The Gaian Mind (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121820.jpgsave_picture_121820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121820.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Misery - Out Of My Hands (1994) Remaster, 2023, Eonian Records [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121821.jpgsave_picture_121821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121821.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:3D51598640CFBD0676BCD948FB441386DFA7225A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121822.jpgsave_picture_121822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121822.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:DAE43C07A2F84C09FA040A164404AB5001D232A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121823.jpgsave_picture_121823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121823.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:860678B2CE75355F1DCEE93FE6856AF3060364E7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121824.jpgsave_picture_121824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121824.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ n-Track Studio Suite 10.0.0 Intel [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121825.jpgsave_picture_121825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121825.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Kruger - Агония (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121826.jpgsave_picture_121826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121826.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ n-Track Studio Suite 10.0.0 ARM [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121827.jpgsave_picture_121827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121827.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Eddie James - Soft (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121828.jpgsave_picture_121828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121828.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:DC9EF32A78B611D2CF61873B78CF8B6705B17C1F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121829.jpgsave_picture_121829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121829.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ InFade - Потерянный мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121830.jpgsave_picture_121830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121830.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:DD2ABFE039E9E34285E97C8EA6865E8BE176AD9C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121831.jpgsave_picture_121831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121831.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ SQLPro Studio 2023.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121832.jpgsave_picture_121832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121832.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Rosalba Piccinni - Rosa che s'inchina (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121833.jpgsave_picture_121833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121833.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ ASCO - Live @ Symphony of CAOS, Ascoli Piceno, Italy (2023-09-09) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121834.jpgsave_picture_121834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121834.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:FA3609D5B769BAAB42ED2EC93CA6CDECC37DD583
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121835.jpgsave_picture_121835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121835.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Animarum - Machina (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121836.jpgsave_picture_121836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121836.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Typora for Mac 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121837.jpgsave_picture_121837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121837.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ JaSFTP for Mac 13.8[En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121838.jpgsave_picture_121838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121838.jpg" />
 </div>
 
 

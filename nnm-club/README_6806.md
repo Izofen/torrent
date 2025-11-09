@@ -6,7 +6,7 @@ PDFCreator 5.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234123.jpgsave_picture_234123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234123.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FX Player Pro 3.6.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234124.jpgsave_picture_234124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234124.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - The Best Lounge and Chillout Covers (2021) [AAC|~316 Kbps] <Lounge, Chillou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234125.jpgsave_picture_234125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234125.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ ForkLift 3.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234126.jpgsave_picture_234126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234126.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Sabrina Starke - The Best Of (2023) [MP3|256-320 Kbps] <Soul, jazz, pop>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234127.jpgsave_picture_234127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234127.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:C7CDC00E99A7587E5565E7009A95549D0CCB8273
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234128.jpgsave_picture_234128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234128.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ ikiaqqivik - Пустота (2020) Single [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234129.jpgsave_picture_234129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234129.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Revo Uninstaller Pro 5.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234130.jpgsave_picture_234130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234130.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Aiseesoft Mac Data Recovery 1.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234131.jpgsave_picture_234131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234131.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:48AB5E8427EFD19E7832F56E70CF768A39B8EDDA
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234132.jpgsave_picture_234132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234132.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:ECE12293271A73953A5BA6C27059DB9EE560E972
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234133.jpgsave_picture_234133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234133.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Vanlife Chill, Vol. 7 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234134.jpgsave_picture_234134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234134.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:B93D76F1094648CB1029A230E1650C25B3084E87
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234135.jpgsave_picture_234135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234135.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:629A3BC8C3241910378E4F0F16352246C975BF71
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234136.jpgsave_picture_234136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234136.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Billy Childs - The Winds Of Change (2023) Mack Avenue [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234137.jpgsave_picture_234137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234137.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:08A02676419C824D7C219F85CB84A0FA590F38CB
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234138.jpgsave_picture_234138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234138.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Counterline - One (2021) [FLAC|Lossless|image + .cue] <AOR, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234139.jpgsave_picture_234139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234139.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Winger - Seven (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234140.jpgsave_picture_234140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234140.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:0D0DF5965B3E3A541559DB67A69C49887D215616
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234141.jpgsave_picture_234141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234141.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Doi - Desideratum (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234142.jpgsave_picture_234142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234142.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Laurie Anderson - Home Of The Brave /Soundtrack/ (1986) [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234143.jpgsave_picture_234143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234143.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:53F60CCDEE08E049A617AA57DD6923D90F6FD89C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234144.jpgsave_picture_234144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234144.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Folder-Factory 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234145.jpgsave_picture_234145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234145.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:13940A0F70A5EEDD59A484F6DDF3D6E99E47EBAB
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234146.jpgsave_picture_234146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234146.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Mike Campbell & The Dirty Knobs - External Combustion (2022) [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234147.jpgsave_picture_234147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234147.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:859721F14777C22331C740507BBC1E7E16278A86
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234148.jpgsave_picture_234148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234148.jpg" />
 </div>
 
 

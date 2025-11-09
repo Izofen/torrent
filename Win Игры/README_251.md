@@ -6,7 +6,7 @@ AirportSim (2023) [Multi] (1.0.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163889.jpgsave_picture_163889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163889.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Hamster on Rails (2023) [Ru/Multi] (1.0.44.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164025.jpgsave_picture_164025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164025.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mysterium: Lake Bliss / Мистериум: Озеро счастья (2013) [Ru
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164272.jpgsave_picture_164272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164272.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Timelie (2020) [Ru/Multi] (1.2.4/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164520.jpgsave_picture_164520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164520.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Arkanoid - Eternal Battle (2022) [Ru/Multi] (1.1.24/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164703.jpgsave_picture_164703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164703.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164759.jpgsave_picture_164759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164759.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Christmas Fables: Holiday Guardians (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164803.jpgsave_picture_164803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164803.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165123.jpgsave_picture_165123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165123.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Vladimir Putin Style (2019) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165354.jpgsave_picture_165354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165354.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Gamedec (2021) [Ru/Multi] (1.7.1.r70100/dlc) License GOG [Digital Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165389.jpgsave_picture_165389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165389.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Terminator: Resistance / Терминатор: Сопротивление (2019)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165619.jpgsave_picture_165619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165619.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Book Travelers: A Victorian Story / Книжные Странники: Викт�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165654.jpgsave_picture_165654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165654.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165688.jpgsave_picture_165688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165688.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ INMOST (2020) [Ru/Multi] (1.0.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165696.jpgsave_picture_165696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165696.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Laika: Aged Through Blood (2023) [Ru/Multi] (1.0.10) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165714.jpgsave_picture_165714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165714.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Legacy: Witch Island 4 Last Bastion (2022) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165759.jpgsave_picture_165759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165759.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165823.jpgsave_picture_165823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165823.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165987.jpgsave_picture_165987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_165987.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166018.jpgsave_picture_166018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166018.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Wavetale (2022) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166170.jpgsave_picture_166170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166170.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166227.jpgsave_picture_166227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166227.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Wavetale (2022) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166310.jpgsave_picture_166310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166310.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Out Of Time (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166497.jpgsave_picture_166497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166497.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167008.jpgsave_picture_167008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167008.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Haunted Legends 15: The Scars of Lamia / Легенды о призраках 15
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167070.jpgsave_picture_167070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167070.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Yuletide Legends 3: Who Framed Santa Claus / Рождественская ист
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167167.jpgsave_picture_167167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167167.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Гонка (08.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66218.jpgsave_picture_66218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66218.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Boot Juice - Covered in Juice, Volume I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66219.jpgsave_picture_66219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66219.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Beebe Gallini - Begged, Borrowed and Stealed! (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66220.jpgsave_picture_66220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66220.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:6C5845737DD0565E5DF50EEC366BD8E34AB9AD13
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66221.jpgsave_picture_66221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66221.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Спринт (07.06
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66222.jpgsave_picture_66222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66222.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ MotoGP. Этап 08 из 22. Гран-при Арагона. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66223.jpgsave_picture_66223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66223.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Beaten by Hippies - Sidetracked in El Paso (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66224.jpgsave_picture_66224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66224.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:0DD9A8620F159F0934E8E1CCA8287727EACAB8AE
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66225.jpgsave_picture_66225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66225.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Nikki Iles & NDR Bigband - Face To Face (2023) Edition Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66226.jpgsave_picture_66226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66226.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Belier Bleu - Top Yourself (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66227.jpgsave_picture_66227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66227.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:B75147339DC95FD26EB737D110A1D81811EFA565
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66228.jpgsave_picture_66228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66228.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:7114EB0229CBF2C25F659598017CEA4CE1292A2F
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66229.jpgsave_picture_66229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66229.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Lacrimosa - Lament (2025) [FLAC|Lossless|image + .cue] <Gothic Metal, Dark Wave,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66230.jpgsave_picture_66230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66230.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:2E10883FBA5D45C9F56219C7BE054168C84EC704
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66231.jpgsave_picture_66231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66231.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Wavesequencer - Theia 1.22 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66232.jpgsave_picture_66232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66232.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:0B3AA7C59797399355766789DEE013597BD19C8E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66233.jpgsave_picture_66233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66233.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:C0F45A85B2DF46E92490124013A0C66EB387C1B6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66234.jpgsave_picture_66234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66234.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:35B5DBA8847075C7130EED9A382329386E31CDEB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66235.jpgsave_picture_66235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66235.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:9421CF4DABA16771FE59A03F26FAB6DB756088CF
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66236.jpgsave_picture_66236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66236.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:42507FE7DFF26D68E3898AD6D52B62DD3E5FB9B5
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66237.jpgsave_picture_66237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66237.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:73CDACE55828E40B2DDCE4A4D66E4716DC6782D7
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66238.jpgsave_picture_66238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66238.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Pretenders - The Singles (1987) [FLAC|Lossless|tracks + .cue] <Rock, New Wave, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66239.jpgsave_picture_66239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66239.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Brian Owens - Compilation (2025) [MP3|320 Kbps] <Soul, Jazz, R&B>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66240.jpgsave_picture_66240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66240.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:B41EE941BA7C677B128CC3F24D2370DC869CD29D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66241.jpgsave_picture_66241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66241.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Da
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66242.jpgsave_picture_66242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66242.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Two Wolf - Two Wolf (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, South
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66243.jpgsave_picture_66243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66243.jpg" />
 </div>
 
 

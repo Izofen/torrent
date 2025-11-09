@@ -6,7 +6,7 @@
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113819.jpgsave_picture_113819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:A131B56D4BEB3370463419F0BC8AF81F08478F30
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113820.jpgsave_picture_113820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113820.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - К прошлому-не ревнуй (1997) [FLAC|Lossless|tracks + .cue] 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113821.jpgsave_picture_113821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113821.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:B6F581409AD5AE261CF570E1677E3F563D6E4AFF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113822.jpgsave_picture_113822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113822.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113823.jpgsave_picture_113823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113823.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:157F99C71058B520E578EAC0709B9E0E11711D86
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113824.jpgsave_picture_113824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113824.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:458AD24BA832C5C5B3965164B12A2D89BA14C17E
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113825.jpgsave_picture_113825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113825.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:669978FF5A4D1C82E67A649F49966CB020A5DC8B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113826.jpgsave_picture_113826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113826.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113827.jpgsave_picture_113827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113827.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:1806501DB310E439618365EECA7B6C15C330B054
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113828.jpgsave_picture_113828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113828.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:9D3CC16E2E427D43CB4E5CEFA83924231691034A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113829.jpgsave_picture_113829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113829.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Jazz Erotic Lounge Collective, Background Instrumental Music Collective - Sexy O
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113830.jpgsave_picture_113830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113830.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Photo Studio PRO v2.7.3.2372 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113831.jpgsave_picture_113831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113831.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:E72AE3E6C25B7B8446D6017929BF878826DB0621
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113832.jpgsave_picture_113832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113832.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Jason Derulo - Nu King (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Swing, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113833.jpgsave_picture_113833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113833.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:F50C517853177E121A15CD27B787109886EFF009
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113834.jpgsave_picture_113834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113834.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Madder Mortem - Mercury (1999) [FLAC|Lossless|image + .cue] <Atmospheric Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113835.jpgsave_picture_113835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113835.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Screen Wonders 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113836.jpgsave_picture_113836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113836.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Cedar Walton - Naima (1973) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113837.jpgsave_picture_113837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113837.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113838.jpgsave_picture_113838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113838.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Permute 3 v.3.11.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113839.jpgsave_picture_113839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113839.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Lionel Hampton - Hot Mallets, Vol. 1 (1937 - 1939) 1987, BMG [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113840.jpgsave_picture_113840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113840.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:A216CE99AAA552E0CC0E2E19F0430BBAAA05A93B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113841.jpgsave_picture_113841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113841.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113842.jpgsave_picture_113842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113842.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:B8425EB7D76BA6A125BBA1666F9156708826F885
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113843.jpgsave_picture_113843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113843.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Rudiger (Rüdiger) Krause - Parallel Real (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113844.jpgsave_picture_113844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113844.jpg" />
 </div>
 
 

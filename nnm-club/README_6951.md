@@ -6,7 +6,7 @@ Bukowski - Bukowski (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Do
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238623.jpgsave_picture_238623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238623.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:210873F336EDE40E4E1AA27A538FC05B02B09158
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238624.jpgsave_picture_238624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238624.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Agora - Empire (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238625.jpgsave_picture_238625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238625.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:CC742A01D4E4F8A9368213806716BA218A3F82EB
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238628.jpgsave_picture_238628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238628.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:902775201B082CD8DC5D4E686EEDED1C912AD22A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238629.jpgsave_picture_238629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238629.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Henry Busse - The Uncollected Henry Busse and His Orchestra (1935) 2011, Hindsig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238630.jpgsave_picture_238630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238630.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Heathen Kings - Fealty to None (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238631.jpgsave_picture_238631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238631.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Various Artists - Hard and Heavy Massive Hits (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238632.jpgsave_picture_238632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238632.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Da Vinci - Ambition Rocks (2017) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238633.jpgsave_picture_238633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238633.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 3 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238634.jpgsave_picture_238634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238634.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Find Any File (FAF) 2.3.b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238637.jpgsave_picture_238637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238637.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Sick Dogs in Trouble - Dead Lovers (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238638.jpgsave_picture_238638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238638.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Corvo - Calamidade (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238639.jpgsave_picture_238639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238639.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AIMP 5.03 build 2398 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238642.jpgsave_picture_238642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238642.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Magnolia Black - Magnolia Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238643.jpgsave_picture_238643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238643.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Condemned-AD - Follow a Failing Leader (2022) [FLAC|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238644.jpgsave_picture_238644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238644.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:C103529DDA566ED84F0024E6D78E90DAADBF9DB2
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238646.jpgsave_picture_238646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238646.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Affinity Designer Beta 1.9.0.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238647.jpgsave_picture_238647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238647.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Prey - Knights of the Revolution (2009) [WavPack|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238651.jpgsave_picture_238651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238651.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:DCB48C3077AADC5694DA445E852094377E1CBAEF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238652.jpgsave_picture_238652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238652.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:066360323103F63A885C86A94DA38AD1DBE3FEB4
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238653.jpgsave_picture_238653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238653.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ PowerPhotos 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238654.jpgsave_picture_238654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238654.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:0C03C3FF5ABAD852E4BB356F477236D04749F1F7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238657.jpgsave_picture_238657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238657.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Sinshrift - Sinshrift (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238658.jpgsave_picture_238658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238658.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ PotPlayer 220420 (1.7.21632) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238660.jpgsave_picture_238660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238660.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ ImageRanger Pro Edition 1.7.9.1706 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238661.jpgsave_picture_238661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238661.jpg" />
 </div>
 
 

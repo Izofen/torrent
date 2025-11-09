@@ -6,7 +6,7 @@ Haunted Hotel 16: Lost Dreams / Проклятый отель 16: Несбывш
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144670.jpgsave_picture_144670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144670.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:ED7430C66D80F92694561C7347377AD89B3E2972
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144671.jpgsave_picture_144671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144671.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9EEFF9374BC457FDB452333966C62D91D069CA50
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144673.jpgsave_picture_144673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144673.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9EEFF9374BC457FDB452333966C62D91D069CA50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144674.jpgsave_picture_144674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144674.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ New Age Style - Enigmatic Top. Vocal (2015) [MP3|320 кб/с] <New age, Enigmati
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144675.jpgsave_picture_144675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144675.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ E-Rotic - Thank You For The Music (1997) [MP3|320 Kbps] <Europop, Eurodance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144678.jpgsave_picture_144678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144678.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ The Alchemist - Lunch Meat (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144679.jpgsave_picture_144679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144679.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144680.jpgsave_picture_144680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144680.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:A8DE198637B458215D945D0AF1B930F63079DBB4
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144681.jpgsave_picture_144681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144681.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:BCCD3519293D993A03E85403DE2EAAF0DB776008
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144682.jpgsave_picture_144682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144682.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:1623FADED5D051D0FC4B170942FA5F85C57279CD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144684.jpgsave_picture_144684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144684.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:612B1C42C8F2EC021B6611A2237433479D2F7FBA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144685.jpgsave_picture_144685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144685.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:EF51E48C4F08D9CDF4D7A0FD8EC7663F296D7F89
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144686.jpgsave_picture_144686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144686.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:4FC7ED4D04487C0E0EA34BAAF7E61AB9E222A567
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144687.jpgsave_picture_144687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144687.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ JixiPix Romantic Photo 2.3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144688.jpgsave_picture_144688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144688.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Summer Ocean: Relax Party (2018) [MP3|320 Kbps] <Chillout, Downtempo, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144690.jpgsave_picture_144690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144690.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:4DFB545D745D1AA2978C1EB209A4D3B75BB181BE
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144692.jpgsave_picture_144692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144692.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Снежный хит-парад. 100 русских хитов (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144693.jpgsave_picture_144693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144693.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Luminant Music Ultimate 2.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144694.jpgsave_picture_144694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144694.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:7A4D394B126D6939C697512E1BF95FC2040D911D
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144695.jpgsave_picture_144695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144695.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ PhotoMill X 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144696.jpgsave_picture_144696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144696.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:ABE2F3CD19C23955FAB30A64AF664CFCC953047A
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144697.jpgsave_picture_144697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144697.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:30C1449DF7251589A1651A5F4669D43F59A20993
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144699.jpgsave_picture_144699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144699.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ The Alchemist - Bread (2018) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144700.jpgsave_picture_144700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144700.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:811DE748539E48429F6EF42E5B77F25722B8AC8F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144701.jpgsave_picture_144701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144701.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:A4BD965861D9A567CAE8886E78E6BA8C499A6769
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144702.jpgsave_picture_144702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144702.jpg" />
 </div>
 
 

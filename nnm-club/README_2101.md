@@ -6,7 +6,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54993.jpgsave_picture_54993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54993.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:8AB6CC5477A93F5EBC828165DBAAF631FA9ACB08
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54994.jpgsave_picture_54994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54994.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Topaz Video AI 5.1.0 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54995.jpgsave_picture_54995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54995.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:47A8EF6DACF9256F9C56A219615A8B1B5F0A33CD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54996.jpgsave_picture_54996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54996.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Ascold Flow | Релокант в другой мир (Книга 1). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54997.jpgsave_picture_54997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54997.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5CADE520E3307EEE34A0C0FDBE55A2BA1E3E48A9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54998.jpgsave_picture_54998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54998.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:161E3D9E2342099EAAF416B3B37D42008BC8836E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54999.jpgsave_picture_54999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54999.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:974974E426A7CE4A3A76C8441F6F2A3172DD10AC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55000.jpgsave_picture_55000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55000.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E015FA47A14C36BA9EE40AC9B1FE984603BF480A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55001.jpgsave_picture_55001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55001.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ TikTok 34.9.5 Mod by Dmitry Nechiporenko + Plugin 1.39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55002.jpgsave_picture_55002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55002.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Microsoft .NET 7.0.20 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55003.jpgsave_picture_55003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55003.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:21CB75B3F344F3AFD71AFB97835023646E52FF87
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55004.jpgsave_picture_55004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55004.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:5F859C3519572894565FDC2B5377E7D8815FDAF2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55005.jpgsave_picture_55005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55005.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:4090779BF99039CA9A643D7F76BB4095D195AAF1
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55006.jpgsave_picture_55006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55006.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Microsoft PowerToys 0.81.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55007.jpgsave_picture_55007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55007.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:145006145243B8C22835BBFF8CC1DE10481EF5A8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55008.jpgsave_picture_55008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55008.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Ascold Flow | Релокант в другой мир (Книга 2). #RealRPG. 
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55009.jpgsave_picture_55009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55009.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Change MAC Address 24.05 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55010.jpgsave_picture_55010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55010.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:50C720481C51D404826FA86C4435568537BA6916
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55011.jpgsave_picture_55011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55011.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:54B6D8CA2C9B58A98686814AEF239A723B5752ED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55012.jpgsave_picture_55012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55012.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:B0CB1A9566E1296A6687C54C85CC870EB06BDD0A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55013.jpgsave_picture_55013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55013.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Steinberg Cubase Pro 13.0.40.251 (x64) Portable by 7997 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55014.jpgsave_picture_55014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55014.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:9472ED45BC5DEC7FF993F6DE76744343D7BAAEE3
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55015.jpgsave_picture_55015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55015.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:C3AE66B1278E43338EF1DFD2F93844CF34F9E929
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55016.jpgsave_picture_55016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55016.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:C3AE66B1278E43338EF1DFD2F93844CF34F9E929
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55017.jpgsave_picture_55017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55017.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:5FCE06F2102392D5EBA8798BA8AD925C5D94A5C9
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55018.jpgsave_picture_55018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55018.jpg" />
 </div>
 
 

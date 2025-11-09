@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137712.jpgsave_picture_137712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137712.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Devil’s Train - 3 Studio Albums (2012-2022) 3xCD [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137713.jpgsave_picture_137713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137713.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137715.jpgsave_picture_137715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137715.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137716.jpgsave_picture_137716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137716.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:61359EA004E439AB475026DFDBDBBF414E432C7B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137717.jpgsave_picture_137717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137717.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:7E74EEDA187CD25047FE1D16A3195C9C191CC93B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137718.jpgsave_picture_137718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137718.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Hades (2020) [Ru/Multi] (1.37133) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137719.jpgsave_picture_137719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137719.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Italo Disco Extended  Versions Vol. 10 - Italo Holiday (2018) [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137721.jpgsave_picture_137721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137721.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137722.jpgsave_picture_137722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137722.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:82FA423BB0BB3F9A2156E8729C020591F31FE701
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137723.jpgsave_picture_137723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137723.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:74BDCD30519A91A21C43492CDBF096A3417B2D4A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137724.jpgsave_picture_137724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137724.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:E4A86BA6B9B19602AE842F5910378DD2E76510BE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137725.jpgsave_picture_137725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137725.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:93994A7FD3214D968000C13BD17ED5B74281A2D0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137726.jpgsave_picture_137726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137726.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:0492816466AF4A04FA70D8EB0EEF5D541F9C1F23
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137727.jpgsave_picture_137727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137727.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ XMind Pro 2023 23.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137728.jpgsave_picture_137728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137728.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:8C9C56A2640621613073172CD81E0C85B8E2E871
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137729.jpgsave_picture_137729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137729.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:850BF948754A3AE0C243F7822A148155B3EDCB6F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137730.jpgsave_picture_137730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137730.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Armin van Buuren - 20 Albums , 117 Compilations (1999 - 2014) [MP3|320 кб/с]<
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137731.jpgsave_picture_137731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137731.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Armada Music - Armada Night Radio 001-085 (2014-2015) [MP3|128 кб/с]<Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137732.jpgsave_picture_137732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137732.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:B88D4B01D2EAE90EB01C05E6E14BB87786F72D3D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137734.jpgsave_picture_137734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137734.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Record Super Chart Final (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137735.jpgsave_picture_137735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137735.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:9855B70480D9D63C5F56F5DEB32C70354E0396E2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137736.jpgsave_picture_137736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137736.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:424C456599299A085B767053289D48A2F1BA9023
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137737.jpgsave_picture_137737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137737.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:EAFE44EE4C2E08D8704657138AEB2AE4FB5CE7D5
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137738.jpgsave_picture_137738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137738.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Baccara - When I'm With You (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Dance, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137740.jpgsave_picture_137740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137740.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:2C6455FF780848CE603C465F778FD7029266697C
 >>Универ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137742.jpgsave_picture_137742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137742.jpg" />
 </div>
 
 

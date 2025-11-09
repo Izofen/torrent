@@ -6,7 +6,7 @@ Vincent Touchard Trio - L'air du temps (2024) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113767.jpgsave_picture_113767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113767.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Madder Mortem - Red in Tooth and Claw (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113768.jpgsave_picture_113768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113768.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ecclesia - Ecclesia Militans (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113769.jpgsave_picture_113769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113769.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Madder Mortem - Eight Ways (2009) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113770.jpgsave_picture_113770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113770.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113771.jpgsave_picture_113771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113771.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Elegy - Forbidden Fruit (2000) Remaster, 2024, Elegý [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113772.jpgsave_picture_113772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113772.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113773.jpgsave_picture_113773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113773.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113774.jpgsave_picture_113774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113774.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Madder Mortem - Marrow (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113775.jpgsave_picture_113775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113775.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Madder Mortem - Deadlands (2002) Reissue, 2009, Peaceville [APE|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113776.jpgsave_picture_113776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113776.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cedar Walton - Firm Roots (1972 - 1990) 2СD, 1999, Camden [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113777.jpgsave_picture_113777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113777.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Madder Mortem - All Flesh Is Grass (2001) [APE|Lossless|image + .cue] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113778.jpgsave_picture_113778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113778.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Madder Mortem - Desiderata (2006) [FLAC|Lossless|image + .cue] <Atmospheric Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113779.jpgsave_picture_113779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113779.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:92F25BE34D67338C38334A61DC23AEF9685E26C0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113780.jpgsave_picture_113780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113780.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:229E44AA4E26145D569CA0494D67FC062F7F84EF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113781.jpgsave_picture_113781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113781.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sonata Arctica - Clear Cold Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113782.jpgsave_picture_113782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113782.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:F50F2EC87CAC8594EA5CF41EE0AA5AB2233AF280
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113783.jpgsave_picture_113783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113783.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Myrath - Karma (2024) [FLAC|Lossless|image + .cue] <Power Metal, Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113784.jpgsave_picture_113784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113784.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Electro Deluxe - NEXT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113785.jpgsave_picture_113785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113785.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ FocusSee for Mac 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113786.jpgsave_picture_113786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113786.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ ADDicted! - День (2024) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113787.jpgsave_picture_113787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113787.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:86A80C51724A0F94B2C6E9BD478B481E649B2A8A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113788.jpgsave_picture_113788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113788.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Gost - Prophecy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113789.jpgsave_picture_113789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113789.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Firewind - Stand United (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113790.jpgsave_picture_113790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113790.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Looper - Up A Tree (1999) 25th Anniversary Edition, 2024, Mute [FLAC|Lossless|WE
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113791.jpgsave_picture_113791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113791.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ iNet Network Scanner 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113792.jpgsave_picture_113792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113792.jpg" />
 </div>
 
 

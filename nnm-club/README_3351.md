@@ -6,7 +6,7 @@ Armin van Buuren - Live  @ Seismic Dance Event Spring Edition (2024-05-10) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107487.jpgsave_picture_107487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107487.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Charlotte de Witte - Live @ Orchard Street, New York City, United States (2024-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107488.jpgsave_picture_107488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107488.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Steven Nichols - From Dust (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107489.jpgsave_picture_107489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107489.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ No Mana - I Contain Flashing Images (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107490.jpgsave_picture_107490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107490.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Babbba - Cabaret Conversation (Vol.3) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107491.jpgsave_picture_107491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107491.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ M.O.D. (Method of Destruction) - Studio Albums (9 releases) (1987-2017) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107492.jpgsave_picture_107492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107492.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Odd Man Out, Pat Torpey - y2k (1999) [FLAC|Lossless|image + .cue] <Hard Rock, AO
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107493.jpgsave_picture_107493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107493.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Benighted - Ekbom (2024) 2 x CD [FLAC|Lossless|image + .cue] <Death Metal, Grind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107494.jpgsave_picture_107494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107494.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Hounds Of Hasselvander - Another Dose Of Life (2021) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107495.jpgsave_picture_107495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107495.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sonny Rollins - A Night At The Village Vanguard: The Complete Masters (1957) 2CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107496.jpgsave_picture_107496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107496.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B5A5FEE666BFA900F1A7608D6DCDE3E52F5CE29F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107497.jpgsave_picture_107497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107497.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Antropofagus - Methods of Resurrection Through Evisceration (2017) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107498.jpgsave_picture_107498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107498.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Carpe - Choose to Stylish (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107499.jpgsave_picture_107499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107499.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Antropofagus - Alive Is Good... Dead Is Better (2001) EP, Released, 2001, Beyond
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107500.jpgsave_picture_107500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107500.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Battlesnake - The Rise And Demise Of The Motorsteeple (2024) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107501.jpgsave_picture_107501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107501.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Bruno Hubert Trio - Fire Waltz (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107502.jpgsave_picture_107502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107502.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Memphis May Fire - Remade In Misery (2022) [FLAC|Lossless|tracks + .cue] <Post-H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107503.jpgsave_picture_107503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107503.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ INK - African Roots (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107504.jpgsave_picture_107504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107504.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Kittie - Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107505.jpgsave_picture_107505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107505.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:567013D330B67D91EBA58BB3EB2BDE651C703F9A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107506.jpgsave_picture_107506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107506.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Wasaya Feat. Aram Kalousdian - Curtain Falls (2024) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107507.jpgsave_picture_107507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107507.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ The Mysterines - Afraid of Tomorrows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107508.jpgsave_picture_107508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107508.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Darcy Stamp - It Doesn't Have To, But It Might (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107509.jpgsave_picture_107509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107509.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Trut - T.S.Q: Method & Madness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107510.jpgsave_picture_107510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107510.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Cavalera - Schizophrenia (2024) Re-Recorded [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107511.jpgsave_picture_107511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107511.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Barney Kessel - Contemporary Latin Rhythms! & Breakfast At Tiffany's (1957 - 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107512.jpgsave_picture_107512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107512.jpg" />
 </div>
 
 

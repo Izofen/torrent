@@ -6,7 +6,7 @@ Rainlendar Lite 2.21.1 Build 178 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108449.jpgsave_picture_108449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108449.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ventusky: Прогноз погоды v35.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108450.jpgsave_picture_108450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108450.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:77799D8556FADE375DE4DE36EA7BFE229CC6F040
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108451.jpgsave_picture_108451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108451.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:5E46ECDB15945829338DBEC02FABA1DD11CED953
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108452.jpgsave_picture_108452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108452.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Adrian Wallwork | Word Games, Riddles and Logic Tests (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108453.jpgsave_picture_108453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108453.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108454.jpgsave_picture_108454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108454.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ ApowerREC 1.6.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108455.jpgsave_picture_108455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108455.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ PhotoRoom v4.9.8 b1427 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108456.jpgsave_picture_108456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108456.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - DJ Hits 28 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108457.jpgsave_picture_108457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108457.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:60D6DFC12DA486DBEB31D5CF4766F9315805C477
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108458.jpgsave_picture_108458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108458.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Jon Faddis - Legacy (1985) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108459.jpgsave_picture_108459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108459.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Deliverance - Deliverance (1989) Remastered, 2008, Retroactive Records [APE|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108460.jpgsave_picture_108460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108460.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Dark Sarah - Studio Albums (5 releases) (2015-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108461.jpgsave_picture_108461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108461.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:C204351EE67680F5559F4D08EAF1CAA0F4B32D7D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108462.jpgsave_picture_108462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108462.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Emika - Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Garage, Futu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108463.jpgsave_picture_108463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108463.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Deliverance - Weapons of Our Warfare (1990) Remastered, 2021, Retroactive Record
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108464.jpgsave_picture_108464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108464.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Deliverance - Weapons of Our Warfare (1990) Rerelease, 2008, Retroactive Records
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108465.jpgsave_picture_108465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108465.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D5CD014264F471795E1FFAC354A581FA0A1942AA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108466.jpgsave_picture_108466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108466.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Metal Massacre 10 (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Deat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108467.jpgsave_picture_108467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108467.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Metal Massacre 14 (2016)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108468.jpgsave_picture_108468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108468.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Lee Ritenour - Rio & On the Line (1979, 1983) 2003, Wounded Bird Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108469.jpgsave_picture_108469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108469.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:D46EBB5CABE2330A20F76D4871E8E6797917156A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108470.jpgsave_picture_108470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108470.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:B81F3FC80D2768BEDE08399282F0BA9832950E98
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108471.jpgsave_picture_108471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108471.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:27C23C2842BCEC0B1D59ECA789FA43E205549976
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108472.jpgsave_picture_108472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108472.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Through These Gates - The Majestic Rights To Passage (2024) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108473.jpgsave_picture_108473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108473.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Potatohead People - Eat Your Heart Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108474.jpgsave_picture_108474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108474.jpg" />
 </div>
 
 

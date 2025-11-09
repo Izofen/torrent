@@ -6,7 +6,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86573.jpgsave_picture_86573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86573.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ magnet:?xt=urn:btih:9F725EE8CB63EA9201B8E433E44A8057BC505CD2
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86574.jpgsave_picture_86574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86574.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ magnet:?xt=urn:btih:9F75DD015D8516D532E5A6E5522324BEC77294B5
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86576.jpgsave_picture_86576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86576.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ magnet:?xt=urn:btih:3B71432F74350CA7D7735F526E34B7B287BEEF3A
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86577.jpgsave_picture_86577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86577.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ PrintFolders 2.51 [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86578.jpgsave_picture_86578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86578.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ MIDI Pack - Collection TWO Part 1 (MIDI) [Английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86580.jpgsave_picture_86580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86580.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ MIDI Pack - Collection TWO - Это огромнейший сборник сод
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86581.jpgsave_picture_86581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86581.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:7B3124660412732916B221CC5452493476A44203
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86582.jpgsave_picture_86582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86582.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:86C84C07C340BCC10C840D422AE5B2F7450E2375
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86585.jpgsave_picture_86585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86585.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:755356588124D6C0A57CA55DE626EF164AC958F6
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86586.jpgsave_picture_86586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86586.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:755356588124D6C0A57CA55DE626EF164AC958F6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86587.jpgsave_picture_86587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86587.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:2E3656456C41FAF17B73B59F028080866E42FF94
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86588.jpgsave_picture_86588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86588.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:35C8E758ED8A2A1B4AEF9B71D2F94CBBFCE5787E
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86589.jpgsave_picture_86589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86589.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:339E7C198CAA34A09D173445F14B6D0454D59642
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86592.jpgsave_picture_86592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86592.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:D001B5022C5780E6255BE061BD2E1D3FEE62597A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86594.jpgsave_picture_86594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86594.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:7CB16F1CFFCFBFC5B2AB849DB0B0E3D98CB6273F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86595.jpgsave_picture_86595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86595.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Legends of Atlantis: Exodus (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86596.jpgsave_picture_86596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86596.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:AD524E05600F1F0FE161295F8CF20BB7DF39633F
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86598.jpgsave_picture_86598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86598.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:1C0DB2B54044A0527D494B8F05E1AFBAAFABB51E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86599.jpgsave_picture_86599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86599.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:8219DC4F0D64AA5F7D5A8E46534E753F9FA19530
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86601.jpgsave_picture_86601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86601.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - MAXI. Лучшие ремиксы популярных хитов (2012) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86602.jpgsave_picture_86602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86602.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:24E1745428CB43518D282A5DA935176357B97C3C
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86603.jpgsave_picture_86603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86603.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Warp [Ru] (RePack) 2012 | Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86605.jpgsave_picture_86605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86605.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:F41D6426F165EB4DBB2915E5B027C25DB210CD9C
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86606.jpgsave_picture_86606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86606.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:EE9297D8680EBDC4DBDC1ABB8380AA30D840B0FA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86607.jpgsave_picture_86607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86607.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ magnet:?xt=urn:btih:A218F2AEA20DB638CFB9760EA7B1A28093F4B27F
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86608.jpgsave_picture_86608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86608.jpg" />
 </div>
 
 

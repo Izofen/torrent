@@ -6,7 +6,7 @@ Road JC - Rosa Escarlate (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102835.jpgsave_picture_102835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102835.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Leo Sayer - 1992 (1992) Remastered, 2024, Crimson [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102841.jpgsave_picture_102841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102841.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ProCaillass - Electro Swing: Cat Songs, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102844.jpgsave_picture_102844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102844.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mors Subita - Studio Albums (5 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102846.jpgsave_picture_102846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102846.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Confidence Man - 3AM (La La La) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102847.jpgsave_picture_102847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102847.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Supernatural Blondes - Religion Of The Heart (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102850.jpgsave_picture_102850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102850.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Visioneers - DEF RADIO (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102851.jpgsave_picture_102851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102851.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tass Petridis - The OG Session (Vol 3) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102852.jpgsave_picture_102852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102852.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Konkhra - Sad Plight of Lucifer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <De
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102865.jpgsave_picture_102865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102865.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bullet For My Valentine - The Poison (20th Anniversary Edition) (2006) Remaster,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102869.jpgsave_picture_102869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102869.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Oz Noy Quartet - Fun One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102881.jpgsave_picture_102881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102881.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Half Broke Rising - The Recipe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102882.jpgsave_picture_102882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102882.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Blind Ego - The Hunting Party (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102883.jpgsave_picture_102883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102883.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Chuck Prophet feat. ¿Qiensave? - Wake The Dead (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102888.jpgsave_picture_102888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102888.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Memory Garden - Studio Albums (7 releases) (1995-2021) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102912.jpgsave_picture_102912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102912.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gorgone - Barminam (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102914.jpgsave_picture_102914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102914.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The End - Within Dividia (2004) Deluxe Edition, 2024, Relapse Records[FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102936.jpgsave_picture_102936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102936.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102955.jpgsave_picture_102955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102955.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Talia Hoit - Oceans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102958.jpgsave_picture_102958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102958.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Aeon Gods - King Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102968.jpgsave_picture_102968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102968.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Father John Misty - Mahashmashana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102969.jpgsave_picture_102969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102969.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:4CC8E638EC98BD2C4129E036746B28564EEF7087
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102970.jpgsave_picture_102970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102970.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Crossbone Skully - Evil World Machine (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102998.jpgsave_picture_102998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102998.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Rival Sons - Pair of Aces, Pt. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103006.jpgsave_picture_103006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103006.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Glam Serpent - Obscene (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103008.jpgsave_picture_103008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103008.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hirsh Gardner - Third Time's A Charm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103029.jpgsave_picture_103029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103029.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Music Editor / Музыкальный редактор 5.8.1 Mod by maxi123444 [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233781.jpgsave_picture_233781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233781.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ KineMaster - Видеоредактор 7.1.0.30516.GP Mod by Shadow_Patcher, ba
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233934.jpgsave_picture_233934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233934.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pocket 8.1.1.0 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233987.jpgsave_picture_233987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233987.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AirBrush: ИИ Фоторедактор 5.8.0 Mod by 0x7d, alenka_persikova [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234016.jpgsave_picture_234016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234016.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SmartOffice Pro 3.13.10 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234199.jpgsave_picture_234199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234199.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Librera PRO: Читалка для книг 8.4.56 Mod by foobnix [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234317.jpgsave_picture_234317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234317.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ BimmerCode for BMW and MINI 4.13.2-11165 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234383.jpgsave_picture_234383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234383.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Briar v1.4.11 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234455.jpgsave_picture_234455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234455.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ iScanner - Сканер Документов v3.68.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234562.jpgsave_picture_234562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234562.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ GIF Maker - GIF Editor 1.8.4 Mod by Balatan, Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234571.jpgsave_picture_234571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234571.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Unit Converter Pro / Конвертер единиц Pro 2.2.36 Mod by Balatan [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234998.jpgsave_picture_234998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234998.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Niagara Launcher 1.9.9 Mod by Taz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235007.jpgsave_picture_235007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235007.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:AE7C7839B41AD9DA33C2892332BFB62B96D8C944
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235104.jpgsave_picture_235104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235104.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:4718A165CF200EC10EE0BF60BE9D666C4C2C792D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235178.jpgsave_picture_235178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235178.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AR GPS Compass Map 3D Pro 1.8.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235196.jpgsave_picture_235196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235196.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235561.jpgsave_picture_235561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235561.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VTC Radio - Lactose / Дорожное радио 6.8 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235820.jpgsave_picture_235820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235820.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Polarr v6.7.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235858.jpgsave_picture_235858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235858.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Webcams 2.0.17 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236254.jpgsave_picture_236254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236254.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Compass Level & GPS 2.4.13 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236484.jpgsave_picture_236484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236484.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Car Radio Reloaded 1.45.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236636.jpgsave_picture_236636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236636.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:0927BA233E70D21904754E4FCCF91276103C19DF
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236642.jpgsave_picture_236642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236642.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Radio Alarm Clock + 5.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236676.jpgsave_picture_236676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236676.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ ZaZa Remote v4.8.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237045.jpgsave_picture_237045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237045.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ English Grammar & Phonetics v7.6.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237071.jpgsave_picture_237071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237071.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Volume Panel 21.23 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237121.jpgsave_picture_237121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237121.jpg" />
 </div>
 
 

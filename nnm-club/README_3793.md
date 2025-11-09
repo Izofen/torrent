@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118998.jpgsave_picture_118998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118998.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4081F0219EF6308E8F6595C543595E5669ED3383
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118999.jpgsave_picture_118999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118999.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C6364B998E83715F1A7A9E3A6FFD879206606FF2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119000.jpgsave_picture_119000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119000.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ VA - Микс Дня #1 (2024) [MP3|320 Kbps] <Rock, Metal, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119001.jpgsave_picture_119001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119001.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Cockos REAPER 7.09 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119002.jpgsave_picture_119002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119002.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Reg Organizer 9.40 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119003.jpgsave_picture_119003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119003.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:F02EA725C9BCBF614327575FFEFDEC3BFD6C76B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119004.jpgsave_picture_119004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119004.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:07E1BA343ACE8B03B3CE6E66BCE1C8693783EE50
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119005.jpgsave_picture_119005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119005.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ TreeSize Professional 9.1.1.1869 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119006.jpgsave_picture_119006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119006.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Imagine 1.4.1 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119007.jpgsave_picture_119007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119007.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:BE999EE418DB6F59391828FE4ABFACA5998CD6CA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119008.jpgsave_picture_119008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119008.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AudioLab v1.2.18 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119009.jpgsave_picture_119009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119009.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Spells and Secrets / Spells & Secrets (2023) [Multi] (1.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119010.jpgsave_picture_119010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119010.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:27E01E2B86342B8A85F536B3B1B49E2BADD78D71
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119011.jpgsave_picture_119011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119011.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:593A47D5CB11D15C38D62B639A40EB6E09A552A0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119012.jpgsave_picture_119012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119012.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:E7FA8AF299CD5620FBF4AD0C85F3BB5DF8A01801
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119013.jpgsave_picture_119013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119013.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:CFC13FB229E34DCE891EC15064AA6B0E153A7314
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119014.jpgsave_picture_119014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119014.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:E93F33E903E418DCE558EFAEC688A38C570831F7
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119015.jpgsave_picture_119015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119015.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:AA1569DD810B15503B0C5CD1EF6652BA5C5723F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119016.jpgsave_picture_119016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119016.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - 70s Sex Mixtape (2024) [MP3|320 Kbps] <Pop, Rock, Blues, Jazz>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119017.jpgsave_picture_119017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119017.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:2B8FD355ACEF786E73B58E1288EE4ED2204D8998
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119018.jpgsave_picture_119018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119018.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:44E6AA2A0FF7278DD75D7227AB733F6F2EB33A82
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119019.jpgsave_picture_119019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119019.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9B6A2A979A2AA00269426D1EB14B2F56F0E9F0A3
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119020.jpgsave_picture_119020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119020.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Mirillis Action! 4.39.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119021.jpgsave_picture_119021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119021.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Glary Utilities Pro 6.6.0.9 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119022.jpgsave_picture_119022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119022.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Reg Organizer 9.40 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119023.jpgsave_picture_119023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119023.jpg" />
 </div>
 
 

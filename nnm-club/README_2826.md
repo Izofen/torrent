@@ -6,7 +6,7 @@
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81753.jpgsave_picture_81753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81753.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81754.jpgsave_picture_81754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81754.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Blender 2.62 [Английский, Русский и др*]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81756.jpgsave_picture_81756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81756.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Good Looking Organization - 8 Labels Packs (1992-2009) [MP3|~160-320 кб/с]<In
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81758.jpgsave_picture_81758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81758.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Alien Skin Bokeh 2.0.1.442 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81759.jpgsave_picture_81759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81759.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Linkin Park - Greatest Hits (2012) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81762.jpgsave_picture_81762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81762.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Angry Birds (2010-2011) [Java, S^1 | 360x640] <Multi 5>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81763.jpgsave_picture_81763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81763.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81764.jpgsave_picture_81764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81764.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ike Cosse - Cold Blooded World (2000) [MP3|320 кб/с]<Blues>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81770.jpgsave_picture_81770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81770.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:9DEFA66EB48C80B773A582429A64CF3E8DCA00D1
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81771.jpgsave_picture_81771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81771.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:9DEFA66EB48C80B773A582429A64CF3E8DCA00D1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81774.jpgsave_picture_81774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81774.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:70A19FBE647A36BEF29390340CBF0DC650713DFC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81775.jpgsave_picture_81775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81775.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:05DB0D25A44FF4F719E8C8C7A732670F965FF48E
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81778.jpgsave_picture_81778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81778.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:EF8D01C14E5CC40D5A7CD0F1521E2F0663C00DE9
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81779.jpgsave_picture_81779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81779.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:EF8D01C14E5CC40D5A7CD0F1521E2F0663C00DE9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81780.jpgsave_picture_81780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81780.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:EA2ABF79AE6EFF75A186DEB50241EC661F6C609C
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81782.jpgsave_picture_81782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81782.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:AFD93B1D6254B4672879FB47C26F241058B02308
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81783.jpgsave_picture_81783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81783.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:D547CF73CAE260D7419C36C341CAD1E5A4B1EE32
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81785.jpgsave_picture_81785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81785.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:10BADF632B4109A779EAA5512403DCD919B1D917
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81786.jpgsave_picture_81786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81786.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Buck 69 - When She Whispers Your Name (2007) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81788.jpgsave_picture_81788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81788.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:972FF6C94E63B3653160C88756CC82371B158A37
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81789.jpgsave_picture_81789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81789.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:35BB5A1D271CA9FB9A38910F6D7DEB41C76DC4F8
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81791.jpgsave_picture_81791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81791.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81793.jpgsave_picture_81793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81793.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81794.jpgsave_picture_81794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81794.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81795.jpgsave_picture_81795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81795.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Mp3tag 2.50 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81796.jpgsave_picture_81796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81796.jpg" />
 </div>
 
 

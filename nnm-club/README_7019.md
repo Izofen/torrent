@@ -6,7 +6,7 @@ Sandboxie 5.64.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240657.jpgsave_picture_240657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240657.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7CBE938E5874ED1D24FD40528DBD4717CF732C09
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240658.jpgsave_picture_240658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240658.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:282E3E0C3C2B7EEA75AF7E2C2417ED8F243C92C3
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240659.jpgsave_picture_240659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240659.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Disk Diet 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240660.jpgsave_picture_240660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240660.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Peter Bernstein With The Tilden Webb Trio - Live at Cory Weeds' Cellar Jazz Club
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240661.jpgsave_picture_240661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240661.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:DE42BAF651C35FED5C631D2A6C21A5993F180285
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240662.jpgsave_picture_240662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240662.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1CA4C0C5C5B70FDFC2834ABA2F107BC816B03E29
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240663.jpgsave_picture_240663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240663.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ninth Realm - A Fate Unbroken (2022) [FLAC|Lossless|WEB-DL|tracks] <Crossover, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240664.jpgsave_picture_240664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240664.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Hellbilly Playboy - Hellbilly Playboy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240665.jpgsave_picture_240665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240665.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:B0E6EB68612B577866B3FD1AD50773A5C8A1AB24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240666.jpgsave_picture_240666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240666.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:635F7C2644F1A3E3A0348C863698A37762FF8F5B
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240667.jpgsave_picture_240667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240667.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ MACHINA BLGE - Barcode (2020) [MP3|320 Kbps] <Industrial, Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240668.jpgsave_picture_240668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240668.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ File Juicer 4.94 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240669.jpgsave_picture_240669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240669.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Autorun Organizer 5.36 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240670.jpgsave_picture_240670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240670.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Perfect View - Bushido (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240671.jpgsave_picture_240671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240671.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:0965EF15736A5965F7FD90AB040D51FC2F84FA84
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240672.jpgsave_picture_240672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240672.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Project Theory - Blood & Loyalty (2020) [MP3|320 Kbps] <Alternative Metal, Rapco
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240673.jpgsave_picture_240673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240673.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Jim Hall - Dialogues (1995) Telarc [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240674.jpgsave_picture_240674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240674.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Andreas Diehlmann Band - Long Way To Go (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240675.jpgsave_picture_240675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240675.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Evilleaf - Slow Burn (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240676.jpgsave_picture_240676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240676.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:A2706241C226E8277E60519CEA261144FD83A3A4
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240677.jpgsave_picture_240677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240677.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 2017, Hiatus [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240678.jpgsave_picture_240678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240678.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Merzy - Merzy (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240679.jpgsave_picture_240679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240679.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Nighted - Absence (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240680.jpgsave_picture_240680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240680.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Hurts Like Hell - In Through the Eye (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240681.jpgsave_picture_240681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240681.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:EF15C84A7A286ECF9F49F6CA3DB4916C203F9C25
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240682.jpgsave_picture_240682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240682.jpg" />
 </div>
 
 

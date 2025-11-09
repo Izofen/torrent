@@ -6,7 +6,7 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192754.jpgsave_picture_192754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192754.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ HeadHorse Legacy (2023) [Ru/Multi] (2.031) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192902.jpgsave_picture_192902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192902.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192992.jpgsave_picture_192992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192992.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Paper Cut Mansion (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193063.jpgsave_picture_193063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193063.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193494.jpgsave_picture_193494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193494.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Apartament 1406: Horror (2023) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193519.jpgsave_picture_193519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193519.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193702.jpgsave_picture_193702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193702.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193748.jpgsave_picture_193748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193748.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193854.jpgsave_picture_193854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193854.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193865.jpgsave_picture_193865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193865.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193928.jpgsave_picture_193928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193928.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 11965072) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193944.jpgsave_picture_193944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193944.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194171.jpgsave_picture_194171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194171.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194249.jpgsave_picture_194249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194249.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194289.jpgsave_picture_194289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194289.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Greyhill Incident (2023) [Ru/Multi] (1.0.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194292.jpgsave_picture_194292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194292.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194314.jpgsave_picture_194314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194314.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (0.169) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194576.jpgsave_picture_194576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194576.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Scrap (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194613.jpgsave_picture_194613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194613.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194640.jpgsave_picture_194640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194640.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194644.jpgsave_picture_194644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194644.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (Build 11792639) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194786.jpgsave_picture_194786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194786.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Welcome to Kowloon (2023) [Ru/Multi] (Build 11855091) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194801.jpgsave_picture_194801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_194801.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0.20230719_1750_15
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195006.jpgsave_picture_195006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195006.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ The Frozen Garden (2023) [En] (Build 11771483) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195036.jpgsave_picture_195036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195036.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195289.jpgsave_picture_195289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_195289.jpg" />
 </div>
 
 

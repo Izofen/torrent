@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169285.jpgsave_picture_169285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169285.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 7 SP1 with Update [7601.24540] AIO 11in2 (x86-x64) by adguard (v19.12.11
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169286.jpgsave_picture_169286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169286.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ John Hiatt - Leftover Feelings (2021) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169287.jpgsave_picture_169287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169287.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Ofdrykkja/Vanhelga/Psychonaut 4/In Luna - Urban Negativism (2015) Split [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169288.jpgsave_picture_169288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169288.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Affinity Photo 2 v.2.0.3 beta [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169289.jpgsave_picture_169289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169289.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ NGW: Драконы Комодо / Komodo Dragons (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169290.jpgsave_picture_169290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169290.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:DF01DB9CC001AF88918E0DBB735AC9BAB9C8CD33
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169292.jpgsave_picture_169292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169292.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:A6F6F5EC3F1E871AFECF21E196FF801EECC7D35C
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169293.jpgsave_picture_169293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169293.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Old School Hits Collection от ALEXnROCK Часть 2 (2019) [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169294.jpgsave_picture_169294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169294.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Vella - 3 Albums (2020-2022) [MP3|320 Kbps] <Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169295.jpgsave_picture_169295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169295.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ DjVu Reader Pro 2.6.1 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169296.jpgsave_picture_169296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169296.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:7443D0B95CC2CF9EC6FAE2966EAFD143ECFC4566
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169297.jpgsave_picture_169297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169297.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Affinity Designer 2 v.2.0.3. beta [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169298.jpgsave_picture_169298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169298.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:1FA386143B1C4026CF9B98B4062E94B13E0B115E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169299.jpgsave_picture_169299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169299.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:5A355A96096FE702165A159ECDAAFF86AD4C2164
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169300.jpgsave_picture_169300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169300.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:22241394D09C13145E4BA770F88015EE5E4613E3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169301.jpgsave_picture_169301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169301.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:6586103D8A62F2453F2A15E16EB5052FC5A17C97
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169302.jpgsave_picture_169302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169302.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:28AF781DFB5FA520D15ACBFECD843B74F09FEF6C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169303.jpgsave_picture_169303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169303.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:650EE0A5282C3B2D79C7BF33E36BA604F40CB1F4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169304.jpgsave_picture_169304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169304.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Synalyze It! Pro 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169305.jpgsave_picture_169305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169305.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:C2BD2C1683C139DE4B024A7D6AAC4C527DC3CC7C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169306.jpgsave_picture_169306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169306.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Stratovarius - S.O.S. (1998) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169309.jpgsave_picture_169309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169309.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wondershare UniConverter 13.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169310.jpgsave_picture_169310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169310.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:B7FB23915AFE8CB911F55334EB152B05D50A3128
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169311.jpgsave_picture_169311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169311.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Bifrost - Her Den (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169312.jpgsave_picture_169312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169312.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Apple Remote Desktop 3.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169313.jpgsave_picture_169313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_169313.jpg" />
 </div>
 
 

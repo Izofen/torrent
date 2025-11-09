@@ -6,7 +6,7 @@ Twilight Wars (2025) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16014.jpgsave_picture_16014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16014.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16015.jpgsave_picture_16015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16015.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Kathy Rain 2: Soothsayer (2025) [Multi] (1.0.3.4089) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16018.jpgsave_picture_16018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16018.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16045.jpgsave_picture_16045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16045.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Golf With Your Friends (2020) [Ru/Multi] (19.981700/dlc) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16062.jpgsave_picture_16062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16062.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Mind Echoes 2: Remnants of the Past (2025) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16066.jpgsave_picture_16066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16066.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16126.jpgsave_picture_16126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16126.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ICBM (2020) [Ru/Multi] (1.02.03) Repack Let'sРlay
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16135.jpgsave_picture_16135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16135.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16152.jpgsave_picture_16152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16152.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ RoadCraft (2025) [Ru/Multi] (1.5.D1PATCH.450651/dlc) Repack Other s [Rebuild Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16158.jpgsave_picture_16158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16158.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0) Repack Let
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16163.jpgsave_picture_16163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16163.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16168.jpgsave_picture_16168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16168.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Terraformers (2022) [Ru/Multi] (1.6.21/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16177.jpgsave_picture_16177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16177.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Astral Ascent (2023) [Ru/Multi] (1075/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16185.jpgsave_picture_16185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16185.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16187.jpgsave_picture_16187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16187.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ ANTONBLAST (2024) [En] (1.1.2с) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16188.jpgsave_picture_16188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16188.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.9.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16192.jpgsave_picture_16192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16192.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (Build 29056319) Scene T
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16209.jpgsave_picture_16209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16209.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16214.jpgsave_picture_16214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16214.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16217.jpgsave_picture_16217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16217.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16233.jpgsave_picture_16233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16233.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Psychoscopy (2022) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16253.jpgsave_picture_16253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16253.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16275.jpgsave_picture_16275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16275.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Galacticare (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Full Coverage Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16280.jpgsave_picture_16280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16280.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack seleZen [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16286.jpgsave_picture_16286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16286.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16310.jpgsave_picture_16310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16310.jpg" />
 </div>
 
 

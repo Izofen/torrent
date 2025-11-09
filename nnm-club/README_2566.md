@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67466.jpgsave_picture_67466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67466.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dream Theater - Images And Words (1992) Reissue, 2025, ATCO Records [DSD256|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67467.jpgsave_picture_67467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67467.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Ancient Bards - Artifex (2025) Deluxe Edition [MP3|320 Kbps] <Symphonic Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67468.jpgsave_picture_67468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67468.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:2AC081097832930A86FC34CB6947FCF3E24F738B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67469.jpgsave_picture_67469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67469.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Samantha Fish - Paper Doll (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67470.jpgsave_picture_67470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67470.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Marco Maurizi - A Book of Prog Prayers (2025) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67471.jpgsave_picture_67471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67471.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ VA - Armin van Buuren - A State Of Trance 1222 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67472.jpgsave_picture_67472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67472.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Cosmic Cathedral - Deep Water (2025) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67473.jpgsave_picture_67473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67473.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ David Starr - MUST BE BLUE (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67474.jpgsave_picture_67474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67474.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Projekt JU - In alle Ewigkeit (2025) [MP3|320kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67475.jpgsave_picture_67475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67475.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 Bonus Stage | Этот замечате�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67476.jpgsave_picture_67476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67476.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:7D9574AA77A2C0EE628931D5F5E2B431DC3326CA
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67477.jpgsave_picture_67477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67477.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Machine Head - Unatoned (2025) [MP3|320 Kbps] <Groove Metal, Thrash Metal, Alter
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67478.jpgsave_picture_67478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67478.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7E51AF8C2448524257D486A98B83D6556F99BFF6
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67479.jpgsave_picture_67479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67479.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:98246811D696148B3048C78E64D2C6DE81B3EC93
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67480.jpgsave_picture_67480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67480.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:96E563013582BF3E3640B3CF07ACC38AB5706908
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67481.jpgsave_picture_67481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67481.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:477217647E59BA79F8AD633996B8A1A093830C0B
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67482.jpgsave_picture_67482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67482.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ PowerDirector – Video Editor v15.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67483.jpgsave_picture_67483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67483.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Russ Ballard - Songs From The Warehouse - The Hits Rewired (2025) 2 x CD [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67484.jpgsave_picture_67484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67484.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ DS2 - Electro Swing Dance (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electro Sw
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67485.jpgsave_picture_67485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67485.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:9535C0B9D0A2A665405C1001C7472030F12759A7
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67486.jpgsave_picture_67486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67486.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - The Best of Classic Jazz 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67487.jpgsave_picture_67487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67487.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:0E70140EE4A6D70B3C882C23B8AA951E9B5D09F6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67488.jpgsave_picture_67488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67488.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:5ED5A312DD72CD3799A45CC028A9C1C23B9A2122
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67489.jpgsave_picture_67489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67489.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:0EC0E100BDFD5C70E2128BEADBB2B2BF2A5226AC
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67490.jpgsave_picture_67490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67490.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Zmarłym (Zmarlym) - Wielkie Zanikanie (2025) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67491.jpgsave_picture_67491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67491.jpg" />
 </div>
 
 

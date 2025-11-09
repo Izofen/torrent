@@ -6,7 +6,7 @@ Yate 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163173.jpgsave_picture_163173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163173.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ AllDup 4.5.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163174.jpgsave_picture_163174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163174.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Messenger - In To Win (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163175.jpgsave_picture_163175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163175.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MuseScore 4.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163176.jpgsave_picture_163176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163176.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:E3AB017AC828F4125328F329C22051B1A2FD8B46
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163177.jpgsave_picture_163177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163177.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ TrineATX - Haunt Me Slowly (2020) [MP3|320 Kbps] <Alternative Metal, Modern Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163178.jpgsave_picture_163178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163178.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Wise Auto Shutdown 2.0.5.106 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163179.jpgsave_picture_163179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163179.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Brave Browser 1.60.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163180.jpgsave_picture_163180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163180.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:3D81411FC6496D6571A5F75FE98712188147C9B0
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163181.jpgsave_picture_163181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163181.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:D9EE3813E3CEDA0A82B2ADC7A605AE1E4CB124AF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163182.jpgsave_picture_163182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163182.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:F39A3FDC6F507229BC14BEF0EEAB3FF78544125C
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163183.jpgsave_picture_163183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163183.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:70BCF19349DEA563BBC1179D7A682465A8D1AC9D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163184.jpgsave_picture_163184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163184.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:C8A9077ACF2F3C5AE96BF182B4EEA017D9758D64
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163185.jpgsave_picture_163185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163185.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:D19C39A6073F72C523EF84F30588E0496F206C61
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163186.jpgsave_picture_163186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163186.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Terra Lightfoot - Consider The Speed (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163187.jpgsave_picture_163187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163187.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Audacity 3.4.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163188.jpgsave_picture_163188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163188.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:33ACADD691288A2CAEA42C1715BD69AC29F9F7C4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163190.jpgsave_picture_163190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163190.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:AC84587C0890AFC62ED610761FE88FE05D13B463
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163191.jpgsave_picture_163191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163191.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:FA561CCB20F6B08D3ADEB2692F60D26A7FBA0C68
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163192.jpgsave_picture_163192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163192.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:6A81569672F01FD0A5ED713216EB9D10F407FA60
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163193.jpgsave_picture_163193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163193.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:BA8FBAAAA0456BC955FF827BFF75D01BE4731926
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163194.jpgsave_picture_163194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163194.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:A8F50669CAB23FFB00F22363FB6E79E969E06200
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163196.jpgsave_picture_163196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163196.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Music News vol.232 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163197.jpgsave_picture_163197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163197.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:8310CECA74E3A55AA495653F5E2DFB32107C2DA0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163198.jpgsave_picture_163198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163198.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Angra - Cycles Of Pain (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163199.jpgsave_picture_163199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163199.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:7688709E0C58CCE5307DB9F9C4FA689D1B17AACF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163200.jpgsave_picture_163200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163200.jpg" />
 </div>
 
 

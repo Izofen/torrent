@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106083.jpgsave_picture_106083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106083.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5261EE2BBF5DCCCE0704840E7BF317F41B6007BE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106084.jpgsave_picture_106084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106084.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CC3ED9060CDC780F4C57ECE348224594ADB8C388
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106085.jpgsave_picture_106085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106085.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:5AAA5C4926BC6EBD969BF9B38D4C1ADEFC1443EB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106086.jpgsave_picture_106086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106086.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:D14BD97F7D56DD1335BD02EA18F06B6AABCE0A42
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106087.jpgsave_picture_106087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106087.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3384804F8A0499C8A34E91A9E742D5287AD06B56
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106088.jpgsave_picture_106088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106088.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Beasto Blanco - Kinetica (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106089.jpgsave_picture_106089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106089.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:A880A3B394B8F3995410152199A3FB28959F2A8B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106090.jpgsave_picture_106090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106090.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:A880A3B394B8F3995410152199A3FB28959F2A8B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106091.jpgsave_picture_106091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106091.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Dmitry Spirin (ex-Тараканы) - Чем кончается родина (20
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106092.jpgsave_picture_106092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106092.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:361CCB5FF3A1EB02F3EA63C77AC4509447FA3955
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106093.jpgsave_picture_106093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106093.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:AD408FFB71D6662BF9A17397B467BFE7DB992489
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106094.jpgsave_picture_106094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106094.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:6C40028E5730DE08386099D45F5C78018F66025A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106095.jpgsave_picture_106095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106095.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3D0E9250F8CB9898C58C8F069A89A1BCB0A868DE
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106096.jpgsave_picture_106096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106096.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:111DC24CBE1B4EFB2E5E299BDC2B80AF47129F94
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106097.jpgsave_picture_106097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106097.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:91A2D16E05D0229009BC65A1638EFC3B8B5C8FE2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106098.jpgsave_picture_106098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106098.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106099.jpgsave_picture_106099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106099.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:40C8B9E62D2C9BB3A1C9D7ACB8A23EB62214FAEC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106100.jpgsave_picture_106100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106100.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:A0811404F61D3D0AECF23F09D5DB3246DE982657
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106101.jpgsave_picture_106101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106101.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:6C42A6CFA0ABE4BDE910FA0283A8578E1ABD4487
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106102.jpgsave_picture_106102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106102.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:18CF2B6A683933620B58BDE0C3B2FADB5D31E9E2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106103.jpgsave_picture_106103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106103.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:36AEE54BE0FF2F48E425FBF2CEB9128B8C560374
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106104.jpgsave_picture_106104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106104.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:28CB8D9B1793BD15083D1644BCEDC720D04D5695
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106105.jpgsave_picture_106105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106105.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Dmitry Spirin (ex-Тараканы) - Чем кончается Родина (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106106.jpgsave_picture_106106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106106.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - Ibiza Summer 2024: Deep & Tropical House (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106107.jpgsave_picture_106107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106107.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ VA - Summer 2024: Best of Deep House (2024) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106108.jpgsave_picture_106108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106108.jpg" />
 </div>
 
 

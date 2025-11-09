@@ -6,7 +6,7 @@
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176295.jpgsave_picture_176295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176295.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B772D881CF4F44717158F2C8483B5D1171520354
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176296.jpgsave_picture_176296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176296.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Christmas Stories 9: The Christmas Tree Forest / Рождественские и
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176299.jpgsave_picture_176299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176299.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0219F5205B792FF730515CBFB40D0C7EEFDCF438
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176301.jpgsave_picture_176301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176301.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:BC1A4FC356ADBFA2B786981700FB5D87DA087767
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176302.jpgsave_picture_176302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176302.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:654C5284029BF91B328F9F6D7CD11B853D758F47
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176304.jpgsave_picture_176304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176304.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:8BE5DF2324F1DB45CCB500C8E21757082803CFE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176305.jpgsave_picture_176305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176305.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D68E8A9068631AA7D7CA819FC7BB1763D9E305CA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176307.jpgsave_picture_176307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176307.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E7A27518616E8E3210B5A7FCCA2FC47B36A499A2
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176308.jpgsave_picture_176308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176308.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Burning by Desire - Insight (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176309.jpgsave_picture_176309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176309.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ LiveWire - Under Attack! (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176311.jpgsave_picture_176311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176311.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176312.jpgsave_picture_176312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176312.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176313.jpgsave_picture_176313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176313.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Metaltouch - Zero Radicalism (2022) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176315.jpgsave_picture_176315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176315.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:15AE3A82AC7E829E498B11A3939E204C0D2D049C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176316.jpgsave_picture_176316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176316.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Bandicam 7.0.0.2117 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176317.jpgsave_picture_176317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176317.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Seducer's Embrace - Sinnocence (2002) [WavPack|Lossless|image + .cue] <Melodic D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176319.jpgsave_picture_176319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176319.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (1.0/dlc) Scene Rune [Digital Deluxe
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176320.jpgsave_picture_176320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176320.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:1484E5ADED3841F94213F0653E69650D97FDC421
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176321.jpgsave_picture_176321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176321.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:9C107F6E953F00A636E4FE79A3BAF714A14DA071
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176323.jpgsave_picture_176323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176323.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176324.jpgsave_picture_176324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176324.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ In Search of Solace - The Endless Ache (2022) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176325.jpgsave_picture_176325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176325.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Heron - Empires of Ash (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176327.jpgsave_picture_176327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176327.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:D7077E7C4220895BB51E9D4525EF8DE19BEFD6B4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176328.jpgsave_picture_176328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176328.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:2CD5550B59DA49D10C7E82911D543EA2450C0422
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176329.jpgsave_picture_176329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176329.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:895E63BD36B82855775BE55B70FB3943C66E9A29
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176331.jpgsave_picture_176331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176331.jpg" />
 </div>
 
 

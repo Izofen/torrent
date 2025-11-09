@@ -6,7 +6,7 @@ Super Sabre - Steel Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104913.jpgsave_picture_104913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104913.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SWORN (2025) [Ru/Multi] (1.0.1.0.1018/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104914.jpgsave_picture_104914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104914.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Lamb of God - Ashes of the Wake (2004) 20th Anniversary Edition, 2024, Epic - Le
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104915.jpgsave_picture_104915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104915.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104916.jpgsave_picture_104916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104916.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Blues Indelebile Band - Live in Studio (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104917.jpgsave_picture_104917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104917.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:5DA6F12E08FB32303138AB24E20CC98035208250
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104918.jpgsave_picture_104918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104918.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ SouthSide Tone Kings - Roll All Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104919.jpgsave_picture_104919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104919.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Black Wings - Whispers of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104920.jpgsave_picture_104920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104920.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:EEA08F2FD630C56431E6D22BDD28ED431C55FE39
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104921.jpgsave_picture_104921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104921.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Lazarus A.D. - Studio Albums (2 releases) (2009-2011) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104922.jpgsave_picture_104922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104922.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:3C87E41B20A110DB4B29C14D6EFEC95C434D9EE1
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104923.jpgsave_picture_104923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104923.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:65AD427E083EE5E472DCF7E2E9B1A76FC3F29C42
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104924.jpgsave_picture_104924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104924.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:792783A8C0ED4914B3B06A6DA21411BEEB15040C
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104925.jpgsave_picture_104925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104925.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Endrick & the Sandwiches - Straight Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104926.jpgsave_picture_104926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104926.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:AAFD213A75C1CE1FF2FD8111D61BDD2C6FD77338
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104927.jpgsave_picture_104927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104927.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Gordo - Diamante (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104928.jpgsave_picture_104928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104928.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Stan Getz - Scandinavian Days (1959) 1991, Fresh Sound [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104929.jpgsave_picture_104929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104929.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Rezet - Rezet (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104930.jpgsave_picture_104930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104930.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sunza Chief - Follow Me To Coolangatta (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104931.jpgsave_picture_104931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104931.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Tab Benoit - I Hear Thunder (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104932.jpgsave_picture_104932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104932.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:D8A386ED4549D3127EF0FCD7447AC61592BC27BE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104933.jpgsave_picture_104933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104933.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:1272C10EDD3EEFE1698C3A817EFDFFCA1C6D5326
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104934.jpgsave_picture_104934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104934.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:B707528BF3018A12236E08C6511632197EDF8817
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104935.jpgsave_picture_104935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104935.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Drakkar - Spread Your Wings (2024) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104936.jpgsave_picture_104936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104936.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Mura Masa - Curve 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <electronic, future bas
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104937.jpgsave_picture_104937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104937.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Vasti Jackson - Royal American Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104938.jpgsave_picture_104938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104938.jpg" />
 </div>
 
 

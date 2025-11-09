@@ -6,7 +6,7 @@ TikTok 37.0.4 Mod by Dmitry Nechiporenko + Plugin 1.56 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39589.jpgsave_picture_39589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39589.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ NIUBI Partition Editor 10.0.5 Pro / Unlimited / Technician Edition RePack (& Por
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39590.jpgsave_picture_39590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39590.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:735E53AF1A58EB2A7E9282D9EB7ACC4F14B84405
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39591.jpgsave_picture_39591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39591.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ VA - Turn To Rock (2024) [MP3|320 Kbps] <Alternative, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39592.jpgsave_picture_39592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39592.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Altair PSIM 2024.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39593.jpgsave_picture_39593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39593.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:758CEC03391F4B453A5EAB79C464DE1A44431659
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39594.jpgsave_picture_39594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39594.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:866A6E69732C784EDFF131F52BB29AAD522C0436
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39595.jpgsave_picture_39595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39595.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:812CC9BFE67B195589C42AEA6C67ABB5DBE4779E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39596.jpgsave_picture_39596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39596.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:CA3E50B2AA98DBF7A16D8110C9458D31DE6B5958
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39597.jpgsave_picture_39597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39597.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:014ADA5BB7643980C408D285A7DE380250D83E5F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39598.jpgsave_picture_39598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39598.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Beth Hart - You Still Got Me (2024) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39599.jpgsave_picture_39599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39599.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ PilotEdit Lite & Pro 19.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39600.jpgsave_picture_39600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39600.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:4A22D8BCB01DEE658F2F5EF87C29F5DCC5255FBB
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39601.jpgsave_picture_39601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39601.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:7C4D2A9F19719FDC53E88233142B9B355741C177
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39602.jpgsave_picture_39602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39602.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:F3D355E34DA8AB4CDBB3BFAE619DEEA716B331B0
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39603.jpgsave_picture_39603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39603.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Vanced Tube v5.2.80.113 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39604.jpgsave_picture_39604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39604.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:83604E3EDC7DDD55E13A884C8CC403658E7BAA33
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39605.jpgsave_picture_39605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39605.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39606.jpgsave_picture_39606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39606.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:3FD5B682135C48BD6E855D1A58168A63CC5B5456
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39607.jpgsave_picture_39607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39607.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Hard Disk Sentinel PRO 6.20.4 Build 13190 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39608.jpgsave_picture_39608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39608.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:EFCC72E1C1184A5DC82F8FDD4DA18C5BE54977DF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39609.jpgsave_picture_39609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39609.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:832A3C43579467FF729BB656E948A2802264004C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39610.jpgsave_picture_39610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39610.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:510BD69C98E8F63387FD8538FFA469D5A782E1F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39611.jpgsave_picture_39611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39611.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:FC4E4A119F0C6001771E506F2CFC7A261BF3CC28
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39612.jpgsave_picture_39612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39612.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:885527AA6F50E51FE69B06B6DDDB8FE27E564FEF
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39613.jpgsave_picture_39613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39613.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A8455266289F24659FB9B67E674A4C60B912E855
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39614.jpgsave_picture_39614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39614.jpg" />
 </div>
 
 

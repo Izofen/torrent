@@ -6,7 +6,7 @@ VA - Шансон в натуре (2015) [MP3|320 кб/с] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145589.jpgsave_picture_145589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145589.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ u-he - Zebra2 2.8.0.7730 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145590.jpgsave_picture_145590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145590.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Evanescence - Fallen (2003) 20th Anniversary Edition, Reissue, Remastered, 2023,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145591.jpgsave_picture_145591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145591.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A8E74D0E2294DFD8914B58BBBEF18FA32FA95210
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145594.jpgsave_picture_145594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145594.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2018) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145595.jpgsave_picture_145595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145595.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:5E9657E9B255E8A451FFE9BD646FA3744ECF915C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145597.jpgsave_picture_145597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145597.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:4D6D239802F048FD1D4097F81D2CC49B5950BB43
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145598.jpgsave_picture_145598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145598.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2013) The Complete Narra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145599.jpgsave_picture_145599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145599.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:9EA6864C4BABA6F2303BEBED2D28409BB2E887EA
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145601.jpgsave_picture_145601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145601.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ T. Rex - Electric Warrior (1971) SACD, 2003, A&M Records [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145602.jpgsave_picture_145602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145602.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:9EB1FE3723B4D5EF02D7DAEEC68F71D996FB38BE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145603.jpgsave_picture_145603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145603.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145605.jpgsave_picture_145605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145605.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:6CE4FA6A23CE9F049789347D6EE6C63FE472B7B4
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145606.jpgsave_picture_145606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145606.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:9B3576439352DFFCFF59ADDF65D2609AB9E4346B
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145607.jpgsave_picture_145607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145607.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:49AF502DF6D2668437382F907DB67B9B9950C203
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145608.jpgsave_picture_145608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145608.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:8367542CE09C7BCC9F7A47B979FD5FD831340539
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145610.jpgsave_picture_145610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145610.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:F29B2FD7CA7861C50DF00E64F2FF2727E4AA02E3
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145611.jpgsave_picture_145611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145611.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:3B898E5E1FDE8C559AC3A6C8C5C48A4A2C7F6DB1
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145613.jpgsave_picture_145613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145613.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:F921C3C2C4AFBEED94650442057AEF7B40971AEE
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145615.jpgsave_picture_145615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145615.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Call of Duty: Black Ops (2010) [Ru/Multi] (0.305-05.125430.1/dlc) License PLAZA 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145616.jpgsave_picture_145616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145616.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Rolling Stones - Between The Buttons (1967) SACD, Remastered, 2002 ABKCO Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145618.jpgsave_picture_145618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145618.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Trance In Motion Vol.367 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145619.jpgsave_picture_145619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145619.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:453FCD2E4577DD27C29737DA704D670ABB25B988
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145620.jpgsave_picture_145620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145620.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:4486018A1A1C339C8C82F85AF9593AE768ABC1FD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145621.jpgsave_picture_145621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145621.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:3C731A2C5DFFFB1531CE24CB5DFF126A19E3E818
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145622.jpgsave_picture_145622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145622.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:39C9748F5B99D15AEC91C354CCE2A8420F5FFD1F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145624.jpgsave_picture_145624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145624.jpg" />
 </div>
 
 

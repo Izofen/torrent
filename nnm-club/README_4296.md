@@ -6,7 +6,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133371.jpgsave_picture_133371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133371.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:226E701B589D99F24294E248283DAAB91DA81CBC
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133373.jpgsave_picture_133373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133373.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:F049C774B6989530E2563D4771CAEBD692116C99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133375.jpgsave_picture_133375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133375.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:15492BD66ED91A3E3D6129DB0099193C17B8AE8D
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133376.jpgsave_picture_133376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133376.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Opera Crypto Browser 105.0.4970.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133377.jpgsave_picture_133377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133377.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Icecream PDF Editor PRO 3.16 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133379.jpgsave_picture_133379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133379.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:20A660FA0B5B3C287D7795784AB07790BED5EB32
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133380.jpgsave_picture_133380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133380.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Opera One 105.0.4970.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133381.jpgsave_picture_133381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133381.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Wondershare PDFelement 10.1.10.2563 + OCR Plugin (x64) Portable by 7997 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133382.jpgsave_picture_133382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133382.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ DigiKam 8.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133383.jpgsave_picture_133383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133383.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:470669788B2C7765114A484F24385452A7FA7C6E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133384.jpgsave_picture_133384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133384.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:FAD43676BB6D353157719DA648019D3B3AF00599
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133385.jpgsave_picture_133385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133385.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Firefox Browser 120.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133386.jpgsave_picture_133386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133386.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:5304F5EFE5EFB6F219FF204235F05317E510ADC5
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133387.jpgsave_picture_133387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133387.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:D89D3BAA5119F095A8C45DE5D9DA6ED79515ACB7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133388.jpgsave_picture_133388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133388.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133389.jpgsave_picture_133389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133389.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:EEAE76D9FE36B62EF01C06D41DCA3A9A528B9906
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133390.jpgsave_picture_133390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133390.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Transcend SSD Scope 4.19 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133391.jpgsave_picture_133391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133391.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:5690896256C226C56C28FEFAA1A2193A3FEFCDA4
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133392.jpgsave_picture_133392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133392.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Shotcut 23.11.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133393.jpgsave_picture_133393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133393.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:E3C9CD49E7BBD3AA31F0313BC749CF90A18550ED
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133395.jpgsave_picture_133395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133395.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Samsung Kies v2.5.1.12123 Multi/Rus
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133396.jpgsave_picture_133396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133396.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Ms. Holmes 5: The Milverton Plot (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133397.jpgsave_picture_133397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133397.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Peter Gabriel - i/o (2023) [MP3|320 Kbps] <Art-rock, neo-folk, progressive-rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133399.jpgsave_picture_133399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133399.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Supreme Snowboarding [WineSkin]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133400.jpgsave_picture_133400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133400.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Supreme Snowboarding [WineSkin]
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133401.jpgsave_picture_133401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133401.jpg" />
 </div>
 
 

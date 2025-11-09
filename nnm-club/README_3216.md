@@ -6,7 +6,7 @@ Jade Macrae - In My Veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103967.jpgsave_picture_103967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103967.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brant Bjork Trio & Brant Bjork - Once Upon A Time In The Desert (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103968.jpgsave_picture_103968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103968.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103969.jpgsave_picture_103969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Albert Bover - A Parisian Affair (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103970.jpgsave_picture_103970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103970.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:DE38E8E9078EF84D858D91070CB5F867382100D5
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103971.jpgsave_picture_103971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103971.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Los
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103972.jpgsave_picture_103972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103972.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sonny Stitt & Don Patterson - The Boss Men (1965) 2001, Prestige [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103973.jpgsave_picture_103973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103973.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Fred Hersch - Silent, Listening (2024) ECM Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103974.jpgsave_picture_103974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103974.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ El Poder de la Infancia - El Poder de la Infancia (2024) [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103975.jpgsave_picture_103975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103975.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Diz and the Doormen - Diz-Connected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103976.jpgsave_picture_103976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103976.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Amos Hoffman - Minor Operation (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103977.jpgsave_picture_103977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103977.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Alex Kautz - Where We Begin (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103978.jpgsave_picture_103978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103978.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:89BB830422E05A31750BAD841892AC562B79E3E4
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103979.jpgsave_picture_103979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103979.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:EC664D873B2FA3347856AEAD162C9856A88E5C1C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103980.jpgsave_picture_103980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103980.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:D749E40D8AA3F5D104F18DF3B6CFA5A1EE41597E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103981.jpgsave_picture_103981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103981.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:115C047DC03CC33E33B85D7459763DC326B302A9
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103982.jpgsave_picture_103982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103982.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:A9BED9AD2F455222899B709142DB4396648C2225
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103983.jpgsave_picture_103983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103983.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ PhotoRoom v5.3.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103984.jpgsave_picture_103984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103984.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:D8FAAE2C376197FE319F4FEC97C5CEBBB27CA792
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103985.jpgsave_picture_103985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103985.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:EAC65747DD98023FA3CCF7B1A7079466E875BBC1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103986.jpgsave_picture_103986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103986.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 (2024) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103987.jpgsave_picture_103987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103987.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Markus Schulz - Global DJ Broadcast (In Search of Sunrise 20 Companion Mix) (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103988.jpgsave_picture_103988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103988.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:C034CF35BD896DB172569D8B8A72E10065BD6A53
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103989.jpgsave_picture_103989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103989.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ High-Logic FontCreator Professional Edition 15.0.0.3003 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103990.jpgsave_picture_103990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103990.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Co
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103991.jpgsave_picture_103991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103991.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ VA - Vocal Anthems Amsterdam (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103992.jpgsave_picture_103992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103992.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Eguana - My Black World (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211035.jpgsave_picture_211035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211035.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Camouflage - 8 Studio Albums (1988-2015) CD Collection [MP3|320 Kbps] <Electroni
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211111.jpgsave_picture_211111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211111.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Club Megamix 2023: Summer Hits (2023) [MP3|320 Kbps] <Electro House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211163.jpgsave_picture_211163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211163.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Ibiza Top Hits (2023) [MP3|320 Kbps] <Electro House, Dance, Club, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211170.jpgsave_picture_211170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211170.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Pet Shop Boys - SMASH – The Singles 1985 – 2020 (2023) 3CD, 2023, Remaster, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211195.jpgsave_picture_211195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211195.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - A State Of Trance Radio Top 50 - 2023, Vol. 1 (2023) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211281.jpgsave_picture_211281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211281.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Paradise Ibiza Summer 2023: Best of Deep & Tropical House (2023) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211320.jpgsave_picture_211320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211320.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Black Hole House Music 06-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211337.jpgsave_picture_211337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211337.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Black Hole Trance Music 06-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211345.jpgsave_picture_211345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211345.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ex Lover - Devotion (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Goth, Post-P
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211357.jpgsave_picture_211357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211357.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Pet Shop Boys - SMASH – The Singles 1985 – 2020 (2023) 3CD, 2023 Remaster [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211362.jpgsave_picture_211362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211362.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cattac - Nightness (2021) EP [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211691.jpgsave_picture_211691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211691.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Keep It Trance Vol. 12 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211716.jpgsave_picture_211716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211716.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Tropical & Deep House: Summer Mix 2023 [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211799.jpgsave_picture_211799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211799.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Qulonium - Universal Error (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211807.jpgsave_picture_211807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211807.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Analog '82 - Youthtopia (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211818.jpgsave_picture_211818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211818.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Summer 2023: Best Of Deep House (2023) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211830.jpgsave_picture_211830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211830.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Chicane - Nevertheless (2023) [MP3|320 Kbps] <House, Progressive House, Electron
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211896.jpgsave_picture_211896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211896.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Chillout Spring Gems 2023: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211918.jpgsave_picture_211918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211918.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Trance Anthems (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211940.jpgsave_picture_211940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211940.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Ibiza Summer 2023: The Sounds Of The Island (2023) [MP3|320 Kbps] <Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212103.jpgsave_picture_212103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212103.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212214.jpgsave_picture_212214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212214.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - ADE2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, E
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212215.jpgsave_picture_212215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212215.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Ibiza Summer 2025 (Chill out Cookies from the Heart) (2025) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212256.jpgsave_picture_212256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_212256.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213484.jpgsave_picture_213484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213484.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213514.jpgsave_picture_213514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213514.jpg" />
 </div>
 
 

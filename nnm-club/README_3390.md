@@ -6,7 +6,7 @@ Laserdance - Laserdance Orchestra Vol. 1 (1994) Reissue, 2024, ZYX Italo [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108501.jpgsave_picture_108501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108501.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9DF67B864CA7369C71C1124E46ABF77C9960C95C
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108502.jpgsave_picture_108502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108502.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Chromium 125.0.6422.142 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108503.jpgsave_picture_108503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108503.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:6F19A3157163C9DABD96399CEDBC7977231256F2
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108504.jpgsave_picture_108504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108504.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:915FD3E0452CA2E5278E6B1C74E769FE0906B065
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108505.jpgsave_picture_108505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108505.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Omamori Himari | Защитница Химари [2010, TV, 12 эп.] BDRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108506.jpgsave_picture_108506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108506.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ TapScanner v3.0.24 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108507.jpgsave_picture_108507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108507.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2918470FFF5E48C9487F03C6C84E87A242338B2A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108508.jpgsave_picture_108508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108508.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:648A86D8D1451D18860598FB7D68B40F6C4A6C24
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108509.jpgsave_picture_108509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108509.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC|Lossless|tracks + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108510.jpgsave_picture_108510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108510.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Brian Tomlinson (editor) | Materials Development in Language Teaching. Second Ed
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108511.jpgsave_picture_108511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108511.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:B34CDA85EA06E8ED262157C6E1716ACAB1235E43
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108512.jpgsave_picture_108512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108512.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:F5EDB81E0731E4E7A337E0EB37951CEAFEEC76E1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108513.jpgsave_picture_108513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108513.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Erasure - Cowboy (1997) Expanded Edition, 2024, BMG [MP3|320 Kbps] <Synthpop, Ne
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108514.jpgsave_picture_108514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108514.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:12F13AD30916FB6C4F1937DAA9B94578B059F755
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108515.jpgsave_picture_108515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108515.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - DJ Hits 21 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108516.jpgsave_picture_108516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108516.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Voskod - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108517.jpgsave_picture_108517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108517.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Sexy Lovers Music Collection, Sexual Music Collection - Steamy Foreplay Exciteme
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108518.jpgsave_picture_108518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108518.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Týr - Best Of - The Napalm Years (2024) Remaster [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108519.jpgsave_picture_108519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108519.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:0E512FAD6CF0DBAB9EE2A86120761E5A1A6F8A0A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108520.jpgsave_picture_108520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108520.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Erotic Chillout & Lounge Perfect Playlist (2024) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108521.jpgsave_picture_108521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108521.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ LibreWolf 126.0.1-1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108522.jpgsave_picture_108522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108522.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Electronic compilation part 83 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108523.jpgsave_picture_108523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108523.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:9770BA7C2F23C065ACBDE25B76A85901C7F2C00F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108524.jpgsave_picture_108524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108524.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Subtitle Edit 4.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108525.jpgsave_picture_108525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108525.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Doomsday Dementia - 4 Albums (2018-2022) [FLAC|24/44.1,48|WEB-DL|tracks] <Crust 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108526.jpgsave_picture_108526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108526.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251797.jpgsave_picture_251797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251797.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20668622) Repack Other s
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251799.jpgsave_picture_251799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251799.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064) Scene FAIRLIGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251836.jpgsave_picture_251836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251836.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251852.jpgsave_picture_251852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251852.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Lord of the Rings: Gollum (2023) [Ru/Multi] (0.2.51064/dlc) Repack DjDI [Pre
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252004.jpgsave_picture_252004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252004.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252005.jpgsave_picture_252005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252005.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252023.jpgsave_picture_252023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252023.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Marvel’s Spider-Man: Miles Morales (2022) [Ru/Multi] (2.209.0.0/dlc) Repack Dj
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252083.jpgsave_picture_252083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252083.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Greedventory (2023) [Multi] (1.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252123.jpgsave_picture_252123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252123.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Thea 2: The Shattering (2019) [Ru/En] (2.0508.0677) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252130.jpgsave_picture_252130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252130.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.0/dlc) Repack Decepticon [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252204.jpgsave_picture_252204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252204.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Resident Evil 4 (2023) [Ru/Multi] (11025382/dlc) Repack DjDI [Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252240.jpgsave_picture_252240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252240.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Sunless Sea (2015) [En] (2.2.11.3212/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252252.jpgsave_picture_252252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252252.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mortal Sin (2023) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252274.jpgsave_picture_252274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252274.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Dread Templar (2023) [Ru/Multi] (1.0.2b_fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252285.jpgsave_picture_252285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252285.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252286.jpgsave_picture_252286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252286.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Wreckfest (2018) [Ru/Multi] (Build 16986367/dlc) Repack Other s [Complete Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252287.jpgsave_picture_252287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252287.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ HYKE: Northern Light(s) (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252288.jpgsave_picture_252288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252288.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ SPARTA 2035 (2025) [Ru] (1.1.0(29)/dlc) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252290.jpgsave_picture_252290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252290.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252292.jpgsave_picture_252292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252292.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163519.jpgsave_picture_163519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163519.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 10.0.18362.535 Version 1903 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163520.jpgsave_picture_163520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163520.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:8C1F18BD0D44A88FED939AD1FD1AD022363B8A4F
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163521.jpgsave_picture_163521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163521.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Tony Iommi - 9 albums, 13 CD (1996-2012) [FLAC|Lossless|image + .cue | tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163522.jpgsave_picture_163522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163522.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:75307EFBBDFB67EA1F5A4CF7615C2B3C1B7B07BC
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163523.jpgsave_picture_163523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163523.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:A5DDD20705FDDF30AC34B38C5DF39F3DCE357E03
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163524.jpgsave_picture_163524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163524.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:660E2DA4C92FA6700E7A8C3C0A1084B11311E1FC
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163525.jpgsave_picture_163525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163525.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:B06CBC0D434CE838E814E9DCF8B7FFECDD4F3F02
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163526.jpgsave_picture_163526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163526.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Crest Of Darkness - Project Regeneration (2000) [APE|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163527.jpgsave_picture_163527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163527.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:E4C430BD6A2437F4B87E8E861028D864BD0D92EA
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163528.jpgsave_picture_163528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163528.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:B553BF58989090C5ACF05036A22B04A24A6CAEF4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163529.jpgsave_picture_163529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163529.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:1FF2D293FA2E45B55513B9CBF09869659FB284D4
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163530.jpgsave_picture_163530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163530.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:29EBF640786ED2D5668B05E72A57273C0D89319A
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163531.jpgsave_picture_163531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163531.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Heimdalls Wacht - Ut De Graute Olle Tied-Deel Twee (Land Der Nebel) (2015) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163532.jpgsave_picture_163532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163532.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - This is Ablazing 2021 (Mixed & Selected by Rene Ablaze) (2021) [FLAC|Lossle
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163533.jpgsave_picture_163533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163533.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ The Yardbirds - 15 albums, 1 Box set, 27 CD (1963-2018) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163534.jpgsave_picture_163534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163534.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Balrog - Miserable Frame (2013) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163535.jpgsave_picture_163535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163535.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Roger Taylor - Outsider (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163536.jpgsave_picture_163536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163536.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:6028A8FB53599BB3CD66A4BD9692F0C3BE81721A
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163537.jpgsave_picture_163537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163537.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ ACDSee Photo Studio 6 v6.1.1536 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163538.jpgsave_picture_163538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163538.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:FAAA9DA34A031B11421272F7AF663A85102703C6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163539.jpgsave_picture_163539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163539.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Temple Of Baal - Mysterium (2015) [FLAC|Lossless|image + .cue] <Black Metal, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163540.jpgsave_picture_163540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163540.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:C9F98D183A93DBA74BCEE2E4B347FD2F92411CBC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163541.jpgsave_picture_163541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163541.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:7EE794039BECC43A7C4E401F337975B2A2C917F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163542.jpgsave_picture_163542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163542.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Project Creation - Floating World (2005) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163543.jpgsave_picture_163543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163543.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:694E7AFE8D2DCF323865B7274D91E3574B61B08A
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163544.jpgsave_picture_163544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163544.jpg" />
 </div>
 
 

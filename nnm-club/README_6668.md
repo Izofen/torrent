@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228674.jpgsave_picture_228674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228674.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D87F4566FB424C67030B45A624B3C62AD7B35CE2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228675.jpgsave_picture_228675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228675.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:72C68F422EC1051E21B9D4A499E14A47E2317167
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228676.jpgsave_picture_228676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228676.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:4E334BE93A7283E005A15C0373BCA04F055EF0DD
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228678.jpgsave_picture_228678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228678.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:EC3D04911946B0034BA7D489EC0228C586D725E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228679.jpgsave_picture_228679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228679.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ AIMP 4.60 Build 2161 Final RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228680.jpgsave_picture_228680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228680.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Microsoft Edge 106.0.1370.47 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228681.jpgsave_picture_228681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228681.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:D175A0639EA092DD34EA3DE0FD64B6F9C3E0099C
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228682.jpgsave_picture_228682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228682.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:6F7458AEE88484D7622F9D9D56DB939202376895
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228683.jpgsave_picture_228683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228683.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:908C6EA4A70340C2553C5DDF08B329E284D3D95B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228684.jpgsave_picture_228684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228684.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:D94E802E2D144DFC7B2DCB7354BEDDCE51B2C676
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228685.jpgsave_picture_228685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228685.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:0E9587BA04750A79980338D41111FAAD76E8EDB1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228686.jpgsave_picture_228686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228686.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:C4EC5FEE161F367D1B23148A6025149C0CC33D99
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228688.jpgsave_picture_228688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228688.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Axeheart - Through The Seas And Time (2022) [MP3|320 Kbps] <Heavy Viking Metal, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228689.jpgsave_picture_228689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228689.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:4116FF1B5073EE35C78D6FE8CF0E6AF566B003D7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228690.jpgsave_picture_228690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228690.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:D126953010CAA169A4602DCE30C68B63C82BA80E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228691.jpgsave_picture_228691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228691.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:EE0B9B2B8CB3D548484D3C9F7EEA937DDF269A73
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228699.jpgsave_picture_228699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228699.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:21998748B3120DDE62A0D5074111435C574A4D7E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228700.jpgsave_picture_228700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228700.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Dorian Wilde - Smell My Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228708.jpgsave_picture_228708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228708.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Revo Uninstaller Free 2.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228715.jpgsave_picture_228715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228715.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Sinking Season - The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228716.jpgsave_picture_228716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228716.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Anna Fiori - Magna Mater (2013) 10th Anniversary, Remixed, Remastered, 2023, Ann
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228723.jpgsave_picture_228723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228723.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Evangelist (Ævangelist) - Harmony Of The Sinister (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228731.jpgsave_picture_228731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228731.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ PistonFist - Redline (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228741.jpgsave_picture_228741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228741.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Default Folder X 6.0 b1 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228748.jpgsave_picture_228748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228748.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ CrystalDiskInfo 8.13.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228753.jpgsave_picture_228753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228753.jpg" />
 </div>
 
 

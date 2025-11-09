@@ -6,7 +6,7 @@ Mini Settlers (2024) [Ru/Multi] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17757.jpgsave_picture_17757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17757.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Ember Knights (2023) [Ru/Multi] (2.2.1.b4712/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17761.jpgsave_picture_17761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17761.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build #268/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17770.jpgsave_picture_17770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17770.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Toy Shop Simulator (2025) [Ru/Multi] (1.0.0b6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17788.jpgsave_picture_17788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17788.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Space Engineers / Космические инженеры (2019) [Ru/Multi] (1.2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17805.jpgsave_picture_17805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17805.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ LEGO Bricktales (2022) [Ru/Multi] (2.0 r21673) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17843.jpgsave_picture_17843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17843.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Beholder: Conductor (2025) [Ru/Multi] (1.0.4.278) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17849.jpgsave_picture_17849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17849.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Avowed (2025) [Ru/Multi] (1.4/dlc) Scene Rune [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17889.jpgsave_picture_17889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17889.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Omega Crafter (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17893.jpgsave_picture_17893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17893.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Trailmakers (2019) [Ru/Multi] (2.0.3.67463/dlc) Repack Let'sРlay [Ultimate Edit
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17897.jpgsave_picture_17897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17897.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17942.jpgsave_picture_17942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17942.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ We Are Football 2024 (2024) [Multi] (1.4.0.18237532) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17947.jpgsave_picture_17947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17947.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dome Keeper (2022) [Ru/Multi] (4.2.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17964.jpgsave_picture_17964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17964.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Train Valley 2 (2019) [Ru/Multi] (Build 18494183/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17986.jpgsave_picture_17986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17986.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10457) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17999.jpgsave_picture_17999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17999.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Sun Haven (2023) [Ru/Multi] (2.0.2c/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18002.jpgsave_picture_18002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18002.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (Build 18402244) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18016.jpgsave_picture_18016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18016.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18019.jpgsave_picture_18019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18019.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack seleZen
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18044.jpgsave_picture_18044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18044.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18046.jpgsave_picture_18046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18046.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.3/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18070.jpgsave_picture_18070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18070.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ A Haunting Novel 2: Surfaced Secrets / Проклятый роман 2: Тайн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18078.jpgsave_picture_18078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18078.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Wildermyth (2021) [Ru/Multi] (1.16+559/dlc) Repack FitGirl [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18080.jpgsave_picture_18080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18080.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31934/dlc) Repack FitGirl [B
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18088.jpgsave_picture_18088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18088.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Oxygen Not Included (2019) [Ru/Multi] (U55-663500-SCR/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18091.jpgsave_picture_18091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18091.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Everspace 2 (2021) [Ru/Multi] (1.4.47960/dlc) Repack FitGirl [Complete Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18102.jpgsave_picture_18102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18102.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sean Shibe - Profesión (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150562.jpgsave_picture_150562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150562.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Giant Lungs - Giant Lungs (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Stoner R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150565.jpgsave_picture_150565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150565.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:D083E2BBEBB33D760B9888D4F7D05E60038B75AF
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150607.jpgsave_picture_150607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150607.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Daft Punk - Random Access Memories (2023) Drumless Edition [FLAC 24/88.2|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150787.jpgsave_picture_150787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_150787.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Santana - Caravanserai (1972) Reissue, Remastered, 2022, Sony Records Int'l  [DS
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151812.jpgsave_picture_151812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151812.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Manfred Mann's Earth Band - The Roaring Silence (1976) [FLAC 2.0|192/24|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151863.jpgsave_picture_151863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151863.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:1849946DB1CEAD15E746C8041CD140C24A4F6181
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152171.jpgsave_picture_152171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152171.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Carach Angren - Studio Albums (7 releases) (2008-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152209.jpgsave_picture_152209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152209.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Blue Oyster Cult - The Revolution By Night (1983)  [FLAC 2.0 24/96|image (Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152320.jpgsave_picture_152320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152320.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153077.jpgsave_picture_153077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153077.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Foreigner - Inside Information (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153215.jpgsave_picture_153215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153215.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Boney-M - Christmas Album (1981) [FLAC 2.0|24/192|tracks|Vinyl-Rip] <Disco> [upc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153359.jpgsave_picture_153359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153359.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ DGM - Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153423.jpgsave_picture_153423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153423.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Opeth - Orchid (1995) Reissue, 2016, Candlelight Records [FLAC|24/192|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153594.jpgsave_picture_153594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153594.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Pink Floyd - Live at the Rainbow Theatre, London 1972-02-19 (1972) [FLAC 2.0|44/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153682.jpgsave_picture_153682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153682.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Lord Of The Lost - Blood & Glitter (2022)  [FLAC 2.0|44/24|tracks|WEB-DL] <Dark 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153975.jpgsave_picture_153975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153975.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Feuerschwanz - Todsunden (2022) [FLAC 2.0|44/24|tracks|WEB-DL]  <Folk-metal, Med
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154067.jpgsave_picture_154067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154067.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mylene Farmer - Interstellaires (2015) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155725.jpgsave_picture_155725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155725.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Stars On 45' - Звёзды дискотек (2LP) (1983, 1984) [FLAC 2.0 24/96|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155971.jpgsave_picture_155971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155971.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155993.jpgsave_picture_155993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155993.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Blue Oyster Cult - Fire Of Unknown Origin (1981)  [FLAC 2.0 24/96|image (Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156257.jpgsave_picture_156257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156257.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156454.jpgsave_picture_156454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156454.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - The Absolute Sound 2011 (2011) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Po
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156829.jpgsave_picture_156829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156829.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless| image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156887.jpgsave_picture_156887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156887.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VA - Мастера блюза 4: Большая машина (1990) [FLAC 2.0 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156915.jpgsave_picture_156915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156915.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156942.jpgsave_picture_156942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156942.jpg" />
 </div>
 
 

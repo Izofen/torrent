@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85572.jpgsave_picture_85572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85572.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ magnet:?xt=urn:btih:76A3B5AE066E65DB9C00C59AD902F6507EE595EF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85610.jpgsave_picture_85610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85610.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ magnet:?xt=urn:btih:32D569CCF26C6BC4D16BD86D6937A13F582FBC93
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86338.jpgsave_picture_86338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86338.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:1F41CD20F3B56B9445D8F41B06A3F984E7A7CE58
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86594.jpgsave_picture_86594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86594.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ magnet:?xt=urn:btih:7CB16F1CFFCFBFC5B2AB849DB0B0E3D98CB6273F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87141.jpgsave_picture_87141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87141.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ magnet:?xt=urn:btih:E239D665E9F44B7786FD11FD221EB66C54427A37
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87189.jpgsave_picture_87189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87189.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Steinberg | Руководство пользователя HALion 3 (русск
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87347.jpgsave_picture_87347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87347.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Adobe | Adobe Illustrator CS5. Официальный учебный курс [2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87665.jpgsave_picture_87665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87665.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:1AADE336EAB880CF7870B840788712CA2C587D0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87971.jpgsave_picture_87971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87971.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:E12F1BE4FEB6B7E4196A1B29F9E2C58609D2C6FD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87979.jpgsave_picture_87979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87979.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:50F9B5A5A325AA4D3CB590BBD024F3E66FE2C6A6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88097.jpgsave_picture_88097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88097.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:45C591E95ED47DD4A1A8E36E3C37F0DB1B243378
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88667.jpgsave_picture_88667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88667.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:B442DD8687E286B28B33C22E71F6D7A668B297F6
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88906.jpgsave_picture_88906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_88906.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Waves Lab | Руководство для пакета плагинов Waves 7 
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89083.jpgsave_picture_89083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89083.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:A467739772057270B25E7139AB1D0B75EA35D963
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89273.jpgsave_picture_89273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89273.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:F3F6E64AA24BA2D6F0641E7FC05D5B2B3096F91F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90326.jpgsave_picture_90326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90326.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:49734D207ADA4F1C39B172BFBA3EC30A96AC9117
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90327.jpgsave_picture_90327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90327.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:ED20EEFDD44AF5BAB596AA7CAD488D0165308B37
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90932.jpgsave_picture_90932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90932.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91188.jpgsave_picture_91188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91188.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:FA8EADFFF99D8A34E51C662981311A8857D063C2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98425.jpgsave_picture_98425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98425.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Chip Huyen | AI Engineering: Building Applications with Foundation Models (2025)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100927.jpgsave_picture_100927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100927.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104410.jpgsave_picture_104410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104410.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ E. Voigts, R.M. Auer et al (еditors) | Artificial Intelligence - Intelligent Ar
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106382.jpgsave_picture_106382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106382.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ S. Haghsheno, G. Satzger | Kunstliche Intelligenz im Bauwesen (2024) [PDF] [DE]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106387.jpgsave_picture_106387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106387.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:D4A35ADB8481D76BCC1DF3BF3A7E83DE0BB225A3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112328.jpgsave_picture_112328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112328.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:07ADE6F2F6CE948FBA2F98CAD94243E487F1BD92
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114779.jpgsave_picture_114779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114779.jpg" />
 </div>
 
 

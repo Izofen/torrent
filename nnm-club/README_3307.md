@@ -6,7 +6,7 @@ SnapEdit - AI photo editor v6.6.3 Mod by Oflarm, maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106343.jpgsave_picture_106343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106343.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2F142F1173D45CC6F37A51E81F4A69E0CCD3A49F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106344.jpgsave_picture_106344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106344.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0EE4A33700E1951CEEB1326E6EFD1B5E96A5AAB0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106345.jpgsave_picture_106345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106345.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:6A174DDE106BD8C3BAC650748700D171CD39A46D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106346.jpgsave_picture_106346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106346.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ File & Image Uploader 8.4.4 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106347.jpgsave_picture_106347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106347.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B7AF563CFD5B719912E69A2A5AAFAE087B3335F9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106348.jpgsave_picture_106348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106348.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Twelve Inch Eighties Can You Feel It (2016) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106349.jpgsave_picture_106349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106349.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:90A86AB28E86D3810C29DC8FBE1BDB09F6A78778
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106350.jpgsave_picture_106350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106350.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Perfectly Clear WorkBench 4.6.1.2677 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106351.jpgsave_picture_106351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106351.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:F3CDCC7BBC3E2DB50E532D631D93C1AA5A7C5E07
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106352.jpgsave_picture_106352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106352.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Songspire in Ibiza 2024 - Mixed by Robilardo (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106353.jpgsave_picture_106353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106353.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:26EB74195637DAB12B813CAEEE0FDC1B4BBA841A
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106354.jpgsave_picture_106354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106354.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Dark Heart - Out Of The Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106355.jpgsave_picture_106355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106355.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Richard "Groove" Holmes - Groove (1961) 1990, Pacific Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106356.jpgsave_picture_106356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106356.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:402529B652A8239DAAD5A9DE6128C2AC6E3E164C
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106357.jpgsave_picture_106357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106357.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:5F63D2CBF9CF26F12DD28B2637F5116A8EE34808
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106358.jpgsave_picture_106358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106358.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Bud Powell - The Complete RCA Trio Sessions (1956, 1957) 2009, EJC [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106359.jpgsave_picture_106359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106359.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ RisohEditor 5.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106360.jpgsave_picture_106360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106360.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Sumatra PDF 3.6.16439 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106361.jpgsave_picture_106361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106361.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:B36F23BEACB9B1DF35E6C5EB9E3F0852B246D6B2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106362.jpgsave_picture_106362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106362.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ P. Bettiol, R.B. Vinter | Principles of Dynamic Optimization (2024) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106363.jpgsave_picture_106363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106363.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:DECE3376C9A067B1BDEAC1609952F022AA915BCD
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106364.jpgsave_picture_106364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106364.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Gorgon City - Reverie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106365.jpgsave_picture_106365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106365.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:692E11A7F55085D568EE2188E87FBBE6DD4CA1BF
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106366.jpgsave_picture_106366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106366.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ U2 - Beautiful Day (2000) Remastered, 2024, 2024 Island Records Limited / UMC (U
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106367.jpgsave_picture_106367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106367.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:22F2D41FF6C8EE793B270DF3B7EB23A6F3A85CC0
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106368.jpgsave_picture_106368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106368.jpg" />
 </div>
 
 

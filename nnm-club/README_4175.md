@@ -6,7 +6,7 @@ VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129226.jpgsave_picture_129226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129226.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:89D054A817DB6BDF2C0EF063B6C11CE00C28EE3E
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129227.jpgsave_picture_129227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129227.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129229.jpgsave_picture_129229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129229.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129230.jpgsave_picture_129230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129230.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:EEBD98FF9D42A0F6B634DBE80E47012E8216C5C0
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129231.jpgsave_picture_129231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129231.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ VA - 50 Trance Tunes Vol.29 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129232.jpgsave_picture_129232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129232.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Audio Damage - Other Desert Cities 1.0.9 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129233.jpgsave_picture_129233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129233.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129234.jpgsave_picture_129234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129234.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129235.jpgsave_picture_129235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129235.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ ISO Workshop Free 10.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129238.jpgsave_picture_129238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129238.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129239.jpgsave_picture_129239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129239.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 60 Minutes. Old School Dance Music vol.6 (2021) mixed by Dj V [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129240.jpgsave_picture_129240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129240.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Africa Gets Physical, Vol. 3 (2020) [AAC|~331 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129242.jpgsave_picture_129242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129242.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129244.jpgsave_picture_129244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129244.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Trance Symphony Volume 10 (2012) [MP3|320 кб/с]<Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129245.jpgsave_picture_129245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129245.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:885390C0F768DDAA5B740EDBDDB24F7810DE4C93
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129246.jpgsave_picture_129246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129246.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129247.jpgsave_picture_129247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129247.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Dezperadoz - Dead Man's Hand (2012) [MP3|320 кб/с]<Thrash Metal (Western Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129248.jpgsave_picture_129248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129248.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Africa Gets Physical, Vol. 1 (2017) [AAC|~335 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129249.jpgsave_picture_129249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129249.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129252.jpgsave_picture_129252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129252.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129254.jpgsave_picture_129254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129254.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ iMusic 2.2.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129255.jpgsave_picture_129255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129255.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:C420AFDC376FCFA2BDD3857215BDB4AE2979204D
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129256.jpgsave_picture_129256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129256.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Sound Studio 4 v4.10.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129257.jpgsave_picture_129257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129257.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ VA - Africa Gets Physical, Vol. 2 (2019) [AAC|~331 Kbps] <Afro House, Deep House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129260.jpgsave_picture_129260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129260.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Strogoorganic | Органическое Садоводство - Междуна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129262.jpgsave_picture_129262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129262.jpg" />
 </div>
 
 

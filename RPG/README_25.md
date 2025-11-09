@@ -6,7 +6,7 @@ Dark Sky (2024) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41213.jpgsave_picture_41213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41213.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack Other s [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41337.jpgsave_picture_41337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41337.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Space Prison (2024) [Ru/Multi] (1.0.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41375.jpgsave_picture_41375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41375.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Flintlock: The Siege of Dawn (2024) [Ru/Multi] (1.1.72) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41413.jpgsave_picture_41413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41413.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41418.jpgsave_picture_41418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41418.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ REYNATIS (2024) [Multi] (1.0.3/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41500.jpgsave_picture_41500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41500.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Other
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41655.jpgsave_picture_41655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41655.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41751.jpgsave_picture_41751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41751.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Starfield (2023) [Ru/Multi] (1.14.70.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41752.jpgsave_picture_41752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41752.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.0.3149) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41831.jpgsave_picture_41831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41831.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.0.3149) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41836.jpgsave_picture_41836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41836.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Nigate Tale (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41949.jpgsave_picture_41949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41949.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dwarven Realms (2022) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42045.jpgsave_picture_42045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42045.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shadows of Doubt (2024) [Ru/Multi] (39.07) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42054.jpgsave_picture_42054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42054.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Frontier Hunter: Erza's Wheel of Fortune / Пограничный охотник
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42147.jpgsave_picture_42147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42147.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Last Epoch (2024) [Ru/Multi] (1.1.7.4/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42158.jpgsave_picture_42158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42158.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Just a To the Moon Series Beach Episode (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42650.jpgsave_picture_42650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42650.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42665.jpgsave_picture_42665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42665.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Perennial Order (2024) [Ru/Multi] (1.0.1 HotFix 3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42681.jpgsave_picture_42681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42681.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42762.jpgsave_picture_42762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42762.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Garlant: My Story (2024) [Multi] (1.1.0.8) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42769.jpgsave_picture_42769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42769.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Castle of Lord Velimir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42770.jpgsave_picture_42770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42770.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42883.jpgsave_picture_42883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42883.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43222.jpgsave_picture_43222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43222.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.002.26228) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43323.jpgsave_picture_43323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43323.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tactical Breach Wizards (2024) [En] (20240912) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43328.jpgsave_picture_43328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43328.jpg" />
 </div>
 
 

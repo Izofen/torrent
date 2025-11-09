@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13643.jpgsave_picture_13643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13643.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B667BFC55CA57CD0BBEBFE7381A3DCCBA0212FD2
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13644.jpgsave_picture_13644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13644.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Chotto dake Ai ga Omoi Dark Elf ga Isekai kara Oikakete Kita | Yandere Dark Elf 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13645.jpgsave_picture_13645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13645.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:E4863A74E747677BA69B742C152DE9CBE5D520CD
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13646.jpgsave_picture_13646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13646.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:E4863A74E747677BA69B742C152DE9CBE5D520CD
 >>ЧаВо (FAQ)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13647.jpgsave_picture_13647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13647.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:E4863A74E747677BA69B742C152DE9CBE5D520CD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13648.jpgsave_picture_13648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13648.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Snappy Driver Installer Origin R816 | Драйверпаки 25.06.2 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13649.jpgsave_picture_13649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13649.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:D512BDC53907E67F64C65319770D3AAF32030A98
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13650.jpgsave_picture_13650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13650.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Topaz Video AI 7.0.2 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13651.jpgsave_picture_13651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13651.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:E286422710F3EA72D937E9130063A5FD245F02AC
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13652.jpgsave_picture_13652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13652.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Katainaka no Ossan, Kensei ni Naru | From Old Country Bumpkin to Master Swordsma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13653.jpgsave_picture_13653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13653.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13654.jpgsave_picture_13654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13654.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:995D436E5886B536A62510E8960E257CDA9F2773
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13655.jpgsave_picture_13655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13655.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13656.jpgsave_picture_13656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13656.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:E4134586327F5294AEAB77A54282FD3D3F5D9595
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13657.jpgsave_picture_13657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13657.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Ore wa Seikan Kokka no Akutoku Ryoushu! | Я злoй лoрд мeжгaлaктич
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13658.jpgsave_picture_13658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13658.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:9109C7C64DB9B720F1D454AD4A73A0EDAC8885A7
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13659.jpgsave_picture_13659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13659.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ TRON: Catalyst (2025) [Ru/Multi] (0.10.3 CS:16422) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13660.jpgsave_picture_13660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13660.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:A477710FDC6CEE6A301383201EEC7AEAC8161270
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13661.jpgsave_picture_13661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13661.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Secret Garden - Secret Summer (2025) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13662.jpgsave_picture_13662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13662.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A6CC520A3680399A595E229440383EC67858D950
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13663.jpgsave_picture_13663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13663.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B5965A5EC06CBC01FC28D4E514CA41D114DEBE75
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13664.jpgsave_picture_13664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13664.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:432DA97C62A96F38C1FD918F1639853E552DF331
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13665.jpgsave_picture_13665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13665.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:7EFE860CE25620324F2E79B0F53F513F29DD422A
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13666.jpgsave_picture_13666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13666.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E178B79962F213F380C56A831E538785BE1817C6
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13667.jpgsave_picture_13667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13667.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:57499BD06DCFD5837E30D8244D93CA21503E835F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13668.jpgsave_picture_13668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13668.jpg" />
 </div>
 
 

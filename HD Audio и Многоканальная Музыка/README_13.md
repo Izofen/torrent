@@ -6,7 +6,7 @@ Liv Sin - Close Your Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8377.jpgsave_picture_8377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8377.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ My Dying Bride - A Map Of All Our Failures (2012)[FLAC|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8383.jpgsave_picture_8383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8383.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8401.jpgsave_picture_8401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8401.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8411.jpgsave_picture_8411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8411.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8441.jpgsave_picture_8441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8441.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8517.jpgsave_picture_8517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8517.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8707.jpgsave_picture_8707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8707.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8784.jpgsave_picture_8784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8784.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Evanescence - Дискография (11 releases) (1998-2025) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8865.jpgsave_picture_8865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8865.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8892.jpgsave_picture_8892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8892.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ John Skelley - We Were Lightning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9211.jpgsave_picture_9211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9211.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9258.jpgsave_picture_9258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9258.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Pink Floyd - Collection (+Solo) (1967-2018) [DSD 128|tracks, image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9276.jpgsave_picture_9276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9276.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9424.jpgsave_picture_9424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9424.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9547.jpgsave_picture_9547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9547.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Roger Waters - Roger Waters: This Is Not A Drill (Live From Prague May 2023) (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9658.jpgsave_picture_9658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9658.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9767.jpgsave_picture_9767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9767.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9777.jpgsave_picture_9777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9777.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9859.jpgsave_picture_9859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9859.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9951.jpgsave_picture_9951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9951.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Folk Bitch Trio - Now Would Be A Good Time (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9954.jpgsave_picture_9954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9954.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Yello - 12 студийных альбомов (1983-2020) [DSD 128|tracks, imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10007.jpgsave_picture_10007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10007.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10012.jpgsave_picture_10012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10012.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10175.jpgsave_picture_10175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10175.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Madonna - Veronica Electronica (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10387.jpgsave_picture_10387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10387.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Ozzy Osbourne - 10 студийных альбомов (1980-2020) [DSD 128|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10399.jpgsave_picture_10399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10399.jpg" />
 </div>
 
 

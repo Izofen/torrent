@@ -6,7 +6,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122078.jpgsave_picture_122078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122078.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Topaz Photo AI for Mac 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122079.jpgsave_picture_122079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122079.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:BFD6A75074B7631AE865359A5409DA52672F31E3
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122080.jpgsave_picture_122080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122080.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:C7972EC9B289E568B07B62062C4FBF5C1127B1D2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122081.jpgsave_picture_122081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122081.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122082.jpgsave_picture_122082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122082.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122083.jpgsave_picture_122083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122083.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Topaz Photo AI 2.3.0 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122084.jpgsave_picture_122084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122084.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:EEA8FEE97C0818E8CB27BE1E655FA9787F8887BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122085.jpgsave_picture_122085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122085.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:FE537E445B68CFCDEAF1CF5D92ED14B0309139F0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122086.jpgsave_picture_122086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122086.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Mega Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122087.jpgsave_picture_122087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122087.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E842CF58DB2F072EBDBC91A95AA2B0EED5A34F77
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122088.jpgsave_picture_122088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122088.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:CC4D282EE0FCA63A878F701B0202F8D9D6643FB5
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122089.jpgsave_picture_122089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122089.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:7A5868BB7B68303F5EB9E335FBC539507F366342
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122090.jpgsave_picture_122090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122090.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (20231218/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122091.jpgsave_picture_122091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122091.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:0B769F9B0BAEA6BE6EE0F2EEB3F018C92C0D7735
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122093.jpgsave_picture_122093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122093.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:FB3EAF78D2B763F47AC0C66AF8B626195B3D8614
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122094.jpgsave_picture_122094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122094.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Sniper Elite 5 - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.29 / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122095.jpgsave_picture_122095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122095.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:A1EBEA0731F198A88796A168BEDAA980509080C2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122096.jpgsave_picture_122096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122096.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:BE161E57588F7DEF384E3F25EF14C959D27477E2
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122097.jpgsave_picture_122097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122097.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:18C50DA524F327B22FB3BB524F1A539C019BED8E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122098.jpgsave_picture_122098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122098.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:D811AD650C88AEF67E00D50638BCE77CECE7A9ED
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122099.jpgsave_picture_122099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122099.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:352BCEADD69385199465DCAC5D5BAE23E860F8D1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122100.jpgsave_picture_122100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122100.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Grand Emprise: Time Travel Survival (2023) [Ru/Multi] (20230809) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122101.jpgsave_picture_122101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122101.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:4A8F532D7CF0215249A9ECC5D2D7FE6B40B0EAB2
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122102.jpgsave_picture_122102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122102.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:369088334CC9F71B132DA9D944F373DBB847CD49
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122103.jpgsave_picture_122103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122103.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:3E072126EBB7A5F506896B671402E5B3682E9D44
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122104.jpgsave_picture_122104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122104.jpg" />
 </div>
 
 

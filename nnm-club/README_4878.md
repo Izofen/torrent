@@ -6,7 +6,7 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152651.jpgsave_picture_152651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152651.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5B5F7A16BB48E7B6E0CFEFE4C591BEEA4AD6968B
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152652.jpgsave_picture_152652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152652.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DriveDx 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152653.jpgsave_picture_152653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152653.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tejina Senpai | Фокусница-старшеклассница | Magical Semp
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152654.jpgsave_picture_152654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152654.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Лучшие клубные новинки Vol.7 (2017) [MP3|320 Kbps] <Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152655.jpgsave_picture_152655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152655.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Jeanette - 3 Albums (1976-1984) LP [MP3|320 Kbps] <Latin, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152657.jpgsave_picture_152657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152657.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Joey DeFrancesco & "Papa" John DeFrancesco - All In The Family (1998) HighNote [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152658.jpgsave_picture_152658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152658.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:2CDE305A996B00ED1628A22B0782C15312058A98
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152659.jpgsave_picture_152659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152659.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ ASCOMP PDF Conversa Pro 3.003 RePack (& Portable) by elchupacabra [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152661.jpgsave_picture_152661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152661.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:CC22FB14CFE580DFE8027F9115EA7481C565D87E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152662.jpgsave_picture_152662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152662.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ CoolUtils Total Excel Converter 4.1.198 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152663.jpgsave_picture_152663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152663.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Aiseesoft Mac Video Converter Ultimate 10.3.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152664.jpgsave_picture_152664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152664.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Chris Isaak - Christmas (2004) Target Exclusive Limited Edition [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152666.jpgsave_picture_152666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152666.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8299BFD59823390A300A2892C1CDEFA9341F8552
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152668.jpgsave_picture_152668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152668.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:760985FE14533A110D03F4C2D19ECFD6D2355FC4
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152669.jpgsave_picture_152669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152669.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Marlin | Laravel как инструмент:  на примере создан�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152670.jpgsave_picture_152670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152670.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Windows Repair Toolbox 3.0.2.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152671.jpgsave_picture_152671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152671.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Nitro Pro 14.17.2.29 Enterprise RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152672.jpgsave_picture_152672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152672.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Marion Montgomery & Mart Rodger Manchester Jazz - Makin' Whoopee (1993) Bowstone
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152673.jpgsave_picture_152673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152673.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NetWorker Pro 8.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152676.jpgsave_picture_152676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152676.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Winter Wallpapers (13.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152677.jpgsave_picture_152677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152677.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Linux Mint 19.3 Tricia (XFCE, Mate, Cinnamon) [32bit, 64bit] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152679.jpgsave_picture_152679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152679.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ CoolUtils Total Audio Converter 6.1.0.257 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152680.jpgsave_picture_152680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152680.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:EDB87915BE8CBAF2F0CA301C07B4D84F695D1293
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152681.jpgsave_picture_152681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152681.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:D644D055718BA099418828B5FDA6093526A1FEED
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152682.jpgsave_picture_152682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152682.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Intel® Processor Identification Utility 5.40 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152683.jpgsave_picture_152683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152683.jpg" />
 </div>
 
 

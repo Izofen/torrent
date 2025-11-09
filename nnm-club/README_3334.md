@@ -6,7 +6,7 @@ Orden Ogan - The Order Of Fear (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107045.jpgsave_picture_107045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107045.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:EF2CA4BC70C5C220D8B9C65BE69583BC3D4BD8FF
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107046.jpgsave_picture_107046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107046.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:9B768E7F717C82857336460121BEB0847E7DEAA7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107047.jpgsave_picture_107047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107047.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ VA - Armin van Buuren - A State Of Trance 1180 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107048.jpgsave_picture_107048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107048.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:CF5ACF380FA97ABC73515A06593F3A023A052145
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107049.jpgsave_picture_107049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107049.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:6E948DAE30B8CC7867BD8E69A1BFFF04ACC22B3C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107050.jpgsave_picture_107050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107050.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Visions Of Atlantis - Pirates II - Armada (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107051.jpgsave_picture_107051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107051.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:96AC0251B2C514FB8C9A8916B114E36085BC27DE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107052.jpgsave_picture_107052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107052.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:81482121FA534240EE24C7E2DE5E7DC6FC4E8172
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107053.jpgsave_picture_107053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107053.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:5EDDF261F7DD0323A0691A1066CE20499460FAA9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107054.jpgsave_picture_107054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107054.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Axty - Hannya (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107055.jpgsave_picture_107055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107055.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107056.jpgsave_picture_107056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107056.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Orden Ogan - The Order Of Fear (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pow
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107057.jpgsave_picture_107057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107057.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Kryptos - Decimator (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107058.jpgsave_picture_107058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107058.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Howard McGhee & Illinois Jacquet - Here Comes Freddy (1976) 1990, Sonet Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107059.jpgsave_picture_107059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107059.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:E8071A2EB39FA891DC6E06844657F018EC620A20
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107060.jpgsave_picture_107060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107060.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:6DB14936FADCDFED1E0356E99233BC16A0B7AFAB
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107061.jpgsave_picture_107061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107061.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:C7764BEC3E1C21192888ED7684E468C4C3BC1CA3
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107062.jpgsave_picture_107062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107062.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:7601E4B232BBDFD32D4F091DFE1DA7ABF1B83F40
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107063.jpgsave_picture_107063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107063.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Sumatra PDF 3.6.16388 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107064.jpgsave_picture_107064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107064.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:65B55E7933B55F34B17B17E3BD5258550D7E5011
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107065.jpgsave_picture_107065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107065.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:CD613C12AF62913C8C84B2F8EB4834E608033F13
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107066.jpgsave_picture_107066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107066.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Hot Girl Summer 2024 (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107067.jpgsave_picture_107067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107067.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Playa D'en Bossa: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107068.jpgsave_picture_107068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107068.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:952F277E5B14B78ED0164E2FA9FCFF95D0F70E3E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107069.jpgsave_picture_107069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107069.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:3D82C55EA9F8870E2586716FD4CE05ACCCCCFC4E
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107070.jpgsave_picture_107070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107070.jpg" />
 </div>
 
 

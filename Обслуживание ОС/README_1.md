@@ -6,7 +6,7 @@ DriverEasy 7.0.2.1910 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5245.jpgsave_picture_5245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5245.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Advanced SystemCare Pro 18.5.0.250 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5402.jpgsave_picture_5402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5402.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Zentimo xStorage Manager 3.1.2.1301 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5429.jpgsave_picture_5429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5429.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ USB Safely Remove 7.1.2.1327 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5437.jpgsave_picture_5437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5437.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ USB Safely Remove 7.1.2.1328 RePack by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5589.jpgsave_picture_5589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5589.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wise Care 365 Pro 7.2.8.709 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5590.jpgsave_picture_5590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5590.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ USB Safely Remove 7.1.2.1328 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6044.jpgsave_picture_6044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6044.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ HiBit Uninstaller 3.2.70 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6166.jpgsave_picture_6166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6166.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Autorun Organizer 6.20 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6514.jpgsave_picture_6514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6514.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ CCleaner 6.39.11548 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6725.jpgsave_picture_6725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6725.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ CCleaner 6.39.11548 Free / Professional / Business / Technician Edition RePack (
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6831.jpgsave_picture_6831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6831.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6834.jpgsave_picture_6834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6834.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Glary Disk Cleaner 6.0.1.31 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6922.jpgsave_picture_6922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6922.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6991.jpgsave_picture_6991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6991.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Uninstall Tool 3.8.0 Build 5730 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7116.jpgsave_picture_7116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7116.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ PrivaZer Pro 4.0.109 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7528.jpgsave_picture_7528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7528.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ WinTools.net 25.9.1 Classic / Professional / Premium RePack (& Portable) by Doda
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7732.jpgsave_picture_7732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7732.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Wise Care 365 Pro 7.2.8.709 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7743.jpgsave_picture_7743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7743.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ WinTools.net Premium 25.9.1 Premium RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7926.jpgsave_picture_7926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7926.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Ashampoo WinOptimizer 28.00.13 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8126.jpgsave_picture_8126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8126.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Abelssoft PC Fresh 2026 12.01.66033 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8526.jpgsave_picture_8526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8526.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Reg Organizer 9.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8880.jpgsave_picture_8880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8880.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ashampoo WinOptimizer 28.00.13 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8909.jpgsave_picture_8909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8909.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Soft Organizer Pro 10.20 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8924.jpgsave_picture_8924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8924.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Soft Organizer Pro 10.20 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8926.jpgsave_picture_8926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8926.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Reg Organizer 9.80 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8943.jpgsave_picture_8943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8943.jpg" />
 </div>
 
 

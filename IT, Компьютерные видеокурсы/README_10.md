@@ -6,7 +6,7 @@ javascript.ru, Егор Сидоров | Интенсив по "продвину
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59059.jpgsave_picture_59059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59059.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Swiftbook | Junior iOS-Developer (2023) WEB-DL [RU] [Части 1-6 из 6]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59129.jpgsave_picture_59129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59129.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Thinknetica Pro, Александр Борисов | Деплой Ruby on Rails 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60457.jpgsave_picture_60457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60457.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ UNIGINE,  Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60615.jpgsave_picture_60615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60615.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Lynda, Kevin Skoglund | Git Essential Training (2012) PCRec [EN, RU / RU Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60616.jpgsave_picture_60616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60616.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:CCF0FB2B70E74195EFD2FF4F44DF95C9C80D1E4D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60810.jpgsave_picture_60810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60810.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:DD58984802CA031E12BA02F7E175A4AC969A9B14
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60903.jpgsave_picture_60903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60903.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5CEF710CFD85390E5E624417157F12B65A975B10
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60919.jpgsave_picture_60919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_60919.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Vueschool | Курсы по Vue3 (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61036.jpgsave_picture_61036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61036.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Academind Pro, Udemy, Maximilian Schwarzmüller | HTMX - The Practical Guide (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61331.jpgsave_picture_61331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61331.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:B4EA26C2DF9C68A31770CC77D4F849C41A58399D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61336.jpgsave_picture_61336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61336.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Academind Pro, Maximilian Schwarzmüller | ChatGPT - The Complete Guide (2024) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61349.jpgsave_picture_61349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61349.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Interview Ready, Gaurav Sen | System Design Course (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61473.jpgsave_picture_61473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61473.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:3D18B354F72B4EAC8614338E97F58052F42BB33C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61886.jpgsave_picture_61886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61886.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:CDDD1A82B544904B065723D35912CD9FDB90AF20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61997.jpgsave_picture_61997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61997.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:3E5B321BEC70DE95E22D316CAC1EF6555E0F0063
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62000.jpgsave_picture_62000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62000.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Frontend Masters, Miško Hevery | Bare Metal JavaScript: The JavaScript Virtual 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62068.jpgsave_picture_62068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62068.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:87EE1CDD1A29E22DB8E889A98E3E8FA24D9A5055
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62096.jpgsave_picture_62096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62096.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:4B9E958FCC5191AF8359CFEB0F1FFF85EDD30088
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62384.jpgsave_picture_62384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62384.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Karpov.courses | Продвинутая аналитика данных (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62511.jpgsave_picture_62511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62511.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Udemy, Александр Сокирка | Руководство по WordPress
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62842.jpgsave_picture_62842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62842.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:562FE9FE6F7AAC7B248806D20E46A2391C93A08C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62931.jpgsave_picture_62931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_62931.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Balun.Courses, Максим Фатин | Подготовка к алгорит�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63119.jpgsave_picture_63119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63119.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ WebForMySelf | Закрытый клуб для веб-мастеров. Под�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63131.jpgsave_picture_63131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63131.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Slurm (Слёрм), Павел Калашников | Linux для разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63145.jpgsave_picture_63145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63145.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ magnet:?xt=urn:btih:149A3733BF8B51660A00FF67D37FE4D228312E19
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63651.jpgsave_picture_63651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_63651.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Tor Browser Bundle 12.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164638.jpgsave_picture_164638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164638.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A819054F752A0196F47A90CBEC821AA556FD1973
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164639.jpgsave_picture_164639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164639.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Steve Lacy - Duets: Associates 1982 - 1993 (1996) Felmay [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164640.jpgsave_picture_164640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164640.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 10 из 12] WEBRip 1
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164641.jpgsave_picture_164641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164641.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ J.J. Johnson - The Total J.J. Johnson 1966 (1997) BMG [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164642.jpgsave_picture_164642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164642.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164643.jpgsave_picture_164643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164643.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:34FD6836E74F8489FE5B1164A8457F807777F6A0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164644.jpgsave_picture_164644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164644.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Victoria 5.35 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164645.jpgsave_picture_164645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164645.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Edenbridge - Aphelion (2003) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164646.jpgsave_picture_164646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164646.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:32D24EA03C190F42C1EC62FFC8B52A49C6BCBCEA
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164647.jpgsave_picture_164647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164647.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Warface (2012) [Ru] (07.12.21) License (обновляемая)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164648.jpgsave_picture_164648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164648.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:60230A3453007A28410046129EA32D1DEADDB87B
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164649.jpgsave_picture_164649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164649.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Aeonian Sorrow - Forever Misery (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164650.jpgsave_picture_164650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164650.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:8835EC5B4590CF7D745A9623C7831CB24239E874
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164651.jpgsave_picture_164651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164651.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Movavi Video Editor Plus 21.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164652.jpgsave_picture_164652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164652.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Halo Infinite (2021) [Ru/En] (6.10020.17952.0/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164653.jpgsave_picture_164653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164653.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:63AE6852EA4B8600A8053D76514338E6EC298AB1
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164654.jpgsave_picture_164654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164654.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:F028629C3AB2DC9392AE3096EE48DBD91D26E321
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164655.jpgsave_picture_164655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164655.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0.7847980/dlc) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164656.jpgsave_picture_164656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164656.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ KMS Tools Portable 01.12.2019 by Ratiborus [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164657.jpgsave_picture_164657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164657.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:8DE1D14CFF89EEDA5411AB4D43FC44978B7A49E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164658.jpgsave_picture_164658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164658.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:1D962A4CAB2D526B60BCD064BE2B2798DE3BBD2B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164659.jpgsave_picture_164659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164659.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Udemy, Dzianis Matveyenka | Java для начинающих. Level 2 (2021) WEB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164660.jpgsave_picture_164660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164660.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:6BD72A78DAC7F9AC730863982FE3BC1ABADA2F9C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164661.jpgsave_picture_164661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164661.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ CrossOver Linux 19.0.0 [x86-x64] (deb, rpm, bin)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164662.jpgsave_picture_164662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164662.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:C8AFB7F6065CD592F9612451D6232B36DC1A2EB0
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164663.jpgsave_picture_164663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164663.jpg" />
 </div>
 
 

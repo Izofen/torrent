@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163362.jpgsave_picture_163362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163362.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B811ACC36B9DF09FACA829EFDC5B5DCD98386DCC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163363.jpgsave_picture_163363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163363.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ C.I.T.A. - Heat Of Emotion (1996) Japan [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163364.jpgsave_picture_163364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163364.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ MiniTool Partition Wizard Technician 11.6 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163365.jpgsave_picture_163365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163365.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:A790D75F42C5483A6A25BA727EB4F9C2BD674E94
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163366.jpgsave_picture_163366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163366.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ ManDoki Soulmates - Magyar kepek (2022) [FLAC|Lossless|tracks + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163367.jpgsave_picture_163367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163367.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ F-Secure Freedome VPN 2.39.6634 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163368.jpgsave_picture_163368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163368.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Wondershare PDFelement 10.1.5.2527 + OCR Plugin (x64) Portable by 7997 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163369.jpgsave_picture_163369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163369.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:E682C1DAD62D27DB4B42C6E3F396CD142B6CAED2
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163370.jpgsave_picture_163370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163370.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ BetterZip 5 v5.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163371.jpgsave_picture_163371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163371.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Новый год 2021 №2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163372.jpgsave_picture_163372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163372.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Hieroglyphic Being - There Is No Acid in This House (2022) [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163373.jpgsave_picture_163373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163373.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Skype 8.107.0.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163374.jpgsave_picture_163374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163374.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163375.jpgsave_picture_163375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163375.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Skillbox, Дарья Макарова и др. | Скетчинг на план�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163376.jpgsave_picture_163376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163376.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Omen - 7851A9 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163377.jpgsave_picture_163377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163377.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:D4A8E2337F3D36BE1626C538EC6CD4B0FE5105B6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163378.jpgsave_picture_163378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163378.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ The Zapoy! - 5 Albums (2015-2022) [MP3|320 Kbps] <Street Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163379.jpgsave_picture_163379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163379.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:F0ADAFED247DA1C059D9D7CCDEC75BA6E00A409C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163380.jpgsave_picture_163380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163380.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:D099DA02D0FB67D04F720BF9BF2D740237C14064
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163381.jpgsave_picture_163381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163381.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163382.jpgsave_picture_163382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163382.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:79370CE7EECD7D827200356D64B90FB0178086FB
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163383.jpgsave_picture_163383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163383.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Skillbox, Анна Марчук и др. | Запуск подкаста с ну
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163384.jpgsave_picture_163384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163384.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Supermode - Tell Me Why [MeduZa remix] (2022) [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163385.jpgsave_picture_163385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163385.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:78CD44DFC82A4AAB1E0D3A0723C27D642E2D5B99
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163386.jpgsave_picture_163386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163386.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Skillbox, Вадим Михалев и др. | Мастер презентаци
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163387.jpgsave_picture_163387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163387.jpg" />
 </div>
 
 

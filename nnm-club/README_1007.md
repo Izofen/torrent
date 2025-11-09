@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26532.jpgsave_picture_26532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26532.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:434F8C10EB2B974CC9D744187D7E99CBE646B3A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26533.jpgsave_picture_26533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26533.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:233A865CAD0F3B2371CBDE80E0CDEA5558C4D88D
 >>98
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26534.jpgsave_picture_26534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26534.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:233A865CAD0F3B2371CBDE80E0CDEA5558C4D88D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26535.jpgsave_picture_26535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26535.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:E948F9E372B05E8C6036E0AC744AA2228C80F81B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26536.jpgsave_picture_26536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26536.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E480EC9F75C04C7085FF7AFBFD38DF82F2D87E5F
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26537.jpgsave_picture_26537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26537.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:D81F061BEEA35331647643E168E63C89A4D2B9EB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26538.jpgsave_picture_26538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26538.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:21A2B9DDDFDFAB362E0AF76D46E6953A773F9607
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26539.jpgsave_picture_26539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26539.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Quake - Квадрология (1996-2021) [Ru/Multi] (1.0/5971/1.32/1.4.3/dlc) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26540.jpgsave_picture_26540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26540.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Dr. John - 42 Albums, 2 Box Set (1968 - 2024) 64 CD [FLAC|Lossless|image + .cue|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26541.jpgsave_picture_26541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26541.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:B84291A6CBD73B467F3B9313C291B1614222AFEB
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26542.jpgsave_picture_26542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26542.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:CDB88B2B8E2C5625530904102388E682A15E08D6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26543.jpgsave_picture_26543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26543.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26544.jpgsave_picture_26544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26544.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:8399E632A52BF896B6161B23E829345D590E0B54
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26545.jpgsave_picture_26545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26545.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26546.jpgsave_picture_26546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26546.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:026FD0DE9EB2C5567ECA8D465B3B30ECF3D73C62
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26547.jpgsave_picture_26547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26547.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:57399A52E6CCD34205BEF0CA0A2C7269CA401FB5
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26548.jpgsave_picture_26548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26548.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:645669BCEB8CEDCA000A113083B33AE81DC8DA65
 >>Экранки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26549.jpgsave_picture_26549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26549.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26550.jpgsave_picture_26550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26550.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ PotPlayer 241216 (1.7.22398) RePack (& Portable) by elchupacabra (25.02.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26551.jpgsave_picture_26551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26551.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Simple Sticky Notes 6.7.5 [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26552.jpgsave_picture_26552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26552.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Thenx v6.0.4 [En] Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26553.jpgsave_picture_26553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26553.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:70025B4ED027BC4D50C0BCC54495843FC052EACF
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26554.jpgsave_picture_26554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26554.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:8F5EF3D1537AD53310BCB8BA5400DA6843FBA4FE
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26555.jpgsave_picture_26555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26555.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ EarthView 7.11.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26556.jpgsave_picture_26556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26556.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:197B4DAB426490F046678B35E5BFC5DF2FFE2732
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26557.jpgsave_picture_26557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26557.jpg" />
 </div>
 
 

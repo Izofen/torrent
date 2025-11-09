@@ -6,7 +6,7 @@ Skype 8.107.0.215 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164453.jpgsave_picture_164453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164453.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:883BBF601D84723BB1B00CAFB7C56545F0C3C5F3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164454.jpgsave_picture_164454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164454.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Borland Delphi 7 Science Edition 2020 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164455.jpgsave_picture_164455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164455.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Araxis Merge Pro Edition 2023.5976 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164456.jpgsave_picture_164456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164456.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Sacred Reich - Awakening (2019) Japanese Edition [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164457.jpgsave_picture_164457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164457.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:9D12B271FB0F02D007413D705BC430236E727DBE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164458.jpgsave_picture_164458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164458.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - Strong Women of Country (2021) [AAC|~333 Kbps] <Country>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164459.jpgsave_picture_164459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164459.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:83E441C54C320A549647EC42D29DCF2C9AEB46F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164460.jpgsave_picture_164460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164460.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4F6524CAB2119CEA07D9572D99E969917782EF89
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164461.jpgsave_picture_164461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164461.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:A9447BD7DEC954E2BFF4B12299093F8C903A62F1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164462.jpgsave_picture_164462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164462.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ NCH DreamPlan Plus 5.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164463.jpgsave_picture_164463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164463.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Wondershare PDFelement Pro OCR 10.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164464.jpgsave_picture_164464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164464.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:88966B103EA8A916F420AE028F90460F85819053
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164465.jpgsave_picture_164465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164465.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Romana & Gazwa Kain - The Best Of Lounge: Mystic Lounge (2001) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164466.jpgsave_picture_164466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164466.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Duplicate Photos Fixer Pro 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164467.jpgsave_picture_164467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164467.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:BDE26F7F8842545580E01A7D04E75B126DA8D876
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164468.jpgsave_picture_164468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164468.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:E398E2130CB5F9D9A7CC61683DACFB9D1E4FE68B
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164469.jpgsave_picture_164469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164469.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Bobby Lyle - Ivory Flow (2021) [AAC|~340 Kbps] <Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164470.jpgsave_picture_164470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164470.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:714A33C7912957AE6E1CA8AF73C7612A90ACD9A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164471.jpgsave_picture_164471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164471.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Justin Hayward - 7 Studio Albums (1975-2013) CD Collection [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164472.jpgsave_picture_164472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164472.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Resume Templates - Design 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164473.jpgsave_picture_164473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164473.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:7AA340CBCBA84866E16E8BDA1EDAB76158364E46
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164474.jpgsave_picture_164474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164474.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Blocs 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164475.jpgsave_picture_164475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164475.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:E1538EA14628A06CBFFA38DA202E68CEF01D616C
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164476.jpgsave_picture_164476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164476.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Wondershare DVD Creator 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164477.jpgsave_picture_164477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164477.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164478.jpgsave_picture_164478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164478.jpg" />
 </div>
 
 

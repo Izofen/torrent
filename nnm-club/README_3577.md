@@ -6,7 +6,7 @@ Shirley Horn Trio - A Lazy Afternoon (1978) 1990, SteepleChase [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113377.jpgsave_picture_113377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113377.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dave McKenna - A Celebration Of Hoagy Carmichael (1983) 1994, Concord Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113378.jpgsave_picture_113378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113378.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Text Workflow 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113379.jpgsave_picture_113379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113379.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Monkey's Audio 10.55 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113380.jpgsave_picture_113380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113380.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:86D447382A1B5FC0CC777ACACFD476B4F44B9868
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113381.jpgsave_picture_113381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113381.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ The Progressive Souls Collective - Sonic Rebirth (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113382.jpgsave_picture_113382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113382.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ VA - Armin van Buuren - A State Of Trance 1164 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113383.jpgsave_picture_113383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113383.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AirMail Pro 5 v.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113384.jpgsave_picture_113384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113384.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ VA - The Morning Jazz : Swing & More (Breakfast Restaurant Music) (2024) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113385.jpgsave_picture_113385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113385.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ magnet:?xt=urn:btih:E6680DC235B50A400555093B4B4D245B4A82C668
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113386.jpgsave_picture_113386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113386.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:A1BAA5F450421822AB97FC47123930D5F2AB8207
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113387.jpgsave_picture_113387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113387.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ James Carter - Axtone House Party (2024-03-11) [MP3|320 Kbps] <House, Tech House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113388.jpgsave_picture_113388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113388.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Bike Outliner for Mac 1.18.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113389.jpgsave_picture_113389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113389.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:C1EF92DD1AEB714453EECA832B43DD2B63DC5CC6
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113390.jpgsave_picture_113390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113390.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:D537ACCC02B78A11B7E4129EF3BCEF6ECE9CF631
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113391.jpgsave_picture_113391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113391.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Autopilot - It Might Be Gone Forever (2024) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113392.jpgsave_picture_113392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113392.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Cave - Out Of The Cave (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113393.jpgsave_picture_113393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113393.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Lutharo - Chasing Euphoria (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113394.jpgsave_picture_113394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113394.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Vltimas - Epic (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113395.jpgsave_picture_113395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113395.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Devastator - Conjurers of Cruelty (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113396.jpgsave_picture_113396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113396.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ After Infinity - After Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113397.jpgsave_picture_113397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113397.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ RAW Power 3.4.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113398.jpgsave_picture_113398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113398.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:3E38DC59673429EEEB7AD3275B6D77BE734FA19E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113399.jpgsave_picture_113399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113399.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Fred Chapellier - Live In Paris (2024) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113400.jpgsave_picture_113400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113400.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ KCNcrew Pack 03-15-24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113401.jpgsave_picture_113401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113401.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Topaz Photo AI 2 for Mac 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113402.jpgsave_picture_113402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113402.jpg" />
 </div>
 
 

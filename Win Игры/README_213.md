@@ -6,7 +6,7 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0/dlc) Repack FitGir
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91203.jpgsave_picture_91203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91203.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) R
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91222.jpgsave_picture_91222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91222.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CRETE (2025) [En] (Alpha 0.12.0) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91234.jpgsave_picture_91234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91234.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Castle of Heart Retold (2025) [Multi] (Build 19960600) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91254.jpgsave_picture_91254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91254.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91302.jpgsave_picture_91302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91302.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ CULTIC (2022) [Ru/En] (Build 20066947/dlc) Repack Other s [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91303.jpgsave_picture_91303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91303.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91311.jpgsave_picture_91311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91311.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0.0.10/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91315.jpgsave_picture_91315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_91315.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (rc6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94586.jpgsave_picture_94586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94586.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Moros Protocol (2025) [Ru/Multi] (1.0.5) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94587.jpgsave_picture_94587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94587.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack dixen18 [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94588.jpgsave_picture_94588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94588.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Derailed (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94590.jpgsave_picture_94590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94590.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ravenswatch (2023) [Ru/Multi] (1.3/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94595.jpgsave_picture_94595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94595.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94597.jpgsave_picture_94597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94597.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ No, I'm not a Human (2025) [Ru/Multi] (1.1.3) Repack seleZen
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94599.jpgsave_picture_94599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94599.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94728.jpgsave_picture_94728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94728.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Return to Castle Wolfenstein (2020) [Ru/Multi] (5.2-final-1/dlc) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94745.jpgsave_picture_94745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94745.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Small Town Terrors: Livingston (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97014.jpgsave_picture_97014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97014.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tales From The Dragon Mountain: The Strix (P) [Ge] 2011
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97604.jpgsave_picture_97604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97604.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Family Vacation: California / Семейные каникулы. Калифор�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97993.jpgsave_picture_97993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97993.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Roller Rush (P) [En] 2005
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98234.jpgsave_picture_98234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98234.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Titan Quest II (2025) [Ru/En] (0.2.0-public.102611+win.1879) Repack Let'sРlay [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98581.jpgsave_picture_98581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98581.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98583.jpgsave_picture_98583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98583.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Book of Desires (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99290.jpgsave_picture_99290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99290.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Brainville (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99448.jpgsave_picture_99448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99448.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Inspector Magnusson: Murder on the Titanic (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99456.jpgsave_picture_99456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99456.jpg" />
 </div>
 
 

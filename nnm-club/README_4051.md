@@ -6,7 +6,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125896.jpgsave_picture_125896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125896.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Digital Juice - CanvasBoxx - Volume 1 to 266 [JPG]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125897.jpgsave_picture_125897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125897.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:6BD8850DC6B83F4F4291F4F7CC0CCB9C0EC09D7D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125898.jpgsave_picture_125898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125898.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - Autumn Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125899.jpgsave_picture_125899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125899.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Jesse Roper - Way Down In The Valley (2025) [FLAC|Lossless|WEB-DL|tracks] <Ameri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125900.jpgsave_picture_125900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125900.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:0B83DF9E047D88968D197434885EE90BDCDE4140
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125901.jpgsave_picture_125901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125901.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:18387B407057FCBE5A8154D910AFF4FEDB1433EC
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125902.jpgsave_picture_125902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125902.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:755012E7B4CDD67D3A00F62E51C72783C62F4F69
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125903.jpgsave_picture_125903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125903.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ King Cat Rhythm - Black Rings (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125904.jpgsave_picture_125904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125904.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:6D154B0BC10A5B7D8CE910E69B8FD16EB8C82DCF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125905.jpgsave_picture_125905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125905.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:0FD1E6E0E81F7BB5818B2E4F256B8E51B5C54831
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125906.jpgsave_picture_125906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125906.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:17A19201CE0E88C6E59EF629CF9D028CA81067E5
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125907.jpgsave_picture_125907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125907.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ AOMEI Partition Assistant Technician Edition 10.9.1 RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125908.jpgsave_picture_125908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125908.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [20 Ye
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125909.jpgsave_picture_125909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125909.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lethal Honor - Order of the Apocalypse (2025) [Multi] (Build 20336899) Scene Run
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125910.jpgsave_picture_125910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125910.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:D6A69769A15D5B213B015D8A5D7112981363CEF8
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125911.jpgsave_picture_125911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125911.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:D015FBD7CC28F2A73DCD30A5C2B1098157C2D509
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125912.jpgsave_picture_125912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125912.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125913.jpgsave_picture_125913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125913.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:5B96C25F8DB9D628A9E0F0510170597F6E83DCDE
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125914.jpgsave_picture_125914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125914.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:5E23E07EEA5AC017B6BB365AFB46F226D38F29A8
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125915.jpgsave_picture_125915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125915.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:3117819AE4F2F911C5B6F1376599817E69BEF9E6
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125916.jpgsave_picture_125916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125916.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:54744BB0F58351CDDBF21D3598A0D04817D5B2C6
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125917.jpgsave_picture_125917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125917.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Mirror Lab v2.6.9.4 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125918.jpgsave_picture_125918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125918.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:479DFAC65158D2302C9BC93F808E2E161569F5C2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125919.jpgsave_picture_125919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125919.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:386477783ED393B48BCB7AE89A369AB13B19ADB3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125920.jpgsave_picture_125920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125920.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Lian Ross - Say You’ll Never (Anniversary Special Edition) (2025) Single [FLAC
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125921.jpgsave_picture_125921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125921.jpg" />
 </div>
 
 

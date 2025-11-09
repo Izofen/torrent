@@ -6,7 +6,7 @@ Nailwound - An Ode to Misery (2023) [MP3|320 Kbps] <Metalcore, Hardcore, Downtem
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173034.jpgsave_picture_173034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173034.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Path Finder 2161 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173035.jpgsave_picture_173035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173035.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Heimdall - Hephaestus (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173036.jpgsave_picture_173036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173036.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:C596ACB558E3AAB9DFCCC71879076416368B5043
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173037.jpgsave_picture_173037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173037.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Balga - ...By The Sea (2023) [FLAC|Lossless|image + .cue] <Symphonic Epic Black 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173038.jpgsave_picture_173038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173038.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Jackson Rose - Things Have Gotten Worse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173039.jpgsave_picture_173039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173039.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mirror for LG TV 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173040.jpgsave_picture_173040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173040.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Answer Lies in the Black Void - Thou Shalt (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173041.jpgsave_picture_173041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173041.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:7F2A5089ECE9F0E8CABF6F7F3992E39F192C6F6A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173042.jpgsave_picture_173042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173042.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Catafalque - Dybbuk (2023) [FLAC|Lossless|WEB-DL|tracks] <drone doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173043.jpgsave_picture_173043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173043.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Graveyard of Souls - Infinity Equal Zero (2021) [FLAC|Lossless|image + .cue] <Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173044.jpgsave_picture_173044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173044.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Grant Green - Standards (1961) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173045.jpgsave_picture_173045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173045.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:CA3607C1EA30AFD77BD048DF79AA2D553377630B
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173046.jpgsave_picture_173046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173046.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:A0A54A3FB42FA71FC4A34F5D7D8C149F133C3C31
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173047.jpgsave_picture_173047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173047.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:57CDD2C3DFB5830A2CB3D6DA0E528BE1356AA62C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173048.jpgsave_picture_173048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173048.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Dato 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173049.jpgsave_picture_173049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173049.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VCTMS - Vol. V The Hurt Collection (2023) [MP3|320 Kbps] <Metalcore / Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173050.jpgsave_picture_173050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173050.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Graveyard of Souls - Cenizas (2018) [FLAC|Lossless|image + .cue] <Doom, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173051.jpgsave_picture_173051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173051.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Spiritus Mortis - Spiritism 2008-2017 (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173052.jpgsave_picture_173052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173052.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Beastwars - Tyranny of Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <sludge met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173053.jpgsave_picture_173053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173053.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173054.jpgsave_picture_173054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173054.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Anatomy of I - The Los(T) Angered Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173055.jpgsave_picture_173055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173055.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Mirror for Hisense TV 3.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173056.jpgsave_picture_173056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173056.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Yate 6.17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173057.jpgsave_picture_173057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173057.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Sahg - Born Demon (2022) Deluxe Edition, 2023, Drakkar Entertainment [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173058.jpgsave_picture_173058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173058.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Patriarch - Demonic Heart (2023) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173059.jpgsave_picture_173059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173059.jpg" />
 </div>
 
 

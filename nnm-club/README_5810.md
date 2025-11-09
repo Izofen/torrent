@@ -6,7 +6,7 @@ Collapse Under The Empire - Recurring (2023) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181493.jpgsave_picture_181493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181493.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:53AD8447CA5336B7F8C793619F05443D11AB04DA
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181494.jpgsave_picture_181494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181494.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181497.jpgsave_picture_181497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181497.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:82B096B1E7851E67B6CF05F9D7C848CC7AEF4A9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181499.jpgsave_picture_181499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181499.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Nomy - Stay (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181502.jpgsave_picture_181502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181502.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:E9358AF73E59B2A021282452B7966AC40DE7A7A8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181503.jpgsave_picture_181503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181503.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:2AD110E57D8143AAA1F1CF1F6234FE8857705F35
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181506.jpgsave_picture_181506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181506.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:0ED61060E8F98D1D6726C2BB27E4AC48D46E1655
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181509.jpgsave_picture_181509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_181509.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:2ED7A0B268C26344CDE097CA05DB4F9499A18F86
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181512.jpgsave_picture_181512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181512.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Eclipse - Megalomanium (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181514.jpgsave_picture_181514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181514.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181517.jpgsave_picture_181517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181517.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:7151503C5544665E64C5C291AC1DF4347D071160
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181520.jpgsave_picture_181520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181520.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:C77C2FCCF7E381873353F76E057C8424D3669C0F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181522.jpgsave_picture_181522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181522.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Psiphon 3 build 176 (DC 24.11.2022) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181525.jpgsave_picture_181525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181525.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:C3E349A629B52DBEDB2C6C1CFDB978D55A3B8D78
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181526.jpgsave_picture_181526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181526.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181528.jpgsave_picture_181528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181528.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:30B447CB66805D376947ACD5679D9C93B0909FC4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181529.jpgsave_picture_181529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181529.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:3CEAE70A6F5A63A7093F8FC05452E94E5482399B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181532.jpgsave_picture_181532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181532.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Giant Rev - Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Prog Relat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181534.jpgsave_picture_181534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181534.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mylene Farmer - 1 Album, 1 Single (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181535.jpgsave_picture_181535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181535.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:DB0086024FE06E1F222721C76D4600DF15FB4BA8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181538.jpgsave_picture_181538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181538.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:3E1E17E5E3708990734B975DBE2D375511FE5A19
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181539.jpgsave_picture_181539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181539.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:66EE885510A8D4C59D4F0F47F06BF1C87E3D75F7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181542.jpgsave_picture_181542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181542.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ungoogled Chromium 107.0.5304.107-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181543.jpgsave_picture_181543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181543.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Rammstein - Adieu (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181545.jpgsave_picture_181545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181545.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:5D18F93A2EFD456C66973026222CC7C03B9D0D01
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181547.jpgsave_picture_181547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181547.jpg" />
 </div>
 
 

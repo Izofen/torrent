@@ -6,7 +6,7 @@ The Ghostbusters - Семь (2020) EP [MP3|320 Kbps] <Ghost-Punk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144206.jpgsave_picture_144206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144206.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sleep Therapy - nothing, nowhere. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144209.jpgsave_picture_144209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144209.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Katholik - Entropic Evolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144244.jpgsave_picture_144244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144244.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vehemence - God Was Created (2002) [FLAC|Lossless|WEB-DL|tracks] <Metal, Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144263.jpgsave_picture_144263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144263.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lindi Ortega (Линди Ортега) - Fall From Grace (2007) Last Gang Record
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144319.jpgsave_picture_144319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144319.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Lindi Ortega (Линди Ортега) - The Taste Of Forbidden Fruit (2001) Las
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144335.jpgsave_picture_144335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144335.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Juggernaut - Ground Zero Conflict (2011) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144336.jpgsave_picture_144336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144336.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:B224FCDB9EFEA13C348D5889B41019E36626426B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144342.jpgsave_picture_144342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144342.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ SvaDaRa - Pilgrim / Зареница (2020) [MP3|320 Kbps] <Progressive Folk Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144350.jpgsave_picture_144350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144350.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Yes - Songs From Tsongas (2014) 35th Anniversary Concert, 3xCD [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144359.jpgsave_picture_144359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144359.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Inferen - Inferen (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144368.jpgsave_picture_144368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144368.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Trishula - Time Waits For No Man (2020) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144399.jpgsave_picture_144399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144399.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Pink Floyd - Wish You Were Here (1975) SACD, Remastered, 2011 EMI [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144483.jpgsave_picture_144483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144483.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Stardown - 3 Альбома + 2 Компиляции (2007-2019) [MP3|320 кб/�
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144561.jpgsave_picture_144561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144561.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Clouds - Clouds Acoustic (2020) [MP3|320 Kbps] <Atmospheric Doom Metal, Acoustic
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144632.jpgsave_picture_144632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144632.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:B2DC5C5234B24CA855DF394B211849B676BF8EAE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144709.jpgsave_picture_144709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144709.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Marousse - Hara-Kiri (2003) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144721.jpgsave_picture_144721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144721.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The Appleseed Cast - Middle States (2011) EP [FLAC|Lossless|tracks + .cue] <Emo,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144770.jpgsave_picture_144770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144770.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:78AD36B3111C8A5E2E4D3E6C9E6614889603DCA5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144781.jpgsave_picture_144781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144781.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A2A76582A31168575540B36390C79DFF43CD9C47
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144805.jpgsave_picture_144805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144805.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Cachorro Grande - Todos Os Tempos (2007) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144832.jpgsave_picture_144832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144832.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ LaScala - Мачете (2015) [MP3|320 кб/с] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144904.jpgsave_picture_144904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144904.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Black Space Riders - Refugeeum (2015) [MP3|320 Kbps] <Progressive, Psychedelic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144935.jpgsave_picture_144935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144935.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Oceans of Slumber - Winter (2016) [MP3|320 Kbps] <Progressive Gothic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144981.jpgsave_picture_144981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144981.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:AA1352A09B327EE8E5901158FD8535BFF8C45A45
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145043.jpgsave_picture_145043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145043.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Circle II Circle - Reign of Darkness (2015) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145068.jpgsave_picture_145068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_145068.jpg" />
 </div>
 
 

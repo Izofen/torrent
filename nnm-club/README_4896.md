@@ -6,7 +6,7 @@
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153238.jpgsave_picture_153238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153238.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Erroll Garner - 1952-1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153239.jpgsave_picture_153239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153239.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:12536CD1AE2549201ECD83B38E39FF91B7ED83B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153241.jpgsave_picture_153241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153241.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Dj VoJo - CLUB DESIRE vol.21: Reborn (2012) [MP3|320 кб/с]<House, Electro-Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153242.jpgsave_picture_153242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153242.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:320E5E1F0EA687B0E85C52BA07160EAA03981466
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153243.jpgsave_picture_153243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153243.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153244.jpgsave_picture_153244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153244.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:4F79A136C97CB2F98C70F7CB69EB6B901B29858F
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153245.jpgsave_picture_153245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153245.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153246.jpgsave_picture_153246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153246.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B459051EA7ACEC9C653A4DAFE8874325C81577B8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153247.jpgsave_picture_153247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153247.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ CPUID HWMonitor PRO 1.49 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153249.jpgsave_picture_153249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153249.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ NG: Доисторические монстры Гитлера / Hitler's Jurass
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153250.jpgsave_picture_153250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153250.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:886A650D1842F49BE90AFE544BFD489ECA674E7E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153251.jpgsave_picture_153251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153251.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ URL Manager Pro 5.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153252.jpgsave_picture_153252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153252.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Russian crosswords v1.15.3 [Ru/En] (обновляемая)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153253.jpgsave_picture_153253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153253.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ SUMo Pro 4.2.4.297 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153254.jpgsave_picture_153254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153254.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Freemake Mega Pack 3.2 by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153255.jpgsave_picture_153255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153255.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Ivan Dorn (Иван Дорн) - 4 альбома (2012-2017) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153256.jpgsave_picture_153256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153256.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Titan Station (2022) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153259.jpgsave_picture_153259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153259.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:21C825D38585A05F998E48C84A4BAAED7A54BD68
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153260.jpgsave_picture_153260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153260.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:1C16DCE78AA5A48A9E2FA20EB8BE656B0BB5767C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153261.jpgsave_picture_153261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153261.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Artstudio Pro 3.2.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153262.jpgsave_picture_153262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153262.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ WinContig 3.0.0.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153263.jpgsave_picture_153263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153263.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Kenio Fuke - Spirit Of Nature (2012) [FLAC|image + .cue|WEB-DL] <New Age, Piano,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153264.jpgsave_picture_153264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153264.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Pathfinder: Kingmaker – Imperial Edition v2.0.7b (2018) [Multi/Ru] [macOS Nati
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153266.jpgsave_picture_153266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153266.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ kobezzza.channel, Андрей Кобец | Мастер класс по реш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153267.jpgsave_picture_153267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153267.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:727F0594C94A492E982C53E22C3589986920CA37
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153268.jpgsave_picture_153268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153268.jpg" />
 </div>
 
 

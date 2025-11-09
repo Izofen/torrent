@@ -6,7 +6,7 @@ My Home Hero | Мой домашний герой [2023, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196857.jpgsave_picture_196857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196857.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Firefox Browser 114.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196858.jpgsave_picture_196858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196858.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E9EAA117C73062589C1FA8513A9F157C77E732EC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196859.jpgsave_picture_196859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196859.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:34EBEE01CA55E8787DAD7A0D514031989F28E5FA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196860.jpgsave_picture_196860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196860.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:04D5BF0A7566B21E8F0A84BF4380B03B2B21E415
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196861.jpgsave_picture_196861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196861.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C26006015C1E62F29FD0EAE9B19194DECCF9267E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196862.jpgsave_picture_196862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196862.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ SIGERSHADERS XS Material Presets Studio 5.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196863.jpgsave_picture_196863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196863.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:62E2570F82F29EE6017636186A3D59F5C14B8857
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196864.jpgsave_picture_196864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196864.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:62D40B500B732C73BB38C7BE89CE7855C470D8DD
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196865.jpgsave_picture_196865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196865.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A6ED9030D7CE102769FF12B0AC43527D81093E9A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196866.jpgsave_picture_196866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196866.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:7DA5D74A0502D2094152929D66221FFEC3323AE5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196867.jpgsave_picture_196867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196867.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:14E111A501042FB16F74C8FF28BDFC926710ACF4
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196868.jpgsave_picture_196868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196868.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ YouTube ReVanced Extended 17.34.36 Mod by kitadai31 + Micro G [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196869.jpgsave_picture_196869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196869.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:76DE9244CAB9B21B7A44EA0CA0342AD4A9384E52
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196870.jpgsave_picture_196870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196870.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Kuma Kuma Kuma Bear Punch / Ми-ми-ми-мишка 2 [2023, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196871.jpgsave_picture_196871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196871.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F964C58036C344BEB82BCF1EE9AF13C941156B6D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196872.jpgsave_picture_196872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196872.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ qBittorrent 4.5.4 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196873.jpgsave_picture_196873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196873.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:2ABCC43DBF64F7F5560C63A03EBA06B024A2C289
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196874.jpgsave_picture_196874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_196874.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Davinci Resolve Studio 18.5b4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196875.jpgsave_picture_196875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196875.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:EFB689B0A45BB10C00F39F3ABE738BB9286DEF35
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196877.jpgsave_picture_196877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196877.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:04B2CEFF7A5EFA9E0F5A8AAC030E7BA94CD905A4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196878.jpgsave_picture_196878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196878.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ qBittorrent 4.5.4 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196879.jpgsave_picture_196879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196879.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:2A0BC84B4C363647BDAF300229A1A4DEC25F66D2
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196881.jpgsave_picture_196881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196881.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ YouTube ReVanced Extended 18.17.43 Mod by inotia00 + Micro G [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196882.jpgsave_picture_196882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196882.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Academia : School Simulator (2017) [Ru/Multi] (1.0.44) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196883.jpgsave_picture_196883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196883.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Windows 11 (9in1) by Updated Edition (16.06.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196884.jpgsave_picture_196884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196884.jpg" />
 </div>
 
 

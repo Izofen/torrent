@@ -6,7 +6,7 @@ An Autumn For Crippled Children - Closure (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205419.jpgsave_picture_205419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205419.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Uncaved - Dogmatorraistes (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205421.jpgsave_picture_205421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205421.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Iratus Vir - Under a Midnight Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205423.jpgsave_picture_205423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205423.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Hyades - And the Worst is Yet to Come (2007) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205425.jpgsave_picture_205425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205425.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Blutgott - Respawned In Heavy Metal (2023) [MP3|320 Kbps] <Heavy Metal, Death 'n
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205440.jpgsave_picture_205440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205440.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Sea of Dreams - Land of Flames (1998) [MP3|320 Kbps] <Melodic Progressive, Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205441.jpgsave_picture_205441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205441.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Jag Panzer - Ample Destruction (1984) Reissue, 2001, No Poser Rec. [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205453.jpgsave_picture_205453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205453.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rideout - Driven To Insanity (2023) [MP3|320 Kbps] <Progressive Hard, Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205456.jpgsave_picture_205456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205456.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jag Panzer - Tyrants (1983) Reissue, 2013, High Roller Rec. [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205458.jpgsave_picture_205458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205458.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sea of Dreams - Dawn of Time (1996) [MP3|320 Kbps] <Melodic Progressive, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205459.jpgsave_picture_205459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205459.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sargon - In Contempt (2011) [MP3|320 Kbps] <Thrash, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205463.jpgsave_picture_205463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205463.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Blutgott - Respawned In Heavy Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205465.jpgsave_picture_205465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205465.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Foaming at the Mouth - Writhing (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205517.jpgsave_picture_205517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205517.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Grift - Budet (2020) [FLAC|Lossless|image + .cue] <Blackgaze>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205526.jpgsave_picture_205526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205526.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Infiltration - Extinct (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205538.jpgsave_picture_205538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205538.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Magnum - Marauder (1980) Japanese Edition, Reissue, Remastered, 2023, Belle Anti
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205542.jpgsave_picture_205542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205542.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Magnum - Chase The Dragon (1982) Japanese Edition, Reissue, Remastered, 2023, Be
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205547.jpgsave_picture_205547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205547.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Voivod - Morgoth Tales (2023 )Japanese Edition [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205560.jpgsave_picture_205560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205560.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ JJ Chardeau - Ombres And Lumieres: In Terra Cognita 2 - Europa 1: Occidentalis (
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205564.jpgsave_picture_205564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205564.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Chris Boltendahl's Steelhammer - Reborn In Flames (2023) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205566.jpgsave_picture_205566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205566.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Alter Ego - Old But Gold (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205591.jpgsave_picture_205591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205591.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Enuff Z'nuff - Peach Fuzz (1996) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205601.jpgsave_picture_205601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205601.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Siegfried - Eisenwinter (2003) Ltd. Digipack [FLAC|Lossless|image + .cue] <Epic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205605.jpgsave_picture_205605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205605.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Enuff Z'Nuff - Tweaked (1995) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205608.jpgsave_picture_205608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205608.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:7671D305BF9028AA7A304188C4704B681ED9C6B3
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205609.jpgsave_picture_205609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205609.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Sumo Cyco - Neon Void (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk, Metal,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205610.jpgsave_picture_205610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205610.jpg" />
 </div>
 
 

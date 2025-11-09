@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159610.jpgsave_picture_159610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159610.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F6F9F0B26F9AB9EC6C8879BAF34AE78DA704896D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159611.jpgsave_picture_159611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159611.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ John Dopping - The Losing Struggle (2022) [FLAC|Lossless|WEB-DL|tracks] <Break B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159612.jpgsave_picture_159612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159612.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:3CD6638FC3212B4DE231B17EBB62752276AE9C1C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159613.jpgsave_picture_159613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159613.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:DB9D06B331E7743752494231976D14B5001D8BFE
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159614.jpgsave_picture_159614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159614.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:00D35E3AFF36A1C06DC773E91D4B3E3D4171D427
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159615.jpgsave_picture_159615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159615.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:FA99F5FD1391397F7B286B66DF0185FFC2AAE62A
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159616.jpgsave_picture_159616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159616.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:3592469074558EAADBCB9B94FDFB52EC0B66DE27
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159617.jpgsave_picture_159617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159617.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Peter Jablonski - Chopin: Complete Mazurkas, Vol.1 (2022) [FLAC|Lossless|image +
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159618.jpgsave_picture_159618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159618.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159619.jpgsave_picture_159619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159619.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:FA5359963BEA59C97876B2C601970AAB8AE4D7AA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159620.jpgsave_picture_159620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159620.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Trance 2023 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159621.jpgsave_picture_159621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159621.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Relaxing Echoes: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159622.jpgsave_picture_159622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159622.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:94A84859E20466B3EE2BA99ADF7E00169104F633
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159623.jpgsave_picture_159623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159623.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Sarah Belle Reid & David Rosenboom - Nows (2022) [FLAC|Lossless|tracks + .cue] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159624.jpgsave_picture_159624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159624.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:64283A8C4D6F90009651C54BEB2B499F73B1ABE4
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159625.jpgsave_picture_159625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159625.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Runelord - 3 Albums (2018-2022) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159626.jpgsave_picture_159626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159626.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:FB5E0A10B01A4E577B47A90FF0AEEBC7A93246D6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159627.jpgsave_picture_159627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159627.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:80B0EAAB4295697DE3AFCCA1686122FFE7780BF6
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159628.jpgsave_picture_159628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159628.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:5EC54E58E5A084C4E678E1E74731610E54CA6FAE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159629.jpgsave_picture_159629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159629.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:1629F7AEE01FF22C8B33E00303D0B4F7CEFB16D9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159630.jpgsave_picture_159630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159630.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:65E08E8452289E8A10F35B73DCEBF59E64ED2389
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159631.jpgsave_picture_159631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159631.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Gwen Stefani - You Make It Feel Like Christmas (2017) Japanese Edition [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159632.jpgsave_picture_159632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159632.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Green Dolphin Street - Paint It White (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159633.jpgsave_picture_159633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159633.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:7A73F4B0CCE98080E77DC440C3D741DC4960441A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159634.jpgsave_picture_159634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159634.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - The Best Of Trancemission 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159635.jpgsave_picture_159635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159635.jpg" />
 </div>
 
 

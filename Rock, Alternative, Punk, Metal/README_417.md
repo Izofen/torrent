@@ -6,7 +6,7 @@ Sunroad - Sunesthesia (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235463.jpgsave_picture_235463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235463.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Eternal Rot - Cadaverine (2018) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235464.jpgsave_picture_235464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235464.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Trauma - As The World Dies (2018) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Sp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235467.jpgsave_picture_235467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235467.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Cultus Black - Cultus Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Gr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235470.jpgsave_picture_235470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235470.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Tomb of Lucifer - Ode to Judah (2023) [MP3|320 Kbps] <Oriental Blackened Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235472.jpgsave_picture_235472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235472.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Triumpher - Storming The Walls (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235478.jpgsave_picture_235478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235478.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Gods Of Gaia - As Daylight Dies (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235479.jpgsave_picture_235479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235479.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Saturnus - The Storm Within (2023) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235484.jpgsave_picture_235484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235484.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Primitai - Rise Again (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235488.jpgsave_picture_235488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235488.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tension Prophecy - Tribal Hatred (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235492.jpgsave_picture_235492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235492.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Black Spiders - This Savage Land (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235504.jpgsave_picture_235504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235504.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Lost Relics - Die + Cry + Loathe (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235505.jpgsave_picture_235505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235505.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ March - In This Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235515.jpgsave_picture_235515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235515.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ GrimmReaper - The Tragedy of Being (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235521.jpgsave_picture_235521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235521.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Koldovstvo - Ни Царя, Ни Бога (2021) [FLAC|Lossless|Web-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235530.jpgsave_picture_235530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235530.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Alan Waters - Жернова (2023) [MP3|320 Kbps] <Alternative, Industrial>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235533.jpgsave_picture_235533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235533.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Demolition Train - Bound By Horror, Sealed With Blood (2017) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235535.jpgsave_picture_235535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235535.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Wardencliff - Город (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235538.jpgsave_picture_235538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235538.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Melancholy - Чернъ (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235540.jpgsave_picture_235540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235540.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ It Is - The Exister (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Garage Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235546.jpgsave_picture_235546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235546.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Divinefire - Eye Of The Storm (2011) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235548.jpgsave_picture_235548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235548.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Elvis Costello – Live At The El Mocambo (1993) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235554.jpgsave_picture_235554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235554.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Aurore - Sparks (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235558.jpgsave_picture_235558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235558.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ PFM (Premiata Forneria Marconi) - The Event Live in Lugano (2023) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235562.jpgsave_picture_235562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235562.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Stormlord - At the Gates of Utopia (2001) [FLAC|Lossless|image + .cue] <Extreme 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235563.jpgsave_picture_235563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235563.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Aephanemer - Prokopton (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235566.jpgsave_picture_235566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235566.jpg" />
 </div>
 
 

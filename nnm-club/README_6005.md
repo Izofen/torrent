@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188939.jpgsave_picture_188939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188939.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Speedtest от Ookla 5.1.1 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188940.jpgsave_picture_188940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188940.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BE95277E7B733A147FF2B9F9B15E710C1BA4C38D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188941.jpgsave_picture_188941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188941.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Speedtest от Ookla 5.1.1 Lite-Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188942.jpgsave_picture_188942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188942.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Electric Boys - Grand Explosivos (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188943.jpgsave_picture_188943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188943.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Godflesh - Purge (2023) [FLAC|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188944.jpgsave_picture_188944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188944.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Baroness - Stone (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Sludge Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188945.jpgsave_picture_188945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188945.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4BE978C19914779FAC993DDFCCF888786CBB6AC5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188946.jpgsave_picture_188946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188946.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ WiFiRadar Pro 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188948.jpgsave_picture_188948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188948.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188950.jpgsave_picture_188950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188950.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Loopback 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188951.jpgsave_picture_188951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188951.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ ASAP Utilities for Excel 8.0.2 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188952.jpgsave_picture_188952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188952.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Mayhem - Daemonic Rites (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188953.jpgsave_picture_188953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188953.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:8BF110D071A354F596949A5095D115C7F64C7D32
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188955.jpgsave_picture_188955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188955.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:A527EEBEE06C4D29E08A972C20005DE65E6EFAB4
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188956.jpgsave_picture_188956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188956.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:2F27367061AA0EE9F3D7EDD4778E30AD3486D56D
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188957.jpgsave_picture_188957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188957.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:592D47BDF7CAE64A70FBE5A9C7F758929EEE6317
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188958.jpgsave_picture_188958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188958.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:9ED67C148CDD73FBC7A12410739DE60213D6B0F8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188959.jpgsave_picture_188959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188959.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ DnDm - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188960.jpgsave_picture_188960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188960.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:FF4CB509BBC0E10BA69D4AFB70917EEB00436F63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188961.jpgsave_picture_188961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188961.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:386C4D643DA8A1845F92EFE5E4A74C67C03CF7F0
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188962.jpgsave_picture_188962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188962.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:1A971002181F5971603A51D77FD331A1B3B3EFB4
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188963.jpgsave_picture_188963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188963.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:2E760ECC81997A06AE4BB4322969CBD8A3B36624
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188965.jpgsave_picture_188965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188965.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Crystal Palace - Still There (2022) [FLAC|Lossless|image + .cue] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188966.jpgsave_picture_188966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188966.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:76E709737A27B49F8F9409D963D5A282B4748224
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188968.jpgsave_picture_188968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188968.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:201815E76061D5814B6FB8795796332027D683F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188969.jpgsave_picture_188969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188969.jpg" />
 </div>
 
 

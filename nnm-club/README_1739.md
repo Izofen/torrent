@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45571.jpgsave_picture_45571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45571.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:74F17BBF1ECCEB89839A6ACA4101C1B2E35502BB
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45572.jpgsave_picture_45572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45572.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:1F9997252951BF9B4E81A6EDD090B271AFF909F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45573.jpgsave_picture_45573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45573.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Adobe Bridge 2024 14.1.2.300 (x64) Portable by 7997 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45574.jpgsave_picture_45574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45574.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Glary Utilities Pro 6.14.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45575.jpgsave_picture_45575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45575.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ PowerISO 8.9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45576.jpgsave_picture_45576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45576.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Adobe Premiere Pro 2024 24.6.0.86 (x64) Light Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45577.jpgsave_picture_45577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45577.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:431BCF1DB1B4405EEA28E6E0BFA7D17806BE9D0E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45578.jpgsave_picture_45578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45578.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E07A40042297375BA2B0FA9869231069C5976300
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45579.jpgsave_picture_45579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45579.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:634A2C696A191981B8A8E06C7019432640B88088
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45580.jpgsave_picture_45580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45580.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Viber 23.4.0.0 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45581.jpgsave_picture_45581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45581.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:01E5589ADE05F075E5674EB7E7A62E6FDFA352C8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45582.jpgsave_picture_45582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45582.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Perfectly Clear WorkBench 4.6.1.2690 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45583.jpgsave_picture_45583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45583.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:AE467B93531F4E484ED5DFDB07FE52404874A1CB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45584.jpgsave_picture_45584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45584.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Adobe Dimension 2024 4.0.3 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45585.jpgsave_picture_45585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45585.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.0 Build 69 Portable by 7997 [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45586.jpgsave_picture_45586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45586.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Adobe Substance 3D Modeler 2024 1.13.0.53 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45587.jpgsave_picture_45587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45587.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:EDC70D25006E8681303C3DA7A9DA33EE7B90D255
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45588.jpgsave_picture_45588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45588.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:20DCEEFCEA8389AFD259D499E1EADAC7891E42C9
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45589.jpgsave_picture_45589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45589.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Adobe Substance 3D Stager 2024 3.0.3 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45590.jpgsave_picture_45590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45590.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:25998CA3C132A8BD46FC3DDC7277102CD51E38B4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45591.jpgsave_picture_45591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45591.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:B2FE5938088B48975E0C2DC434ABE038B4E1CA3A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45592.jpgsave_picture_45592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45592.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:CA44187A2401C058C4793C2B1D0CA81D7777C9B7
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45593.jpgsave_picture_45593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45593.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:9B7C2D5B699005547861C84266EF5073CA67A221
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45594.jpgsave_picture_45594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45594.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Adobe Premiere Pro 2024 24.6.0.86 (x64) Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45595.jpgsave_picture_45595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45595.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ UltraUXThemePatcher 4.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45596.jpgsave_picture_45596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45596.jpg" />
 </div>
 
 

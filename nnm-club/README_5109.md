@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159558.jpgsave_picture_159558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159558.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F9CC2C368A6AE1DD4392FAF2C3284A339ACE45CE
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159559.jpgsave_picture_159559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159559.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F6F168C7EFF6B88C8342FE214C7B63412FD0E336
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159560.jpgsave_picture_159560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159560.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:42A36AB06F302F66441913C9EF0351A05E63DD04
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159561.jpgsave_picture_159561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159561.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:B54C7173A3313A89C2B5ED1D313FEBB30B4AF491
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159562.jpgsave_picture_159562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159562.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9C5CE6732D3AAF7D5F65AB084AB2FC4996F2F18F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159563.jpgsave_picture_159563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159563.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Ayreon - Universal Migrator, Pt. I & II (2000) 2022 remixed & remastered [DTS 5.
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159564.jpgsave_picture_159564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159564.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ MIUI-ify v1.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159565.jpgsave_picture_159565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159565.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Electric Universe - Sacred Geometry (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159566.jpgsave_picture_159566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159566.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ King Crimson - In the Court of the Crimson King: King Crimson at 50 (Music from 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159567.jpgsave_picture_159567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159567.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:2B2A6C5873EF71857A00FFA20EDFC16AA9EF1FEF
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159568.jpgsave_picture_159568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159568.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:6302D3ACA9B5372940168B02F6DACABB4B01C2CC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159569.jpgsave_picture_159569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159569.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:1BA467723CF53D4BEF7BA009FC8ED3D4A6062ED0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159570.jpgsave_picture_159570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159570.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:B9CDEA29901A17581EB9E9E4CC683D4DB3C65DA3
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159571.jpgsave_picture_159571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159571.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D0865AF5D93D831503DC3AF93BC2A9A74E7995AC
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159572.jpgsave_picture_159572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159572.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:6FB8D1B39E2A0FDADA1F949966F7EFC2E56853CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159573.jpgsave_picture_159573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159573.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Bottom Quick Settings v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159574.jpgsave_picture_159574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159574.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:D8C4427B8E952397DCD4AF7654A6D5442AD19B04
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159575.jpgsave_picture_159575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159575.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:D00C7EBB54FD11EEAFD9A4315B7A6A350E00620D
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159576.jpgsave_picture_159576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159576.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:229FD8C846C0D04E1F58C2F648786D30FEA7F4C3
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159577.jpgsave_picture_159577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159577.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Tommy Vext - 3 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159578.jpgsave_picture_159578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159578.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:AE40F9198E9B1BA459978E8D21BC7F875F7F59D5
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159579.jpgsave_picture_159579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159579.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:96D01DCA52D5854E02ED3FA805B4102343BBE3E1
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159580.jpgsave_picture_159580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159580.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ System Of A Down - System Of A Down (2011) 5xCD, Box Set, Compilation [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159581.jpgsave_picture_159581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159581.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Terror - Always the Hard Way (2006) [FLAC|Lossless|image + .cue] <Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159582.jpgsave_picture_159582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159582.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:82E449DD374D4CF0D8FD9CBAC63D40B4646F0004
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159583.jpgsave_picture_159583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_159583.jpg" />
 </div>
 
 

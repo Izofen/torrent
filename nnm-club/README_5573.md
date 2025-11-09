@@ -6,7 +6,7 @@ Viber 21.2.0.3 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171886.jpgsave_picture_171886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171886.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:2DF659C251A056C16F0EAA8001275CE76C1109DE
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171887.jpgsave_picture_171887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171887.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:235B2FE31A69CC5215A6D424366A7A604C807C56
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171888.jpgsave_picture_171888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171888.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Dave Stewart - Who To Love: The Time Experience Project (2023) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171889.jpgsave_picture_171889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171889.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ StrokesPlus.net 0.5.7.8 + Portable [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171890.jpgsave_picture_171890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171890.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B7F89D64EC899EEA7946EAE9E482839397B39B63
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171891.jpgsave_picture_171891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171891.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8D39A519A8BA0B58A94D472137E1C42A8A4F5A12
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171892.jpgsave_picture_171892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171892.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:764D1721323523B7BCF1341F517F64C5600A6D61
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171893.jpgsave_picture_171893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171893.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Tom Petty & The Heartbreakers - Mojo (2010) Remaster, 2023, Reprise [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171894.jpgsave_picture_171894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171894.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:ECC1DACA30F88271A4D072823639F7C0CB0B5CCF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171895.jpgsave_picture_171895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171895.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ DxO PhotoLab Elite 7.0.2 build 83 Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171896.jpgsave_picture_171896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171896.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:696AAACF0C7F33E0D3F4AFBEECEDF9C579E7B2A4
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171897.jpgsave_picture_171897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171897.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - Dos Décadas Dance 2 (2002) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171898.jpgsave_picture_171898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171898.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:419FD849BA0455A4A0A401C8FFAE365CFD369151
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171899.jpgsave_picture_171899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171899.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:DC3BAC5682F8693A3632483D65FF3943990B54C7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171900.jpgsave_picture_171900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171900.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:79A4B282DE8852757ADC8728171A36DEB8D25668
 >>Старые Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171901.jpgsave_picture_171901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171901.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ ExamDiff Pro Master Edition 14.0.1.15 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171902.jpgsave_picture_171902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171902.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ PhotoRoom v4.7.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171903.jpgsave_picture_171903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171903.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:97AF4312293976BB9F392FA15835199694EA4239
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171904.jpgsave_picture_171904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171904.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ XYplorer 25.00.0200 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171905.jpgsave_picture_171905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171905.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Sumatra PDF 3.5.15741 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171906.jpgsave_picture_171906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171906.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Photo Studio PRO v2.6.4.2022 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171907.jpgsave_picture_171907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171907.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:92DFAD16C6E93D19F15D8F478749CBA6DCCF4B3C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171908.jpgsave_picture_171908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171908.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Savage - Glory Riders (2023) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171909.jpgsave_picture_171909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171909.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ n-Track Studio Suite 10.0.0.8098 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171910.jpgsave_picture_171910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171910.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ O&O DiskImage Professional 18.4 Build 332 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171911.jpgsave_picture_171911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171911.jpg" />
 </div>
 
 

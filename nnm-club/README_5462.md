@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168938.jpgsave_picture_168938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168938.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9AFB617AFFF35AA745CE47175BCC7E4F4F09DAB0
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168939.jpgsave_picture_168939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168939.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:B2195D924DD7CC51A9AFEF2F102581B1C2528655
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168940.jpgsave_picture_168940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168940.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:EB2E6C3BC8FB586F1AEB3864B22055ECD40497D1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168941.jpgsave_picture_168941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168941.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168942.jpgsave_picture_168942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168942.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Best Blues Singers (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168943.jpgsave_picture_168943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168943.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:BEB9C6354515A2C8CC4D31C6FD7C6079436DAA46
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168944.jpgsave_picture_168944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168944.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:DD34AAB951D02AA12F95F70B5B867A00BC3EA071
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168945.jpgsave_picture_168945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168945.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F96A0A389CA4CD7581CDDF92155A9764C8BFE1ED
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168946.jpgsave_picture_168946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168946.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:78D19E0888358841C19C6F009D82494AE609EC99
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168947.jpgsave_picture_168947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168947.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:43DFBBF691794D3C351330774B6A6FD6FAB4554C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168949.jpgsave_picture_168949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168949.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Electric Light Orchestra - Secret Messages (1983) Limited Edition, Reissue, Rema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168950.jpgsave_picture_168950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168950.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ ON1 Sky Swap AI 2023.5 v.17.5.1.140051 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168951.jpgsave_picture_168951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168951.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:9BB1660EC5EFEB8F3BB2F29F7B8BBB71FB48738D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168952.jpgsave_picture_168952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168952.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Christmas Spirit 3: Grimm Tales (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168953.jpgsave_picture_168953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168953.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:E9DB0D214B8FFD24E4426A0B80120E0531491CE4
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168954.jpgsave_picture_168954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168954.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168955.jpgsave_picture_168955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168955.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Teorex Inpaint 10.2.2 Portable by FC Portables [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168956.jpgsave_picture_168956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168956.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - Vocal Trance 2023 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168957.jpgsave_picture_168957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168957.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:24DD3AAE3E2ABD2D3B02BF65B29CFAFB280EAFFE
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168958.jpgsave_picture_168958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168958.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:65E1E000A1DBEB221669914F166E3BDD6E43D867
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168959.jpgsave_picture_168959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168959.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:CE5FE96A5B58EAA851189807ABD06C9371BD1776
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168960.jpgsave_picture_168960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168960.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:18CB02A7DC30D1428C0F855DC36B76F8AAF6D366
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168961.jpgsave_picture_168961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168961.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ RAR for Linux 6.24 [x32, x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168962.jpgsave_picture_168962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168962.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - The True Romance (2022) [MP3|320 Kbps] <Pop, Lyric, Romantic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168963.jpgsave_picture_168963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168963.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:DF3E1A09F563B8D9BA5B16945E7658C08381BE70
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168964.jpgsave_picture_168964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168964.jpg" />
 </div>
 
 

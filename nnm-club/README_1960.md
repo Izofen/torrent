@@ -6,7 +6,7 @@ WinNTSetup 5.3.5.2 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51317.jpgsave_picture_51317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51317.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Adobe Acrobat Pro 2024.002.20895 (x32-x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51318.jpgsave_picture_51318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51318.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CA54DB218502F2E0EA483518E9B59C78FADCE5A4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51319.jpgsave_picture_51319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51319.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FC7B5E892B190DF554F207AC8EF351EBCAEF6CFB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51320.jpgsave_picture_51320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51320.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:BCC556F810731EAAC7BE69F29A7EB9F9B3DE1AB8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51321.jpgsave_picture_51321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51321.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BCC556F810731EAAC7BE69F29A7EB9F9B3DE1AB8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51322.jpgsave_picture_51322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51322.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:408ED717C32A6DB90973153009861F64E4DE387D
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51323.jpgsave_picture_51323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51323.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:157655428D171C1A6E89CB15A49913399CAB4820
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51324.jpgsave_picture_51324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51324.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Bandicam 7.1.2.2451 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51325.jpgsave_picture_51325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51325.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Train Life A Railway Simulator (2021) [Ru/Multi] (28790/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51326.jpgsave_picture_51326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51326.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51327.jpgsave_picture_51327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51327.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:17C3E524C43651BF51594935D1A16BAC7286F3B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51328.jpgsave_picture_51328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51328.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ PC Cleaner Pro 9.6.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51329.jpgsave_picture_51329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51329.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ TechSmith Camtasia 2024 24.0.1 (Build 1515) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51330.jpgsave_picture_51330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51330.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:2A48AE8B713E4D524DFF32875F50430B0095C7CE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51331.jpgsave_picture_51331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51331.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ PotPlayer 240618 (1.7.22266) RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51332.jpgsave_picture_51332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51332.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ SamDrivers 24.7 LAN [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51333.jpgsave_picture_51333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51333.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:FD39AB5904355185D6F532A4B5FBC17BF6FA0E5E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51334.jpgsave_picture_51334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51334.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Astrox Imperium (2019) [En] (b0.0144) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51335.jpgsave_picture_51335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51335.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51336.jpgsave_picture_51336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51336.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.27c) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51337.jpgsave_picture_51337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51337.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:F37F2C75A1DF2638DB63C08BD5EC799E30B68E45
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51338.jpgsave_picture_51338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51338.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Total Commander 11.03 MAX-Pack 2024.06.06 by Mellomann [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51339.jpgsave_picture_51339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51339.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:B78CA8995EF3A0DA554BABE2D514E1939A29144A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51340.jpgsave_picture_51340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51340.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:ECBEEAD80FA81CBFF8F95B7E94AC337ADF0D60D7
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51341.jpgsave_picture_51341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51341.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ GASPING.2 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51342.jpgsave_picture_51342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51342.jpg" />
 </div>
 
 

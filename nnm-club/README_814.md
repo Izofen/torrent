@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21496.jpgsave_picture_21496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21496.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6CB2C38A2D39E53FA64E30E9F72F935441BEBE5D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21498.jpgsave_picture_21498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21498.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:390D99F2D609E4F7CAA8D697BAF4959E7FCEE335
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21499.jpgsave_picture_21499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21499.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09.0.3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21500.jpgsave_picture_21500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21500.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14932/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21501.jpgsave_picture_21501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21501.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Windows 11, 24H2 [26100.3775] 38in1 (x64) by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21503.jpgsave_picture_21503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21503.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:03E205351A94520EFE10866E322C17EDD065851C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21504.jpgsave_picture_21504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21504.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:03E205351A94520EFE10866E322C17EDD065851C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21509.jpgsave_picture_21509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21509.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.24L) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21511.jpgsave_picture_21511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21511.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:0D00C887AA30F2887A2B8DEC9D7E5079DE4DFD21
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21512.jpgsave_picture_21512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21512.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:0FCCEEA13A7C8CE5C193384AF75DA418713F7A30
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21513.jpgsave_picture_21513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21513.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:A5E5BB19A94954FFE266440D643F4B44AE70009C
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21514.jpgsave_picture_21514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21514.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Imagine 1.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21515.jpgsave_picture_21515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21515.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:34BBD60F57EFA2C6C1FA6207BE5245E3697E0C50
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21516.jpgsave_picture_21516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21516.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:94A5980804A66C76B713997448F6470EEC10B183
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21517.jpgsave_picture_21517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21517.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:22F00D6F01F320FE44B768C8FE4B814A66B3A218
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21518.jpgsave_picture_21518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21518.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:B8A3B477731D400F74424329D9923B943DFE7BB2
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21519.jpgsave_picture_21519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21519.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:3F726823D92F89F7968CB8B2DF9B107CAC31969D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21520.jpgsave_picture_21520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21520.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Into the Necrovale (2024) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21521.jpgsave_picture_21521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21521.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:D0AD3F3539189CC05D74718E3ABCC276B94DB20E
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21522.jpgsave_picture_21522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21522.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:2A8A45211371737FF8D8EB10BE1785311C140EBF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21523.jpgsave_picture_21523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21523.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:B4A868DFF1E6C9FD8469662D01EEA4A75D414885
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21524.jpgsave_picture_21524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21524.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - 90s Greatest Hits (2007) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21525.jpgsave_picture_21525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21525.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:252645A42F4946EC1649A2BEFA369826F555A388
 >>Доктор кто / Doctor Who; Торчвуд / Torchwood
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21526.jpgsave_picture_21526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21526.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Cockos REAPER 7.36 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21527.jpgsave_picture_21527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21527.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:F10B5C0BA4744163E682700F24D5246BE4A9AD36
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21528.jpgsave_picture_21528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21528.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Les Big Byrd - Eternal Light Brigade (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175111.jpgsave_picture_175111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175111.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Antropofagus - Origin (2022) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175122.jpgsave_picture_175122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175122.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Motorhead - Blitzkrieg On Birmingham '77 (1989) [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175127.jpgsave_picture_175127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175127.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mythika - Unholy Glory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175136.jpgsave_picture_175136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175136.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Meteora - Tragedy of Delusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175140.jpgsave_picture_175140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175140.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jinjer - Cloud Factory (2014) Reissue, 2018, Napalm Records [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175142.jpgsave_picture_175142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175142.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Paramore - Re: This Is Why (2023) [MP3|320 Kbps] <Alt. Rock, Pop Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175148.jpgsave_picture_175148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175148.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rain - Singularity (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175155.jpgsave_picture_175155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175155.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175158.jpgsave_picture_175158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175158.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Mephistopheles - Songs Of The Desolate Ones (1999) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175161.jpgsave_picture_175161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175161.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Meteora - Our Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175166.jpgsave_picture_175166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175166.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Moon Shepherd - Between The Circles (2022) [Mp3|320kbps] <Heavy, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175177.jpgsave_picture_175177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175177.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bark - Rambler of Aeons (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175179.jpgsave_picture_175179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175179.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Pale King - We Are but Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175180.jpgsave_picture_175180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175180.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Thanatonauts - Зов (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Metal, Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175182.jpgsave_picture_175182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175182.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mephistopheles - Landscape Symphonies (1997) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175183.jpgsave_picture_175183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175183.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hanker - In Our World (1994) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175189.jpgsave_picture_175189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175189.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ola Englund - Master Of The Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Exper
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175261.jpgsave_picture_175261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175261.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Myridian - Light in the Abyss (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175285.jpgsave_picture_175285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175285.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Belore - Journey Through Mountains and Valleys (2020) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175288.jpgsave_picture_175288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175288.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Morreale - Appunti Di Viaggio (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175294.jpgsave_picture_175294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175294.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Pallbearer - Forgotten Days (2020) [FLAC|Lossless|tracks + .cue] <Doom Metal, Ep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175296.jpgsave_picture_175296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175296.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Faidra - Six Voices Inside (2020) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175303.jpgsave_picture_175303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_175303.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Monastery - From Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175313.jpgsave_picture_175313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175313.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ magnet:?xt=urn:btih:888DEFC2545431EDCFBB2890049E98BBC9B245F3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175344.jpgsave_picture_175344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_175344.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Eigenflame - Pathway to a New World (2023) [MP3|320 Kbps] <Symphonic Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175379.jpgsave_picture_175379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_175379.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208469.jpgsave_picture_208469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208469.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:F312597722D7BABCF11FC12C2B77F23E7AE189A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208473.jpgsave_picture_208473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208473.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:81224A6C12036FFBB2E3F0F46FE40EC2DA4A7B71
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208474.jpgsave_picture_208474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208474.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Rebelway, Urban Bradesko | Realtime FX for Games and Cinematics (2019) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208475.jpgsave_picture_208475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208475.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Gumroad, Ivan Smirnov | Illustration development by Real-SonkeS (2015) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208479.jpgsave_picture_208479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208479.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Windows and Office Genuine ISO Verifier 11.12.39.23 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208480.jpgsave_picture_208480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208480.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:57E03E4265FCB8E16BE6D49043A15E9E4BE3EA95
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208482.jpgsave_picture_208482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208482.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Enterclass, Виктория Акулова | Портрет девушки. А�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208486.jpgsave_picture_208486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208486.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:26D9E671C1BDC140B63C242759763BA5085A15E4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208487.jpgsave_picture_208487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208487.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:89F9F15E2B2E9345123855EBFD9B94F79244919F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208490.jpgsave_picture_208490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208490.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:9A26FA990DDDA51582304AF9CF2858CB4F85336A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208492.jpgsave_picture_208492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208492.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Ромашки спрятались•Песни Евгения Птичк�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208494.jpgsave_picture_208494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208494.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Topclass, Алексей Каптерев | Мастерство презент�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208495.jpgsave_picture_208495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208495.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Analytera, Центр Статистических Технологий, Его�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208498.jpgsave_picture_208498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208498.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:4231B13881A956AF70F1AEE1F2341436C22AD69D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208499.jpgsave_picture_208499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208499.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:4E47FE8D32D4FEABF5D06B092F07234061CFB508
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208502.jpgsave_picture_208502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208502.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F3BBAF1DC8357B05639B54EE0E493D624AA4397A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208503.jpgsave_picture_208503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208503.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208506.jpgsave_picture_208506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208506.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:091BC9379F8F15937AC922E9CCF5D9D945708692
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208508.jpgsave_picture_208508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208508.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ LibreWolf 115.0.2-2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208510.jpgsave_picture_208510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208510.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:42644DAA3377978FA81738E8C16A90F3433BA64D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208512.jpgsave_picture_208512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208512.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Google Chrome 115.0.5790.99 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208515.jpgsave_picture_208515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208515.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Learnsquared, Gaelle Seguillon | Environment Design (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208516.jpgsave_picture_208516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208516.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Java SE Development Kit 20.0.2 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208518.jpgsave_picture_208518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208518.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Learnsquared, Louis Laurent | Dynamic Concept Art I (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208519.jpgsave_picture_208519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208519.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Sante DICOM Edtor 8.2.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208523.jpgsave_picture_208523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208523.jpg" />
 </div>
 
 

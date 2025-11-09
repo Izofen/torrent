@@ -6,7 +6,7 @@ Draftable Desktop 25.9.0 Repack [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4552.jpgsave_picture_4552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4552.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D1BE274F87616085F874476BC9A84981B0B463AF
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4553.jpgsave_picture_4553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4553.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Perfectly Clear WorkBench 4.8.0.2847 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4554.jpgsave_picture_4554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4554.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Beyond Compare Pro 5.1.4.31268 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4555.jpgsave_picture_4555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4555.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4556.jpgsave_picture_4556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4556.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:5E43B1A3187AF8988913699FDF53E744BC081144
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4557.jpgsave_picture_4557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4557.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ MassTube Ultra 21.0.1.162 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4558.jpgsave_picture_4558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4558.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:94C17FA7A4CE944AC45CD5056882AF1D7622F59A
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4559.jpgsave_picture_4559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4559.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:432AAFB86A4CA7F6C1BD851D7075415E4A2CF6F1
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4560.jpgsave_picture_4560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4560.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Chromium 140.0.7339.81 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4561.jpgsave_picture_4561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4561.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:7200492C5F91169DBD9D42A20671E469B422CA85
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4562.jpgsave_picture_4562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4562.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.92 Mod by Alex.Strannik [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4563.jpgsave_picture_4563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4563.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ UltraSearch Professional 4.8.2.1182 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4564.jpgsave_picture_4564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4564.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ iZotope - Ozone 12 Advanced 12.0.0 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4565.jpgsave_picture_4565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4565.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Prison Architect (2015) [Ru/Multi] (1.02 r11056/dlc) Repack Let'sРlay [Total Lo
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4566.jpgsave_picture_4566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4566.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:F341A530F6574DB52D2E7B4705BCED7A076293B3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4567.jpgsave_picture_4567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4567.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:1D68051F9877DFE83FE1200309FB1A2D353F6BB7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4568.jpgsave_picture_4568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4568.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:E7B0038274E0E1EC636D48D2B9A82B874061EA5A
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4569.jpgsave_picture_4569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4569.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rogue Hex (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4570.jpgsave_picture_4570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4570.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Xplorer2 Ultimate 6.2.0.3 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4571.jpgsave_picture_4571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4571.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Google Chrome 140.0.7339.81 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4572.jpgsave_picture_4572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4572.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:F70B39355C1F39B6A3F56C8C333D474867A38554
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4573.jpgsave_picture_4573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4573.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Vanced Tube v5.4.80.338 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4574.jpgsave_picture_4574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4574.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:9BCEDDEBB23392D85BCB40F567A5029B06AAF8BB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4575.jpgsave_picture_4575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4575.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ra Ra BOOM (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4576.jpgsave_picture_4576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4576.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:72DEF164072D48A6F014298DB888DC8922968BDC
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4577.jpgsave_picture_4577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4577.jpg" />
 </div>
 
 

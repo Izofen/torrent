@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21607.jpgsave_picture_21607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21607.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:378948EFC811AE64507DCEB8DA021A67A124FC28
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21608.jpgsave_picture_21608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21608.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C5416B74C2FE9D6D8DAF5989329115EB3C0F2A07
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21609.jpgsave_picture_21609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21609.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:3CDEA895B44D0BC8453A37727C63BAA147879E26
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21610.jpgsave_picture_21610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21610.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:F7E00EE29C0F52A3ABC88738877D1A6333BC92AA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21611.jpgsave_picture_21611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21611.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.9) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21612.jpgsave_picture_21612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21612.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:A16BCF82D9CF7CC0A2DEC542CE88568EE4C1455E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21613.jpgsave_picture_21613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21613.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Astrea: Six-Sided Oracles (2023) [Ru/Multi] (1.2.313) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21614.jpgsave_picture_21614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21614.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ FRONT MISSION 2: Remake (2024) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21615.jpgsave_picture_21615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21615.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Sacred Fire: A Role Playing Game (2021) [En] (2.6.4.f6) License GOG [Early Acces
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21616.jpgsave_picture_21616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21616.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.7.6 Gold 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21617.jpgsave_picture_21617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21617.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CoolUtils Total CAD Converter 4.1.0.230 RePack (& Portable) by elchupacabra [Mul
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21618.jpgsave_picture_21618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21618.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:C5430A54270D6362C0E1A88E0B079F9EFCC5BD5E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21619.jpgsave_picture_21619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21619.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FolderSizes 9.7.522 Enterprise [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21620.jpgsave_picture_21620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21620.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:A44FF8F42C8BDA5B4F7D9F5C3F8D3A5ADFD6E281
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21621.jpgsave_picture_21621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21621.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.0 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21622.jpgsave_picture_21622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21622.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21623.jpgsave_picture_21623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21623.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ SNOW BROS. 2 SPECIAL (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21624.jpgsave_picture_21624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21624.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:F8AA9A6CA5E3AA566BE06C42780641C0F8A47005
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21625.jpgsave_picture_21625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21625.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:02CE3217C47BF28E39ACFE886D3DB7B52142E64A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21626.jpgsave_picture_21626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21626.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:BF7514745264A01DE81BB4495C9D54796BED43BA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21627.jpgsave_picture_21627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21627.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:98CF4215A0F311FF68EEB98018342B846B5D076A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21628.jpgsave_picture_21628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21628.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:8C89D8474CBE90337DF964E83D00B40143368514
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21629.jpgsave_picture_21629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21629.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ AI Photo Editor Pro - Polish v1.633.211 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21630.jpgsave_picture_21630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21630.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:6986B2F019A489F176FC854787823D4696C00E10
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21631.jpgsave_picture_21631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21631.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:64E7DB43AF34290C3857BCA92406FBA13C1F462D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21632.jpgsave_picture_21632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21632.jpg" />
 </div>
 
 

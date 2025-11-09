@@ -6,7 +6,7 @@ Su Ta Gar - Alarma (2022) [FLAC 2.0|88/24|tracks|WEB-DL] <Heavy Metal, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161961.jpgsave_picture_161961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161961.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Paul McCartney - McCartney III (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161997.jpgsave_picture_161997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161997.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sonum X - Metamorpher (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162006.jpgsave_picture_162006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162006.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eagles - One Of These Nights (1975) Reissue, Remastered, 2022, Mobile Fidelity S
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162009.jpgsave_picture_162009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162009.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lesbian Bed Death - The Plague Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162023.jpgsave_picture_162023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162023.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Hammer Voodoo - The Year of the Rat (2021) [MP3|320 Kbps] <Blues Rock, Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162041.jpgsave_picture_162041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162041.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Veer Union - Manifestations (2022) Deluxe edition [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162042.jpgsave_picture_162042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162042.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:7460153399C6C2AC3DEF46BAD503C3900497FA57
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162073.jpgsave_picture_162073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162073.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Cure - Seventeen Seconds (1980) Fiction 825 354-2 [FLAC|Lossless|image + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162080.jpgsave_picture_162080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162080.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Future Faces - Euphoria (2020) [MP3|320 Kbps] <Alternative, EBM, Coldwave, Post-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162081.jpgsave_picture_162081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162081.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FE09AE0C2EF3C7376677C19E4E4F11693D3E37FE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162088.jpgsave_picture_162088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162088.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ High School Music Band - Rock It (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162089.jpgsave_picture_162089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162089.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Jrago - Disconnect (2022) [MP3|320 Kbps] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162091.jpgsave_picture_162091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162091.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bavaustrian Metalbrothers United - Fall into Oblivion (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162105.jpgsave_picture_162105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162105.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bark - Written in Stone (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162112.jpgsave_picture_162112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162112.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Veritates - Killing Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162120.jpgsave_picture_162120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162120.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Godwatt - Vol. III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162154.jpgsave_picture_162154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162154.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ American Dream Machine - Deadhearts (2020) [FLAC|Lossless|tracks + .cue] <Modern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162167.jpgsave_picture_162167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162167.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Hate Priest - Hate Priest / Lillins Currents (2019-2020) [MP3|320 Kbps] <Deathco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162171.jpgsave_picture_162171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162171.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Vanden Plas - The Ghost Xperiment - Illumination (2020) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162173.jpgsave_picture_162173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162173.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Los Cochinos - Tequila Berserker (2020) [FLAC|Lossless|tracks + .cue] <Death'n'R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162177.jpgsave_picture_162177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162177.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Northern Flame - Twisted Reality (2020) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162196.jpgsave_picture_162196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162196.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Atreyu - A Torch In The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162208.jpgsave_picture_162208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162208.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:50552821B8757D2B7687C6279FE5651F4316D1C8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162242.jpgsave_picture_162242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162242.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Wildness - Ultimate Demise (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162255.jpgsave_picture_162255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162255.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Olyphant - Destinies of the Soul (2020) [MP3|320 Kbps] <Progressive Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162266.jpgsave_picture_162266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162266.jpg" />
 </div>
 
 

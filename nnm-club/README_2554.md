@@ -6,7 +6,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67154.jpgsave_picture_67154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67154.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4C6D75D6DAF795E63FE94C0C64477C0DAAD077EF
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67155.jpgsave_picture_67155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67155.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7DA2892CD8910F1502D30AF22746F216442C918E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67156.jpgsave_picture_67156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67156.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F694E129020309C581113EE4A539B8E1D30F31DD
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67157.jpgsave_picture_67157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67157.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0155F8DBC6EE3C6275A173926DD81150B5DBA7A7
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67158.jpgsave_picture_67158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67158.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - JAZZ IN THE BACKGROUND (For All Moments Of The Day) (2025) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67159.jpgsave_picture_67159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67159.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:EDD8EA6C864D1E8289CFFB0834086DAF204A9653
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67160.jpgsave_picture_67160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67160.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:C268088789D4D5C04C61C5C5778DC8DDA249F131
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67161.jpgsave_picture_67161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67161.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Funky Groove Relax (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67162.jpgsave_picture_67162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67162.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Mittelalter Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67163.jpgsave_picture_67163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67163.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:6A1E05884828BFBBBD5ECE34E729505D87016154
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67164.jpgsave_picture_67164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67164.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Nu Funk Vol 10 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67165.jpgsave_picture_67165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67165.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Ambient Relaxation (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electronic, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67166.jpgsave_picture_67166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67166.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:B8CEF4312EA43C996F32DA7C8841AF312C66D4EF
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67167.jpgsave_picture_67167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67167.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:9998E8D5E5167F25290EB2E3B81D01A26951E5E6
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67168.jpgsave_picture_67168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67168.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:89DADA0B5D75AD34A93645B3762BE8E635A65CEE
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67169.jpgsave_picture_67169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67169.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:966466DD79E95B25CDFFEEB4D1D05E16AA6B469E
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67170.jpgsave_picture_67170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67170.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:34CE8B324E9F18F05F753ADBB2E07D692887BCE0
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67171.jpgsave_picture_67171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67171.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Ghost Brigade - Studio Albums (4 releases) (2007-2014) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67172.jpgsave_picture_67172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67172.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:632E934776AC7C54D18B00736CE482D66E4EC978
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67173.jpgsave_picture_67173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67173.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:7DA2447B104A6A07364812F9E2105C2B3768710A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67174.jpgsave_picture_67174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67174.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:6715F7028AE4EAA0FE52133FB4855CFAB3C9EAF0
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67175.jpgsave_picture_67175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67175.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:DAD24574A068FD43B2206F73FA064DCF1174737C
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67176.jpgsave_picture_67176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67176.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:3AEF99241314341D3C087B30631E62FB801EFC9A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67177.jpgsave_picture_67177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67177.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ magnet:?xt=urn:btih:0A20F869EF6A94D88826FD125B577E6406FB8DE7
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67178.jpgsave_picture_67178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67178.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Jus' Blues 25th Anniversary Legends Collection (2025) [FLAC|Lossless|WEB-DL
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67179.jpgsave_picture_67179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67179.jpg" />
 </div>
 
 

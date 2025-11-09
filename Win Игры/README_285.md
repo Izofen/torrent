@@ -6,7 +6,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247045.jpgsave_picture_247045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247045.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Airborne Kingdom (2022) [Multi] (1.10.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247056.jpgsave_picture_247056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247056.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247061.jpgsave_picture_247061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247061.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ A Total War Saga: Thrones of Britannia (2018) [Ru/En] (1.2.3/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247092.jpgsave_picture_247092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247092.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Necrosmith (2022) [Ru/Multi] (1.3.0.285) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247093.jpgsave_picture_247093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247093.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Thymesia (2022) [Ru/Multi] (21.24723) License GOG [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247105.jpgsave_picture_247105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247105.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Moonscars (2022) [Multi] (1.6.009) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247235.jpgsave_picture_247235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247235.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Bookwalker: Thief of Tales (2023) [Ru/Multi] (23.6.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247273.jpgsave_picture_247273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247273.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Dave the Diver (2023) [Multi] (u1.0.0.933) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247288.jpgsave_picture_247288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247288.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Simulacrum (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247307.jpgsave_picture_247307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247307.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Undead Horde (2019) [Ru/Multi] (1.2.2) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247362.jpgsave_picture_247362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247362.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247371.jpgsave_picture_247371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247371.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247373.jpgsave_picture_247373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247373.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2168) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247388.jpgsave_picture_247388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247388.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ A Game of Thrones: The Board Game (2020) [Multi] (1.1.0.1494/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247393.jpgsave_picture_247393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247393.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247446.jpgsave_picture_247446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247446.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247447.jpgsave_picture_247447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247447.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack DjDI
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247450.jpgsave_picture_247450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247450.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247472.jpgsave_picture_247472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247472.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Crying Suns (2019) [Ru/Multi] (3.0.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247520.jpgsave_picture_247520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247520.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247536.jpgsave_picture_247536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247536.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [Ru/Multi] (4.52.36
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247544.jpgsave_picture_247544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247544.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Evil West (2022) [Ru/Multi] (0.48) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247595.jpgsave_picture_247595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247595.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ The Captain (2021) [Multi] (1.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247662.jpgsave_picture_247662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247662.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247671.jpgsave_picture_247671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247671.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.7.3 C) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247674.jpgsave_picture_247674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247674.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132412.jpgsave_picture_132412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132412.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132414.jpgsave_picture_132414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132414.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Boot CD USB Sergei Strelec 2013 v.1.1 (2012) (Pусский + Aнглийски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132415.jpgsave_picture_132415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132415.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Ahmad Jamal - Emerald City Nights: Live At The Penthouse (1963, 1964) 2CD, 2022,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132416.jpgsave_picture_132416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132416.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:8529DCF63942F440AEF6D7D9EF5D5868FCD4B952
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132418.jpgsave_picture_132418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132418.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:402EF5C86DFEA25AE680716A03CFE01C4BA69C58
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132419.jpgsave_picture_132419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132419.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132420.jpgsave_picture_132420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132420.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:F5069A42243FF6D335709A692482CC30BCB265D7
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132422.jpgsave_picture_132422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132422.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:20D2AB382E3917FCF31AF5EB9FD387451674DA65
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132424.jpgsave_picture_132424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132424.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:26FE4751195C80213D90DBAB2B4FDB279E95FD8F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132425.jpgsave_picture_132425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132425.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Night In Gales - Thunderbeast (1998) [APE|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132426.jpgsave_picture_132426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132426.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Autopsy - Ashes, Organs, Blood And Crypts (2023) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132427.jpgsave_picture_132427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132427.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Skeletal Remains - Condemned to Misery (2015) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132428.jpgsave_picture_132428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132428.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Night In Gales - Nailwork (2000) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132429.jpgsave_picture_132429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132429.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Night In Gales - Necrodynamic (2001) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132430.jpgsave_picture_132430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132430.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Toddler Keys 0.97 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132431.jpgsave_picture_132431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132431.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Uninstall Tool 3.2.2 Build 5289 Final Repack (& Portable) by D!akov [Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132432.jpgsave_picture_132432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132432.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Night In Gales - Towards the Twilight (1997) [APE|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132433.jpgsave_picture_132433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132433.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Starer - Wind, Breeze, or Breath (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132435.jpgsave_picture_132435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132435.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:266917CEF42228E1F376781327C405516A7F766C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132436.jpgsave_picture_132436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132436.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Digital Anarchy: Beauty Box Video for AE & Premiere (Windows) 2.0.4 [Англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132437.jpgsave_picture_132437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132437.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Recovery Partition for Acer Aspire E1-521 / Windows 7 Starter (х86) SP1 [рус
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132439.jpgsave_picture_132439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132439.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Recovery Partition for Acer Aspire E1-521 / Windows 7 Starter (х86) SP1 [рус
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132440.jpgsave_picture_132440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132440.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:746115E258C82B662F283784D664CB34B40E73DE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132441.jpgsave_picture_132441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132441.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Skeletal Remains - Beyond the Flesh (2012) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132442.jpgsave_picture_132442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132442.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Wipeout 3 [Wii] [ENG] [NTSC] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132444.jpgsave_picture_132444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132444.jpg" />
 </div>
 
 

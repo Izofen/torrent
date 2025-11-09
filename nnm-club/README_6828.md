@@ -6,7 +6,7 @@ Iron Walrus - Tales Never Told (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludg
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234695.jpgsave_picture_234695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234695.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:A5C64A28E86EA7D625D456853A3936122CBE29F2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234696.jpgsave_picture_234696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234696.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:335EC957B9903D91CE039BA9141818013FAE292D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234697.jpgsave_picture_234697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234697.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:ABBFEB26E6D04B9AD30C36FBE0D6ACD90C98C6CB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234698.jpgsave_picture_234698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234698.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:BD7FC385045AB03224ACF7D55F41BA8A9F16201D
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234699.jpgsave_picture_234699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234699.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:5F74CECB098316EB2C0AB30C0F9122F2716367D3
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234700.jpgsave_picture_234700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234700.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ The Gnomon Workshop, Wojtek Piwowarczyk | Creating Procedural Environments in Ho
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234701.jpgsave_picture_234701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234701.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Музыка для машины Vol.15 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234702.jpgsave_picture_234702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234702.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:3D1BA4DB14E177907C5298CD2E8B7E581C84D301
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234703.jpgsave_picture_234703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234703.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Riotor - Recrudescence of Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234704.jpgsave_picture_234704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234704.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Nana Rashid - Music For Betty (2023) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234705.jpgsave_picture_234705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234705.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Dig Me No Grave - Under The Pyramids (2020) [FLAC|Lossless|image + .cue] <Death 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234706.jpgsave_picture_234706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234706.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Tyranis - Failure to Yield (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234707.jpgsave_picture_234707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234707.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:36FE503C4ECDAED08DB2117E40C730CCA53325C5
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234708.jpgsave_picture_234708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234708.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ VA - The Contemporary Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Improvisat
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234709.jpgsave_picture_234709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234709.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:C4A3CAA02FD472A847EA686B38C67A6689266E87
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234710.jpgsave_picture_234710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234710.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:E0F5532CD6121B2F90ED50C1FA3487B8BE932EC4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234711.jpgsave_picture_234711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234711.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:BBF16B1089C32006F3B6CA4593FBF9CEC3D42B51
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234712.jpgsave_picture_234712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234712.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Perc3ption - Once and for All (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234713.jpgsave_picture_234713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234713.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Caro Emerald - Deleted Scenes From the Cutting Room Floor (Deluxe Edition) (2011
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234714.jpgsave_picture_234714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234714.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hellstompers - Let's Go Stomp (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychobilly,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234715.jpgsave_picture_234715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234715.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:17A34622B1FB681A75D55AFBF43F45448FB86C62
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234716.jpgsave_picture_234716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234716.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Radiant Photo 1.1.1.274 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234717.jpgsave_picture_234717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234717.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ WinCatalog 2023.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234718.jpgsave_picture_234718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234718.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:1A258B9D3E557261FB5E8B687A697ECBCB7660FA
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234719.jpgsave_picture_234719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234719.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Raven - Metal City (2020) [FLAC|Lossless|tracks] <NWOBHM, Heavy Metal, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234720.jpgsave_picture_234720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234720.jpg" />
 </div>
 
 

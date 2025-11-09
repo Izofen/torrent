@@ -6,7 +6,7 @@ Snakeskin - Tunes For My Santimea (2016) [FLAC|Lossless|WEB-DL|tracks] <Industri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108579.jpgsave_picture_108579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108579.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - DJ Hits Vol. 19 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108580.jpgsave_picture_108580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108580.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Bolu2 Death - OBRAVIVA, Vol. 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108581.jpgsave_picture_108581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108581.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - The Deep Collective: Melodic Haze (2024) [FLAC|Lossless|WEB-DL|tracks] <Org
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108582.jpgsave_picture_108582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108582.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Telegram Desktop 5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108583.jpgsave_picture_108583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108583.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ OfficeSuite Pro + PDF v14.5.52368 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108584.jpgsave_picture_108584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108584.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ magnet:?xt=urn:btih:DE171AE1CD91693F409475C7E15EF6023FD66CB1
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108585.jpgsave_picture_108585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108585.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - DJ Hits Volume 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108586.jpgsave_picture_108586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108586.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - DJ Hits Techno Old (1997) [OGG Vorbis|480 Kbps] <Electronic, Techno, Euroda
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108587.jpgsave_picture_108587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108587.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ VA - Trance Fusion Vol. 03 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108588.jpgsave_picture_108588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108588.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VA - DJ Hits Volume 8 (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108589.jpgsave_picture_108589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108589.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ P.O.D. (Payable On Death) - Studio Albums (14 releases) (1994-2024) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108590.jpgsave_picture_108590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108590.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:3674AFD02131E9454ACC28B6741FC99BBF13D2E7
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108591.jpgsave_picture_108591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108591.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Battle Symphony - 1 Album, 4 Singles (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108592.jpgsave_picture_108592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108592.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:2F9A173F97739BFD405A18C6DFDC47638AA06615
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108593.jpgsave_picture_108593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108593.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Silverstein - A Beautiful Place To Drown (2020) [FLAC 2.0|96/24|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108594.jpgsave_picture_108594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108594.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ XYplorer 26.00.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108595.jpgsave_picture_108595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108595.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:4CD956B6FF7CF4F7791804EA8427B9DA6BA55DD2
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108596.jpgsave_picture_108596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108596.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:9E7439A17F1B75F23CF5B33066272E5CCE15A170
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108597.jpgsave_picture_108597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108597.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ed Swick | English Problem Solver (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108598.jpgsave_picture_108598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108598.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Evil - Arktogäa (2006) [MP3|~245 Kbps (V0)] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108599.jpgsave_picture_108599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108599.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:12E2FA1390DF41632BC3C8C97651FA587567F7A3
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108600.jpgsave_picture_108600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108600.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:0386A98198C69B50ECB745B6428E29F3BD4F1E51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108601.jpgsave_picture_108601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108601.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Cymatics - Illusion 1.0.0 VST 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108602.jpgsave_picture_108602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108602.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ FolderSizes 9.6.486 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108603.jpgsave_picture_108603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108603.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ magnet:?xt=urn:btih:DA5A09891E6E02496C4CD948C20482B5E79C0DDE
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108604.jpgsave_picture_108604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108604.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232583.jpgsave_picture_232583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232583.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:09C80DEC6274F84DB6D057E6A4C35B2B04B0FCA8
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232585.jpgsave_picture_232585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232585.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Acromancer - Acromancer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232586.jpgsave_picture_232586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232586.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Stormhaven - Blindsight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232588.jpgsave_picture_232588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232588.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:9926DE36965BF7E4A2BAD60F042F43F4CAE8EF25
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232590.jpgsave_picture_232590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232590.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Permute 3 v.3.10.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232594.jpgsave_picture_232594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232594.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Rune - The End of Nothing (2003) [FLAC|Lossless|tracks] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232595.jpgsave_picture_232595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232595.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Psiphon 3 build 179 (23.05.2023) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232596.jpgsave_picture_232596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232596.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Suffer - Global Warming (1993) EP [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232597.jpgsave_picture_232597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232597.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:BC1C50E6AF89B679E349ED6012715B3FC8442092
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232598.jpgsave_picture_232598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232598.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ doubleTake 2.6.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232600.jpgsave_picture_232600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232600.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:F6F32B31A86AE0126CBA9943C55402501444E11D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232602.jpgsave_picture_232602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232602.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:4932C6F75CD65A71B2A83A4044C19663DFF18E09
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232603.jpgsave_picture_232603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232603.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Findroid | Избранник Башни (Книга 3). Tower Edition (2023) [M
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232605.jpgsave_picture_232605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232605.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Nocturnal Breed - Carry The Beast (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232606.jpgsave_picture_232606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232606.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:285D4B9AD359B24AAFB9FF8C816B0492E39B2F77
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232609.jpgsave_picture_232609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232609.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Eye of the Atlas - Eye of the Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232611.jpgsave_picture_232611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232611.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ RTG. Краснодар - город цветов (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232612.jpgsave_picture_232612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232612.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:9B77D5F4E4592D230D1F5B434D2DEBB8ED30C20D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232613.jpgsave_picture_232613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232613.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:1165FD36726CD8F3D20BDF6DC08FF6CF43EBCCD8
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232615.jpgsave_picture_232615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232615.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Chaos Descent - The Blurry End of an Era (2023) [MP3|320 Kbps] <Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232616.jpgsave_picture_232616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232616.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Runemagick - Beyond the Cenotaph of Mankind (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232618.jpgsave_picture_232618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232618.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Sacred Outcry - Towers Of Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232619.jpgsave_picture_232619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232619.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Coma Waves - Coming To Your Senses (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232621.jpgsave_picture_232621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232621.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Hex Engine - Other People (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232625.jpgsave_picture_232625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232625.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:FB9FD48993849D43CB797AB91B43F189ACBE3B38
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232626.jpgsave_picture_232626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232626.jpg" />
 </div>
 
 

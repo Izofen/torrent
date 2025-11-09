@@ -6,7 +6,7 @@ Gone Rogue (2023) [Ru/Multi] (1.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24673.jpgsave_picture_24673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24673.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24756.jpgsave_picture_24756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24756.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rise of the Ronin (2024) [Ru/Multi] (1.09/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24836.jpgsave_picture_24836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24836.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Other s [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24843.jpgsave_picture_24843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24843.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Legend of Heroes Trails through Daybreak (2023) [Ru/Multi] (1.3.5.0/dlc) Rep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24923.jpgsave_picture_24923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24923.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24953.jpgsave_picture_24953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24953.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tales of Graces f Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack Let'sРlay [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24971.jpgsave_picture_24971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24971.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1655.fb15f73) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25051.jpgsave_picture_25051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25051.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25070.jpgsave_picture_25070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25070.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25247.jpgsave_picture_25247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25247.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Nightfall Comes (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25323.jpgsave_picture_25323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25323.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Visions of Mana (2024) [Multi] (1.0.3.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25332.jpgsave_picture_25332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25332.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ YIIK: A Postmodern RPG (2019) [Multi] (1.5.003) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25398.jpgsave_picture_25398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25398.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:EF1B96965E07D68419FB1B98B51CE874C29C33A0
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25462.jpgsave_picture_25462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25462.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Citizen Sleeper 2: Starward Vector (2025) [En] (1.1.31) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25471.jpgsave_picture_25471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25471.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack Decepticon [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25474.jpgsave_picture_25474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25474.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Book of Hours (2023) [Ru/Multi] (2025.1.a.11/dlc) License GOG [Perpetual Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25489.jpgsave_picture_25489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25489.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Avowed (2025) [Ru/Multi] (1.2.11.0/dlc) Repack Decepticon [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25493.jpgsave_picture_25493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25493.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Wanterlude [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25530.jpgsave_picture_25530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25530.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack FitGirl [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25547.jpgsave_picture_25547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25547.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25585.jpgsave_picture_25585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25585.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Broken Roads (2024) [Ru/Multi] (1.3.14955) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25597.jpgsave_picture_25597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25597.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25677.jpgsave_picture_25677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25677.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25685.jpgsave_picture_25685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25685.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Shift'n Slay (2025) [Ru/Multi] (1.00.00) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25789.jpgsave_picture_25789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25789.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p27.1/dlc) License GO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25803.jpgsave_picture_25803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_25803.jpg" />
 </div>
 
 

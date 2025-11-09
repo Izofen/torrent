@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142639.jpgsave_picture_142639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142639.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wise Care 365 Pro 5.2.3.518 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142640.jpgsave_picture_142640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142640.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142641.jpgsave_picture_142641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142641.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2808BC90708339998EFC719450692B5085C4254D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142642.jpgsave_picture_142642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142642.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ GrabIt 4.930 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142643.jpgsave_picture_142643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142643.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:5F924F3425BD2CFC7468DA9E16ADE3AA5EADDACD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142644.jpgsave_picture_142644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142644.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:E8BD901BCDB7A20F3D663F83C81BFD8DED13200F
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142645.jpgsave_picture_142645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142645.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:8A9AFE81857F7AFC5E3F377F1482C634F604BE18
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142648.jpgsave_picture_142648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142648.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Microsoft Office 2016 Professional/ProPlus + Visio Standard/Pro + Project Standa
 >>Оригинальные версии Office
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142649.jpgsave_picture_142649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142649.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:4D5D294CE9C950282E9F8FC8481C7175B4FBBE23
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142651.jpgsave_picture_142651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142651.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:B231E6A2EEAEED3DAE2359E739A540A74EF76492
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142652.jpgsave_picture_142652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142652.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142653.jpgsave_picture_142653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142653.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Downie 4 v4.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142654.jpgsave_picture_142654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142654.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:47F0C49F68EEEB6CB029013887C5CCCA161C01E3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142655.jpgsave_picture_142655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142655.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:47611C7E0C3F8E5BD76726CF2AA4F05074A5DB15
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142658.jpgsave_picture_142658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142658.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:78DFA6CD4464C6413CCCBD8FFF16F36586B25A3A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142659.jpgsave_picture_142659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142659.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:15369D5A4B52695B82178FDB2888E77056E5831A
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142662.jpgsave_picture_142662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142662.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:EFA6ACE8445BBB610EB60EC1ECD1DBDEA1FD2976
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142663.jpgsave_picture_142663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142663.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Adobe Prelude CC 2015 (v4.1.0) RUS/ENG Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142664.jpgsave_picture_142664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142664.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142665.jpgsave_picture_142665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142665.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142666.jpgsave_picture_142666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142666.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Udo Lindenberg - Stärker als die Zeit Live (2016) Deluxe Edition 3CD [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142669.jpgsave_picture_142669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142669.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:520095384CBB6DAF8657493BA21817B12E638EC8
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142670.jpgsave_picture_142670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142670.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Shin Chuuka Ichiban! | Новый мастер кулинарии [2019, TV, 12 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142671.jpgsave_picture_142671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142671.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Tormented Souls (2021) [Ru/Multi] (Build 7622656) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142673.jpgsave_picture_142673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142673.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:539853599ADA568514321F3A35220A1E74247C55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142674.jpgsave_picture_142674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142674.jpg" />
 </div>
 
 

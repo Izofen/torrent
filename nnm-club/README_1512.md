@@ -6,7 +6,7 @@ VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39667.jpgsave_picture_39667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39667.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lane 8 - Childish (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39668.jpgsave_picture_39668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39668.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Peter Griffin - Step By Step (1981) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39669.jpgsave_picture_39669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39669.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39670.jpgsave_picture_39670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39670.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Italian Restaurant Lounge Music Vol 2 (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39671.jpgsave_picture_39671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39671.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39672.jpgsave_picture_39672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39672.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:070F29A7F7AE788C0FA830CBA2353C17FCD45658
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39673.jpgsave_picture_39673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39673.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ One Man Sound - It's My Life (2021) [FLAC|Lossless|tracks] <Dance, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39674.jpgsave_picture_39674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39674.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Frozen Crown - Studio Albums (5 releases) (2018-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39675.jpgsave_picture_39675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39675.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:8FF40EA7C93198F3AC17161FCFE5F5A8DEE0CC5B
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39676.jpgsave_picture_39676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39676.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ RadioMaximus 2.33.00 (21.10.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39677.jpgsave_picture_39677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39677.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:356383E89635CFF546F79E57493CFB733536F04C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39678.jpgsave_picture_39678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39678.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:97B002A96645FECD4E3568B062236CF0073D341F
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39679.jpgsave_picture_39679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39679.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ magnet:?xt=urn:btih:E418FA1C8FC2945F998713AFBF7BC711DC28F54C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39680.jpgsave_picture_39680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39680.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Display Driver Uninstaller 18.0.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39681.jpgsave_picture_39681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39681.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:1089532690513C44AEA2C4BA72BBF2338BB392D4
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39682.jpgsave_picture_39682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39682.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Imagine 1.7.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39683.jpgsave_picture_39683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39683.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Desktop Calendar 3.17.206.6675 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39684.jpgsave_picture_39684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39684.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:FEFA22AEA34BD649FA0B96AE6E507AD98F82E098
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39685.jpgsave_picture_39685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39685.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ HDCleaner 2.082 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39686.jpgsave_picture_39686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39686.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sarah Vaughan - Crazy And Mixed Up (1987) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39687.jpgsave_picture_39687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39687.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:EC7A099EABA9FB0D895E5B3347417E369AA9D8E5
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39688.jpgsave_picture_39688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39688.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ OneCommander Pro 3.91.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39689.jpgsave_picture_39689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39689.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sarah Vaughan - Come Rain Or Come Shine (2000) [FLAC|Lossless|tracks+.cue]<Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39690.jpgsave_picture_39690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39690.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Music News For Forum vol.034 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39691.jpgsave_picture_39691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39691.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:EAF8A1870869BB4C9B538DE4B51654243B21B3FE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39692.jpgsave_picture_39692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39692.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Fargo - Live In '25 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2900.jpgsave_picture_2900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2900.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Cards I Play - Diamond Avenue (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2901.jpgsave_picture_2901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2901.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Спринт (
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2902.jpgsave_picture_2902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2902.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zoot Sims - Live In Philly (1973) 1998, Jazz Heritage [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2903.jpgsave_picture_2903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2903.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:BE827231A97E7180979E491B8036242361AD4F72
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2904.jpgsave_picture_2904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2904.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Квалифи
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2905.jpgsave_picture_2905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2905.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 13 (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2906.jpgsave_picture_2906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2906.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:107B4051EA14E3BC78775CFB0776210D439EEA99
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2907.jpgsave_picture_2907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2907.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:40DABE4EAC63A13BFB68F427AC6A853D070BDC37
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2908.jpgsave_picture_2908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2908.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:B2012566D9CAB98F7489687F22D379780B69CB01
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2909.jpgsave_picture_2909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2909.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Willie Phoenix - Happy Vibrations (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2910.jpgsave_picture_2910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2910.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Michele Biondi - World Traveler (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2911.jpgsave_picture_2911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2911.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ The Judas Kiss - The Mirror Crack'd (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2912.jpgsave_picture_2912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2912.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Demon Hunter - There Was A Light Here (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2913.jpgsave_picture_2913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2913.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Antonio Vergara - Vergara Street (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2914.jpgsave_picture_2914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2914.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Mikey Junior - Tribute to Aleck "Rice" Miller (Sonny Boy Williamson) (2025) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2915.jpgsave_picture_2915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2915.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:105764766C37119D8B0D0F92E0C58171C90053A0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2916.jpgsave_picture_2916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2916.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:8BE4522D8C5CCE7B788FAEC86EC01B5B68D1A959
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2917.jpgsave_picture_2917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2917.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Stormbreaker - Enlightning (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2918.jpgsave_picture_2918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2918.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Monster Mike Welch - Keep Living Til I Die (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2919.jpgsave_picture_2919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2919.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:DBE42B81A1C928457EB626E21D11D163E55C4ACB
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2920.jpgsave_picture_2920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2920.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:E32EADAB3324C6D407AE5A310C73118CF23F7A2A
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2921.jpgsave_picture_2921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2921.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Exelerate - Hell For The Helpless (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2922.jpgsave_picture_2922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2922.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Carter The Unstoppable Sex Machine - Worry Bomb (1995) Remaster, 2025, Chrysalis
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2923.jpgsave_picture_2923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2923.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Silverstein - Pink Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2924.jpgsave_picture_2924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2924.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Lethernal Utopia - Illusion Of Time (2025) [MP3|320 Kbps] <Black, Death, Doom, H
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2925.jpgsave_picture_2925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2925.jpg" />
 </div>
 
 

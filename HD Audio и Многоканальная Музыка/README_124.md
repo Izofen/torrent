@@ -6,7 +6,7 @@ Anna Prior - Almost Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106841.jpgsave_picture_106841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106841.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bart&Baker - Electro Swing Classics - The Swing Phenomenon (2024) [FLAC 24/48|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106842.jpgsave_picture_106842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106842.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Rawa Blues Band - Night and Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106844.jpgsave_picture_106844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106844.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mike Cahen - Bottle Neck Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106848.jpgsave_picture_106848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106848.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Paul Benjaman Band - My Bad Side Wants a Good Time (2024) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106849.jpgsave_picture_106849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106849.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Quinn Sullivan - Salvation (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106882.jpgsave_picture_106882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106882.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Lag - Asleep Behind the Wheel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106885.jpgsave_picture_106885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106885.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sunbomb - Light Up The Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106888.jpgsave_picture_106888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106888.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kissin Dynamite - Back With A Bang (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106891.jpgsave_picture_106891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106891.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ The Commoners - Restless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106893.jpgsave_picture_106893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106893.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ DS Caw - Nothing To Fight For (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106897.jpgsave_picture_106897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106897.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Goodbye June - Deep in the Trouble (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106902.jpgsave_picture_106902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106902.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Louis Hayes - Artform Revisited (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106907.jpgsave_picture_106907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106907.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Scarlet Bandit - Lose Your Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106908.jpgsave_picture_106908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106908.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:723D48AB6BB4FE20A50CB74C53C9C76B95B460B0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106911.jpgsave_picture_106911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106911.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Madison Galloway - Madison Galloway (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106926.jpgsave_picture_106926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106926.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Dreaded Laramie - Princess Feedback (2024) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106946.jpgsave_picture_106946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106946.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Yellow House - Psalms of Yellow House (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106948.jpgsave_picture_106948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106948.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Faber - Addio (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106950.jpgsave_picture_106950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106950.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106951.jpgsave_picture_106951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106951.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106952.jpgsave_picture_106952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106952.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Fink - Beauty In Your Wake (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Fol
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106961.jpgsave_picture_106961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106961.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Buddha Chill House & Dj. Juliano BGM - Buddha Open Bar: Summer in Hotel, Party o
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106974.jpgsave_picture_106974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106974.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Carpathian Forest - Through Chasm, Caves And Titan Woods (1995) EP, Reissue, 201
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106977.jpgsave_picture_106977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106977.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Enter Shikari - Dancing On The Frontline (2024) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106998.jpgsave_picture_106998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106998.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Sinistrous Diabolus - Total Doom / Desecration (2013) [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107001.jpgsave_picture_107001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107001.jpg" />
 </div>
 
 

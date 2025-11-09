@@ -6,7 +6,7 @@
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81926.jpgsave_picture_81926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81926.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Space Sieged (L) [En] 2012
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82016.jpgsave_picture_82016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82016.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pure [Ru] (RePack) 2008 | Naitro
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82120.jpgsave_picture_82120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82120.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C0562EA218081B3B46E17A0D0AE752F77720D4CF
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82145.jpgsave_picture_82145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82145.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Command & Conquer: Red Alert 3 Uprising [Ru] (Rip) 2009 | Fenixx
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82157.jpgsave_picture_82157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82157.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Silent Nights: The Pianist Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82195.jpgsave_picture_82195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82195.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Mystery Chronicles: Murder Among Friends / Загадочное происшес
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82598.jpgsave_picture_82598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82598.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tunes Jungle Adventure / Нотки: Приключения в джунглях 
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82638.jpgsave_picture_82638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82638.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Mobiloid (L) [En] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82685.jpgsave_picture_82685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82685.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Columnof the Maya / Тайна сокровищ майя (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82687.jpgsave_picture_82687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82687.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition / Аген
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82694.jpgsave_picture_82694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82694.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Awakening: The Dreamless Castle / Пробуждение. Заколдованн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82708.jpgsave_picture_82708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82708.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82734.jpgsave_picture_82734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82734.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82758.jpgsave_picture_82758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82758.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82983.jpgsave_picture_82983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82983.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Time Chronicles: The Missing Mona Lisa (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83039.jpgsave_picture_83039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83039.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Turbo Gems (P) [En] 2010
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83041.jpgsave_picture_83041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83041.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Cubis Gold 2 (P) [En] 2008
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83072.jpgsave_picture_83072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83072.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Dream Mysteries: Case of the Red Fox / Тайны грёз: История ры�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83078.jpgsave_picture_83078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83078.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ And Then There Were None / И не осталось никого... (L) [Ru/En] 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83114.jpgsave_picture_83114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83114.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:7C9C0CE83B39D6CE0C683A213FDC9C303767422A
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83143.jpgsave_picture_83143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83143.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Easter Eggztravaganza (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83200.jpgsave_picture_83200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83200.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Amulet of Time: Shadow of La Rochelle / Путешествие во времен
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83307.jpgsave_picture_83307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83307.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 200
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83328.jpgsave_picture_83328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83328.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Dustforce [En] (RePack) 2012 | Anonymous
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83364.jpgsave_picture_83364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83364.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Allods Online Astral Demons / Аллоды Онлайн Astral Demons [Ru] (P) 2
 >>Online (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83386.jpgsave_picture_83386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83386.jpg" />
 </div>
 
 

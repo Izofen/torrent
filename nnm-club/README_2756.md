@@ -6,7 +6,7 @@ Dr.Web Security Space  7.0.1.2061 Final Ml/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75344.jpgsave_picture_75344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75344.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Dr.Web Security Space  7.0.1.2061 Final Ml/Rus
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75346.jpgsave_picture_75346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75346.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dr.Web Security Space  7.0.1.2061 Final Ml/Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75352.jpgsave_picture_75352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75352.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75356.jpgsave_picture_75356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75356.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75362.jpgsave_picture_75362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75362.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Dr.Web Anti-Virus Dr.Web 7.0.1.02060 Final ML/Rus
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75365.jpgsave_picture_75365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75365.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Ju-On The Grudge [Wii] [PAL] [Eng/De] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75370.jpgsave_picture_75370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75370.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D2E46BAF7BBD371AEB25BA690705EF9C736AD3AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75375.jpgsave_picture_75375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75375.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:36A196C1829C2C5A6EA903D843DEF085C98E7A5B
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75376.jpgsave_picture_75376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75376.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ MKVToolnix 5.3.0 + Portable [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75379.jpgsave_picture_75379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75379.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ MKVToolnix - специальный аудио/видео контейнер, п
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75380.jpgsave_picture_75380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75380.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:AAE8E053D6ED6F8B7422B1CD19FA7053871F67FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75381.jpgsave_picture_75381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75381.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:97025090030F9F9A193F62BD205240F79AD3F874
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75383.jpgsave_picture_75383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75383.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Discogs(   Читать дальше...   )CD 1:
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75391.jpgsave_picture_75391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75391.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Windows XP by Rushen 12.2 Minimal Edition [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75392.jpgsave_picture_75392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75392.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Windows XP by Rushen 12.2 Minimal Edition [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75394.jpgsave_picture_75394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75394.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Windows XP Service Pack 3 (2010 Seven eXPanded Final by Omega Elf) [Русски
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75399.jpgsave_picture_75399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75399.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Windows XP Service Pack 3 (2010 Seven eXPanded Final by Omega Elf) [Русски
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75402.jpgsave_picture_75402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75402.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ StartSoft WPI x32 x64 v 2.2.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75408.jpgsave_picture_75408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75408.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ StartSoft WPI x32 x64 v 2.2.12 [Русский]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75412.jpgsave_picture_75412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75412.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ StartSoft WPI x32 x64 v 2.2.12 [Русский]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75413.jpgsave_picture_75413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75413.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:A0977948B486851AB29736B96E90DFACCF54A72F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75421.jpgsave_picture_75421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75421.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:64051E5CEA634AE44CBCA5CB83E923CA87165E3A
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75430.jpgsave_picture_75430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75430.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:F137C70178D2D3845CFD1D80D61539F89CFAC468
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75439.jpgsave_picture_75439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75439.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75440.jpgsave_picture_75440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75440.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75447.jpgsave_picture_75447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75447.jpg" />
 </div>
 
 

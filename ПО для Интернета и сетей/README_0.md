@@ -6,7 +6,7 @@ Aignes WebSite-Watcher 2023 23.4.0.101 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1310.jpgsave_picture_1310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1310.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 10.1 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1540.jpgsave_picture_1540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1540.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ MetaProducts Offline Explorer Enterprise 8.8.0.5004 RePack (& Portable) by elchu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1676.jpgsave_picture_1676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1676.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Any Video Downloader Pro 9.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1683.jpgsave_picture_1683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1683.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ MyLanViewer 6.5.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1686.jpgsave_picture_1686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1686.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1706.jpgsave_picture_1706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1706.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Tor Browser Bundle 14.5.7 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1916.jpgsave_picture_1916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1916.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ MassTube Ultra 21.0.2.164 RePack (& Portable) by Dodakaedr [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2201.jpgsave_picture_2201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2201.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Google Earth Pro 7.3.6.10441 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2237.jpgsave_picture_2237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2237.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ By Click Downloader Premium 2.4.24 RePack (& Portable) by elchupacabra [Multi/Ru
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2326.jpgsave_picture_2326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2326.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Firefox Browser 143.0 Portable by PortableApps [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2342.jpgsave_picture_2342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2342.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ By Click Downloader Premium 2.4.24 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2352.jpgsave_picture_2352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2352.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Firefox Browser 143.0 [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2359.jpgsave_picture_2359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2359.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FreeTube 0.23.9 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2680.jpgsave_picture_2680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2680.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ iDownerGo Video Downloader 10.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3019.jpgsave_picture_3019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3019.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Download Master 7.2.1.1737 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3223.jpgsave_picture_3223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3223.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ MyLanViewer 6.5.8 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3350.jpgsave_picture_3350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3350.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ iTubeGo YouTube Downloader 10.8.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3377.jpgsave_picture_3377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3377.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ AnyDesk 9.6.1 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3400.jpgsave_picture_3400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3400.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Telegram Desktop 6.1.3 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3931.jpgsave_picture_3931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3931.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ RustDesk 1.4.2 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3949.jpgsave_picture_3949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3949.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Apowersoft Video Download Capture 6.6.0.0 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4174.jpgsave_picture_4174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4174.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:2C917D8BCA46D3225E0B57AA389FABB218C32A80
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4355.jpgsave_picture_4355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4355.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ BigLyBT 3.9 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4501.jpgsave_picture_4501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4501.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ceno Browser Alpha 0.0.4 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4732.jpgsave_picture_4732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4732.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Lacey 3.07 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4860.jpgsave_picture_4860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4860.jpg" />
 </div>
 
 

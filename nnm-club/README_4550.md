@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142379.jpgsave_picture_142379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142379.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142380.jpgsave_picture_142380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142380.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BlueStacks App Player 4.32.90.1001 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142382.jpgsave_picture_142382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142382.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ AnyMP4 iOS Toolkit for Mac 9.1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142383.jpgsave_picture_142383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142383.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ MAVEN Music Player Pro 2.48.39 [Ru] - Аудио плеер
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142385.jpgsave_picture_142385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142385.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Password Recovery Bundle 2019 Enterprise Edition 5.2 RePack (& Portable) by elch
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142386.jpgsave_picture_142386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142386.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:3300313D43885558F9935DE2A81100E2E1B75F14
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142388.jpgsave_picture_142388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142388.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:48A04972CD45870781E394F804F92FC0DAB2C4DF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142389.jpgsave_picture_142389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142389.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:5DA2B2CA77B72B7CB1724C6640A2B5B74D341913
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142390.jpgsave_picture_142390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142390.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Animal Planet: Удивительный мир животных (часть 2) /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142392.jpgsave_picture_142392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142392.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142393.jpgsave_picture_142393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142393.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Martian's Gift, vol. 2 (2021) [AAC|~319 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142394.jpgsave_picture_142394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142394.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ JixiPix Premium Pack 1.2.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142395.jpgsave_picture_142395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142395.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:89731DC8AF842635AD90421F833ECBE05E5B0F42
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142396.jpgsave_picture_142396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142396.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Music Lovers Club #003 (2021) [AAC|~290 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142399.jpgsave_picture_142399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142399.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142400.jpgsave_picture_142400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142400.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142401.jpgsave_picture_142401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142401.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:BD51D2CA58B2F54286599D7B06E741C242536019
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142402.jpgsave_picture_142402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142402.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:C2345058B2DB7250C2F08C0E7A55D5930859822B
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142404.jpgsave_picture_142404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142404.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AI RoboForm Enterprise 7.9.17.5 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142405.jpgsave_picture_142405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142405.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:D46D4B9672A46843AD43CCEC7BCA1E4F0D783770
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142406.jpgsave_picture_142406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142406.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:6CC8F22A0529CBFC20755F05D0EEE2105B879BF8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142407.jpgsave_picture_142407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142407.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Music Lovers Club #001 (2019) [AAC|~295 Kbps] <Deep House, Downtempo, Trip 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142408.jpgsave_picture_142408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142408.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ George Michael - December Song (I Dreamed of Christmas) EP (2009) [AAC|256 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142409.jpgsave_picture_142409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142409.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Maxthon Browser 5.1.5.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142410.jpgsave_picture_142410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142410.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:25C66D5641008ABDB9C1C8367505A251E9CBF35C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142411.jpgsave_picture_142411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142411.jpg" />
 </div>
 
 

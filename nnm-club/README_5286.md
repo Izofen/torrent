@@ -6,7 +6,7 @@
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164244.jpgsave_picture_164244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164244.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3A743A3E08D3BDBD566E9BC4B55817A24E3D6F47
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164245.jpgsave_picture_164245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164245.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:5D6BFE8370987F03FF5CD013842B753514908B5E
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164246.jpgsave_picture_164246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164246.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:DF16F07DC92A7242108DA05D6658998D43B2BC4C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164247.jpgsave_picture_164247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164247.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Google Chrome 79.0.3945.88 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164248.jpgsave_picture_164248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164248.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ simplewall 3.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164249.jpgsave_picture_164249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164249.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:F9E6A1DEBE36B875D6F045C6BE040CF30E6DEBA6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164250.jpgsave_picture_164250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164250.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Hurricane Red - Smokin' (2020) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164251.jpgsave_picture_164251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164251.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Highway Horizon - Twilight Dimension (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164252.jpgsave_picture_164252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164252.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ TagScanner 6.1.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164253.jpgsave_picture_164253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164253.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Acoustica Premium Edition 7.5.2 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164254.jpgsave_picture_164254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164254.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ AnyDroid 7 v.7.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164255.jpgsave_picture_164255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164255.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:EBA032D60DEC5F831ECAA2E821EBF19E5ACD0AFD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164256.jpgsave_picture_164256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164256.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Viber 21.3.0.0 (x64) RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164257.jpgsave_picture_164257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164257.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Topaz Photo AI 2.0.7 (x64) + All Models Portable by FC Portables [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164258.jpgsave_picture_164258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164258.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:4AC7FC0B0257D5F47E0D1C1455CD00626DAB4EB4
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164259.jpgsave_picture_164259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164259.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Google Chrome 119.0.6045.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164260.jpgsave_picture_164260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164260.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:296D1D6C198BDC2D7CA5F1D9EDE0723001528F99
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164261.jpgsave_picture_164261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164261.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:96C379DC13D54A0874E32E9461F5D6CD374F0FF0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164262.jpgsave_picture_164262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164262.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ ON1 Photo RAW 2024 v.18.0.3.14689  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164263.jpgsave_picture_164263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164263.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:7038FC4BC52B1A64620FE105887F5685A05112C1
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164264.jpgsave_picture_164264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164264.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Wondershare UniConverter for Mac 15.0.4 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164265.jpgsave_picture_164265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164265.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:59BEB507C764CD0E09142E268F2A95B695C4B545
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164266.jpgsave_picture_164266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164266.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:A464BE7AF66700DD6AC2FB7FE488C69DC42E14A3
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164267.jpgsave_picture_164267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164267.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Cocktail Catalina Edition 13.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164268.jpgsave_picture_164268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164268.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ CPU-Z (Mobile) v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164269.jpgsave_picture_164269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164269.jpg" />
 </div>
 
 

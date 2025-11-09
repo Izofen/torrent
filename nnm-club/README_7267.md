@@ -6,7 +6,7 @@ Jane Air - 9 (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248590.jpgsave_picture_248590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248590.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:99F2E2FDDF8122E9D28C7436C808A794816613A3
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248591.jpgsave_picture_248591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248591.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zmey Gorynich - Странствiя Рукоблуда и сестры его М
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248592.jpgsave_picture_248592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248592.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Pixarra TwistedBrush Pro Studio v18.16 Final [Английский + Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248593.jpgsave_picture_248593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248593.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Ibiza Winter Island 2026 (The Chill Out Edition) (2025) [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248594.jpgsave_picture_248594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248594.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:BE5E884A8D25E602A48187B600695BD45AA7A712
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248595.jpgsave_picture_248595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248595.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:5E1335629F77C15AFB0D57E4F5FEA292F2E8359A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248597.jpgsave_picture_248597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248597.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248599.jpgsave_picture_248599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248599.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:B174B9D9220CCD1BA05BBFAD799D4D0FFE0752C3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248600.jpgsave_picture_248600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248600.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Ventusky: Прогноз погоды v48.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248601.jpgsave_picture_248601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248601.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:A0A5B4F7E5A4EF46FDE10920EBB05D3BC8966A2E
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248602.jpgsave_picture_248602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248602.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Shanghai Dragon [En] (RePack) 2003 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248603.jpgsave_picture_248603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248603.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Five Finger Death Punch - Got Your Six (2015) Deluxe Edition, Prospect Park [FLA
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248604.jpgsave_picture_248604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248604.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [FLAC 24/48
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248606.jpgsave_picture_248606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248606.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Vertex, Дмитрий Зиновьев | Основы конструирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248608.jpgsave_picture_248608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248608.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Various Artists - Endzeit Bunkertracks (Act I-V) - 5 albums (2005-2010) [mp3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248609.jpgsave_picture_248609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248609.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:D02C47CC545925BD301B9519835587013AE6787B
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248610.jpgsave_picture_248610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248610.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:83E1F47606B0FFB0FC5496B4C8095B2A1EBEBD3A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248611.jpgsave_picture_248611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248611.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:83E1F47606B0FFB0FC5496B4C8095B2A1EBEBD3A
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248612.jpgsave_picture_248612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248612.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Fast Video Cutter Joiner 6.9.2.0 Portable by 7997 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248614.jpgsave_picture_248614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248614.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:65895EF29BEFA8904793EE17C581F12D42F1E3A8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248615.jpgsave_picture_248615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248615.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248616.jpgsave_picture_248616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248616.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248618.jpgsave_picture_248618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248618.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Beyond the Kingdom 2 / За пределами королевства 2 (2025) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248619.jpgsave_picture_248619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248619.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:00326E6D2C96BFC682F897236AA0181681E5D11D
 >>Отечественные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248620.jpgsave_picture_248620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248620.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:0B10DB08038B277B8C13C534282AA8F9127F59FE
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248621.jpgsave_picture_248621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_248621.jpg" />
 </div>
 
 

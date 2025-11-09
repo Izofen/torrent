@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83181.jpgsave_picture_83181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83181.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Heroes of Might and Magic V: Gold Edition / Heroes of Might and Magic V: Зол�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83183.jpgsave_picture_83183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83183.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows7 Ultimate AUZsoft RED x64x86 v.8.12. [RUS]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83189.jpgsave_picture_83189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83189.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Counter-Strike: Source v70 {09.02.2012} (P) [Multi11] 2004
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83190.jpgsave_picture_83190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83190.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3265C69431AA5E8AA177386F599DB63B5630064D
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83191.jpgsave_picture_83191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83191.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:05E03B0DD0CDAB42BEC6C0F8E9F043565D3AC32A
 >>Ported *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83193.jpgsave_picture_83193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83193.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83194.jpgsave_picture_83194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83194.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83195.jpgsave_picture_83195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83195.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Ennio Morricone - Live in Venice (2007) Upmix [DTS 5.1|44.1/24 WAVE|tracks] <Ins
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83197.jpgsave_picture_83197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83197.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:45C647A88DE47F74C891643380B423A818D5EA39
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83198.jpgsave_picture_83198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83198.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Easter Eggztravaganza (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83200.jpgsave_picture_83200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83200.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83201.jpgsave_picture_83201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83201.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83203.jpgsave_picture_83203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83203.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:DC355D1D229D77908130C5C729D75B03E67CA7B3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83204.jpgsave_picture_83204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83204.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:7EBBA582AE524E4A33642277451E759D76551CDB
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83206.jpgsave_picture_83206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83206.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA -  Erotic Bar and Chill Out Lounge 55.1 (2012) [MP3|320 kbps]<Chillout | Down
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83207.jpgsave_picture_83207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83207.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:081682FAB3BC26600BCD97B6522D9B900B2FDED6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83208.jpgsave_picture_83208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83208.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:7554B7C8366AE129202DD5D78CA8CC345619375A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83209.jpgsave_picture_83209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83209.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:01F1DDFC1563DD4C2D89FD3CAC209A4D114D77C0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83210.jpgsave_picture_83210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83210.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Горячий Союз Русский (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83211.jpgsave_picture_83211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83211.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Protozoa 2.0 Interstellar Evolution (2012) [MP3|320 кб/с]<GOA Trance, Ni
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83212.jpgsave_picture_83212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83212.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:49FE73A7ED933D2F82086588A12AF1DD859D68CF
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83214.jpgsave_picture_83214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83214.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Танцевальный топ радиостанций Зарубежны
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83218.jpgsave_picture_83218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83218.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ministry - Relapse (2012) [MP3|~245 кб/с (V0)]<Industrial Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83219.jpgsave_picture_83219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83219.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:AF82BA869C97D39CEF9BD287F5E04EEFF3B8E390
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83220.jpgsave_picture_83220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83220.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ magnet:?xt=urn:btih:EB2C53901D786D03B2A2E8E33FA1DA9731CFBDD6
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83221.jpgsave_picture_83221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83221.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ GPU-Z 2.68.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7874.jpgsave_picture_7874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7874.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Double Commander 1.1.28 gamma + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7894.jpgsave_picture_7894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7894.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ GPU-Z 2.68.0 RePack by druc [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7919.jpgsave_picture_7919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7919.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ WinTools.net Premium 25.9.1 Premium RePack (& Portable) by elchupacabra [Multi/R
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7926.jpgsave_picture_7926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7926.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Hetman Partition Recovery 5.1 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7942.jpgsave_picture_7942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7942.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Notepad++ 8.8.5 Final + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7949.jpgsave_picture_7949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7949.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ashampoo WinOptimizer 28.00.13 RePack (& Portable) by elchupacabra [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8126.jpgsave_picture_8126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8126.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Office Tool Plus 10.25.54.0 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8142.jpgsave_picture_8142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8142.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Uptooda 1.4.4 Build 5388 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8143.jpgsave_picture_8143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8143.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ HWiNFO 8.30 Build 5800 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8324.jpgsave_picture_8324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8324.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Bandicam 8.2.0.2523 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8454.jpgsave_picture_8454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8454.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Greenshot 1.3.296 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8487.jpgsave_picture_8487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8487.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Recordify 2025.10.04 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8524.jpgsave_picture_8524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8524.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Abelssoft PC Fresh 2026 12.01.66033 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8526.jpgsave_picture_8526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8526.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Opera One 122.0.5643.92 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8532.jpgsave_picture_8532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8532.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Chromium-GOST 140.0.7339.208 + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8535.jpgsave_picture_8535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8535.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Hekasoft Backup & Restore 0.99.1 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8542.jpgsave_picture_8542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8542.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ opencode 0.13.5 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8581.jpgsave_picture_8581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8581.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tenorshare 4DDiG 10.5.8.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8616.jpgsave_picture_8616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8616.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Universal Media Server 15.0.0 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8619.jpgsave_picture_8619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8619.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Hetman Partition Recovery 5.1 Unlimited Edition RePack (& Portable) by elchupaca
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8702.jpgsave_picture_8702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8702.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Total Commander 11.55 MAX-Pack 2025.08.04 by Mellomann [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8735.jpgsave_picture_8735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8735.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Cent Browser 5.2.1168.74 Portable by Cento8 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8736.jpgsave_picture_8736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8736.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Aiseesoft FoneLab for Android 5.1.12 RePack (& Portable) by elchupacabra [Multi/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8829.jpgsave_picture_8829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8829.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Lossless Scaling 3.2.1 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8861.jpgsave_picture_8861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8861.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Reg Organizer 9.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8880.jpgsave_picture_8880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8880.jpg" />
 </div>
 
 

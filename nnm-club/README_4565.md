@@ -6,7 +6,7 @@ Computer Desktop Wallpapers Collection (16.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142875.jpgsave_picture_142875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142875.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Wondershare Filmora Effect Packs 4 RePack by elchupacabra [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142877.jpgsave_picture_142877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142877.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Comedy Woman (27.12.2019) WEB-DL [H.264/1080p-LQ] (сезон 9, выпуск 14
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142878.jpgsave_picture_142878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142878.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:314290344C1DFB253BF13C4333BE4A9A28B04EA3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142879.jpgsave_picture_142879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142879.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:E77028891C0588CCBA30CEF3048E6ECBB90FA845
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142880.jpgsave_picture_142880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142880.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Wish You Well: RnB Collection (2018) [MP3|320 Kbps] <R&B, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142882.jpgsave_picture_142882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142882.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:0F634799EA557779382CCD62FC4850546E661469
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142883.jpgsave_picture_142883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142883.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:9CBBFA736E8F271E5BD687186DB356A287B1951D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142884.jpgsave_picture_142884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142884.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7A3098EF09AFC95CBBA3436230CA2886EA68D4B8
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142885.jpgsave_picture_142885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142885.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:2BB90699459EE13EEDBFF5015559E6276EBCB480
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142886.jpgsave_picture_142886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142886.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ R-Studio 7.8 Build 160621 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142887.jpgsave_picture_142887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142887.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:4FFC2EB511EF71538E0C39F5B2F38050834A93EA
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142888.jpgsave_picture_142888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142888.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:1FA05CF8061276CB47B2FE2714223D9AD44DE02E
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142889.jpgsave_picture_142889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142889.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:280ACFD28C5E5F4478ADCFAB5DC63D4C0C401DEC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142890.jpgsave_picture_142890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142890.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:ACFBB4D41CE5EDE4F474406D4E23A53A2B6253B7
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142891.jpgsave_picture_142891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142891.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:DEB60C570CB440B8AE71B7234246A234193943B0
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142893.jpgsave_picture_142893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142893.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:8D143A38F75D19E5E74E60E4B9D240580E862B3D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142894.jpgsave_picture_142894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142894.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:DA4586FA3587D1C66DE43E255E0D5A83BBCE9A94
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142895.jpgsave_picture_142895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142895.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:B42C1BA5750CDFF03583107634A7C30B2C229FF2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142896.jpgsave_picture_142896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142896.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:2410E8E0EC40518C67050E230A5363A888EF19C6
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142897.jpgsave_picture_142897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142897.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:6197B8F7F148E490310B8AA6563BCB3590CBF5B2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142898.jpgsave_picture_142898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142898.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:705F91D731AF550A6DCDE40479893CF9540D219C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142899.jpgsave_picture_142899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142899.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mama wa Shougaku Yonensei / Mama is a 4th Grader / Мама-четверокла
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142900.jpgsave_picture_142900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142900.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ USDownloader 1.3.5.9 Portable (28.12.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142901.jpgsave_picture_142901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142901.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:E7EE1E2F6D9FB07986F9D9A196500C85DC879AF6
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142902.jpgsave_picture_142902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142902.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142903.jpgsave_picture_142903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_142903.jpg" />
 </div>
 
 

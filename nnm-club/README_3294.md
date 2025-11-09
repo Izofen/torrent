@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106005.jpgsave_picture_106005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106005.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Mojito Lounge Beats 2024: Best of Tropical & Deep House (2024) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106006.jpgsave_picture_106006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106006.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:3E7166B559E989590FA4339CDB7B994DE8AB2E87
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106007.jpgsave_picture_106007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106007.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:1E216729D4BEE51F329D2F6D5EDCFFB4B01729DC
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106008.jpgsave_picture_106008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106008.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:8BAA710D3E201DFAA7A0A65602333527030F097B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106009.jpgsave_picture_106009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106009.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:BB937B975A54F986DC3CA122C216BB8D74A10A1C
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106010.jpgsave_picture_106010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106010.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:13A4C37688D61BDF9FA69ACACD214DB71A33675A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106011.jpgsave_picture_106011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106011.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Metal Church - The Final Sermon (2024) Live In Japan 2019 [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106012.jpgsave_picture_106012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106012.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:A47EF875F4B677A86850B0D524962FB3FA3A019F
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106013.jpgsave_picture_106013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106013.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Abyssphere - Studio Albums (5 releases) (2008-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106014.jpgsave_picture_106014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106014.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Smells Ai Music Project - Broken Hopes (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106015.jpgsave_picture_106015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106015.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mammoth WVH - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106016.jpgsave_picture_106016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106016.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Grace Potter - Grace Potter's Road Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106017.jpgsave_picture_106017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106017.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - The Soulful Rhythm And Blues (2023) [MP3|320 Kbps] <RnB, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106018.jpgsave_picture_106018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106018.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Firefox Browser 128.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106019.jpgsave_picture_106019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106019.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:BBE99898A51D02432D2E9592309625BBF879C14B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106020.jpgsave_picture_106020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106020.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:B5C03A115E74419FFE6E27F61EA5BC1E45B07AEB
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106021.jpgsave_picture_106021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106021.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:19542A41107A4093AF6D8A07B580732E261C147D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106022.jpgsave_picture_106022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106022.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ PrivaZer Pro 4.0.91 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106023.jpgsave_picture_106023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106023.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ MediaHuman YouTube to MP3 Converter 3.9.9.94 (0726) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106024.jpgsave_picture_106024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106024.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Hooverphonic - Fake Is The New Dope (2024) [FLAC|Lossless|tracks + .cue] <Trip-h
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106025.jpgsave_picture_106025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106025.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Perfectly Clear WorkBench 4.6.1.2681 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106026.jpgsave_picture_106026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106026.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ocenaudio 3.14.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106027.jpgsave_picture_106027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106027.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпу�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106028.jpgsave_picture_106028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106028.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Photo Studio Premium v2.7.8.3067 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106029.jpgsave_picture_106029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106029.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Gloria Gaynor - Never Can Say Goodbye (2005) [WavPack|Lossless|image + .cue] <Po
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106030.jpgsave_picture_106030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106030.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Perfecto Black: The Sound of the Underground (2024) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105090.jpgsave_picture_105090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105090.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Carter the Unstoppable Sex Machine - Post Historic Monsters (1983) Remaster, 202
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105118.jpgsave_picture_105118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105118.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Andrea Giuditta - Code-258 (2019) [FLAC|Lossless|tracks] <Techno, Peak Time Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105162.jpgsave_picture_105162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105162.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VA - Balearic Bar & Beach Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105167.jpgsave_picture_105167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105167.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ VA - Armin van Buuren - A State Of Trance 1187 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105203.jpgsave_picture_105203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105203.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Trance Summer 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105262.jpgsave_picture_105262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105262.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Top July 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105274.jpgsave_picture_105274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105274.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Qika - I'm So Excited (2010) [FLAC|Lossless|tracks] <House, Italo House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105315.jpgsave_picture_105315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105315.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105352.jpgsave_picture_105352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105352.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Kalax - LOST (2024) [MP3|320 Kbps] <Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105353.jpgsave_picture_105353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105353.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - Black Hole Trance Music 08-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105369.jpgsave_picture_105369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105369.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Armin van Buuren - A State Of Trance 1186 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105370.jpgsave_picture_105370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105370.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Black Hole House Music 08-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105376.jpgsave_picture_105376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105376.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Untold Festival 2024 + Reflectio
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105393.jpgsave_picture_105393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105393.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Erasure - Chorus  (1991) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105409.jpgsave_picture_105409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105409.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Neon Retro 5Th Anniversary (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105411.jpgsave_picture_105411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105411.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Hoc Eritis - What we will be (complete edition) (2024) [MP3|~245 Kbps (V0)] <Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105455.jpgsave_picture_105455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105455.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ MEDUZA - Radio 1's Essential Mix (2024-07-13) [MP3|~245 Kbps (V0)] <Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105458.jpgsave_picture_105458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105458.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Metroland - Forum (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal Electro, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105482.jpgsave_picture_105482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105482.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - SkyFall Summer 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105484.jpgsave_picture_105484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105484.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Mondmann - Celestial Shifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105488.jpgsave_picture_105488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105488.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ian - Minden Eletemben (2024) [MP3|~245 Kbps (V0)] <Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105489.jpgsave_picture_105489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105489.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Fernruf.Berlin (Дистанционный Звонок В Берлин) - 1 Alb
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105490.jpgsave_picture_105490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105490.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Rated in the Mix with Grant Trowbridge (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105493.jpgsave_picture_105493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105493.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ S.I.N.A - Alte Liebe... (2024) [MP3|~245 Kbps (V0)] <EBM, Industrial, Female Voc
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105499.jpgsave_picture_105499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105499.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ keldin - There is no future (Будущего нет) (2024) [MP3|320 Kbps] <Ind
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105500.jpgsave_picture_105500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105500.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116705.jpgsave_picture_116705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116705.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Milk & Sugar Winter Sessions 2024 (2024) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116706.jpgsave_picture_116706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116706.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Topaz Photo AI 2.3.2 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116707.jpgsave_picture_116707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116707.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FC52E5E22B13D109365CAA6039D85BE42A65B123
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116708.jpgsave_picture_116708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116708.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:9717A11C5CE63737BF4D9219AC7EA1A59054263A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116709.jpgsave_picture_116709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116709.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ HiBit Uninstaller 3.1.90 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116710.jpgsave_picture_116710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116710.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ HiBit Startup Manager 2.6.35 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116711.jpgsave_picture_116711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116711.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ USB Device Tree Viewer 4.0.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116712.jpgsave_picture_116712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116712.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:2D7F5D01B282D1E402B70FE3D0ED73955341E3F5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116713.jpgsave_picture_116713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116713.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:8437AD17764E18BE7A2AE3FE28B370180765D6DC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116714.jpgsave_picture_116714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116714.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ FastCopy Pro 5.7.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116715.jpgsave_picture_116715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116715.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:B76345F419F63ED3B6A5AE6E928A2836FC974ECC
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116716.jpgsave_picture_116716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116716.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ V.A. - Buddha-Bar XXVI (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116717.jpgsave_picture_116717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116717.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:A5C56A23ECFF289F3E84DAA4E0FE4A42937D2572
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116718.jpgsave_picture_116718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116718.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Music News vol.343 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116719.jpgsave_picture_116719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116719.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:8E40F47A3E77EF6DBFAA11B43943C150319CE06F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116720.jpgsave_picture_116720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116720.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:4EA02CB29AAA3D63A8965BBB098E94A16862DBDB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116721.jpgsave_picture_116721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116721.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Spotify 1.2.30.1135 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116722.jpgsave_picture_116722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116722.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ DriveDX 1.11.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116723.jpgsave_picture_116723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116723.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:8264CDC486341653DE00B3C336B155DFC3AAE337
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116724.jpgsave_picture_116724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116724.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Psiphon 3 build 181 (18.02.2024) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116725.jpgsave_picture_116725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116725.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:9C19277818FB6A217C9BA6E5BFCD636C7C788063
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116726.jpgsave_picture_116726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116726.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:5A920AD359DBB73D0730CD933632D6A89C8D6358
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116727.jpgsave_picture_116727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116727.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:D9ED152DBB1FE2B0972137C3B32331A1BAF40C70
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116728.jpgsave_picture_116728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116728.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ StartAllBack 3.7.3 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116729.jpgsave_picture_116729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116729.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:2BE76D9D9BF3958AD5956062CF1E2EB1C37DDCFA
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116730.jpgsave_picture_116730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116730.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Alabama Mike - Stuff I've Been Through (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249681.jpgsave_picture_249681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249681.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:6F10E9B8E1D68D12D60EEEE0EEF41D7F7C255A7B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249682.jpgsave_picture_249682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249682.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:29A837F41BB495BBC8D39A599B897B669C348CD2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249683.jpgsave_picture_249683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249683.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:29A837F41BB495BBC8D39A599B897B669C348CD2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249684.jpgsave_picture_249684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249684.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:788D2366FB7A700DB19DCE98DB44C2D9807421D1
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249685.jpgsave_picture_249685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249685.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:328670C0BC335DE799B8C0C853283F77FB088B8C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249686.jpgsave_picture_249686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249686.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Office Tool Plus 9.0.2.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249687.jpgsave_picture_249687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249687.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Zoner Photo Studio X 19.2209.2.437 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249688.jpgsave_picture_249688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249688.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:95A99BF2BEA6CF3924C3BF6BAA2825B48DF66A9A
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249689.jpgsave_picture_249689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249689.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:10B5CA46E0A95BA87933F985248BAC24AC3FED30
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249690.jpgsave_picture_249690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249690.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:A10852133290B360DBF4636849565205720AA27E
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249691.jpgsave_picture_249691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249691.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:E77A78B5384014F1121F2203D03316E86234EA54
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249692.jpgsave_picture_249692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249692.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:5D7AADE02DD016815E49E2C6F9670E2BAE5215AB
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249693.jpgsave_picture_249693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249693.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:BF706E6C8BB45E0A02E029BEF3D630B026037D80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249694.jpgsave_picture_249694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249694.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ hipflask, Fraser Shiers | Houdini Made Easy The Core Essentials (2019) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249695.jpgsave_picture_249695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249695.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ James Pace Band - Sierra Madre Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249696.jpgsave_picture_249696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249696.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ OD VPN - Fast & Stable Server Premium v3.5.1 b3501 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249697.jpgsave_picture_249697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249697.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:E8D95859CE1449854239A4358D9A88B959E8923F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249698.jpgsave_picture_249698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249698.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F62928E360D77197B4A85AD4901EF878C95FB97D
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249699.jpgsave_picture_249699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249699.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:6BD700D0BEA74A6A1F517719D088F413D07761DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249700.jpgsave_picture_249700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249700.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Firefox Browser 111.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249701.jpgsave_picture_249701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249701.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Marvelous Designer 11 Personal 6.1.601.37223 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249702.jpgsave_picture_249702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249702.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249703.jpgsave_picture_249703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249703.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ GeoGebra 6.0.764.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249704.jpgsave_picture_249704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249704.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:792D878BADF52BBFB22278CD3582F3EA2B547F69
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249705.jpgsave_picture_249705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249705.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Fantasy Bishoujo Juniku Ojisan to | В другом мире с мужчиной
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249706.jpgsave_picture_249706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249706.jpg" />
 </div>
 
 

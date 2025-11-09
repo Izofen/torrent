@@ -6,7 +6,7 @@ New masters academy, Glenn Vilppu | Foundations of Composition (2016) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161010.jpgsave_picture_161010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161010.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bill Haley & The Comets - The Very Best Of (1999) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161011.jpgsave_picture_161011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161011.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Chromium 87.0.4280.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161012.jpgsave_picture_161012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161012.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2E012DF61E2799F3B2950742ACF66CB1182C17ED
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161013.jpgsave_picture_161013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161013.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:2070DCFEC3E5B8BD2D340082BA0529D57ADB4503
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161014.jpgsave_picture_161014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161014.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Mob Psycho 100 III | Моб Психо 100 [ТВ-3] [2022, TV, 12 эп.] WEB-DL 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161015.jpgsave_picture_161015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161015.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:6DA234F10E3AE33FA8F94CBEF464373ECF918ACB
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161016.jpgsave_picture_161016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161016.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1A643E1BB2E9177E738543FD7C50CA48DECDF981
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161017.jpgsave_picture_161017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161017.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Discovery: Мастерская Ричарда Хаммонда / Richard Hammon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161018.jpgsave_picture_161018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161018.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4885E390B1E5C8241446BBD7251FE1560018FEC7
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161019.jpgsave_picture_161019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161019.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:B33C5D268383AF58741F2ED084D73F7C7783D6F8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161020.jpgsave_picture_161020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161020.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Skillshare, Marco Bucci | Digital Painting 3 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161021.jpgsave_picture_161021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161021.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:6E20A0F1CEE5A454B6A851F66FFE032292C87117
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161022.jpgsave_picture_161022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161022.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Firefox Browser 91.4.1 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161023.jpgsave_picture_161023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161023.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Allavsoft Video Downloader Converter 3.23.1.7653 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161024.jpgsave_picture_161024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161024.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ VA - The Bearded Man - Beards In The Snow 2021 (2021) [MP3|320 Kbps] <Dance, Pop
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161025.jpgsave_picture_161025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161025.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F9192DC3D80850F07406DBB91172AAC3C5FBC731
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161026.jpgsave_picture_161026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161026.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Windows 11 Pro VL x64 22Н2 (build 22621.963) by ivandubskoj 21.12.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161027.jpgsave_picture_161027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161027.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:1027490D0B0260F939828DA1B0B777E606141C2D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161028.jpgsave_picture_161028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161028.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ PDF Reader X - Edit Adobe PDF Pro 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161029.jpgsave_picture_161029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161029.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161030.jpgsave_picture_161030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161030.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:5DECB57C1898581E2031F79A13DC8D5135427A1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161031.jpgsave_picture_161031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161031.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:7497177144194B4090C4E2251414112F0036C58B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161032.jpgsave_picture_161032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161032.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Complete Internet Repair 11.1.3.6508 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161033.jpgsave_picture_161033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161033.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:6394E63523578460FCB7623DBF3A612B9B10ED9D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161034.jpgsave_picture_161034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161034.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:CEDA98B102B482A8D6F37A34E17A51B67D209DE9
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161035.jpgsave_picture_161035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161035.jpg" />
 </div>
 
 

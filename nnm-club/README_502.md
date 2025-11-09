@@ -6,7 +6,7 @@ WinRAR 7.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13322.jpgsave_picture_13322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13322.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8F3A1731AEA47D1991F0F9B07CAD95AD494FB089
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13323.jpgsave_picture_13323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13323.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13324.jpgsave_picture_13324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13324.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fate Seeker II (2) (2021) [Multi] (18655320) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13325.jpgsave_picture_13325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13325.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1AF042B4D629FA66C2D4C869E750498E6DEAD0D8
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13326.jpgsave_picture_13326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13326.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.0.27168/dlc) License F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13327.jpgsave_picture_13327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13327.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Silent Hill 4: The Room (2004) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13328.jpgsave_picture_13328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13328.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Timberborn (2021) [Ru/Multi] (0.7.10.2-5762fd5-gw) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13329.jpgsave_picture_13329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13329.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Adobe Photoshop 2025 26.8.1.8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13330.jpgsave_picture_13330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13330.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.16.2.3/dlc) Scene Rune [Royal Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13331.jpgsave_picture_13331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13331.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Discovery. Человек против медведя / Man vs Bear (2019-2020) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13332.jpgsave_picture_13332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13332.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:B96B1977E6DA07AE173EF2767EE1097320ADDF30
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13333.jpgsave_picture_13333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13333.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Photoshop 2025 26.8.1.8 Full Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13334.jpgsave_picture_13334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13334.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13335.jpgsave_picture_13335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13335.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ StartAllBack 3.9.12 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by K
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13336.jpgsave_picture_13336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13336.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:088DDB4908185752E458179FD64A63240F79783B
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13337.jpgsave_picture_13337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13337.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13338.jpgsave_picture_13338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13338.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:165A25884F2ED24C1CE6851457CE086C7981D329
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13339.jpgsave_picture_13339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13339.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ NEDRA (2025) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13340.jpgsave_picture_13340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13340.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:B0E58D38BE6397911C78D624D2B2D21A60C7B234
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13341.jpgsave_picture_13341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13341.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:D4E0EC39D0A94F8E119161777BCB717B2A4C80A8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13342.jpgsave_picture_13342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13342.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:D31046F289AB924FE66ED39B9727F516E585BEAF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13343.jpgsave_picture_13343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13343.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:D31046F289AB924FE66ED39B9727F516E585BEAF
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13344.jpgsave_picture_13344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13344.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:5E2E2BE857CFFAF97F5EF760ACF2BF49E83C19DE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13345.jpgsave_picture_13345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13345.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:D08626287CCE927A86F6AA43381C3619EB75A746
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13346.jpgsave_picture_13346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13346.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:D08626287CCE927A86F6AA43381C3619EB75A746
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13347.jpgsave_picture_13347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13347.jpg" />
 </div>
 
 

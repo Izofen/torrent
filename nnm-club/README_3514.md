@@ -6,7 +6,7 @@ The Drums - Jonny (2023) Deluxe, 2024, Anti - Epitaph [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111725.jpgsave_picture_111725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111725.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:9391EFD84344954720079A0F7F95DED4C4EED2D7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111726.jpgsave_picture_111726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111726.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Modest Mouse - Good News For People Who Love Bad News: (2004) 20th Anniversary E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111727.jpgsave_picture_111727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111727.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111728.jpgsave_picture_111728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111728.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Quinta Essentia - Evolution of Ethereal Wisdom (2024) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111729.jpgsave_picture_111729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111729.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111730.jpgsave_picture_111730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111730.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111731.jpgsave_picture_111731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111731.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:16E3B35B40E1222A4BD78C3CACB5CA9113E68981
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111732.jpgsave_picture_111732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111732.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:E1B07314425DFC9DB7C32E8245D2AF4530A6EC05
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111733.jpgsave_picture_111733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111733.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Wavesequencer - Hyperion 1.51 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111734.jpgsave_picture_111734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111734.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:A3A0937384899ECED7D18D3FB5574915F5CEA364
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111735.jpgsave_picture_111735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111735.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Morning Coffee Retreat: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111736.jpgsave_picture_111736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111736.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:BB80C3D0F6D848FFAB65F181D709942B1A79405A
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111737.jpgsave_picture_111737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111737.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:DFC4481482031E77CD3C1A4BAAC57183AFF965AF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111738.jpgsave_picture_111738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111738.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:ECBFB8937CC5FBA14093A16EF060DFDE37761A97
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111739.jpgsave_picture_111739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111739.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Photo Studio PRO 2.7.3.2445 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111740.jpgsave_picture_111740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111740.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Wavesequencer - Theia 1.08 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111741.jpgsave_picture_111741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111741.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:8DF5C85796B4DB7652A0D8982DEB23975216058D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111742.jpgsave_picture_111742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111742.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:902C8F120F72BBD51FAFEA9050F099320F673263
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111743.jpgsave_picture_111743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111743.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ The Black Keys - Ohio Players (2024) [FLAC|Lossless|image + .cue] <Garage Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111744.jpgsave_picture_111744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111744.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - Садко 3000 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Folk Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111745.jpgsave_picture_111745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111745.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ MaWhoo - The Sound Of Magic (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111746.jpgsave_picture_111746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111746.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:8230CB9F51C45D9D838443F0F67BC30E1146E0A9
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111747.jpgsave_picture_111747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111747.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Caravan - All Over You And You Too (2012) 2 x CD, Compilation, Reissue, Remaster
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111748.jpgsave_picture_111748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111748.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Rush - A Farewell To Kings (1977) 40th Anniversary Deluxe Edition, 2017, Island 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111749.jpgsave_picture_111749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111749.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Lost In Grey - Odyssey into the Grey (2024) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111750.jpgsave_picture_111750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111750.jpg" />
 </div>
 
 

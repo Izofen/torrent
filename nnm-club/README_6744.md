@@ -6,7 +6,7 @@ milenanoda.school, Milena Noda | Марафон «Создание стилиз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231938.jpgsave_picture_231938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231938.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:ECB801E888C6ED5AFCC9349E1405F4BC35F5FBAA
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231940.jpgsave_picture_231940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231940.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Resource Tuner Business|Personal 2.23.0 RePack (& Portable) by Dodakaedr 2.23.0 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231942.jpgsave_picture_231942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231942.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ John Greenwood - Dark Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231943.jpgsave_picture_231943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231943.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Lee Small - The Last Man On Earth (2023) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231944.jpgsave_picture_231944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231944.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Art box school | Эффектный пейзаж. Масло (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231945.jpgsave_picture_231945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231945.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:D08656665EF57E2C7133772449CC48E0E84E26A8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231946.jpgsave_picture_231946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231946.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:61DC8751C02D4C948849A94E268BF70CF0E8CB93
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231949.jpgsave_picture_231949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231949.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Privacy Eraser Free 5.39.0 Build 4541 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231951.jpgsave_picture_231951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231951.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1DC524E96002D076F3B0D52F5A85F447CAD42141
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231952.jpgsave_picture_231952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231952.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C6BD9E152E2729A0F9A3DDD5BADD2685FC8AFC92
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231953.jpgsave_picture_231953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231953.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:679BDB3CA2B7D5D2C7F299F86B1E9AEE026ED591
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231954.jpgsave_picture_231954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231954.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Art box school | Листья. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231955.jpgsave_picture_231955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231955.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:C412DD9529B5AAE931C2638EA0A5EFA63597AC28
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231956.jpgsave_picture_231956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231956.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Kikimora - For A Broken Dime (2023) [FLAC|24/48|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231960.jpgsave_picture_231960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231960.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:BA7FDA11E7AC2DE1313CBDE808F06C221979CF56
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231961.jpgsave_picture_231961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231961.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:1F4B02E25C8179FD54F1A3082AE5B88A8581141D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231962.jpgsave_picture_231962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231962.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:99ED47B2E8958ADA66B17A4851E1431FA802566B
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231963.jpgsave_picture_231963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231963.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Art box school | Mини цветы. Акрил (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231964.jpgsave_picture_231964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231964.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:0C09C6A2531082A91A65170E2592C0ED57C1C3F3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231967.jpgsave_picture_231967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231967.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:62BCF5A63C0120DF7D9448FD75525ECC43F6467A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231968.jpgsave_picture_231968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231968.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:FD85CB846F817BB4F2FDBEF5DC85E1802680E53C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231969.jpgsave_picture_231969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231969.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - The Magical Ride (2023) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231970.jpgsave_picture_231970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231970.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Macrorit Disk Scanner 6.6.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231971.jpgsave_picture_231971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231971.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:21E972C3B190347D943B36C8DCAFA58BDFDA1155
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231974.jpgsave_picture_231974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231974.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ One Switch 1.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231975.jpgsave_picture_231975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_231975.jpg" />
 </div>
 
 

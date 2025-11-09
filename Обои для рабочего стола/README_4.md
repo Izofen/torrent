@@ -6,7 +6,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100320.jpgsave_picture_100320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100320.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:21552960F9CC1773087653DCF8C46ACFD6D69678
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101771.jpgsave_picture_101771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101771.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C57EEB7C5E3B9C1E60C7E12DD2917857D1EB2E20
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102600.jpgsave_picture_102600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102600.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:894E48748355236E819101EB07A1F69AA0A0AE6A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119253.jpgsave_picture_119253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119253.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9F1159F0E710FD623EEADB8391122D90E34BD82D
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121535.jpgsave_picture_121535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_121535.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:51C91908EBFF9560B86CDF03607A78D32D2C2A9B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129860.jpgsave_picture_129860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129860.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C7EFC5301DB84AD5F9A3820ABB743BFAC05330D7
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130228.jpgsave_picture_130228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130228.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Santa Claus&Santa Girls. Super Collection Wallpapers (30.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130901.jpgsave_picture_130901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130901.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ New year wallpapers 2013 (31.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130905.jpgsave_picture_130905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130905.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ New year wallpapers 2013 (30.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130977.jpgsave_picture_130977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130977.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:52764B07E0F698B2FE943CF10269B27F521D3E7E
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131578.jpgsave_picture_131578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131578.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:7F737FFEA3862D2C91B319E842783FECE07191C0
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131628.jpgsave_picture_131628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131628.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:856DC6C36981E462D6846C556F6CD5FE70490E6A
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132197.jpgsave_picture_132197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132197.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Winter Wallpapers (26.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132776.jpgsave_picture_132776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132776.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:15D98596C7C150370606726EFA42C4656D2D4983
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134570.jpgsave_picture_134570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134570.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Tanks Wallpaper (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134741.jpgsave_picture_134741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134741.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Space Wallpapers (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134781.jpgsave_picture_134781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134781.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:65C2538C05F3721B310BDBAB8CA5E0094FF25346
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134786.jpgsave_picture_134786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134786.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Big cats wallpaper (24.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134811.jpgsave_picture_134811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134811.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Winter Wallpapers (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134851.jpgsave_picture_134851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134851.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ New year wallpapers 2013 (22.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134872.jpgsave_picture_134872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134872.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Cat Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135907.jpgsave_picture_135907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135907.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Fantastic Wallpapers (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135919.jpgsave_picture_135919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135919.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:D640E81A1D8938DDF15C0FC1D1114486D4D17F7B
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135943.jpgsave_picture_135943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135943.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Computer Desktop Wallpapers Collection (21.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135974.jpgsave_picture_135974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135974.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Aviation Wallpapers (18.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135981.jpgsave_picture_135981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135981.jpg" />
 </div>
 
 

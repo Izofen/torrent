@@ -6,7 +6,7 @@ Room Arranger 9 fo Mac 9.8.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113195.jpgsave_picture_113195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113195.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Subtitle Edit 4.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113196.jpgsave_picture_113196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113196.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4A0D640CADE5911380636A85A5B5C0067B3A0DD9
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113197.jpgsave_picture_113197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113197.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:769C8BF42AA54D2EA30DED2EFC548DB09BBDD35A
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113198.jpgsave_picture_113198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113198.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:CCA6E47BDAF3884FD32A862B5CDABCD016CEF9D8
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113199.jpgsave_picture_113199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113199.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:37F7363EB42096BEFFF4C2E5A3ADF2D147D550CD
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113200.jpgsave_picture_113200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113200.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:D46D3B61AB26FCDB10DFE933D39B8CBA259EAA19
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113201.jpgsave_picture_113201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113201.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:89988F66EF98BB99BDA2B88EF69A0B134845678F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113202.jpgsave_picture_113202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113202.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:3EC7E97623DB9A57EFEAD922637038485E56DDED
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113203.jpgsave_picture_113203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113203.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:C3F986E75A1993B324AD9A3D3A638918C8ABA4F5
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113204.jpgsave_picture_113204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113204.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:CC641C57B76124056BBD1F4AA84DA291087FAD80
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113205.jpgsave_picture_113205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113205.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Depeche Mode - The Singles 81-85 (1985) 1st German Press [APE|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113206.jpgsave_picture_113206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113206.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:318C57ADC31B82B717301C704F8B3CE0CC026E78
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113207.jpgsave_picture_113207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113207.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ YT Saver Video Downloader & Converter for Mac 7.4.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113208.jpgsave_picture_113208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113208.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113209.jpgsave_picture_113209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113209.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Simply Piano: Learn Piano Fast v7.24 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113210.jpgsave_picture_113210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113210.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Picsart AI Photo Editor, Video v24.5.4 Final Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113211.jpgsave_picture_113211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113211.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:F3FC8B2434B04A51463A52703B694081EC4AE94F
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113212.jpgsave_picture_113212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113212.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:B70FEFF7B2C6CAFC83767B2B2576F9B8A7C81C7A
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113213.jpgsave_picture_113213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113213.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Firefox Browser 124.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113214.jpgsave_picture_113214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113214.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:60E440E51CD8C9AD7408FEA539D187A81618DF05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113215.jpgsave_picture_113215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113215.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:28263CA6BC668A931E0945609FB991C87E473446
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113216.jpgsave_picture_113216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113216.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Firefox Browser ESR 115.9.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113217.jpgsave_picture_113217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113217.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:A35E9310188B84F7702FEF36ECC140B3C6D53523
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113218.jpgsave_picture_113218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113218.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Depeche Mode - Construction Time Again (1983) 1st German Press [APE|Lossless|ima
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113219.jpgsave_picture_113219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113219.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Andres Olaegui - Siguiendo Mi Camino (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113220.jpgsave_picture_113220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113220.jpg" />
 </div>
 
 

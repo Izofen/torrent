@@ -6,7 +6,7 @@ Acoustica Premium Edition 7.5.1 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166190.jpgsave_picture_166190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166190.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Carl Sentance - Electric Eye (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166192.jpgsave_picture_166192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166192.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Alfred 4 Powerpack 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166193.jpgsave_picture_166193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166193.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:1585E665A9E1EE2747EACD1C02336B5F03ED7785
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166194.jpgsave_picture_166194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166194.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:46C7EC3C4009724698CC2F88722CEC770B4AD5D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166195.jpgsave_picture_166195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166195.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Blue Contagion - Blue Contagion (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166196.jpgsave_picture_166196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166196.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:639A024930CA8B4B1502A7ED01E0EEEEB8E4F58A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166197.jpgsave_picture_166197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166197.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Neil Young - Chrome Dreams (2023) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166198.jpgsave_picture_166198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166198.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:15AEA2E3EBCA945E620D09E41DE3F21507A15D9A
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166199.jpgsave_picture_166199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166199.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:36ACCC3DDB93AD744459BC33DC337AB72C91FA87
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166200.jpgsave_picture_166200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166200.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:5113BB6C1ADC38A57EC55C4FE1D14C9E7C5CA8E7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166201.jpgsave_picture_166201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166201.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Pat O'Bryan and Friends - Boomer's Last Stand (2020) [FLAC|Lossless|WEB-DL|track
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166202.jpgsave_picture_166202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166202.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Liveclasses, Никита Чесноков | Blender: расширенные в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166203.jpgsave_picture_166203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166203.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:DBB66D4A04647BC1DA209AECACC41AEAECF925AA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166204.jpgsave_picture_166204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166204.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:76998896239C6144BF2661506C98984B34DB4DF2
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166205.jpgsave_picture_166205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166205.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Liveclasses, Никита Чесноков | Blender: быстрый старт 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166206.jpgsave_picture_166206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166206.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:B56266623F72B0655B56ABE5B60698764C129CE7
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166207.jpgsave_picture_166207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166207.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ BELOFF [dp] 2019.12.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166208.jpgsave_picture_166208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166208.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:7F51C34CD915C07673B368FECAFB525B05BB1B39
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166209.jpgsave_picture_166209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166209.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:2BEA2E042C15ADD9AD81DEE5994AC9B7A0B459E6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166210.jpgsave_picture_166210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166210.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Rockin' & Rollin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166211.jpgsave_picture_166211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166211.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:440C2C16FE76CCA343CC37D7799828EE0934FDA5
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166212.jpgsave_picture_166212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166212.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:F468614F628E0235EAF3BEB2498F84B1D027BC5A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166213.jpgsave_picture_166213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166213.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ RegCool 1.345 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166214.jpgsave_picture_166214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166214.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:7A2908A54DB54DB04086F8734880145F85673067
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166215.jpgsave_picture_166215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166215.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:C04364C7CAC67A956859EE931048A577EE5862EC
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166216.jpgsave_picture_166216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166216.jpg" />
 </div>
 
 

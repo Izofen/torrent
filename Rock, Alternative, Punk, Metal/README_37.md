@@ -6,7 +6,7 @@ Joe Walsh - 17 Albums (1972 - 2012) 26 CD [FLAC|Lossless|tracks + .cue|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44900.jpgsave_picture_44900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44900.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44924.jpgsave_picture_44924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44924.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:1899C4435F50E330B9951C07C85C2CEA3C54A46F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44986.jpgsave_picture_44986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44986.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Blind Guardian - The God Machine (2022) 2 x CD, Deluxe Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45033.jpgsave_picture_45033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45033.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:DB68DB84452F88E4CB691CDEF897EE867E213F51
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45130.jpgsave_picture_45130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45130.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:727AEFA0F232DBD98F907771AE81C24219E89909
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45131.jpgsave_picture_45131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45131.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:B77EF94E4BC2E88383400F7D4FAD1B081B36F363
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45142.jpgsave_picture_45142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45142.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:1A601ED66DE663BAEF70A861B907DF5DC5D897B2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45219.jpgsave_picture_45219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45219.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jon Anderson and The Band Geeks - True (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45226.jpgsave_picture_45226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45226.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Wintersun - Time II (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45229.jpgsave_picture_45229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45229.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Linda Gail Lewis - Rockabilly Queen (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockab
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45230.jpgsave_picture_45230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45230.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sister Switchblade - Don't Try This at Home (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45233.jpgsave_picture_45233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45233.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Roses Of Thieves - Gateway To Utopia (2024) [MP3|320 Kbps] <Melodic Power Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45236.jpgsave_picture_45236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45236.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Demon - Invincible (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45241.jpgsave_picture_45241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45241.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Super Sabre - Chasing the Rabbit (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45244.jpgsave_picture_45244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45244.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Goat Generator - Goat Generator (2024) [MP3|320 Kbps] <heavy psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45246.jpgsave_picture_45246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45246.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Anciients - Beyond The Reach Of The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Ex
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45247.jpgsave_picture_45247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45247.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Nick Cave & The Bad Seeds - Wild God (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45268.jpgsave_picture_45268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45268.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:3322431AA3787696EC02C79A40B2046A3B6AA9C1
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45277.jpgsave_picture_45277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45277.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:4A61F2668BC79E489644FD885E69B933645AC70F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45348.jpgsave_picture_45348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45348.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:9ECA4FA5CDB800D14934BAB307B855136CFC01F2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45368.jpgsave_picture_45368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45368.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Slade - MTV History (2000) 2CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45444.jpgsave_picture_45444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45444.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Mono Inc. - Symphonic Live - The Second Chapter (2024) [FLAC|Lossless|WEB-DL|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45554.jpgsave_picture_45554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45554.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Get Up Kids - Something to Write Home About (1999) 25th Anniversary Deluxe E
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45564.jpgsave_picture_45564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45564.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Deep Purple - 106 Albums (1968 - 2024) 280 CD [FLAC|Lossless|image + .cue|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45625.jpgsave_picture_45625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45625.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Classic Rock - Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45876.jpgsave_picture_45876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45876.jpg" />
 </div>
 
 

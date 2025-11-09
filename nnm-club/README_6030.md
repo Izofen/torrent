@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189702.jpgsave_picture_189702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189702.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The G
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189703.jpgsave_picture_189703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189703.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:44C7531B9D98C6243DE8F8D2E90C177BF1E0E092
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189704.jpgsave_picture_189704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189704.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:9CFF900256A056EA24913169721FD847137B5865
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189705.jpgsave_picture_189705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189705.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ OCCT 11.0.16 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189706.jpgsave_picture_189706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189706.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D655A4FF383F374FC09C6F9830126D577F942E33
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189707.jpgsave_picture_189707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189707.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ AIMP 5.10 Build 2412 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189708.jpgsave_picture_189708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189708.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Ungoogled Chromium 116.0.5845.180-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189709.jpgsave_picture_189709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189709.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:CC7133114636F841C664CA4BE7710118BB4D6A13
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189710.jpgsave_picture_189710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189710.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ ForkLift 4 v.4.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189711.jpgsave_picture_189711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189711.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - Chillhop Essentials Fall (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189712.jpgsave_picture_189712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189712.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Olivia Rodrigo - Guts (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189713.jpgsave_picture_189713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189713.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Topaz Video AI 3.4.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189714.jpgsave_picture_189714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189714.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ App Builder 2023.52 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189715.jpgsave_picture_189715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189715.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:6083101EA036F285F2ECD830E2305ABD664E7443
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189716.jpgsave_picture_189716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189716.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ RadioMaximus 2.30.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189717.jpgsave_picture_189717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189717.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:A426336B1312495B8BC6CC28594F5FCD6F056262
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189718.jpgsave_picture_189718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189718.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:0FC27DEE1AE19065C290337BEBB913668A38CD91
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189719.jpgsave_picture_189719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189719.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Joplin 2.12.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189720.jpgsave_picture_189720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189720.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sumatra PDF 3.5.15488 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189721.jpgsave_picture_189721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189721.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:C84FC28212FA6014488BE5764DB4F98A038CBF82
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189722.jpgsave_picture_189722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189722.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Aiseesoft Video Converter Ultimate 10.5.50 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189723.jpgsave_picture_189723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189723.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:402FCAE4801A9CCE9A9E7DDC8CE6E0A71AD33043
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189724.jpgsave_picture_189724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189724.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:271F20DD81C94D1F4643E1E8845A2F81174EFBAD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189725.jpgsave_picture_189725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189725.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Softany WinCHM Pro 5.496 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189726.jpgsave_picture_189726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189726.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:1A39735497326727FC309B80D4B79BA02CFF08AD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189727.jpgsave_picture_189727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189727.jpg" />
 </div>
 
 

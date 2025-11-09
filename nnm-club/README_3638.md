@@ -6,7 +6,7 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114963.jpgsave_picture_114963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114963.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F4EE92835A1978E46312A1EDB908AA14496BA529
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114964.jpgsave_picture_114964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114964.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Apple и Google уничтожили мобильные приложения д�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114965.jpgsave_picture_114965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114965.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Apple и Google удалили из своих магазинов приложе
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114966.jpgsave_picture_114966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114966.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0.0.0/dlc) Repack DjDI [Supre
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114967.jpgsave_picture_114967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114967.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Eric Assmar, Jefferson Goncalves & Gustavo Andrade - Assmar, Gonçalves & Andrad
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114968.jpgsave_picture_114968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114968.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:2968E5319A90D87055CE9964BAF0765C124D113C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114969.jpgsave_picture_114969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114969.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:DBE9038ACBEECCFF3C976506F02A336AD8FC47B3
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114970.jpgsave_picture_114970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114970.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ The Gus Glynn Band - Paint It Blue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114971.jpgsave_picture_114971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114971.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Firewind - Stand United (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114972.jpgsave_picture_114972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114972.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:CA70A42871EADC5A08BAA95804AE929B32DDD349
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114973.jpgsave_picture_114973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114973.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:9DD0091FE651A0D1B67006C288D894DE75896C29
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114974.jpgsave_picture_114974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114974.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ John Clifton - Too Much to Pay (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114975.jpgsave_picture_114975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114975.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Medicine Head - Heartwork (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114976.jpgsave_picture_114976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114976.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:EE368F4B09B12D0358E42480FF891610CA6E5D02
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114977.jpgsave_picture_114977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114977.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Messiah - Christus Hypercubus (2024) [FLAC|Lossless|WEB-DL|image + .cue] <Death-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114978.jpgsave_picture_114978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114978.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Soul of John Black - J.B.'S Blues Party! (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114979.jpgsave_picture_114979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114979.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:5931F536A6B4E0C04B99FF5C348B55B4531BE1C2
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114980.jpgsave_picture_114980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114980.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kirk Nelson & Jambalaya West - Savor the Moment (2024) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114981.jpgsave_picture_114981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114981.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Ivan Strunin - The First Day of December (2024) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114982.jpgsave_picture_114982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114982.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Marc and Paula's Roadside Distractio - Marc and Paula's Roadside Distractio (202
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114983.jpgsave_picture_114983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114983.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:BA4CAF6DE510E4022039DA40401CD151AB5267E7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114984.jpgsave_picture_114984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114984.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Linwood Taylor - Two Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114985.jpgsave_picture_114985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114985.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Surgical Strike - 24/7 Hate (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114986.jpgsave_picture_114986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114986.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Enslaved - Heimdal (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114987.jpgsave_picture_114987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114987.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Bokassa - Crimson Rider (2019) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114988.jpgsave_picture_114988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114988.jpg" />
 </div>
 
 

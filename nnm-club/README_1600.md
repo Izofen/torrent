@@ -6,7 +6,7 @@ Tribal Hunter (2022) [Ru/Multi] (1.0.2.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41957.jpgsave_picture_41957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41957.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CF82C5B9A549BAD87B9788128D831725A579F792
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41958.jpgsave_picture_41958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41958.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:66DC9AA97846283A6DC5C0B00402D5087D8FCD0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41959.jpgsave_picture_41959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41959.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:9E4D85CBF57951E94C454E588EFF5E7981A24896
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41960.jpgsave_picture_41960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41960.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:915A4009BBB98384B9DDA49003A36AAD0B4B5E49
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41961.jpgsave_picture_41961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41961.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Resolutiion (2020) [Ru/Multi] (1.3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41962.jpgsave_picture_41962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41962.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Total Commander 11.03 Extended 24.9 Full / Lite RePack (& Portable) by BurSoft  
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41963.jpgsave_picture_41963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41963.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:C014EFA4CAEDF2F141E64C0FB6863C23AD9A1414
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41964.jpgsave_picture_41964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41964.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Westinghouse готова к массовому производству ато�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41965.jpgsave_picture_41965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41965.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Westinghouse Electric выполнила операции, необходимы�
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41966.jpgsave_picture_41966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41966.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:A4FBB1F0502CD6C3F908181BB97BCC713F8EF050
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41967.jpgsave_picture_41967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41967.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41968.jpgsave_picture_41968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41968.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Edguy - Дискография (1994-2008) [MP3|320 kbps]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41969.jpgsave_picture_41969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41969.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:9A3A5DF0D271CB2DDF07A30549729F245B20E2F7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41970.jpgsave_picture_41970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41970.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:9A3A5DF0D271CB2DDF07A30549729F245B20E2F7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41971.jpgsave_picture_41971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41971.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ qBittorrent 5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41972.jpgsave_picture_41972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41972.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Music Collection 3.7.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41973.jpgsave_picture_41973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41973.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Marilyn Manson - Sacrilegious (2024) EP [FLAC 16/44.1|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41974.jpgsave_picture_41974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41974.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:56FD50342768ABB68651694C55FB25832AE2010C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41975.jpgsave_picture_41975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41975.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:D12E4F7E74F64974DC641A1C9C6B08E12DCF4A92
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41976.jpgsave_picture_41976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41976.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:B761561E6D75A933CCEFE00834745C50F7D03E2C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41977.jpgsave_picture_41977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41977.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:985E0E470C17FB5DDC8EDB4E5F7ED26559AAA3DF
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41978.jpgsave_picture_41978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41978.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:EDB932F9FA3DBCFC12505AF7B6FF2289A9323BC9
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41979.jpgsave_picture_41979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41979.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:8821474C0CC0BCADD27CE25F7D18F016CBF1EF76
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41980.jpgsave_picture_41980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41980.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ TweakNow WinSecret Plus! 5.7.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41981.jpgsave_picture_41981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41981.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:32FFC710F3CB5C24A2A84515663B9233C8FCB067
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41982.jpgsave_picture_41982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41982.jpg" />
 </div>
 
 

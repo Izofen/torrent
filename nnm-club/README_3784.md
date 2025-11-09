@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118764.jpgsave_picture_118764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118764.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118765.jpgsave_picture_118765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118765.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9C5AC560E681EDB143FA964F0749202BDE9A367F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118766.jpgsave_picture_118766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118766.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Sy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118767.jpgsave_picture_118767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118767.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Wise Disk Cleaner 11.0.7.821 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118768.jpgsave_picture_118768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118768.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA, Marco Rinaldo - Saxophonic Haven: Sexy & Smooth Jazzed Up Evening (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118769.jpgsave_picture_118769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118769.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:668D3A37E6D1ADFB197408B28246199191775483
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118770.jpgsave_picture_118770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118770.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Cafe Ease: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118771.jpgsave_picture_118771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118771.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Top 10 January 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118772.jpgsave_picture_118772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118772.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1E45205892A80C6F6BE8FA9BF5F1BEE72215E279
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118773.jpgsave_picture_118773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118773.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:61764262233BB612B3AD4D3DBE8BE90845D7E089
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118774.jpgsave_picture_118774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118774.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118775.jpgsave_picture_118775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118775.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ GeoGebra 6.0.823.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118776.jpgsave_picture_118776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118776.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:70AF8E814B4600EEA82B61F4FDBC75BD5775A25D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118777.jpgsave_picture_118777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118777.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:5A4D4D04DAD4950B2DF5504E5F9B75FE83B022B5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118778.jpgsave_picture_118778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118778.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:77A02AB7EC7E16CD70853D5CF1F95ECA7A3A3544
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118779.jpgsave_picture_118779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118779.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:21C2FB653047D74A96E31FF8F9F682E243BD7871
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118780.jpgsave_picture_118780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118780.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:8AA3B4BF5BF2BF0F0910472B2F12B1A792AC96B9
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118781.jpgsave_picture_118781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118781.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Minimal Audio - Effect Bundle 2024.02 VST, VST 3, AAX (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118782.jpgsave_picture_118782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118782.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:BE8643EF191EE41D8849CCD81652235EF77A4A5D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118783.jpgsave_picture_118783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118783.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Vivaldi 6.5.3206.61 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118784.jpgsave_picture_118784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118784.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118785.jpgsave_picture_118785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118785.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Textra SMS v4.70 Pro
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118786.jpgsave_picture_118786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118786.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:DBC2CAD723E8D924FC043FC266FBECE9D76D4B32
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118787.jpgsave_picture_118787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118787.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:CF9A9B9ECC846C92CE255407E2CC41DDD0A1145D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118788.jpgsave_picture_118788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118788.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AVS Image Converter 6.0.2.334 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118789.jpgsave_picture_118789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118789.jpg" />
 </div>
 
 

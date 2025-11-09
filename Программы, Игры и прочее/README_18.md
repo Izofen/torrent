@@ -6,7 +6,7 @@ Panels - панель быстрого доступа v1.476 Mod by KirIif' [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32413.jpgsave_picture_32413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32413.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ ASR Voice Recorder v539 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32503.jpgsave_picture_32503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32503.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D7FC829EB42B90EE74EC92A8332265D9CE3A401B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32543.jpgsave_picture_32543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32543.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8EB8CFE2C4A4D0D035B527894DC4A83A294ADA5C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32597.jpgsave_picture_32597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32597.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ TikTok Private Plus (PayBack Edition) v37.9.16 Mod by TikTok Updates + Plugin Up
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32615.jpgsave_picture_32615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32615.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Young Detective: The Mutation v1.2.22 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32717.jpgsave_picture_32717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32717.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:FD7C5D6636B15A12B02BB32ED9139ADB5C8FEF7E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32808.jpgsave_picture_32808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32808.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Unforeseen Incidents v1.0.90 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32844.jpgsave_picture_32844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32844.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32910.jpgsave_picture_32910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32910.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32925.jpgsave_picture_32925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32925.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ X Downloader & Video Player v2.1.25 Premium Mod by PlatinumMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32941.jpgsave_picture_32941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32941.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ DYSMANTLE v1.4.0.03 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32968.jpgsave_picture_32968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32968.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Not Another Weekend v1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33020.jpgsave_picture_33020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33020.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Universe For Sale 1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33046.jpgsave_picture_33046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33046.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ The Grinch 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33056.jpgsave_picture_33056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33056.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Castlevania: SotN v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33076.jpgsave_picture_33076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33076.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Homo Machina v1.6.38 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33078.jpgsave_picture_33078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33078.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33098.jpgsave_picture_33098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33098.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Woolly Boy and the Circus 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33156.jpgsave_picture_33156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33156.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ARK: Ultimate Mobile Edition 1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33204.jpgsave_picture_33204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33204.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ A Kindling Forest v1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33257.jpgsave_picture_33257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33257.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Bendy and the Ink Machine v1.0.840 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33284.jpgsave_picture_33284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33284.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:4DC9691C27AB9E44157F890FB019353F9C613F3B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33405.jpgsave_picture_33405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33405.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:523B7AEE3F9342AC62CA4D0D668A692E15E0B4DE
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33410.jpgsave_picture_33410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33410.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33461.jpgsave_picture_33461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33461.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33466.jpgsave_picture_33466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33466.jpg" />
 </div>
 
 

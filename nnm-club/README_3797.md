@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119102.jpgsave_picture_119102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119102.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Background Music Masters, Smooth Jazz Family Collective - Bellissimo Jazz Italia
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119103.jpgsave_picture_119103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119103.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Text Editor Pro 28.4.1 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119104.jpgsave_picture_119104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119104.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Ghost Atlas - Dust of the Human Shape (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119105.jpgsave_picture_119105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119105.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sacrify Souls - The New Begin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119106.jpgsave_picture_119106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119106.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119107.jpgsave_picture_119107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119107.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119108.jpgsave_picture_119108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119108.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:CBFEF5562B2520EFEE6CBE44855F0C089D89C3B2
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119109.jpgsave_picture_119109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119109.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:286411809A1FBC98123649ED17EA8DFDA240FAF7
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119110.jpgsave_picture_119110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119110.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Garmin: City Navigator Taiwan NT 2023.30 [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119111.jpgsave_picture_119111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119111.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Fort Firewall 3.11.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119112.jpgsave_picture_119112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119112.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ magnet:?xt=urn:btih:1F2DEAB0587254EC22976DCB433C0FD2E5BAE142
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119113.jpgsave_picture_119113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119113.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:01C5F64B89ED3E6FC34E2BBE173544914638AEE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119114.jpgsave_picture_119114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119114.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:01C5F64B89ED3E6FC34E2BBE173544914638AEE5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119115.jpgsave_picture_119115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119115.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:AA5F5CC1A303B642AFF3EA5050ACB603784E76D7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119116.jpgsave_picture_119116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119116.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Glary Disk Cleaner 6.0.1.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119117.jpgsave_picture_119117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119117.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Jazzy - Constellations (Expanded) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119118.jpgsave_picture_119118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119118.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:AEBCD3C1923B7AA1F60371F277DEAF0B13B32AD7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119119.jpgsave_picture_119119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119119.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Kim Wilde - Close (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119120.jpgsave_picture_119120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119120.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:0DB3A8046469358060444E498816D5E02DFE326F
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119121.jpgsave_picture_119121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119121.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:BA7B08C11C9BCC1844AD359FE546FEC38071E3A8
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119122.jpgsave_picture_119122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119122.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:897F4E9B266D61A52834918A549C92D0068EFE86
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119123.jpgsave_picture_119123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119123.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Chromium 121.0.6167.140 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119124.jpgsave_picture_119124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119124.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:D7E8332457A9607094EDAA3473C6730DF0F895F7
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119125.jpgsave_picture_119125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119125.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:83ADFEE537693E08765A97A1B56863A5CDD3768C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119126.jpgsave_picture_119126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119126.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Music Collection 3.6.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119127.jpgsave_picture_119127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119127.jpg" />
 </div>
 
 

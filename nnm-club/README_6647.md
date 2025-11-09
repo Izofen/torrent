@@ -6,7 +6,7 @@ Gateway - Gateway (2015) [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222505.jpgsave_picture_222505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222505.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Brutally Deceased - Satanic Corpse (2016) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222515.jpgsave_picture_222515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222515.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mracnij Znec - 8 Albums (2022-2023) [MP3|320 Kbps] <Epic Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222525.jpgsave_picture_222525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222525.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brutally Deceased - Black Infernal Vortex (2014) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222537.jpgsave_picture_222537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222537.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Gateway - Aeternae (2014) Demo [MP3|320 Kbps] <Death, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222551.jpgsave_picture_222551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222551.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Gateway - Flesh Reborn (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222557.jpgsave_picture_222557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222557.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Boxy SVG 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222563.jpgsave_picture_222563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222563.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Tombstalker - 2 Albums (2015-2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222570.jpgsave_picture_222570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222570.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Decompression - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222578.jpgsave_picture_222578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222578.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Abyssos - Fhinsthanian Nightbreed (1999) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222594.jpgsave_picture_222594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222594.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Abyssos - Fhinsthanian Nightbreed (1999) [FLAC|Lossless|image + .cue] <Melodic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222604.jpgsave_picture_222604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222604.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Cadaver - The Age of the Offended (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222644.jpgsave_picture_222644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222644.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Nothingness - The Hollow Gaze of Death (2019) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222650.jpgsave_picture_222650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222650.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Abyssos - Together We Summon The Dark (1997) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222656.jpgsave_picture_222656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222656.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Gateway - Gateway (2015) [FLAC|Lossless|tracks + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222661.jpgsave_picture_222661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222661.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Gateway - Galgendood (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222671.jpgsave_picture_222671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222671.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:9B626D28842A920B6D43642CAE33862832564E72
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222747.jpgsave_picture_222747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222747.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:DBE316512F1D7AACACD0AFDC150AC3A3BBE74095
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222752.jpgsave_picture_222752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222752.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:C71C29C798E960F143C9F452CB0E99FB50EFC961
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222826.jpgsave_picture_222826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222826.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Windows 11 Pro x64 Version 22H2 Build 22621.1992 by Igors_VL [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222835.jpgsave_picture_222835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222835.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:615FB8AE4E39C748D82154579438430BF8A007EC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222865.jpgsave_picture_222865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222865.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:3BFFF0B1C2B761C243B60024CF69E0CCFC57B4E0
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222946.jpgsave_picture_222946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222946.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ magnet:?xt=urn:btih:CAD11781BA8021A629AAAF22D66DDCC441110E86
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222955.jpgsave_picture_222955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222955.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:ACCBC7F590ED7CA14849082312DEA410E6AD8149
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222967.jpgsave_picture_222967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222967.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Le Concert Des Nations, La Capella Nacional De Catalunya, Jordi Savall - Beethov
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222976.jpgsave_picture_222976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222976.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ VA - Music News vol.287 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222987.jpgsave_picture_222987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222987.jpg" />
 </div>
 
 

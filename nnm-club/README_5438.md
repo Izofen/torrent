@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168294.jpgsave_picture_168294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168294.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TG Pro (Temperature Gauge Pro) 2.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168295.jpgsave_picture_168295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168295.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:8AF9CD09E1F6454390A687D9799BEB2E2061DE4E
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168296.jpgsave_picture_168296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168296.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ MediBang Paint Pro 27.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168297.jpgsave_picture_168297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168297.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6CE86957A720D21572D892A0E63DA2E65CE54730
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168298.jpgsave_picture_168298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168298.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:BE4A46666DE0B2477BA84041EC74A6CF104FC532
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168299.jpgsave_picture_168299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168299.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:5737A0566354DFD7A0424FB298F1FA861934A0BC
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168300.jpgsave_picture_168300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168300.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Halloween 2022 Rock Vol. 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168301.jpgsave_picture_168301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168301.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Man Machine Industry - Eschaton I-II. Reckoning Day (2022-2023) 2CD [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168302.jpgsave_picture_168302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168302.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:5A7B09C9E148E3F77E85ADD365683943E03C3127
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168303.jpgsave_picture_168303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168303.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ VA - Uplifting Only Top 15: December 2019 (2019) [MP3|320 Kbps] <Uplifting Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168304.jpgsave_picture_168304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168304.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Fields Of The Nephilim - The Nephilim (1988) [FLAC|Lossless|image + .cue] <Gothi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168305.jpgsave_picture_168305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168305.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Exposure Software Blow Up 3 v3.1.4.276 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168306.jpgsave_picture_168306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168306.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:14AA9DFCB8CEB55545D8C074D3C33A23571700BB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168307.jpgsave_picture_168307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168307.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Rocket Typist Pro 3.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168308.jpgsave_picture_168308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168308.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:AF59D12DC2C3981BCDD875D17554028BABDB33D3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168309.jpgsave_picture_168309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168309.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Legendry - Time Immortal Wept (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy/P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168310.jpgsave_picture_168310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168310.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:4795CF8C0217088DB65BC16E8455223B449F84CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168311.jpgsave_picture_168311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168311.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:96BDFFCFCDE780C64E6C21AB6E28BA5A19E4DA48
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168312.jpgsave_picture_168312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168312.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Skylark - Wings (2004) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168313.jpgsave_picture_168313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168313.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Roxette - Joyride (2021) 3xCD, Remastered, Parlophone, Roxette Recordings, 30th 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168314.jpgsave_picture_168314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168314.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Fields Of The Nephilim - Earth Inferno (1991) [FLAC|Lossless|image + .cue] <Goth
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168315.jpgsave_picture_168315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168315.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:1937C82689790A1D2D5E6B6AE3DEEFBFF6A14EFB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168316.jpgsave_picture_168316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168316.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:9162331632741B72B824BF0DE24E240DD43B7485
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168317.jpgsave_picture_168317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168317.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:A93EF2A82A1F55237B24A28B8F7E89D45F00DCA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168318.jpgsave_picture_168318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168318.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:748A3F5A3A50D99C3E06B4482B0FB6FAEC418F36
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168319.jpgsave_picture_168319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168319.jpg" />
 </div>
 
 

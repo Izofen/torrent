@@ -6,7 +6,7 @@ Alfred 4 Powerpack 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155868.jpgsave_picture_155868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155868.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Notebooks – Write and Organize 3.0.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155869.jpgsave_picture_155869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155869.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:CAF2F9167CEE6C35383215F4FD9BBFB0CD6BF8CE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155870.jpgsave_picture_155870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155870.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:CAF2F9167CEE6C35383215F4FD9BBFB0CD6BF8CE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155871.jpgsave_picture_155871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155871.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:7775E39140AD74CFE224D0BE4D17A710768A35AB
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155872.jpgsave_picture_155872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155872.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Carved In Flesh - As Seen Through Tears (1997) Reissue, 2023, Vic Records [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155873.jpgsave_picture_155873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155873.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Skye | Ross - Skye | Ross (2016) [FLAC|Lossless|tracks + .cue] <Trip Hop, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155874.jpgsave_picture_155874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155874.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:4554EEED4D264A5A2CD659BB189BD2B046596FF6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155875.jpgsave_picture_155875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155875.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:E9D32F4BFF28A2FB5F5DA303C47A3C25093CEC9A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155876.jpgsave_picture_155876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155876.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:45A978D1B1698350BB437C6F082628A38EC5BFCD
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155877.jpgsave_picture_155877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155877.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Athentech Perfectly Clear Complete 3 v3.9.0.1711 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155878.jpgsave_picture_155878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155878.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:1C879363F53A5BFDB534CBB8750EDD83B7DE5CBC
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155881.jpgsave_picture_155881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155881.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Long Voyage Back - Long Voyage II (1999) [FLAC|Lossless|image + .cue] <Gothic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155882.jpgsave_picture_155882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155882.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:1E87A8181F94F6E3850338C09A2FE20010EA0E63
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155885.jpgsave_picture_155885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155885.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:FABED3A312132CECB43639609D116746557A3D51
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155886.jpgsave_picture_155886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155886.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:AB559E54452338D1B320613BDC5758C8181F514F
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155887.jpgsave_picture_155887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155887.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Zoc Terminal 7.25.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155888.jpgsave_picture_155888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155888.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ K-Lite Codec Pack Update 16.6.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155889.jpgsave_picture_155889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155889.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:D08F1B440845DAB4896AAA120706C9A7D462C9F1
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155890.jpgsave_picture_155890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155890.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:622F8542953927585E2BA0A6E77767E43ED530AE
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155893.jpgsave_picture_155893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155893.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Monster Shooter – это просто ураганный аркадный эк
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155894.jpgsave_picture_155894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155894.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:131318B666C60E7DC44824A2D0177F509D90B1FC
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155895.jpgsave_picture_155895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155895.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:50A529DC84AC8B7AFDA9FCA43D91DF1BA114EAAF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155896.jpgsave_picture_155896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155896.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Auto PowerOFF 6.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155897.jpgsave_picture_155897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155897.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ UltraEdit 20.00.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155898.jpgsave_picture_155898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155898.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Dark Reality - Oh Precious Haze Pervade the Pain (1997) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155899.jpgsave_picture_155899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_155899.jpg" />
 </div>
 
 

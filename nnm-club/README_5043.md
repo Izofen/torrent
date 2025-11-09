@@ -6,7 +6,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157679.jpgsave_picture_157679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157679.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ The Temptations - Give Love At Christmas (1980) [FLAC|Lossless|WEB-DL|tracks] <R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157680.jpgsave_picture_157680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157680.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:3C686531BE685CD5CDFD80C09644DC20343CFE6F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157682.jpgsave_picture_157682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157682.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ BROCKHAMPTON - Iridescence (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardco
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157683.jpgsave_picture_157683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157683.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:29500CEDB9DD84D226252F5789A4E6DEE3226851
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157684.jpgsave_picture_157684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157684.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Mike Shinoda - Post Traumatic (2019) Deluxe Version, RE. [FLAC|Lossless|WEB-DL|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157686.jpgsave_picture_157686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157686.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ The Beatles в Индии / The Beatles and India (2021) HDTVRip [H.264/720p]
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157687.jpgsave_picture_157687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157687.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:F1590B2EA3CE63DE48E26465CA268224B7D47DE4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157688.jpgsave_picture_157688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157688.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157689.jpgsave_picture_157689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157689.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157691.jpgsave_picture_157691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157691.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:D240AC52B9EBD649E860CF59A0A1C20E0E504D14
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157692.jpgsave_picture_157692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157692.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:EDFBFA5E60B6C3D2AF9C254443BBFB7E0D55FB24
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157693.jpgsave_picture_157693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157693.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Daniel Roeth & Koan - Nothing, Nobody, Never (2018) Blue Tunes Chillout [FLAC|Lo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157694.jpgsave_picture_157694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157694.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:1E90E3F0DCD57E641C14783E23E7571B9A2C41D3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157695.jpgsave_picture_157695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157695.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Dancehall Dirty Beats (2018) [MP3|320 Kbps] <Dancehall, Dance, Latin>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157696.jpgsave_picture_157696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157696.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:A8E15EA90A82BD4A0065B8CECC7114187D0A3737
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157698.jpgsave_picture_157698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157698.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157699.jpgsave_picture_157699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157699.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ WinAutomation 3.1.6.676 [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157700.jpgsave_picture_157700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157700.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:D6E9F82E6A2B532DE9BB948082F63F1D566ECE68
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157701.jpgsave_picture_157701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157701.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:9BCDB74B3A269331B72C36FBEB014E7F91FC5E1F
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157702.jpgsave_picture_157702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157702.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:9952EAA01F6E06AAF60C5330EF146D95F8FBF0E4
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157703.jpgsave_picture_157703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157703.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Koan - Esbat: Exilio (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <E
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157704.jpgsave_picture_157704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157704.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:46033623F3C9C9431FA305C973AB4806EEFBAA86
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157705.jpgsave_picture_157705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157705.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:EE4338F6EBD29967C2DB64CBB85A36D11EECED44
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157706.jpgsave_picture_157706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157706.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Calibre 5.34.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157707.jpgsave_picture_157707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157707.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:292FF5D1C6611C77250839ADA5462F5E8AFBD444
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157709.jpgsave_picture_157709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157709.jpg" />
 </div>
 
 

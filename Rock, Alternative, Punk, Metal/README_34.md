@@ -6,7 +6,7 @@ Electric Callboy ( ex Eskimo Callboy) - Crystals (2024) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42402.jpgsave_picture_42402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42402.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Star Anna - Love and Sex and Fear of Death (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42407.jpgsave_picture_42407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42407.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Galneryus - The Stars Will Light The Way (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42409.jpgsave_picture_42409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42409.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ascension Ritual - Ascension Ritual (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42415.jpgsave_picture_42415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42415.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Eagle Twin & The Otolith - Legends Of The Desert: Vol. 4 (2024) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42416.jpgsave_picture_42416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42416.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Serious Black - Rise of Akhenaton (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42507.jpgsave_picture_42507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42507.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Blues Pills - Birthday (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42508.jpgsave_picture_42508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42508.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:17051CE0258E667802A3B108DE71FBCC87C6BD89
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42522.jpgsave_picture_42522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42522.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Black Bay - Black Bay (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42610.jpgsave_picture_42610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42610.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Different Image Project - Embers of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42624.jpgsave_picture_42624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42624.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Nightwish - Yesterwynde (2024) Limited edition earbook, 2024, Napalm Eagles [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42742.jpgsave_picture_42742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42742.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Nightwish - Yesterwynde (2024) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42820.jpgsave_picture_42820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42820.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:9815F6CFC33D8167534E21F2E4C54E549DB0E9CE
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42856.jpgsave_picture_42856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42856.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sweet - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42921.jpgsave_picture_42921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42921.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:343BBA737583845352D16E1D1AD3624750F22810
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42924.jpgsave_picture_42924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42924.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Krilloan - Return Of The Heralds (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42935.jpgsave_picture_42935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42935.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ SteelCity - Reverence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42939.jpgsave_picture_42939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42939.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:2F0BD3DCDF011179CB5A57E644DD01BB00EC82D5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42951.jpgsave_picture_42951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42951.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Nightwish - Yesterwynde (2024) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43021.jpgsave_picture_43021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43021.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Nightwish - Yesterwynde (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43036.jpgsave_picture_43036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43036.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:5B92EEC7339C923945E9A7A561CC45421E573F6E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43127.jpgsave_picture_43127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43127.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Doro - Anthems for the Champion (2007) Remaster, 2024, Rare Diamonds Productions
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43132.jpgsave_picture_43132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43132.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ The Residents - Demons Dance Alone (2019) pREServed Edition, 2024, Cherry Red Re
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43134.jpgsave_picture_43134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43134.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Local H - Whatever Happened To P.J. Soles? (2004) Reissue, Remaster, 2024, Studi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43142.jpgsave_picture_43142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43142.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Servants to the Tide - Where Time Will Come to Die (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43145.jpgsave_picture_43145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43145.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Skyline - Human Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43146.jpgsave_picture_43146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43146.jpg" />
 </div>
 
 

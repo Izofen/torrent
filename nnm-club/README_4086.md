@@ -6,7 +6,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126811.jpgsave_picture_126811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126811.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ IntelliJ IDEA Ultimate 2023.3.2 [х64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126812.jpgsave_picture_126812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126812.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus Bride Season 2 | Невест�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126813.jpgsave_picture_126813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126813.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:B61FDABEE510C2587974B692125B33633529A6E9
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126814.jpgsave_picture_126814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126814.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:0ADC59342674AC413CDA2884C2B2900581C28634
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126815.jpgsave_picture_126815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126815.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:8BA036CCEEF70A520B2660656DD0F3BD961BB9CC
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126816.jpgsave_picture_126816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126816.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:25DD889C2A94C6219AE472C9FB1AF27D1C4C5DA1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126817.jpgsave_picture_126817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126817.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:F31CB79BC687D9DC15C552199801512607E7710A
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126818.jpgsave_picture_126818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126818.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:31A4307BFEE93A10CC8C18DED1854C153CC58370
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126819.jpgsave_picture_126819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126819.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ UFO Robot Grendaizer / Грендайзер [1975, TV, 1-74 из 74] 19xDVD5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126820.jpgsave_picture_126820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126820.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:A815F0C9CD285B9E8AFE0595DFE392D0CD0DD1B4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126821.jpgsave_picture_126821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126821.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Another Chance (2020) [Ru/En] (1.34) License
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126822.jpgsave_picture_126822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126822.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:86F09365277A654F73F999490D07F05D2682A3DC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126823.jpgsave_picture_126823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126823.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:555A9508822941953B2BB9FB8EF6D3FE331DC93C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126824.jpgsave_picture_126824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126824.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126825.jpgsave_picture_126825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126825.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ MF Ghost | MF Призрак [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126826.jpgsave_picture_126826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126826.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:78B670577930AEB39CBD9D9BC268EF2DB4B1EB55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126827.jpgsave_picture_126827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126827.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:BFB74DD25DCF9E093FC04F8521D1076E8CB052C7
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126828.jpgsave_picture_126828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126828.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Konyakuhaki Sareta Reijou o Hirotta Ore ga, Ikenai Koto o Oshiekomu / Я под�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126829.jpgsave_picture_126829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126829.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:E8FDFE82430D9837598CA1682D0005DE8121B6C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126830.jpgsave_picture_126830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126830.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126831.jpgsave_picture_126831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126831.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Atomic Heart (2023) [Ru/En] (Development Build) Repack Other s
 >>16
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126832.jpgsave_picture_126832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126832.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:38DFDF0427C87CA65942552B015BEA44602781E5
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126833.jpgsave_picture_126833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126833.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:A18853C97C69FC6A4C7D50DCF393391D7E61B33E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126834.jpgsave_picture_126834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126834.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Need for Speed: Carbon (2006) [Ru] (1.4) Repack/Mod Финиган [High Quality
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126835.jpgsave_picture_126835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126835.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:A7465A3B63DA3B952B8E003AEBE0143BF3DC77C9
 >>Глухарь
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126836.jpgsave_picture_126836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126836.jpg" />
 </div>
 
 

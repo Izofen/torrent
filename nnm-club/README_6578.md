@@ -6,7 +6,7 @@ CCleaner Pro: ПО для очистки 6.10.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210604.jpgsave_picture_210604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210604.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Gary Moore - Back to the Blues (2001) 2023 Reissue Deluxe Edition [FLAC|Lossless
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210605.jpgsave_picture_210605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210605.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Jackie McLean & Dexter Gordon - The Meeting, Vol. 1 (1973) 1990, SteepleChase [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210608.jpgsave_picture_210608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210608.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paint.NET 5.0.7 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210609.jpgsave_picture_210609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210609.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C02A71B4A6E8FC7B18E8EFEBA89BAEDB9131A8FD
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210612.jpgsave_picture_210612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210612.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:D0792842165650F187A8A1FE3B2B1E2B95E51671
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210613.jpgsave_picture_210613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210613.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:C893FB82510F848BE92CF7E1696DDD4EC21B4DCE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210616.jpgsave_picture_210616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210616.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ WPS Office + PDF 17.8.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210617.jpgsave_picture_210617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210617.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:F08330448DDE4A88908F1020547A8C701DCD1940
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210619.jpgsave_picture_210619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210619.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:FB3DFEFAD0F536ABC2834B69137C053C6074A8C4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210622.jpgsave_picture_210622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210622.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Los
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210623.jpgsave_picture_210623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210623.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:E385CE0B3D75BD62DFCE0C2E29D35E8399491755
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210624.jpgsave_picture_210624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210624.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD6
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210627.jpgsave_picture_210627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210627.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:5AD111939237D4A3676690FF964DDE0C2703CD1B
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210629.jpgsave_picture_210629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210629.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:BB27DF5D277BFA535659A4640020650F8FD642B2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210631.jpgsave_picture_210631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210631.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210633.jpgsave_picture_210633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210633.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210635.jpgsave_picture_210635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210635.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:FAB381173D26A37BD85DEB9759B36D7A26307243
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210638.jpgsave_picture_210638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210638.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:E41811A7C552FECAC71CAAFD452FDA6ED94B849C
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210639.jpgsave_picture_210639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210639.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ PdfFactory Std & Pro 8.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210640.jpgsave_picture_210640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210640.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:50243B537231E590712610146F83085FFE5F1F48
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210644.jpgsave_picture_210644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210644.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:06840B867EFCAB819F467AFB6A90ECA0D1129323
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210645.jpgsave_picture_210645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210645.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ OnlySwitch 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210649.jpgsave_picture_210649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210649.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ PhotoMill X 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210651.jpgsave_picture_210651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210651.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ System Dashboard Pro 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210653.jpgsave_picture_210653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210653.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Seal 1.10.0-beta.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210656.jpgsave_picture_210656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210656.jpg" />
 </div>
 
 

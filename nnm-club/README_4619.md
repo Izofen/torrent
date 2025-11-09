@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144576.jpgsave_picture_144576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144576.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft разрешит удалять Edge, Bing и отключать ре�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144578.jpgsave_picture_144578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144578.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Calibre 4.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144580.jpgsave_picture_144580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144580.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:5E3C77D0B3DD05AD3B5CF3774F3603653E529524
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144581.jpgsave_picture_144581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144581.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:A72FEB42671DAD3AD366C5727BEB395C4D170F71
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144582.jpgsave_picture_144582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144582.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:365CB06B7E982586B15F54061B2251106C626537
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144583.jpgsave_picture_144583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144583.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:1D677777E792CCC117B823699BB99071E0ED7B83
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144584.jpgsave_picture_144584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144584.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ PhoneRescue 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144586.jpgsave_picture_144586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144586.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:E03967CFF1136458A8A087D9D4821F765FFFC835
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144587.jpgsave_picture_144587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144587.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Nite Train with Thomasina Winslow - Cat on a Mission (2020) [FLAC|Lossless|WEB-D
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144588.jpgsave_picture_144588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144588.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:6670D6F5ABB3A72F04304F099625B84B18CD015B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144589.jpgsave_picture_144589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144589.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Liveclasses, Антон Мартынов | Практика генерации �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144590.jpgsave_picture_144590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144590.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:872D46D31D6DAD06645051D0149D3E7AE794203E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144591.jpgsave_picture_144591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144591.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Adobe Acrobat Professional DC 15.009.20077 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144593.jpgsave_picture_144593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144593.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D1380C1F539AFAE549D94555363F14BC4AEAECF5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144594.jpgsave_picture_144594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144594.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:4FEB84552C80D44F764BD2D87C6F246A18F657D4
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144595.jpgsave_picture_144595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144595.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:8DE12255B30E22887EC36CF20EEDD40D42C6D954
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144596.jpgsave_picture_144596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144596.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:4B1613DC93988CFD146824D4EC9D4C793F96DB10
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144597.jpgsave_picture_144597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144597.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Billboard Hot 100 Singles Chart 29.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144598.jpgsave_picture_144598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144598.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:BACA4420DCC5777C32371DDB1BE17E8507039A63
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144599.jpgsave_picture_144599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144599.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:23BAF830BBF85843B0384D4C16F17A4EA176A95D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144600.jpgsave_picture_144600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144600.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ John Oscar Atkinson - Kingsnake Runnin' with the Devil (2020) [FLAC|Lossless|WEB
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144602.jpgsave_picture_144602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144602.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:945006469089EBD93533F5C3EA9E84AF11A10574
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144603.jpgsave_picture_144603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144603.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:FF4D012614AA32B694721BC0A6F5A1D5C33D312C
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144604.jpgsave_picture_144604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144604.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:6C27CB1C38F69E09F44C47579D494500CD2AC2BC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144605.jpgsave_picture_144605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144605.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ SimpleImage 6.3.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144606.jpgsave_picture_144606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144606.jpg" />
 </div>
 
 

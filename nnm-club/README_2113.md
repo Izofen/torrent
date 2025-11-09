@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55305.jpgsave_picture_55305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55305.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5A983DFA4394787C3AFFBCC057BB5EC3C03EF819
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55306.jpgsave_picture_55306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55306.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:25227043876C16F9C0630B5F0CA61394D4C1E8C3
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55307.jpgsave_picture_55307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55307.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PictureThis - Plant Identification v3.84 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55308.jpgsave_picture_55308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55308.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:DC15886850738E10E53805845CC741D85A423FC0
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55309.jpgsave_picture_55309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55309.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:C8C806BD66F854F09D6E5A259693412830A79FB2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55310.jpgsave_picture_55310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55310.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Instrumental 79 Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55311.jpgsave_picture_55311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55311.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:A79E4AB280B6351085E2172E2F47315275064035
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55312.jpgsave_picture_55312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55312.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:B91B3AE2C34388BA51A102F0B1275BD2913F1C54
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55313.jpgsave_picture_55313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55313.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:3335D77A7B6D6E59E623CE04671B9BDC7F027AAA
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55314.jpgsave_picture_55314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55314.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:91BA76B48EC758E9AFBBD3B891C6C6445942DAF1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55315.jpgsave_picture_55315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55315.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Wood Block Puzzle (QBlock)  v3.6.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55316.jpgsave_picture_55316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55316.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ ES File Explorer File Manager v4.4.2.9 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55317.jpgsave_picture_55317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55317.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55318.jpgsave_picture_55318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55318.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:BFA1F988EB458DFA426D0CE8D76E24CD4EA0CAAB
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55319.jpgsave_picture_55319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55319.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Metallica - Metallica (1991) Reissue, Remastered, 2021, Blackened Recordings [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55320.jpgsave_picture_55320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55320.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:3CACABE6191F0CC07E15B3E322655974FDE42CD7
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55321.jpgsave_picture_55321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55321.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Google Chrome 125.0.6422.113 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55322.jpgsave_picture_55322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55322.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Hauntii (2024) [Multi] (1.0) Scene Razor 1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55323.jpgsave_picture_55323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55323.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55324.jpgsave_picture_55324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55324.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55325.jpgsave_picture_55325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55325.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:EE5E77DADD1E58D0659013B84286832953D0D93F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55326.jpgsave_picture_55326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55326.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:9F0D2919C27C073D72422CDFA7821A06D6E0BE5A
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55327.jpgsave_picture_55327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55327.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:3899131C33525C5085F045EC9D02858625B99EA4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55328.jpgsave_picture_55328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55328.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Adobe Audition 2024 24.4.1.3 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55329.jpgsave_picture_55329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55329.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:B4557CAA20521ECE3FA0D314B60DE0747815FDDC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55330.jpgsave_picture_55330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_55330.jpg" />
 </div>
 
 

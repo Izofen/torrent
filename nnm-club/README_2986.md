@@ -6,7 +6,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89344.jpgsave_picture_89344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89344.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9946E7AA6DB04698311E264E04FD460049F7A298
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89348.jpgsave_picture_89348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89348.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:9946E7AA6DB04698311E264E04FD460049F7A298
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89349.jpgsave_picture_89349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89349.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ maxrexfax | Безопасный триалрезет [2011] [PDF]
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89351.jpgsave_picture_89351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89351.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:C3DFC5B2ABB89ED351D87C456C5ACE493F615768
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89356.jpgsave_picture_89356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89356.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:AB8E31EC83B581136A79CFD8593B49A95E7BD5AD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89360.jpgsave_picture_89360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89360.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Absolute Acoustic 2012 (2012) [MP3|~197-254 кб/с (V 0)]<Acoustic Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89363.jpgsave_picture_89363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89363.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ magnet:?xt=urn:btih:D04C23F07CDF36D0E8F8610706B5E2CB9BFF3011
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89364.jpgsave_picture_89364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89364.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:4E9C00357826CEFB8F5BA371DF7E8BAAF61FCB17
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89366.jpgsave_picture_89366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89366.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ PuppetShow 4: Return to Joyville Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89367.jpgsave_picture_89367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89367.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:F593A10D280A42D04262414BCF32B6D2B28DDCD0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89370.jpgsave_picture_89370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89370.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89371.jpgsave_picture_89371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89371.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Roc
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89372.jpgsave_picture_89372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89372.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Jack White - Blunderbuss (2012) [MP3|~245 кб/с (V0)]<Blues-Rock, Garage Rock,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89374.jpgsave_picture_89374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89374.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ magnet:?xt=urn:btih:E636E3572BAEBB8448F95D13170DC04B985CC169
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89375.jpgsave_picture_89375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89375.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Diginoiz - Old School Rockin' Live Drums [AIFF|MIDI|REFILL|REX|WAV][англий
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89376.jpgsave_picture_89376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89376.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Old School Rockin' Live Drums - библиотека аутентичной rock
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89380.jpgsave_picture_89380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89380.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89381.jpgsave_picture_89381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89381.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89382.jpgsave_picture_89382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89382.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:9957FAD2B1A2D17706BEEDDD4251768E9FE59F80
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89389.jpgsave_picture_89389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89389.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:5FC44DCE00E1CE13264C0DBA5F25E68F3202F191
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89390.jpgsave_picture_89390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89390.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:CF99948F4C701F17C2D70C24E38C010BAB1A1A5F
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89396.jpgsave_picture_89396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89396.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:AE6D903D705FEC634817C2205EBF2FAB319E7309
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89397.jpgsave_picture_89397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89397.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Julia Donaldson, Axel Scheffler | Gruffalo [1999] [PDF] [En]
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89399.jpgsave_picture_89399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89399.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Kaspersky World 1.3.5.88 [Multi / Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89404.jpgsave_picture_89404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89404.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Kaspersky Internet Security 6,(   Читать дальше...   )Названи
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89407.jpgsave_picture_89407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_89407.jpg" />
 </div>
 
 

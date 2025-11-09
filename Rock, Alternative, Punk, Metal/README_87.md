@@ -6,7 +6,7 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94268.jpgsave_picture_94268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94268.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94489.jpgsave_picture_94489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94489.jpg" />
 </div>
 
 
@@ -71,7 +71,7 @@ magnet:?xt=urn:btih:3A29D3DBD6E22B869F473693D0FA0F52165C6133
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94735.jpgsave_picture_94735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94735.jpg" />
 </div>
 
 
@@ -98,7 +98,7 @@ CyberManiacs - CyberManiacs (2012) [MP3|320 кб/с]<Horror Industrial, Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95018.jpgsave_picture_95018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95018.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:59647A16EB82CC3205C0D5FE700EABA3514B0ED8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95281.jpgsave_picture_95281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95281.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95410.jpgsave_picture_95410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95410.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95460.jpgsave_picture_95460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95460.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95479.jpgsave_picture_95479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95479.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95699.jpgsave_picture_95699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95699.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Red Lamb - Red Lamb (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95776.jpgsave_picture_95776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95776.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Jungle Rot - Kill On Command (2011) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96024.jpgsave_picture_96024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96024.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Soulfly - Enslaved (2012) [MP3|320 кб/с (CD Rip)]<Thrash Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96244.jpgsave_picture_96244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96244.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Gormenghast - Resist Or Serve (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96295.jpgsave_picture_96295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96295.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Les Dudek - Ghost Town Parade (1978) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96388.jpgsave_picture_96388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96388.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Hands Like Houses - Ground Dweller (2012) [MP3|~245 кб/с (V0)]<Post-Hardcore,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96445.jpgsave_picture_96445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96445.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Dengue Fever - Cannibal Courtshop (2010) [MP3|320 кб/с]<Rock, Surf,  Rock Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96450.jpgsave_picture_96450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96450.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ I See Stars - Digital Renegade (2012) [MP3|320 кб/с]<Post-Hardcore, Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96488.jpgsave_picture_96488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96488.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Scarlet Haze - One Bad Bitch (2012) [MP3|~245 кб/с (V0)]<Gothic Metal,Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96911.jpgsave_picture_96911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96911.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Mortad - The Myth Of Purity (2012) [MP3|320 кб/с]<Melodic Death Metal / Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96945.jpgsave_picture_96945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96945.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ H.e.a.t. - Address The Nation (2012) [MP3|320 кб/с]<AOR , Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96980.jpgsave_picture_96980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96980.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VA - X 2010 Christian Rock Hits (2010) [MP3|258-310 кб/с]<Christian Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97008.jpgsave_picture_97008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97008.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Opera Diabolicus - 1614 (2012) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97009.jpgsave_picture_97009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97009.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Unheilig - Lichter der Stadt (Limited Deluxe Edition) (2012) [MP3|~245 кб/с (
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97018.jpgsave_picture_97018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97018.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97115.jpgsave_picture_97115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97115.jpg" />
 </div>
 
 
@@ -788,7 +788,7 @@ Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97247.jpgsave_picture_97247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97247.jpg" />
 </div>
 
 
@@ -821,7 +821,7 @@ Cynic - The Portal Tapes (Compilation) (2012) [MP3|320 кб/с]<Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97372.jpgsave_picture_97372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97372.jpg" />
 </div>
 
 

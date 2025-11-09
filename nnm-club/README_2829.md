@@ -6,7 +6,7 @@ Windows 7 Ultimate N SP1 x64 Strelec (12.03.2012) [русский и англи�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81933.jpgsave_picture_81933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81933.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Windows 7 Ultimate N - это европейская версия Windows 7. В 
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81936.jpgsave_picture_81936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81936.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C8A3A4D456BBD273CA4D12E0755EC85060035D63
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81938.jpgsave_picture_81938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81938.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D9F7A7B95997808ECF3855740C0BAD8395CF8CD9
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81939.jpgsave_picture_81939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81939.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:B5A62B8245220DC319AC1B43E4D1B775FA1E9201
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81940.jpgsave_picture_81940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81940.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:47E76C2E8973E8E3332F390B4B062DFB570B8BFE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81941.jpgsave_picture_81941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81941.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:C0E15D20B3B8D02946C974E53CE611DF5E51EEE1
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81942.jpgsave_picture_81942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81942.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:E893D85B9E33349CEF042107E64D776CE64F0F37
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81945.jpgsave_picture_81945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81945.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ DriverPack Solution 12.3 R250 Final [Rus/Multi][2012]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81950.jpgsave_picture_81950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81950.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Medal of Honor: Airborne [Ru/En] (Rip/1.3) 2007 | Naitro
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81951.jpgsave_picture_81951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81951.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Diablo III [Mac OS X] (Beta Client) [Native] [Eng]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81955.jpgsave_picture_81955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81955.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:9A058D6A6776E78555FF4DC58523FAEE870D86F7
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81957.jpgsave_picture_81957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81957.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:CFFD38326CF37E51D28677C40C0CA3377F0ED6B7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81958.jpgsave_picture_81958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81958.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:7664F5A5C5E22A6FB5F6C2AF2B44FCD9C62D3D03
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81960.jpgsave_picture_81960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81960.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:EF1E7CF1653F28C7A0E32A2205E495DD56E315A6
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81961.jpgsave_picture_81961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81961.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:7E429FA3A33B58EEEC96CEBC4850EEDE9C3862E9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81962.jpgsave_picture_81962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81962.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:4F8EE50FF6C7578B686F2DE13D5525A1B461C834
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81963.jpgsave_picture_81963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81963.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:4F8EE50FF6C7578B686F2DE13D5525A1B461C834
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81964.jpgsave_picture_81964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81964.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:6ADA77863FFD7B34ADD7F203FC5E8D1E76851990
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81966.jpgsave_picture_81966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81966.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Hiromi Sano And King Orchestra - Aishu No Mood Sax Kayo (2007) [FLAC|Lossless]<S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81972.jpgsave_picture_81972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81972.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hiromi Sano And King Orchestra - Aishu No Mood Sax Kayo (2007) [FLAC|Lossless]<S
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81975.jpgsave_picture_81975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81975.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:C22CD263E7D02B5F12FFD25065C00C5419A2F84B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81976.jpgsave_picture_81976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81976.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PhotoLine 17.03 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81978.jpgsave_picture_81978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81978.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PhotoLine 16 - всепригодная программа представля�
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81981.jpgsave_picture_81981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81981.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PhotoLine 16 - всепригодная программа представля�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81984.jpgsave_picture_81984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81984.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ magnet:?xt=urn:btih:9DA4C34301C2849974BA69364E62C2584FDAF584
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81987.jpgsave_picture_81987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81987.jpg" />
 </div>
 
 

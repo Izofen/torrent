@@ -6,7 +6,7 @@ Lich King - Toxic Zombie Onslaught (2008) [WavPack|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170557.jpgsave_picture_170557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170557.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170558.jpgsave_picture_170558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170558.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Les Carlsen - He's Coming (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170571.jpgsave_picture_170571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170571.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mgła (Mgla) - Age Of Excuse (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170574.jpgsave_picture_170574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170574.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Stay Design - Moirai (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170577.jpgsave_picture_170577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170577.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Circus Maximus - Havoc In Oslo (2017) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170580.jpgsave_picture_170580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170580.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Highlord - Freakin' Out Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170584.jpgsave_picture_170584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170584.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Aggressive - Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170595.jpgsave_picture_170595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170595.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Action/Adventure - Imposter Syndrome (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop-P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170598.jpgsave_picture_170598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170598.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:39A2E01873AD40F68D7910A812FB43E38AC9E17E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170600.jpgsave_picture_170600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170600.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Russian Circles - Blood Year (2019) [FLAC|Lossless|tracks + .cue] <Post Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170615.jpgsave_picture_170615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170615.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:B8234BAA5E1996039678FC458C8BD9392AD41D5A
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170634.jpgsave_picture_170634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170634.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Waste Of Space Orchestra - Syntheosis (2019) [FLAC|Lossless|tracks + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170665.jpgsave_picture_170665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170665.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:0EC617FDEC9EEC44216DCAA6637F172A439259F4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170668.jpgsave_picture_170668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170668.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:C74735A1B36C520D9D4DCD836F6AC7EE60F3409F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170741.jpgsave_picture_170741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170741.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Shakra - High Noon (2016) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170747.jpgsave_picture_170747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170747.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:8D9AD903E319BD260862A63E1D91C488EFD3BBB9
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170763.jpgsave_picture_170763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170763.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Cold War Kids - New Age Norms 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170839.jpgsave_picture_170839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170839.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Queen - A Kind Of Magic (1986) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170933.jpgsave_picture_170933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170933.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Queen - The Game (1980) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170971.jpgsave_picture_170971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170971.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Queen - The Works (1984) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170979.jpgsave_picture_170979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170979.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Queen - Made In Heaven (1995) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170980.jpgsave_picture_170980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170980.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Queen - Innuendo (1991) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170983.jpgsave_picture_170983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170983.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - 80s Rock Standards (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170985.jpgsave_picture_170985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170985.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Queen - Jazz (1978) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170989.jpgsave_picture_170989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170989.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Queen - Hot Space (1982) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171010.jpgsave_picture_171010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171010.jpg" />
 </div>
 
 

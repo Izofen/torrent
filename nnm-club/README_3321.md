@@ -6,7 +6,7 @@ Axxis - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy/Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106707.jpgsave_picture_106707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106707.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Afro Lounge Bar Vol.2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106708.jpgsave_picture_106708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106708.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Armin van Buuren - A State Of Trance 1181 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106709.jpgsave_picture_106709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106709.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Funky Italian  Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106710.jpgsave_picture_106710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106710.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:5777B0788A05D2BA02DD2D0E6A71BAFEFF13DC3F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106711.jpgsave_picture_106711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106711.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Para ouvir no dia do Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106712.jpgsave_picture_106712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106712.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Chillout Time Spring 2024 (2024) Original Mix [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106713.jpgsave_picture_106713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106713.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Vengaboys - The Greatest Hits Collection (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106714.jpgsave_picture_106714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106714.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:D4E473DF187B37D0B4B571D1653F6EB161E73A99
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106715.jpgsave_picture_106715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106715.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ magnet:?xt=urn:btih:D4E473DF187B37D0B4B571D1653F6EB161E73A99
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106716.jpgsave_picture_106716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106716.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Regicide - Resist Control (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106717.jpgsave_picture_106717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106717.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Tuk - CONFRONTATIONS (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106718.jpgsave_picture_106718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106718.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ JoosTVD - 196tree (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106719.jpgsave_picture_106719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106719.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Leo Parker - Rollin' With Leo (1961) 2009, Blue Note [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106720.jpgsave_picture_106720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106720.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Ice - Man In The Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Neo Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106721.jpgsave_picture_106721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106721.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ EssentialPIM Pro 12.0.3 RePack (& Portable) by Dodakaedr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106722.jpgsave_picture_106722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106722.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - FSOE Summer Selection (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106723.jpgsave_picture_106723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106723.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Wavesequencer - Theia 1.14 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106724.jpgsave_picture_106724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106724.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Lodestar - Polaris (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106725.jpgsave_picture_106725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106725.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Markus Schulz - Global DJ Broadcast World Tour: Luminosity Beach Festival 2024 (
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106726.jpgsave_picture_106726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106726.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ CVN - 4 Albums (2016-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experiment
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106727.jpgsave_picture_106727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106727.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Ice - Man In The Moon (2024) [MP3|320 Kbps] <Neo Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106728.jpgsave_picture_106728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106728.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ James - 1999 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106729.jpgsave_picture_106729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106729.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Travis - L.A. Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Alternative
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106730.jpgsave_picture_106730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106730.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Bart Graft - Jewel in the Crown (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106731.jpgsave_picture_106731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106731.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sebastian Barbosa - Burning on the road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106732.jpgsave_picture_106732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106732.jpg" />
 </div>
 
 

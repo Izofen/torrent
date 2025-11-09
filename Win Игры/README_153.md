@@ -6,7 +6,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44897.jpgsave_picture_44897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44897.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Republic of Pirates (2024) [Ru/Multi] (0.26.2) Repack Wagner
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44898.jpgsave_picture_44898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44898.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ENDLESS DAYS Z (2024) [En] (3.0.5) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44904.jpgsave_picture_44904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44904.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Tomb Raider (2013) [Ru/Multi] (1.01.0.0/dlc) Scene Rune [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44908.jpgsave_picture_44908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44908.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Highrise City (2022) [Multi] (1.2.2/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44910.jpgsave_picture_44910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44910.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Frogun Encore (2024) [Multi] (0.915) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44926.jpgsave_picture_44926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44926.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Grim Tales 25: Light in the Darkness (2024) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44936.jpgsave_picture_44936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44936.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.0.4) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44946.jpgsave_picture_44946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44946.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Frogun (2022) [Multi] (1.9.3) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44963.jpgsave_picture_44963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44963.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Eden Genesis (2024) [Multi] (1.0.012) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44965.jpgsave_picture_44965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44965.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Campaign Series: Vietnam (2022) [En] (1.00.00) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44973.jpgsave_picture_44973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44973.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44977.jpgsave_picture_44977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44977.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44978.jpgsave_picture_44978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44978.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.5.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44985.jpgsave_picture_44985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44985.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Regiments (2022) [Ru/Multi] (1.4.5/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45003.jpgsave_picture_45003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45003.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ People Playground (2019) [En] (1.27.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45010.jpgsave_picture_45010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45010.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Raiders! Forsaken Earth (2020) [En] (1.4.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45061.jpgsave_picture_45061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45061.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45147.jpgsave_picture_45147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45147.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Just Xiangqi / Сянци (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45155.jpgsave_picture_45155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45155.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Alter Ego (2010) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45163.jpgsave_picture_45163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45163.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Highwater (2024) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45165.jpgsave_picture_45165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45165.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fireside (2024) [Ru/Multi] (1.0.3_rc1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45169.jpgsave_picture_45169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45169.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Golf Club Wasteland / Golf Club Nostalgia (2021) [Ru/Multi] (1582) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45184.jpgsave_picture_45184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45184.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ World Turtles (2023) [Multi] (1.02) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45185.jpgsave_picture_45185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45185.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Crypt Custodian (2024) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45190.jpgsave_picture_45190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45190.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Monster Jam Showdown (2024) [Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45200.jpgsave_picture_45200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45200.jpg" />
 </div>
 
 

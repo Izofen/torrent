@@ -6,7 +6,7 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86650.jpgsave_picture_86650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86650.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B814937AC71AD22CC14D8B876EF95A3E1BCBB62E
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86651.jpgsave_picture_86651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86651.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B814937AC71AD22CC14D8B876EF95A3E1BCBB62E
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86653.jpgsave_picture_86653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86653.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:B581E7832EFFDCAA312A0442539FD78C8F579AC2
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86654.jpgsave_picture_86654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86654.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:60FA44928AF13209E28E4766B9DF642E4739F311
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86655.jpgsave_picture_86655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86655.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:C9207DC69CCC0CB0BF659F5CF62B9C704B9F564B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86658.jpgsave_picture_86658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86658.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7C6A674412BEE28FB76790DF9E33618AD1B7EB96
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86659.jpgsave_picture_86659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86659.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:2F9D585B2A7AA745A272A88E2038568C2DEAF514
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86660.jpgsave_picture_86660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86660.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:A13D14C1195E6CF02506F68A07E9615C33EEE6EF
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86664.jpgsave_picture_86664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86664.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:E4D6C738464BAF4CC57273D12AC446AD7C215C78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86667.jpgsave_picture_86667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86667.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Confrontation [En] (L/Steam-Rip) 2012 | МалышШок [Без таблетк�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86668.jpgsave_picture_86668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86668.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Confrontation [En] (L/Steam-Rip) 2012 | МалышШок [Без таблетк�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86669.jpgsave_picture_86669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86669.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Confrontation [En] (L/Steam-Rip) 2012 | МалышШок [Без таблетк�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86672.jpgsave_picture_86672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86672.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:C39864F54FB93384EF4E779904A966252D935275
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86673.jpgsave_picture_86673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86673.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:C39864F54FB93384EF4E779904A966252D935275
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86674.jpgsave_picture_86674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86674.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Tom Clancy's Splinter Cell: Conviction [Ru] (Rip/1.04) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86675.jpgsave_picture_86675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86675.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:7C28A8B53118C8124648793BB7EEB386B6914F0E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86676.jpgsave_picture_86676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86676.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:7C28A8B53118C8124648793BB7EEB386B6914F0E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86677.jpgsave_picture_86677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86677.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:8C35DE0C8D75A452413FAF068ABF94EC51C1FE4C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86678.jpgsave_picture_86678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86678.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:8C35DE0C8D75A452413FAF068ABF94EC51C1FE4C
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86679.jpgsave_picture_86679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86679.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ KaraKEYoke Karaoke 3.3.1 [Русский/Анлийский]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86680.jpgsave_picture_86680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86680.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ KaraKEYoke Karaoke - программа для караоке и обучени�
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86683.jpgsave_picture_86683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86683.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ KaraKEYoke Karaoke - программа для караоке и обучени�
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86684.jpgsave_picture_86684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86684.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:36008E5A7F360DA46F7EB9106C97D5A586F10B52
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86689.jpgsave_picture_86689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86689.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:BEDB46FD2FCE369C447C626ECB0284FFDC490DCF
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86690.jpgsave_picture_86690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86690.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:A99AF0B4182EF1790E4C29E1E7EF84D62B30FF82
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86693.jpgsave_picture_86693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86693.jpg" />
 </div>
 
 

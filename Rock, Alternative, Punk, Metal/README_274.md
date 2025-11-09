@@ -6,7 +6,7 @@ Camel - Mirage (1974) 3CD Remastered & Expanded Edition, 2023, [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167992.jpgsave_picture_167992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167992.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Ocean Collective - Phanerozoic II - Mesozoic - Cenozoic (2020) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168013.jpgsave_picture_168013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168013.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Neverland In Ashes - 2 CD (2017-2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168018.jpgsave_picture_168018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168018.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fields Of The Nephilim - From Gehenna To Here (2001) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168020.jpgsave_picture_168020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168020.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Impellitteri - The Complete Beast 1987-2009 (2023) 6CD, Boxed Set [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168037.jpgsave_picture_168037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168037.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:235F321D22B8F334E3657ACD01A8E57C193C9449
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168050.jpgsave_picture_168050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168050.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Deep Purple - The Family & Friends Albums (2004) 2CD [FLAC|Lossless|tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168062.jpgsave_picture_168062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168062.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sky Empire - The Shifting Tectonic Plates Of Power - Part One (2023) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168075.jpgsave_picture_168075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168075.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Magnus Karlsson's Free Fall - Hunt The Flame (2023) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168101.jpgsave_picture_168101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168101.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Skylark - Divine Gates Part II Gate Of Heaven (2000) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168116.jpgsave_picture_168116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168116.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Bonafide - Are You Listening? (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168121.jpgsave_picture_168121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168121.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Best Rock 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168133.jpgsave_picture_168133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168133.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:FABA8D99BBCC09F2F66AEB5A66EF9D455ED020B5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168138.jpgsave_picture_168138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168138.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Closure In Moscow - Soft Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168140.jpgsave_picture_168140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168140.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Skylark - Divine Gates Part I Gate Of Hell (1999) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168156.jpgsave_picture_168156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168156.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Overland - S.I.X (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168163.jpgsave_picture_168163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168163.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:7D58BD8F17FBBD23F8333A9640EE30F2374B5E74
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168164.jpgsave_picture_168164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168164.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Howling Giant - Glass Future (2023) [FLAC|Lossless|WEB-DL|tracks] <progressive r
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168169.jpgsave_picture_168169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168169.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Rockett Love - Galactic Circus (2023) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168176.jpgsave_picture_168176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168176.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Status Quo - Quo'ing In The Best Of The Noughties (2022) 3xCD, Compilation, Limi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168180.jpgsave_picture_168180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168180.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Domino Drive - Smoke And Mirrors (2023) [FLAC|Lossless|image + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168182.jpgsave_picture_168182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168182.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Skid Row - The Gang's All Here (2022) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168189.jpgsave_picture_168189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168189.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Fields Of The Nephilim - Dawnrazor (1987) [FLAC|Lossless|image + .cue] <Gothic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168190.jpgsave_picture_168190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168190.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Generation Steel - Lionheart (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168196.jpgsave_picture_168196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168196.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Fields Of The Nephilim - Fallen (2002) [FLAC|Lossless|image + .cue] <Gothic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168208.jpgsave_picture_168208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168208.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Eisbrecher - Schock Tour Edition 2016 (2016) Box 4CD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168210.jpgsave_picture_168210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168210.jpg" />
 </div>
 
 

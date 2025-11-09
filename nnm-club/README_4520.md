@@ -6,7 +6,7 @@ Tor Browser Bundle 13.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141393.jpgsave_picture_141393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141393.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B1E4861CAD107EB3443D2AA76081A619AD5744B1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141394.jpgsave_picture_141394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141394.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:7849525E9FE69B89D2DAEEA5039FB8E59D2ACB5C
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141395.jpgsave_picture_141395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141395.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:257676E39DCF2D4F7AE8123460E4DA897913EFE6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141396.jpgsave_picture_141396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141396.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:010CB9813081BBED6F8080287479E08D4C9F9225
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141397.jpgsave_picture_141397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141397.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Amigoscode, Nelson | Microservices and Distributed Systems Updated 3 (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141398.jpgsave_picture_141398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141398.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:6B76C8D7ABF59C7995A877A80112DBD40DA6B85C
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141399.jpgsave_picture_141399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141399.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:ED56E8B4D6AADEAE620C09D948B5D9D8B2B0F4DB
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141401.jpgsave_picture_141401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141401.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141404.jpgsave_picture_141404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141404.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:8E8DCF5C73B572B71300B4EDE280E3DC674BD579
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141405.jpgsave_picture_141405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141405.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:15F7A61DA4F8F0723A898201C2422DDB1AA916AF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141406.jpgsave_picture_141406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141406.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:43FB0401D0A63B8B03B1725F4323E5B1164CC1D5
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141407.jpgsave_picture_141407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141407.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:767825B01B0AFD9412F230BE1A117820FEC02EFB
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141408.jpgsave_picture_141408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141408.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:71D87272300F8B1801E4FF72E10D4590CAE8EEB2
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141409.jpgsave_picture_141409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141409.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:802AF9E68F883034BC1892A058332ACF895E5AB9
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141410.jpgsave_picture_141410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141410.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ AIMP 5.01 Build 2358 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141411.jpgsave_picture_141411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141411.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Anna Gandrabura | Grammar Phrasebook (2023) [PDF]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141412.jpgsave_picture_141412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141412.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:EED6B9DCC85FB3944A7580C92501C06FCC3C63AE
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141413.jpgsave_picture_141413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141413.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Transmissions: Element 120 (2016) [Ru] (1.06) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141415.jpgsave_picture_141415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141415.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:3CF346437590212AD714F29D08F9034E07E5691A
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141416.jpgsave_picture_141416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141416.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:B6CB3A5CD58E2E2CC623D06F5EAEE27D960F4104
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141417.jpgsave_picture_141417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141417.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mystery Trackers 17: The Secret of Watch Hill (2019) [En] (1.0) Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141418.jpgsave_picture_141418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141418.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:ECD0240A8C4AB39BCB047F546154CD95DFE2DB39
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141419.jpgsave_picture_141419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141419.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:462C73A8BEA1A51F3479A8321C0C382BB97B63F3
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141420.jpgsave_picture_141420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141420.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:62F5C2C731998E3CA5334CF566BA131BB339719D
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141423.jpgsave_picture_141423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141423.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:9C06047192587181F2D194541FD8BBCDAE4ACB3F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141424.jpgsave_picture_141424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141424.jpg" />
 </div>
 
 

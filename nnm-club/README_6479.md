@@ -6,7 +6,7 @@ Monkey's Audio 10.19 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205161.jpgsave_picture_205161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205161.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:75E6C554A11143ED7A3F620ACAA4733E870DB406
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205162.jpgsave_picture_205162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205162.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:81C0968656318A7CA583CBBB3FCD37E505FF210F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205163.jpgsave_picture_205163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205163.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:BB68EC748E0B8363A9F36282539ADB3A9203C50A
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205164.jpgsave_picture_205164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205164.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Pixelmator Pro 3.3.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205165.jpgsave_picture_205165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205165.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:1900B2F9F8BE845543B975E48E461E1DD9D571D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205166.jpgsave_picture_205166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205166.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:39CB3D056594CB4DB22EA7FCFFB054F70E7B30F5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205167.jpgsave_picture_205167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205167.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:07954BE8062F2C23C288EF30B4C2F83B2EDE6618
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205168.jpgsave_picture_205168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205168.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ SuperShy - Happy Music (2023) [FLAC|24/44.1|tracks|WEB-DL] <Pop, Electropop>
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205169.jpgsave_picture_205169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205169.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:3A74C5CC906BDE96E3EC966268751A0E669EC661
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205170.jpgsave_picture_205170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205170.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ future.dj pro - mix everything 1.11.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205171.jpgsave_picture_205171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205171.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:AD65BBC6141E850A10A827687BFB2FFB058DFA94
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205172.jpgsave_picture_205172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205172.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:4A0FABA42D9F7BC7157A86A902B30C683D8CE34F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205173.jpgsave_picture_205173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205173.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:9F16A554BDC33354D7F06A3010787512618231DC
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205174.jpgsave_picture_205174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205174.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:8E1C8DFEFFD85F4C533D8C2C97033790077731AF
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205175.jpgsave_picture_205175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205175.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Anoxia - Relinquish The Quiet (2023) [FLAC|24/96|tracks|WEB-DL] <Melodic Dark Go
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205176.jpgsave_picture_205176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205176.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Lords of Atlantis - Lords of Atlantis (2023) [FLAC|Lossless|image + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205177.jpgsave_picture_205177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205177.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Tinderbox 9 v.9.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205178.jpgsave_picture_205178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205178.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:E96D17A68A76464EB0C545E81C8C48DADB676534
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205179.jpgsave_picture_205179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205179.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:D1E429FDC489B6B915AD75AC83979674E8D0EB87
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205180.jpgsave_picture_205180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205180.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Jamie West-Oram - Skeleton Key (2023) [FLAC|24/44.1|tracks|WEB-DL] <Progressive 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205181.jpgsave_picture_205181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205181.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:09268229687E990B08B3E89188EC6556A0D7BBDB
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205182.jpgsave_picture_205182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205182.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Folder-Factory 7.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205183.jpgsave_picture_205183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205183.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ AnyDesk 7.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205184.jpgsave_picture_205184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205184.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Dropzone 4 Pro 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205185.jpgsave_picture_205185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205185.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Kakkou no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205186.jpgsave_picture_205186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205186.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144390.jpgsave_picture_144390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144390.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Udemy, Sergei Semenov | Cypress на Реальном Проекте для На
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144391.jpgsave_picture_144391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144391.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:CA9B607EC2FC4470E83D79C63CA27CA9E22C81CF
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144393.jpgsave_picture_144393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144393.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:908A6851A733E5035EAED225567340A625BAFEF5
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144395.jpgsave_picture_144395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144395.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Yaporigami - One Sound Extinguisher (2017) Kaer'Uiks [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144396.jpgsave_picture_144396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144396.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:E37AE69AC6E97FCD518DB17F25E35F55E2418B7F
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144397.jpgsave_picture_144397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144397.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:AD30487A9DD2F54E7BB260E7B292F4E52DF81328
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144398.jpgsave_picture_144398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144398.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Trishula - Time Waits For No Man (2020) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144399.jpgsave_picture_144399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144399.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Mondo Records: The Best Of (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144400.jpgsave_picture_144400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144400.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:BB1F41E955DF0D0F98D0EE05120C061BCBAD97AE
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144401.jpgsave_picture_144401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144401.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ WinToUSB Technician 5.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144402.jpgsave_picture_144402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144402.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:513E6DB05A6CEF646F784EE14610392B378B75CB
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144403.jpgsave_picture_144403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144403.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:8F78B80EA907E0BD36C66E94EA3B51580937B23C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144404.jpgsave_picture_144404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144404.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #214 (2020) [MP3|320 Kbps] <Drum
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144405.jpgsave_picture_144405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144405.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144406.jpgsave_picture_144406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144406.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - The Civil War - Original Soundtrack Recording. Traditional American Songs A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144407.jpgsave_picture_144407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144407.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:93B017F13252E8C329EFA0AF9E569E69CC61BAD0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144409.jpgsave_picture_144409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144409.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:40341F73F1F47D090093E7052C988EBE7D854ECC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144410.jpgsave_picture_144410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144410.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:FD6F46092AF12C811FDAE26B2829B943B24BECC9
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144411.jpgsave_picture_144411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144411.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Udemy, Илья Фофанов | Архитектура ПО: Meta и SOLID пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144412.jpgsave_picture_144412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144412.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:1FBC63898F4E1E2C1661C95F2C01863DCC86E018
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144413.jpgsave_picture_144413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144413.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:9A4FE4C5E9E840B2F7BAA72D486712F32C9C5674
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144414.jpgsave_picture_144414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144414.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144415.jpgsave_picture_144415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144415.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:7F45984935653BF206530E2A0294808B3F5C6692
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144416.jpgsave_picture_144416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144416.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:C0C6A6F9CCD5CE5A3AFAABECFA78FA8AEE769223
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144417.jpgsave_picture_144417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144417.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ BurnAware Professional 11.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144419.jpgsave_picture_144419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144419.jpg" />
 </div>
 
 

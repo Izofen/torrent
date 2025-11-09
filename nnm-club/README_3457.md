@@ -6,7 +6,7 @@ PhotoRoom 4.9.4 (b1368) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110243.jpgsave_picture_110243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110243.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ P.O.D. - Veritas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal / Rapcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110244.jpgsave_picture_110244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110244.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ PowerDirector – Video Editor v13.4.2 b2405031 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110245.jpgsave_picture_110245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110245.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110246.jpgsave_picture_110246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110246.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Lucky Patcher 11.3.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110247.jpgsave_picture_110247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110247.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:EF3300DB63CB3721D0948DD400E114721C0BDE17
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110248.jpgsave_picture_110248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110248.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:0BC98F4BF1E3A5AE4D324EF6F2AF9120DAF3E005
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110249.jpgsave_picture_110249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110249.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:B4D84EA9A43CCB9EF90BFBF54AC6C5C76F46EC0E
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110250.jpgsave_picture_110250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110250.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:A6130A4F22BF12C29D0B4EBF06DD00CE5C389C7B
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110251.jpgsave_picture_110251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110251.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:06AC4EE92A3D0DCDB221459CFD37A24D29A3101D
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110252.jpgsave_picture_110252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110252.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:A663D733DA32E5F1A99949B94C8D911463BFCB72
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110253.jpgsave_picture_110253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110253.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:F1C3F08FFD55D63E39F2D4A6D458D872AA2D12A2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110254.jpgsave_picture_110254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110254.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ YT Downloader 9.7.11 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110255.jpgsave_picture_110255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110255.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:560C4EA9D15B5104899E300D61A5BBF494C54749
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110256.jpgsave_picture_110256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110256.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:04BBB664F051C8C940D95CA0A10A949F1BCF2BAA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110257.jpgsave_picture_110257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110257.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Tablacus Explorer 24.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110258.jpgsave_picture_110258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110258.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:7E972E6A785C7ACE5F0D2AF138B6CA201BDF86B5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110259.jpgsave_picture_110259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110259.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Aiseesoft Video Converter Ultimate 10.8.8 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110260.jpgsave_picture_110260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110260.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ TweakNow WinSecret Plus! 5.5.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110261.jpgsave_picture_110261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110261.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tracktion Software & Dawesome - Novum 1.17 VSTi 3 (x64) RePack by TCD + Content 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110262.jpgsave_picture_110262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110262.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Pirate Queen - Ghosts (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110263.jpgsave_picture_110263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110263.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Garbage - Lie To Me (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110264.jpgsave_picture_110264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110264.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ApowerREC 1.6.9.6 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110265.jpgsave_picture_110265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110265.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:71D57BEF6F16B818F547F0CEF1E7161856B3DCB7
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110266.jpgsave_picture_110266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110266.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:FBBACC274D6CA1D83E4F7621F353F3D3A965ACF5
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110267.jpgsave_picture_110267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110267.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ ApowerREC 1.6.9.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110268.jpgsave_picture_110268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110268.jpg" />
 </div>
 
 

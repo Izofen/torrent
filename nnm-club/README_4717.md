@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147631.jpgsave_picture_147631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147631.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EAC4E12FDBB47CC39203E8089FDA0A0E1C0F064A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147632.jpgsave_picture_147632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147632.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0F45536F3614A6A9AECEC660EBFC6EE0E656F789
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147633.jpgsave_picture_147633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147633.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Jo Jo Gunne - Jumpin' The Gunne (1973) Reissue, 2010, Dogtoire [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147634.jpgsave_picture_147634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147634.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147635.jpgsave_picture_147635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147635.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5A74641334F820AE493BF65679B6F7DCF9ACC32D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147637.jpgsave_picture_147637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147637.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ VA - Tasty Recordings: Best Of 2018 (2018) [MP3|320 Kbps] <Funk, Soul, Diisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147638.jpgsave_picture_147638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147638.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:C9D0CA91E2BE52B92AE94ECB58F22316462E50B1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147639.jpgsave_picture_147639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147639.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:F229BDD42814412DFFBCE2C5D519E6A4CD50BCE6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147640.jpgsave_picture_147640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147640.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:91E6D144459D58D3D993C137D94C3089593DC07F
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147641.jpgsave_picture_147641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147641.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:05E47EA9FC86876D808246DFC0351DA89ACB65A5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147642.jpgsave_picture_147642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147642.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ magnet:?xt=urn:btih:2B8C0FB3BA770BB62ADD3F6571917AB335F32917
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147643.jpgsave_picture_147643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147643.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:4796173042EB8489A57D9427F5A86F76835D2B1B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147645.jpgsave_picture_147645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147645.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:0FA74AE3384FDFA76CFF83E7B5179E6A802AD9D8
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147646.jpgsave_picture_147646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147646.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:506C1D6915FFE19C13199B51117B59E826DAF3A7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147647.jpgsave_picture_147647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147647.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Clement Simon - Man on the Moon (2018) jazz family [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147648.jpgsave_picture_147648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147648.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Webcams v2.0.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147649.jpgsave_picture_147649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147649.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ FoneLab iPhone Password Manager for Mac 1.0.16 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147650.jpgsave_picture_147650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147650.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ DVD X Studios CloneDVD 6.0.1.2 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147651.jpgsave_picture_147651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147651.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ DVD X Studios CloneDVD - очень гибкая в освоении прогр�
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147652.jpgsave_picture_147652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147652.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:B0C3B0CC5033EFF48700F9040DF2AEC311FFD813
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147653.jpgsave_picture_147653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147653.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:2CD33D146BEF377F73DA4BE103E1D0931773B2AD
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147654.jpgsave_picture_147654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147654.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Gonimoblast - Gonimoblast Live (2017) 2CD, Limited Edition [FLAC|Lossless|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147655.jpgsave_picture_147655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147655.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Affinity Photo 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147656.jpgsave_picture_147656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147656.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:104E40D30B6E6355029650B8ED85D398D22A7E15
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147657.jpgsave_picture_147657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147657.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:C17335D32ED6F3C5CB9F992F23CF7ADBE478F2D1
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147658.jpgsave_picture_147658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147658.jpg" />
 </div>
 
 

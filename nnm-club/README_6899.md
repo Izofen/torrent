@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236996.jpgsave_picture_236996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236996.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Just Good Music: Rock Mix (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236997.jpgsave_picture_236997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236997.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:EBAD3F603325856B22C36170428A4FC15F84E19D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236998.jpgsave_picture_236998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236998.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Andy Baum & The Trix - Extra Feathers (1991) [FLAC|Lossless|image + .cue] <Soft 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237000.jpgsave_picture_237000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237000.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:A9B4128562FCEC828BC9D0CD2AE747F0A0CD7738
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237002.jpgsave_picture_237002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237002.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Catalyst Crime - Catalyst Crime (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237004.jpgsave_picture_237004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237004.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ VA - Striking Tunes Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237006.jpgsave_picture_237006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237006.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:D7C9B38B47DC5658A7FD74B6903A73D5B34F7989
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237007.jpgsave_picture_237007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237007.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Display Maid 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237009.jpgsave_picture_237009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237009.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:E56958A0E993CA529D7834B01517D589414C4433
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237011.jpgsave_picture_237011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237011.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:1EC397C22748869BB145F311EDEFFFE398AEC97D
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237012.jpgsave_picture_237012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237012.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Smart Driver Manager Pro 6.4.976 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237013.jpgsave_picture_237013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237013.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:D5EFC931196613956331C9F30E9356F2E67F9C5E
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237014.jpgsave_picture_237014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237014.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CB582E46B7490028FC0DDC4D847B19320FBD19BC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237015.jpgsave_picture_237015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237015.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ White Denim - Relaxed (2023) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237016.jpgsave_picture_237016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237016.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Coinmen - Wasting Daylight (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237017.jpgsave_picture_237017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237017.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Blues Rock Compilation Part 23 (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237018.jpgsave_picture_237018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237018.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:7A927037A228932B319D3913CF838290EEE58D46
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237022.jpgsave_picture_237022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237022.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:6DA1931C59D94A07497E64D5349C28AA5BD1C784
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237023.jpgsave_picture_237023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237023.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Psiphon 3 build 174 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237024.jpgsave_picture_237024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237024.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Trauma - Ominous Black (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237025.jpgsave_picture_237025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237025.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ PrivaZer 4.0.75 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237026.jpgsave_picture_237026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237026.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ BookMacster 2.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237027.jpgsave_picture_237027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237027.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Draw.io 20.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237030.jpgsave_picture_237030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237030.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ TWO LANES - Duality (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lo-Fi, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237031.jpgsave_picture_237031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237031.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Striking Tunes Vol 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237032.jpgsave_picture_237032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237032.jpg" />
 </div>
 
 

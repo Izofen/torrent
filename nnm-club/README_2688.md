@@ -6,7 +6,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70638.jpgsave_picture_70638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70638.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70639.jpgsave_picture_70639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70639.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Armin van Buuren - A State Of Trance 1212 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70640.jpgsave_picture_70640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70640.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Black Hole Trance Music 02-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70641.jpgsave_picture_70641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70641.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:7B7414189CA46064D20AB653AFCB632D68F49D35
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70642.jpgsave_picture_70642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70642.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ magnet:?xt=urn:btih:ACE8EED9925F5F5CEFD8069BC4A13105E02EE066
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70643.jpgsave_picture_70643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70643.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:03579A4BD19718BCDF7EFE94C514EA56F11009B5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70644.jpgsave_picture_70644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70644.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Black Hole House Music 02-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70645.jpgsave_picture_70645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70645.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ magnet:?xt=urn:btih:9779C37CAA01B17860FF2623FB08AF0530C017F4
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70646.jpgsave_picture_70646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70646.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Beyond Compare Pro 5.0.5.30614 RePack (& Portable) by elchupacabra (14.02.2025) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70647.jpgsave_picture_70647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70647.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:E7EFF3C00E73325F2437A3A071015221449823DC
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70648.jpgsave_picture_70648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70648.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:2456631147ED1328E7E4125D97EA978B61A43727
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70649.jpgsave_picture_70649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70649.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:2456631147ED1328E7E4125D97EA978B61A43727
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70650.jpgsave_picture_70650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70650.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Beth Hart - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70651.jpgsave_picture_70651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70651.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:38922E875221A85A95329381C5FC9761AA7C4DE7
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70652.jpgsave_picture_70652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70652.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Bridge to Another World Remastered: Burnt Dreams (2025) [En] (1.0) Unofficial [C
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70653.jpgsave_picture_70653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70653.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:B6D43B15C3FBA9149837E7A63D655E0D296AD1FD
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70654.jpgsave_picture_70654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70654.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ PrivaZer Pro 4.0.99 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70655.jpgsave_picture_70655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70655.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - 50 DJ Tracks Vol. 1 (2025) [MP3|320 Kbps] <Dance, House, Club, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70656.jpgsave_picture_70656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70656.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Compilation part 142 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70657.jpgsave_picture_70657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70657.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:6FA1F46295C6BEDA0230CB1D71A8692DE95B7EEA
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70658.jpgsave_picture_70658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70658.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9505B3643EDA7497AB103160E9C45BE87D3074B0
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70659.jpgsave_picture_70659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70659.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:9753273EF3A18F2750D0BBFF7D2D3C9A6CD2013D
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70660.jpgsave_picture_70660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70660.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:F2AFE5BAC7C9CBC958F33C4D9E325DF647B80DAC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70661.jpgsave_picture_70661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70661.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Jazz Funk Instrumentals Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70662.jpgsave_picture_70662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70662.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:21F2CD9AB23497EAFBC22E561848C0319A9A1D56
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70663.jpgsave_picture_70663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70663.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246718.jpgsave_picture_246718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246718.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FD5F00F2BFDC0A1AE849AE577C171E0B6C81980B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246719.jpgsave_picture_246719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246719.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D7B1D91C53B82C4EE9CF76D6DE49BB9E83E70E99
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246720.jpgsave_picture_246720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246720.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5404924ED8CC24EEAE62963F1ED97FF8B7D7608D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246721.jpgsave_picture_246721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246721.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:2ABCC0C93DD44F5B2143162E4C8236EBEE9F2B80
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246722.jpgsave_picture_246722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246722.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246723.jpgsave_picture_246723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246723.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Radiolight (2025) [Ru/Multi] (0.9) Repack Necros
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246724.jpgsave_picture_246724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246724.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ SK-AI project - Последнее лето (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246725.jpgsave_picture_246725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246725.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:2CB390A5E765AE5BC4FD35210CF073079DE5D909
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246726.jpgsave_picture_246726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246726.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:38834889C5AB4FA0FE0980E29B9C82E6B72C66A8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246727.jpgsave_picture_246727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246727.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:CF3B593D559AFECC4355CC36570341AC62725B12
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246728.jpgsave_picture_246728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246728.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:115402BBC7856651656BB6163193E95896E4D16C
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246729.jpgsave_picture_246729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246729.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:E75669948BA4CA8FDEB45D751D127DF745EB71D0
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246730.jpgsave_picture_246730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246730.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ lanpirot | Товарищ «Чума» [12 книг] (2024-2025) [FB2]
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246731.jpgsave_picture_246731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246731.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ F.A. Kröger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия �
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246732.jpgsave_picture_246732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246732.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:657E37D4625D77A1BDF7DBC67EB83B1343B0E7CC
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246733.jpgsave_picture_246733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246733.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:AA121511BB7D5FA7B20D1A3024F06CF92A22FDD9
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246734.jpgsave_picture_246734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246734.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:6B1C2DE7C40DDA39DBAE6556D60E4BEBCE162D20
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246735.jpgsave_picture_246735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246735.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:39518FED2DB9EC6751992DA129CCAE12F742BFF4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246736.jpgsave_picture_246736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246736.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246737.jpgsave_picture_246737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246737.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.02.338408) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246738.jpgsave_picture_246738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246738.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:BEADD11B735132EFDAE88015680369BD4D3AACA5
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246739.jpgsave_picture_246739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246739.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246740.jpgsave_picture_246740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246740.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:EBD12F8E5FC98C1C84ED334ADBE3BA254B895090
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246741.jpgsave_picture_246741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246741.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Rufus 4.2 (Build 2074) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246742.jpgsave_picture_246742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246742.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:AFD67FC9FEEB7F375C8B8FAB0113EDDB51F02601
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246743.jpgsave_picture_246743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246743.jpg" />
 </div>
 
 

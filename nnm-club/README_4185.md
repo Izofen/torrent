@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129600.jpgsave_picture_129600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129600.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:25BCDD1DFCBF4465A7F9314A935DFFC44930758D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129601.jpgsave_picture_129601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129601.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PDF Reader Pro Edition 2.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129602.jpgsave_picture_129602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129602.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:AEC4424C95083BBEF2E7AFEE6D22D5921EE48FB2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129603.jpgsave_picture_129603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129603.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CB37F9E9D7EB404FE158B4909D813526989CF074
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129604.jpgsave_picture_129604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129604.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:3A9CFC4D7B631337C25A53E20F48BB6BA58781BF
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129606.jpgsave_picture_129606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129606.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:AF90C9401536C9721B3DAADB3FC33C147D75CCF1
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129607.jpgsave_picture_129607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129607.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Mirror for Android TV 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129608.jpgsave_picture_129608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129608.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:2F0DABC9DD1564690871B9453084FD46B6BEDC3A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129610.jpgsave_picture_129610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129610.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Angelus Apatrida - The Call (Limited Edition) Scene (2012) [FLAC|Lossless]<Thras
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129611.jpgsave_picture_129611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129611.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Angelus Apatrida - The Call (Limited Edition) Scene (2012) [FLAC|Lossless]<Thras
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129612.jpgsave_picture_129612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129612.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:5082FB945D5ECEAE4DD9FC9CEF9EA36A9CB5AE76
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129613.jpgsave_picture_129613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129613.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129615.jpgsave_picture_129615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129615.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:6A4D33DE7BD8D2B2C3D1DDFA79107EA73509CAFD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129616.jpgsave_picture_129616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129616.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Against the Storm (2022) [Ru/Multi] (1.0.1r) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129617.jpgsave_picture_129617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129617.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Meteora - Gradients III Lights In The Sky (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129618.jpgsave_picture_129618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129618.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:F8E738083CDE85FF4EEAF36524AD3A65BF13F94C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129619.jpgsave_picture_129619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129619.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:41FD493047D54493F9E4E5C19DCCF5D1CFF1E26A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129620.jpgsave_picture_129620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129620.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:80246DF0895FBCD93FF5972E72D1338AFA1C1763
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129621.jpgsave_picture_129621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129621.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:046DCB7F22D40922EC75280D53E69C8326802948
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129622.jpgsave_picture_129622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129622.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Dekoboko Majo no Oyako Jijou / The Family Circumstances of the Irregular Witch /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129623.jpgsave_picture_129623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129623.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:64C115B1AE4A301666397A59B09D68EDF4DA07F3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129625.jpgsave_picture_129625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129625.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Human Blue - MisStArRyAs Xperience (2006) [FLAC|Lossless]<Psychedelic / Progress
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129626.jpgsave_picture_129626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129626.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Firefox Browser 96.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129627.jpgsave_picture_129627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129627.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:3D5EC746A1CA001DA7D3630C941BA3BBD816B491
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129628.jpgsave_picture_129628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129628.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:452278E5F21EC0DA64FD892CCFE20B2B6351AE07
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129630.jpgsave_picture_129630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_129630.jpg" />
 </div>
 
 

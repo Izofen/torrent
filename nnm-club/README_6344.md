@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198667.jpgsave_picture_198667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198667.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:4229A5E9FB0C9350D29D910B83EDB984951D2505
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198668.jpgsave_picture_198668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198668.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:021262C1754A3087F22900F8E496C59467DA8DC5
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198669.jpgsave_picture_198669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198669.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Nerual Dreming | Нейробуст (2023) WEB-DL [AD] [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198670.jpgsave_picture_198670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198670.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:CBD588FE6BF31EC143374676B990D5DF69AD1772
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198671.jpgsave_picture_198671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198671.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sandra - Stop For A Minute (Maxi-Singles Collection) (2023) [FLAC|Lossless|image
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198673.jpgsave_picture_198673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198673.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Saga of Sins (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198674.jpgsave_picture_198674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198674.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Antivirus Removal Tool 2023.05 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198675.jpgsave_picture_198675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198675.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Chris Norman - The Best 2001 (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198677.jpgsave_picture_198677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198677.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Udemy, Web Oral | ChatGPT: Earning Money With ChatGPT - Easy Way For Beginners (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198678.jpgsave_picture_198678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198678.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ AIO Boot NewGen 23.5.9.0 Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198679.jpgsave_picture_198679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198679.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:6AF5DE191F11FB54D9070A001DDEBF5C033EBA78
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198680.jpgsave_picture_198680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198680.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ CCleaner Pro: ПО для очистки 6.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198681.jpgsave_picture_198681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198681.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2E835A7CDE76CC335B232EAFD083270D889262F7
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198682.jpgsave_picture_198682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198682.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ PDF Annotator 9.0.0.914 (x64) [Multi]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198683.jpgsave_picture_198683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198683.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Assassin's Creed II: Game of the Year Edition (2010) [PS3] [EUR] 3.15 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198684.jpgsave_picture_198684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198684.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:FCB18DE07F552EF04FB6D38A448C4F02C72FBEE7
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198686.jpgsave_picture_198686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198686.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:0E693E701485EDD7D50831C8A292D3436EF7AE6A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198687.jpgsave_picture_198687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198687.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:C846B1514F974F8C678C50640FF76B3203817ED3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198688.jpgsave_picture_198688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198688.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FastStone Capture 10.0 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198689.jpgsave_picture_198689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198689.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:65E6410A7DBBC9ADAAF24CCF24302768480E6BF6
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198690.jpgsave_picture_198690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198690.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:A69F1AE435E87868EAAD118A9D21DD54F5164C12
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198691.jpgsave_picture_198691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198691.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Embacy, Артём Кузнецов | Курс верстки на Webflow (2022
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198692.jpgsave_picture_198692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198692.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:12EA9C0CFB9579D36010D338AD70A7B355AECB84
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198693.jpgsave_picture_198693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198693.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Plugin Alliance & TBTECH Kirchhoff-EQ 1.6.4 VST, VST 3, AAX (x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198695.jpgsave_picture_198695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198695.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:F8868676B45E235F070C5F94A8ABDB14BE418639
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198697.jpgsave_picture_198697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198697.jpg" />
 </div>
 
 

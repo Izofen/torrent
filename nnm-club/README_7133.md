@@ -6,7 +6,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244397.jpgsave_picture_244397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244397.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Pixel Front, Mario Reitbauer | A Full Introduction To Grooming For VFX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244398.jpgsave_picture_244398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244398.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:AABEBAF60F2350CB6C27EACBBEBA7FB6E125BE68
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244399.jpgsave_picture_244399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244399.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8F2D0DB760D8D7B0C15B88F17F0C59663676039F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244400.jpgsave_picture_244400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244400.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ The Jimmy Giuffre 3 - Trav'lin' Light (1958) Remaster, 2012, Warner[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244401.jpgsave_picture_244401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244401.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:98A3340462DE75D9CEB78A5A15ED4BBC0291E2F0
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244402.jpgsave_picture_244402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244402.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ White Lion - Love Don't Come Easy (1991) CDS, Single [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244403.jpgsave_picture_244403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244403.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cadaver Shrine - Benighted Desecration (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244404.jpgsave_picture_244404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244404.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Mind Patrol - Milking The Massess (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244405.jpgsave_picture_244405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244405.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:B2A2E1BA9126F722D0AB273A38149A10082EC68D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244406.jpgsave_picture_244406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244406.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:757CFC014D8813E74492677E95AB4321B4FF3D5A
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244407.jpgsave_picture_244407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244407.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Seven Witches - Rebirth (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244408.jpgsave_picture_244408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244408.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Povarovo - Tchernovik (2007) Reissue, 2012, Denovali  [FLAC|Lossless|Web-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244409.jpgsave_picture_244409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244409.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244410.jpgsave_picture_244410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244410.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Woody Herman - Road Band (1954, 1955) 2005, Membran Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244411.jpgsave_picture_244411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244411.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:62275FE4F7958F12505E67F19F61D45104096CDD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244412.jpgsave_picture_244412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244412.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Notes from the Depth, Vol. 9 (2020) [AAC|~330 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244413.jpgsave_picture_244413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244413.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:4B57AC6F24BF2F958E328059A9CD7037C5FBEBE4
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244414.jpgsave_picture_244414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244414.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:0E1E247447A5F7EED13CAC3510D74844EB1591CB
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244415.jpgsave_picture_244415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244415.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:C12AE24183E2D64D52E811EDF54887A5360F4188
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244416.jpgsave_picture_244416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244416.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Between Two Points (2001) 12k / Line [FLAC|Lossless|tracks+.cue] <Experimen
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244417.jpgsave_picture_244417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244417.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Coffee Chill Time, Vol. 3 (2017) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244418.jpgsave_picture_244418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244418.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Center of the Earth - 4 Albums (2018-2023) [MP3|320 Kbps] <Psych, Stoner, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244419.jpgsave_picture_244419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244419.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Celestial Shadows - The Tragedy of Calufrax (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244420.jpgsave_picture_244420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244420.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:7EA3F504C25C1530A894B456E523DF9B4546BFD8
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244421.jpgsave_picture_244421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244421.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Willie ''The Lion'' Smith - 1938 - 1940 (1993) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244422.jpgsave_picture_244422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244422.jpg" />
 </div>
 
 

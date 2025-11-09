@@ -6,7 +6,7 @@ Wondershare UniConverter for Mac 15.5.1 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119648.jpgsave_picture_119648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119648.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:71C60E66D6B178632CB1ECF7F27EDE4A67C4B317
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119649.jpgsave_picture_119649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119649.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:46C1E9B07DC0F85F273EB4E41BFC57042F60BF87
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119650.jpgsave_picture_119650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119650.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ RS Explorer / RS Проводник 2.0.9.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119651.jpgsave_picture_119651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119651.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D1892E6EF4990B789949B25EE3C2D39FA85761DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119652.jpgsave_picture_119652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119652.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:D25ECCD013A6485454F4B5E61D12FFCE0EE84F40
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119653.jpgsave_picture_119653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119653.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ TikTok 33.2.5 Lite-Mod by Dmitry Nechiporenko + Plugin 1.26 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119654.jpgsave_picture_119654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119654.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ PDF Reader Pro 3.3.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119655.jpgsave_picture_119655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119655.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ LuLu 2.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119656.jpgsave_picture_119656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119656.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Opera One 106.0.4998.70 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119657.jpgsave_picture_119657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119657.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4EAF4785B88BCFB05A2AE6270968008D55E90B3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119658.jpgsave_picture_119658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119658.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:4307EE017E6053E6B9C58BCCBE0D58F9A76D38EE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119659.jpgsave_picture_119659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119659.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:FA552A4D84DE6E9FC1A7B228E4B5D350C54D1F5F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119660.jpgsave_picture_119660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119660.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Paul Mccartney, Wings - Band On The Run (1973) 2024, 50th Anniversary Underdubbe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119661.jpgsave_picture_119661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119661.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:6C57CC28C3EDFF919E159C0A2174FF52DA3DE921
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119662.jpgsave_picture_119662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119662.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ IceCream Ebook Reader Pro 6.46 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119663.jpgsave_picture_119663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119663.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ PortableApps.com Platform 29.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119664.jpgsave_picture_119664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119664.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:868C99E92C5BA5004A666A0E94BEDC4F7E5EBB1F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119665.jpgsave_picture_119665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119665.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:672FECAD0AEC524DC8DC988411C6D4CEFD67AB5A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119666.jpgsave_picture_119666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119666.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:483B4E1674FBBE9E1387F7BD22CCA80D764CAC34
 >>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119667.jpgsave_picture_119667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119667.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ WizTree 4.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119668.jpgsave_picture_119668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119668.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:3D96F65B7AD0E25242E5417B608CE875AD6AC6BC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119669.jpgsave_picture_119669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119669.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:3A007F4C8D52E3CFAA780ACB9FAA6F9E382BADE9
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119670.jpgsave_picture_119670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119670.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:D8B741DEA52A51EC291095FC96085FA03D4D8780
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119671.jpgsave_picture_119671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119671.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Infected Mushroom - REBORN (2024) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Ele
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119672.jpgsave_picture_119672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119672.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:6FE8EE11D16F37D08F1D895608427F8A55F713F2
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119673.jpgsave_picture_119673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119673.jpg" />
 </div>
 
 

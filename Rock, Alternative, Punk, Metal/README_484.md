@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250400.jpgsave_picture_250400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250400.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Scorpions - From The First Sting (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250503.jpgsave_picture_250503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250503.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Greg Puciato - 3 Albums (2020-2022) [MP3|320 Kbps] <Alternative Rock, Grunge, In
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250522.jpgsave_picture_250522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250522.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ White Lies - Night Light (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250535.jpgsave_picture_250535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250535.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250604.jpgsave_picture_250604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250604.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Florence + The Machine - Everybody Scream (Chamber Version) (2025) [FLAC 24/48|L
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250629.jpgsave_picture_250629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250629.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Deez Nuts - Saudade (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Hardcor
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250630.jpgsave_picture_250630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250630.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Cold Steel - Discipline & Punish (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250637.jpgsave_picture_250637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_250637.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Slash - Live at the S.E.R.P.E.N.T. Festival (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250758.jpgsave_picture_250758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250758.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Shadows Fall - Fire From The Sky (2012) [MP3|320 кб/с]<Metalcore / Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250776.jpgsave_picture_250776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250776.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:F2809BF5C5624D847AE67EF65E9FDB17B3C5A50A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250828.jpgsave_picture_250828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250828.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Evanescence (Amy Lee) - 9 Albums + 3 EP's + 2 Lives + 21 Singles + 1 Compilation
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250829.jpgsave_picture_250829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250829.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Ashes And Diamonds - Are Forever (2025) [FLAC|Lossless|image + .cue] <Rock, Alte
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250834.jpgsave_picture_250834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250834.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Randy Johnston - Rockin' Soul at the Star Tavern (2025) [FLAC 24/48|Lossless|WEB
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250855.jpgsave_picture_250855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250855.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251159.jpgsave_picture_251159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251159.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Empire Drowns - Endless Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251226.jpgsave_picture_251226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251226.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:EBBCE35F243A323D129B8F95A23B349C62AD7BB4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251246.jpgsave_picture_251246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251246.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Paul Mccartney, Wings - Wings (Deluxe) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251282.jpgsave_picture_251282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251282.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ King Crimson - The 21st Century Guide To King Crimson: Volume One (1969-1974) & 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251303.jpgsave_picture_251303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251303.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Nordheim - Lost In The North (2010) [MP3|320 кб/с]<Viking/Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251358.jpgsave_picture_251358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251358.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ P.H.O.B.O.S. - Atonal Hypermnesia (2012) [MP3|320 кб/с]<Psychedelic Industria
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251401.jpgsave_picture_251401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251401.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Iron Maiden - 2 Альбома (1983-2002) [FLAC|Lossless]<Rock, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251516.jpgsave_picture_251516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251516.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Kings Of Leon - EP #2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Al
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251693.jpgsave_picture_251693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251693.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Jimi Hendrix (The Jimi Hendrix Experience) - Bold As Love Sessions (2025) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251694.jpgsave_picture_251694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251694.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Finger Eleven - Last Night On Earth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251696.jpgsave_picture_251696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251696.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Alcatrazz - Prior Convictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251704.jpgsave_picture_251704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251704.jpg" />
 </div>
 
 

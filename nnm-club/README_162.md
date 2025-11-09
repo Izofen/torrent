@@ -6,7 +6,7 @@ Wolfenstein: The New Order, The Old Blood, The New Colossus, Youngblood (2014-20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4263.jpgsave_picture_4263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4263.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E5CF0E94AC4B56EE621F50B2F6FC7D13B397B5D4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4264.jpgsave_picture_4264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4264.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:75CD9ED1A0517C86632EF41DF7773D55F0F55C5E
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4265.jpgsave_picture_4265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4265.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ LinkTV - IPTV player v2.2 Mod by Viktor245 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4266.jpgsave_picture_4266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4266.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4267.jpgsave_picture_4267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4267.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:218E1D11A05A9DF903519D93B6FC7F3F3B961BD0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4268.jpgsave_picture_4268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4268.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E3715850ED48927B3EA5FEC407A60526603E3C7E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4269.jpgsave_picture_4269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4269.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:CE036720709BA157EEC107517D69492446E59CF2
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4270.jpgsave_picture_4270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4270.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Spinal Tap - Break Like The Wind (2025 Remaster) (1992) Remastered, 2025, Geffen
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4271.jpgsave_picture_4271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4271.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The Rods - Wild Dogs Unchained (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4272.jpgsave_picture_4272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4272.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B4C95457AA19C03D2B17B8F14F7EDFA9F48CE943
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4273.jpgsave_picture_4273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4273.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Zoot Sims - I Wish I Were Twins (1981) 1998, Pablo [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4274.jpgsave_picture_4274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4274.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Ori Uplift - Uplifting Only Episode 656 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4275.jpgsave_picture_4275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4275.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:C5585065EF9FF2E8B72D99FB8A7115338E0E2055
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4276.jpgsave_picture_4276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4276.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ La Dispute - No One Was Driving The Car (2025) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4277.jpgsave_picture_4277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4277.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Auslogics BoostSpeed 14.1.0.0 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4278.jpgsave_picture_4278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4278.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:9F14D2C66E9570695A2C4D84B0B88010D6DF8257
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4279.jpgsave_picture_4279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4279.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Monster Bass 2025 - Hypertechno Car Music Only [FLAC|Lossless|WEB-DL|tracks
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4280.jpgsave_picture_4280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4280.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:5DD7FC620BB1BE98A7F9468B81FAC51E77EB47C2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4281.jpgsave_picture_4281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4281.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:4FF65D287B5A43D737EA9D861B3845F080778EBF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4282.jpgsave_picture_4282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4282.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Detective Club 2: Gallery of Shadows / Детективный клуб 2: Гал
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4283.jpgsave_picture_4283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4283.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Till Bronner - ITALIA (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz, C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4284.jpgsave_picture_4284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4284.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Queen - B-Sides (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4285.jpgsave_picture_4285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4285.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:216FF8480A7BE5729E15C689BDDE481A1A75A40E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4286.jpgsave_picture_4286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4286.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Acoustic Alchemy - The Empire of Lights (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4287.jpgsave_picture_4287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4287.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:5DE68198BAE9D9E34A5DB3F1CB5ABA7E194CDF7B
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4288.jpgsave_picture_4288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4288.jpg" />
 </div>
 
 

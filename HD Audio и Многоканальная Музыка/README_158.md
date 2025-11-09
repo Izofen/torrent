@@ -6,7 +6,7 @@ The Rebel Saints - The Rebel Saints (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113245.jpgsave_picture_113245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113245.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Coventhrall - Legacy of Morfuidra (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113248.jpgsave_picture_113248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113248.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Charles Lloyd - The Sky Will Still Be There Tomorrow (2024) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113249.jpgsave_picture_113249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113249.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113255.jpgsave_picture_113255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113255.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113256.jpgsave_picture_113256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113256.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Savage Oath - Divine Battle (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113273.jpgsave_picture_113273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113273.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Zhu - Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Bas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113293.jpgsave_picture_113293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113293.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Для вас, женщины! Женский портрет (1987) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113316.jpgsave_picture_113316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113316.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:BED83AEBF4EE2AE0810CA62C2CEBE014F14B3F16
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113318.jpgsave_picture_113318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113318.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Irene Dresel - Rose Fluo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Tech
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113326.jpgsave_picture_113326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113326.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Alice Cooper - Dada (1983) [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113327.jpgsave_picture_113327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113327.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113328.jpgsave_picture_113328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113328.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113337.jpgsave_picture_113337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113337.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113339.jpgsave_picture_113339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113339.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113342.jpgsave_picture_113342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113342.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Smooth Jazz Music Club, Chilled Jazz Masters - Erotic Jazz Bar: Sexy Evening wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113344.jpgsave_picture_113344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113344.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:056B80A1C911A42E3F0510070E71BEB87A6633E9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113345.jpgsave_picture_113345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113345.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:AFAEEA98AEB7D6312EF2C92DBA81D3B981178052
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113351.jpgsave_picture_113351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113351.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:E1F1EEA7EAD75F272EFAFCAC28FA6141FACE8065
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113357.jpgsave_picture_113357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113357.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - С Новым Годом! (1983) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113359.jpgsave_picture_113359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113359.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:2D71F315A617AB89E38525C3AD9C3DFA51656663
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113360.jpgsave_picture_113360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113360.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Маскарад (1986) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113362.jpgsave_picture_113362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113362.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kid Kapichi - There Goes The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113363.jpgsave_picture_113363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113363.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113364.jpgsave_picture_113364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113364.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - С Новым Годом! (1985) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113367.jpgsave_picture_113367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113367.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Радуга (2 пластинка) (1979) [FLAC 24/192|Lossless|tracks] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113369.jpgsave_picture_113369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113369.jpg" />
 </div>
 
 

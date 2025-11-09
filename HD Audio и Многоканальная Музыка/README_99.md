@@ -6,7 +6,7 @@ The Pineapple Thief - Last To Run (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103033.jpgsave_picture_103033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103033.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103034.jpgsave_picture_103034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103034.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Kingcrown - Nova Atlantis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103035.jpgsave_picture_103035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103035.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103037.jpgsave_picture_103037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103037.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103038.jpgsave_picture_103038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103038.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103040.jpgsave_picture_103040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103040.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Silent Winter - Utopia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103042.jpgsave_picture_103042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103042.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Staples Jr. Singers - Searching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103043.jpgsave_picture_103043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103043.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ The San Pedro Allstars feat. Reed Turchi, Austin White, Marlon Patton & Eric Bur
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103044.jpgsave_picture_103044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103044.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Wako - Evig liv, perfekt orden (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103045.jpgsave_picture_103045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103045.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Marco Grompi & Michele Fortis - WINTERFLOWERS (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103046.jpgsave_picture_103046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103046.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Juan Raul Rosero - Everything is Possible (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103048.jpgsave_picture_103048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103048.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Sylvaine - Silent Chamber, Noisy Heart (2014) Remasteredб 2024, Eisenwald [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103050.jpgsave_picture_103050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103050.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Suat Ernur Bilge - Troubled Sadness (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103051.jpgsave_picture_103051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103051.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ About Us - Take A Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103053.jpgsave_picture_103053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103053.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Wes Jeans - One Day at a Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103057.jpgsave_picture_103057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103057.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103058.jpgsave_picture_103058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103058.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103059.jpgsave_picture_103059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103059.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Joe Grushecky & The Houserockers - Can't Outrun A Memory (2024) [FLAC 24/48|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103060.jpgsave_picture_103060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103060.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Dreamscapes - Lost and Found (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103064.jpgsave_picture_103064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103064.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Kreator - Live in Chile (April 2023) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103065.jpgsave_picture_103065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103065.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Ernesto J. Ponce - In-Between Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103066.jpgsave_picture_103066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103066.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Mark Farner - Closer To My Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Clas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103074.jpgsave_picture_103074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103074.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Divisive Echoes - Twilight Of The Round Table (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103075.jpgsave_picture_103075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103075.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Singing River - Talkin' Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103076.jpgsave_picture_103076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103076.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Enforced - A Leap Into the Dark (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103077.jpgsave_picture_103077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103077.jpg" />
 </div>
 
 

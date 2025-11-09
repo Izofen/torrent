@@ -6,7 +6,7 @@ The Last Story [Wii] [PAL] [Multi 5] (2012)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78059.jpgsave_picture_78059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78059.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78060.jpgsave_picture_78060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78060.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78063.jpgsave_picture_78063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78063.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78065.jpgsave_picture_78065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78065.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:26D05B34B0B32450A051E20562868E8C6D115FFF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78066.jpgsave_picture_78066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78066.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sinclair MacOSX Linux Build v.20120217 [x86] (1xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78067.jpgsave_picture_78067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78067.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:AC8033CC3B9A6B41C4E5BC395AFA1E800F0D2D3E
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78068.jpgsave_picture_78068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78068.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:5320F08A9A3A83FBB1C6AAA953C0EA6AE0820E2D
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78070.jpgsave_picture_78070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78070.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Serious Sam: The Second Encounter [Wineskin] [Rus]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78073.jpgsave_picture_78073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78073.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ VA - Playboy Jazz - In a Smooth Groove (2004) [FLAC|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78078.jpgsave_picture_78078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78078.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ VA - Goa Culture Vol. 5 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78093.jpgsave_picture_78093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78093.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ magnet:?xt=urn:btih:D4E504BAD290A3B1B13A7DD4E88FE2702DBD2CEC
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78101.jpgsave_picture_78101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78101.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78105.jpgsave_picture_78105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78105.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78117.jpgsave_picture_78117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78117.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:133FB05B88F5BDB7A4104E7AB66755765663C17B
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78120.jpgsave_picture_78120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78120.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78124.jpgsave_picture_78124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78124.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Kiss - 5 Albums (1978-1982) [FLAC|Lossless]<Hard Rock, Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78128.jpgsave_picture_78128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78128.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Rod Stewart - 3 альбома (1996-2010) [APE|Lossless]<Hard Rock, Classic Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78131.jpgsave_picture_78131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78131.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Rod Stewart - 3 альбома (1996-2010) [APE|Lossless]<Hard Rock, Classic Roc
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78139.jpgsave_picture_78139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78139.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Korn, Ozzy Osbourne - Live at OZZFEST 2010 (2010) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78140.jpgsave_picture_78140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78140.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Ozzy Osbourne - 00:30:26
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78153.jpgsave_picture_78153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78153.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:7862649348D2AC1981767984B3E5CC479C46A3D0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78156.jpgsave_picture_78156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78156.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:9DFE8289437A22086B293D87F00327F8EE650A0C
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78157.jpgsave_picture_78157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78157.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:38363030A67BC9A56A6388F3D2B7817E2447CEB6
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78159.jpgsave_picture_78159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78159.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:6924758606197C212EF08BF35A793DF6EBF992CC
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78169.jpgsave_picture_78169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78169.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Золотой фонд. Мое последнее танго  - Кумир
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78177.jpgsave_picture_78177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_78177.jpg" />
 </div>
 
 

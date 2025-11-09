@@ -6,7 +6,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117591.jpgsave_picture_117591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117591.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Misanthrope - Misanthrope Immortel (2000) 20th Anniversary Edition, 2021, Remast
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117592.jpgsave_picture_117592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117592.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:96B01A57C2A429242EB9D62B8F833E4951D78A2A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117593.jpgsave_picture_117593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117593.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:137E9886991602579C968467B9FACEAB984E1E51
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117594.jpgsave_picture_117594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117594.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ ON1 Photo RAW MAX 2026 20.0.4.17586 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117595.jpgsave_picture_117595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117595.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:6DD69BEEA1DB2DB59F378337E8814BEC217ECAB6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117596.jpgsave_picture_117596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117596.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:C92439A9AC34A5787C394E9111D31F58BBB4F860
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117597.jpgsave_picture_117597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117597.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ XYplorer 25.50.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117598.jpgsave_picture_117598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117598.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:F4231E7F65E5D5B3771D3B5B33368C186D17D8C9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117599.jpgsave_picture_117599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117599.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Italian Romantic Piano Jazz Academy, Sexy Lovers Music Collection, Romantic Even
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117600.jpgsave_picture_117600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117600.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:4A0606F7DD8C44920EE81AA928AED78B0F984CDD
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117601.jpgsave_picture_117601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117601.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:17190B8EFC746B9591F05AC6B2B95BFF34353763
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117602.jpgsave_picture_117602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117602.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Money Pro - Personal Finance 2.10.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117603.jpgsave_picture_117603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117603.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:03D4766F97604CD820C8923690DA5A045B426F05
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117604.jpgsave_picture_117604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117604.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Triangle Sun - Wake Me Up (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117605.jpgsave_picture_117605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117605.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Cafe Chill Jazz Background, Jazz Music Lovers Club, Jazz Erotic Lounge Collectiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117606.jpgsave_picture_117606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117606.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:1EF93AB33F9876255449244121D6BADF4946A119
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117607.jpgsave_picture_117607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117607.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:442E69B025830DA3B672C5B733C7BFFD5AF5C669
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117608.jpgsave_picture_117608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117608.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:63977D231D63211AE969D740E6EC6E21AF1FAD92
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117609.jpgsave_picture_117609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117609.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Ui Kits - UI8 - The Folio - Portfolio, Blog, and Personal Website Template [FIG,
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117610.jpgsave_picture_117610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117610.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:BAFB731324251B6678D23D6E77D931425AF2EC1E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117611.jpgsave_picture_117611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117611.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:8C71D0041130CE15793C69E416C2293F08AF2B41
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117612.jpgsave_picture_117612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117612.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:F3F92D7CF1CE5045EC15B1A017DDEB10FA5EFF19
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117613.jpgsave_picture_117613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117613.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:98A99F023483C10C32A436E2CAFDDE145FA2F38F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117614.jpgsave_picture_117614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117614.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Mellel 6 v.6.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117615.jpgsave_picture_117615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117615.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:BECB93AB49DBDC13C9021EF966506EEEC4C88CE0
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117616.jpgsave_picture_117616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117616.jpg" />
 </div>
 
 

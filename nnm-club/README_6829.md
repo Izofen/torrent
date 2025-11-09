@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234721.jpgsave_picture_234721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234721.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Project 86 - OMNI, Pt. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Christi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234722.jpgsave_picture_234722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234722.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234723.jpgsave_picture_234723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234723.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:93DD4132850B9280A20758616A6A3E41E81251C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234724.jpgsave_picture_234724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234724.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ World Of Damage - Invoke Determination (2021) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234725.jpgsave_picture_234725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234725.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:405A8F4E148EECEE3886F4DF5C0D6EE536803FEB
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234726.jpgsave_picture_234726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234726.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Sarcator - Sarcator (2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234728.jpgsave_picture_234728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234728.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Adversvm - Aion Sitra Ahra (2018) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234729.jpgsave_picture_234729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234729.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|WEB-DL|tracks] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234730.jpgsave_picture_234730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234730.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:22AF832639A175376865A6F4E9BA13995DC91DC2
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234731.jpgsave_picture_234731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234731.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Immortal - War Against All (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234732.jpgsave_picture_234732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234732.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Trash - Watch Out (1982) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234733.jpgsave_picture_234733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234733.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Bulk Image Downloader 6.27 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234734.jpgsave_picture_234734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234734.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Bob Albanese Trio With Ira Sullivan - One Way / Detour (2009) Zoho [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234736.jpgsave_picture_234736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234736.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:A86BDD90A16324DDB64EE56E7559E4E3594FABD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234737.jpgsave_picture_234737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234737.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Caro Emerald - Deleted Scenes From the Cutting Room Floor (The Remixes) (2012) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234738.jpgsave_picture_234738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234738.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Inmundus - The God Machine (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234739.jpgsave_picture_234739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234739.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:1C358B0B3B1DEA805712E370924EA3B1FF091BBD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234740.jpgsave_picture_234740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234740.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:F7911F24B75D35E6BB8A6DD67DF2FBAD5829A1CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234741.jpgsave_picture_234741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234741.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ferdy Doernberg - ...'till I run out of road (2006) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234742.jpgsave_picture_234742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234742.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Adversvm - Vama Marga (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234744.jpgsave_picture_234744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234744.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Microsoft Windows 11 [10.0.22000.675], Version 21H2 (Updated May 2022) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234745.jpgsave_picture_234745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234745.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Fireplace Chill, Vol. 5 (2020) [AAC|~322 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234746.jpgsave_picture_234746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234746.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ PCalc 4.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234747.jpgsave_picture_234747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234747.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Aiseesoft Mac FoneLab for Android 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234748.jpgsave_picture_234748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234748.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Araxis Merge Pro Edition 2023.5915 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234749.jpgsave_picture_234749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234749.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14198.jpgsave_picture_14198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14198.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14199.jpgsave_picture_14199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14199.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:015C213B37F9F74A5A138BFF5A7DE913BC21F197
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14200.jpgsave_picture_14200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14200.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:47C916D972E8B010D428899CA4E8B57C0B7E7DFF
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14201.jpgsave_picture_14201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14201.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:106369F28B51FE39E0AA49FB15D704D1CE35B4C6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14202.jpgsave_picture_14202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14202.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A13DAFD1F4B5B080F92C7775D967F17D994D253A
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14203.jpgsave_picture_14203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14203.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:A74D82AD983D8609EAC1DB26985F3E1A9874A71B
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14204.jpgsave_picture_14204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14204.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:36F3A1B4D559AC59CBED0CB78976B93984135223
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14205.jpgsave_picture_14205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14205.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Petra and the Paper Hearts - Queens Of The Blues (2025) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14206.jpgsave_picture_14206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14206.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:CFCC90A664D05954DF407E31421ADB6D97309802
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14207.jpgsave_picture_14207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14207.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14208.jpgsave_picture_14208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14208.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:49036718C3B3FA76EFF30150C1ABAE2DC741C70F
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14210.jpgsave_picture_14210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14210.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:86EACD83452D6E7CF3D6FD9F67D33BE17C4897E5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14212.jpgsave_picture_14212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14212.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14213.jpgsave_picture_14213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14213.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:09FC9848018BD0F5898BBCB3CEE3512D4F2672A7
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14214.jpgsave_picture_14214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14214.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:B957A12A3F44A3C47B92FEA85E8A9762A7A789F1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14215.jpgsave_picture_14215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14215.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:F71E45C23749A5F4AC5931B8718E2A7966A01DF5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14216.jpgsave_picture_14216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14216.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:23C0646F5220D308EC54722A8FD96ADD582EB0A0
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14217.jpgsave_picture_14217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14217.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:3E0FE37B7872A7A20EA6F691924DAC2865379574
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14218.jpgsave_picture_14218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14218.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:14ADBE35A793C419F47243F8F40D8BDD09EE8C39
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14219.jpgsave_picture_14219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14219.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wang Yu (忘语) | Путешествие к бессмертию [9] (2008, 201
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14220.jpgsave_picture_14220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14220.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:E6989B622BC8A487DD247BA441834FA181D6F12A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14221.jpgsave_picture_14221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14221.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14222.jpgsave_picture_14222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14222.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:B50CC9DA2A3D60A720C56D60F0BA3E89F9EAF1B4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14223.jpgsave_picture_14223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14223.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VRadio - Online Radio App v2.8.5 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14224.jpgsave_picture_14224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14224.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:269A1570ED79030F04AE26FC6B24CAA747100DA1
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14225.jpgsave_picture_14225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14225.jpg" />
 </div>
 
 

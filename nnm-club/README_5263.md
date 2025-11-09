@@ -6,7 +6,7 @@
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163630.jpgsave_picture_163630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163630.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:20382AA0A4E00C74A0853A102D71BFDFD0F1C04C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163631.jpgsave_picture_163631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163631.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Phenomena - 7 albums, 14 CD (1985-2020) [FLAC|Lossless|image + .cue | tracks+.cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163632.jpgsave_picture_163632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163632.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:66B6E7DE7206FC61C0485AE9F4D041D57132C66D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163633.jpgsave_picture_163633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163633.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Chill Executive Officer (CEO), Christmas Edition (2021) [AAC|~320 Kbps] <Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163634.jpgsave_picture_163634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163634.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:D6A3EEAEC56D2492F8467312E9B1D4E3DE22996B
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163635.jpgsave_picture_163635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163635.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:CFDE65AD687C7A75ADAEF076E0A055FF642E827C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163636.jpgsave_picture_163636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163636.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Domestika, Luis Alberto Gayoso Berrosp | Digital Sculpture of Fantastic Creature
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163637.jpgsave_picture_163637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163637.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Pocket cleaner Pro 1.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163638.jpgsave_picture_163638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163638.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:C8E1787546028F8E5E07D980EBE434C0CE46D000
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163639.jpgsave_picture_163639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163639.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:6EFD7B5EE26BE9632EF6ED71A7BEE88450071450
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163640.jpgsave_picture_163640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163640.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163641.jpgsave_picture_163641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163641.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:559ADE1EB0F29B2D98CC548BE66EC4577D20061C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163642.jpgsave_picture_163642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163642.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:3BA5C99AAA89E06E721B2C9697F7C8739D233009
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163643.jpgsave_picture_163643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163643.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Life Of A Hero - Letting Go (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163644.jpgsave_picture_163644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163644.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Oxygen (2023) [Ru/Multi] (1.027) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163645.jpgsave_picture_163645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163645.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Audirvana 3.5.29 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163646.jpgsave_picture_163646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163646.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:A07EEC0E5B209E3B5462C5C4967968BCBF5580C4
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163647.jpgsave_picture_163647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163647.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Drifting Sun - Forsaken Innocence (2021) [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163648.jpgsave_picture_163648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163648.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:C974CA64B0A9E11E1E02403917B7D703D0D187B9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163649.jpgsave_picture_163649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163649.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:DA412955DDDBCCCD49A91B5BE056C7A1686A5F0C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163650.jpgsave_picture_163650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163650.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:65E06AB3DA7765887B130D97A7EC57DD2CB3C1C7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163651.jpgsave_picture_163651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163651.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 3 (2020) [AAC|~326 Kbps] <Broken Be
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163652.jpgsave_picture_163652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163652.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:43326F278F1885FE8F3B383F40E7CE42E940E87A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163653.jpgsave_picture_163653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163653.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:9BA67B4678C084A02CBE65B9F38658E6B1426C24
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163654.jpgsave_picture_163654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163654.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Offroad Mechanic Simulator (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163655.jpgsave_picture_163655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163655.jpg" />
 </div>
 
 

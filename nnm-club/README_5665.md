@@ -6,7 +6,7 @@ Emurasoft EmEditor Professional 22.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174411.jpgsave_picture_174411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174411.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:2C116B4C7D2C797E7E8A65A21539628F26D615BB
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174412.jpgsave_picture_174412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174412.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:65AA21D33AC36C8E49224B12D51267710C91E7CA
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174414.jpgsave_picture_174414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174414.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:755A7C134536EB8FE1E806E3CAF457E09F79EA8E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174415.jpgsave_picture_174415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174415.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:7D1BC4848D892DEBDB892B62FCE3DE4E1314551F
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174416.jpgsave_picture_174416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174416.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Revo Uninstaller Free 2.4.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174418.jpgsave_picture_174418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174418.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:3E7E44093B80F1C8D2C7038B90E57ED548EAFEC3
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174419.jpgsave_picture_174419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174419.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:38F9786C7C4E0350F80573A03809A5D16962017F
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174420.jpgsave_picture_174420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174420.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Process Lasso Pro 12.0.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174422.jpgsave_picture_174422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174422.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:5C513F730AA42FDDBAD4C4EF5B6D3D51E68EE42F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174423.jpgsave_picture_174423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174423.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:508548E711839356F2F637139D39754B92D5EBCA
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174424.jpgsave_picture_174424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174424.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Auslogics Anti-Malware Pro 1.23.0.0 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174426.jpgsave_picture_174426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174426.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174427.jpgsave_picture_174427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174427.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Adguard 7.15.0 (7.15.4385.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174429.jpgsave_picture_174429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174429.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:EB38732793E3241E9F63AC869814F0A42D91E809
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174430.jpgsave_picture_174430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174430.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:461BD6A58176AB9A29C6668B5B095971D9325E24
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174432.jpgsave_picture_174432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174432.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:D6D7AB3F7843C9FF02F5233206F880F631D47DB7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174434.jpgsave_picture_174434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174434.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Anjunadeep The Remixes 2020 (2020) Compilation [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174435.jpgsave_picture_174435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174435.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Lacey Free Music & Video Downloader 2.48 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174436.jpgsave_picture_174436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174436.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Auslogics Duplicate File Finder 10.0.0.4 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174438.jpgsave_picture_174438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174438.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Pixelmator Classic 3.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174439.jpgsave_picture_174439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174439.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Vivaldi for Android 5.5.2807.43  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174441.jpgsave_picture_174441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174441.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Adguard 7.15.0 (7.15.4385.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174442.jpgsave_picture_174442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174442.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:716979A758A8CBD4BCF42FB2175EA3C7C852F057
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174443.jpgsave_picture_174443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174443.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ AusLogics Disk Defrag Ultimate 4.13.0.1 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174445.jpgsave_picture_174445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174445.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:F590ED48E9CDD5E828521506B477C22ECE77C8AD
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174446.jpgsave_picture_174446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174446.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245581.jpgsave_picture_245581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245581.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5C611CF847473539EE3A1D92BFA7F06A069660EB
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245582.jpgsave_picture_245582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245582.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FoneDog Toolkit – iOS Data Recovery 2.1.52 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245583.jpgsave_picture_245583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245583.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Jen Ascending - Bleeding Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245584.jpgsave_picture_245584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245584.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:170A92ADECBE119D08AEF65F6F838A8B95965BBE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245585.jpgsave_picture_245585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245585.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ HammerFall - Renegade 2.0 (2021) 2xCD, Compilation, Remastered, Nuclear Blast, 2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245586.jpgsave_picture_245586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245586.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:CEB4BCC54531AB3D7959EE541C0A28ADD48BA7FA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245587.jpgsave_picture_245587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245587.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:736FFFA30EEEFFE6E47B95574EE96EB3327F4AA8
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245588.jpgsave_picture_245588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245588.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:355075B12F106D165BAA89E47A97AA047A35B409
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245589.jpgsave_picture_245589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245589.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Sublime Drum & Bass, Vol. 02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & B
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245590.jpgsave_picture_245590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245590.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Dirch - First We Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245591.jpgsave_picture_245591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245591.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ OCRKit 16.9.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245592.jpgsave_picture_245592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245592.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Artweaver Plus 7.0.13.15546 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245593.jpgsave_picture_245593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245593.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Nik Collection 4 by DxO 4.3.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245594.jpgsave_picture_245594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245594.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Process Lasso Pro 12.1.0.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245595.jpgsave_picture_245595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245595.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Jaggu - Rites for the Damned (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245596.jpgsave_picture_245596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245596.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Wizard - Metal In My Head (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245597.jpgsave_picture_245597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245597.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Sumatra PDF 3.5.15371 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245598.jpgsave_picture_245598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245598.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - Late Night With You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245599.jpgsave_picture_245599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245599.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:0C97B0BBCD8D68CC5058A482BE4191234D8AB051
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245600.jpgsave_picture_245600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245600.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Teufelstanz - Camera Obscura (2017) [FLAC|Lossless|image + .cue] <Medieval Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245601.jpgsave_picture_245601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245601.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:F3731C3E314F83176A7AAB363998603971EDF64C
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245602.jpgsave_picture_245602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245602.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Airwave - Believe (2016) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245603.jpgsave_picture_245603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245603.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ The Dead Daisies - Ноlу Grоund (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245604.jpgsave_picture_245604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245604.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Strider - Midnight Zen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245605.jpgsave_picture_245605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245605.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245606.jpgsave_picture_245606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245606.jpg" />
 </div>
 
 

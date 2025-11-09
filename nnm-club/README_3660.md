@@ -6,7 +6,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I'm in Love with the Villainess | Я влю
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115535.jpgsave_picture_115535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115535.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115536.jpgsave_picture_115536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115536.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:25DCBB0C70EFF2F14633E301AED6CB74A0C4049C
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115537.jpgsave_picture_115537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115537.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ RegCool 1.361 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115538.jpgsave_picture_115538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115538.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Micki Free - Warrior People (2024) Compilation [MP3|320 Kbps] <Blues, Blues Rock
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115539.jpgsave_picture_115539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115539.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Klutzy Witch | Rakudai Majo: Fuuka to Yami no Majo | Ведьма-неуда
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115540.jpgsave_picture_115540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115540.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:FC7ACAEC9FB6E2D8E958F567FEA54A382D3E49B6
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115541.jpgsave_picture_115541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115541.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигантские звери Арса [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115542.jpgsave_picture_115542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115542.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:AB652EC3D80A320A2A26D3048BDA1AAFF2357837
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115543.jpgsave_picture_115543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115543.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:EDE49378E3EBB6C06182867BFDEE8534F81F1E9B
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115544.jpgsave_picture_115544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115544.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Revo Uninstaller Pro 5.2.6 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115545.jpgsave_picture_115545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115545.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:1200611C0EF29FCC0A6F521278CC782815B6DC81
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115546.jpgsave_picture_115546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115546.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Liar Liar | Лжец Лжец [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115547.jpgsave_picture_115547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115547.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ RAM Saver Professional 24.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115548.jpgsave_picture_115548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115548.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115549.jpgsave_picture_115549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115549.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:B540D379F35A081455A5A6DB891BE1859E6F1927
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115550.jpgsave_picture_115550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115550.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Advanced Renamer 3.94.3 Final + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115551.jpgsave_picture_115551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115551.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades | Семь гл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115552.jpgsave_picture_115552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115552.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Revo Uninstaller Pro 5.2.6 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115553.jpgsave_picture_115553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115553.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:7941A82B6B4E8C446FA9D717D5EA9E4A796C59D8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115554.jpgsave_picture_115554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115554.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:01FC75D2FE55241C9848090FD0FEF9F47B3770CC
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115555.jpgsave_picture_115555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115555.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:56C758AC601D90E5FE7A3375AA6436B7555962AC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115556.jpgsave_picture_115556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115556.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115557.jpgsave_picture_115557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115557.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:F292A244DDB5B244752F8987DB3BF898AE95AF99
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115558.jpgsave_picture_115558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115558.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ XtraTools Professional 24.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115559.jpgsave_picture_115559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115559.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Peaceful Classical (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115560.jpgsave_picture_115560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115560.jpg" />
 </div>
 
 

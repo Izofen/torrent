@@ -6,7 +6,7 @@ Scooter - Video collection - Chapter 4 (2007-2012) DVDRip, WEBRip [H.264/1080p-L
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112227.jpgsave_picture_112227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112227.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ TunesKit Audio Capture 3.2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112228.jpgsave_picture_112228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112228.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Glarysoft Malware Hunter PRO 1.181.0.803 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112229.jpgsave_picture_112229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112229.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:D8CBB2E9D624E6CB053280DB2E1DCE84700FCC8A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112230.jpgsave_picture_112230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112230.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ iBarcoder 3.14.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112232.jpgsave_picture_112232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112232.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Hardstyle Top 100 Edition 2024 [MP3|320 Kbps] <Hardstyle>
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112234.jpgsave_picture_112234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112234.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:F7E0E18C4390D0569224DA6E15B8DDFB33DC5077
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112235.jpgsave_picture_112235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112235.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:3C91C3B26B0B41D53F54D78225E8B347E02A5717
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112236.jpgsave_picture_112236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112236.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Topaz Photo AI 2.4.2 (x64) RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112237.jpgsave_picture_112237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112237.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:BEFD6B9393AE610C01FD4523DE63BD183F0104A4
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112238.jpgsave_picture_112238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112238.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E3A657A009F1A503E0F27FEC4B09B590CEFC48FF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112239.jpgsave_picture_112239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112239.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:8BB05C5A01FA0A2EF40449A682B48581D270B1EA
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112240.jpgsave_picture_112240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112240.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:CB97BA8FC8E1B01B47CD773D877126FFACCA6B8B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112241.jpgsave_picture_112241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112241.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Kingston SSD Manager 1.5.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112242.jpgsave_picture_112242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112242.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:6DA035934A9197DAE3A2A23F526F1E1393AC72AF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112243.jpgsave_picture_112243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112243.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ TikTok 34.1.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.31 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112244.jpgsave_picture_112244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112244.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:AA408B8DF6C2B7193F17F79E7BABFDB59F393E9D
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112247.jpgsave_picture_112247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112247.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ magnet:?xt=urn:btih:BD7EF8156B196CBF37524FA46D91B32A475AB92A
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112248.jpgsave_picture_112248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112248.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:7CD62F13286558CF278DB06BDBDF4A96547EBBDC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112249.jpgsave_picture_112249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112249.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:D352BD45C6EDB5723084D1E2C3C2A0901D0BE178
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112250.jpgsave_picture_112250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112250.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:DE0B68BA3126C1CE9EBA4E797ECFCB95A5695488
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112251.jpgsave_picture_112251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112251.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Satolu Oda and Hank Jones Great Jazz Quintet - Just Friends (1995) Venus Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112252.jpgsave_picture_112252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112252.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Tad Morose - Paradigma (1996) EP [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112253.jpgsave_picture_112253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112253.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Shadow Limb - Reclaim (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112254.jpgsave_picture_112254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112254.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Tad Morose - Modus Vivendi (2003) Japanese Edition, Reissue, 2004, Century Media
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112255.jpgsave_picture_112255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112255.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Tad Morose - Reflections (2000) Compilation, 2001,  Remastered, Irond Ltd. [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112256.jpgsave_picture_112256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112256.jpg" />
 </div>
 
 

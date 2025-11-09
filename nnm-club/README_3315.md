@@ -6,7 +6,7 @@ Eddie Reed Big Band - Hollywood Jump (1997) Royal Big Mac Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106551.jpgsave_picture_106551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106551.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cary St Onge - Been Livin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106552.jpgsave_picture_106552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106552.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cristian Luna & the Tock and Blues - After All, Right Now (2024) [FLAC|Lossless|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106553.jpgsave_picture_106553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106553.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Glaciers - Ivory (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106554.jpgsave_picture_106554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106554.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Ex-Hermanites - The Ex-Hermanites (1957) 2001, V.S.O.P. Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106555.jpgsave_picture_106555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106555.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Milt Jackson - To Bags... With Love: Memorial Album (1954 - 1983) 2000, Pablo Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106556.jpgsave_picture_106556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106556.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Innuendo - Jigsaw Sunset (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106557.jpgsave_picture_106557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106557.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:8E77182E8B0634C9CCC5389AC4179017E7FE79A5
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106558.jpgsave_picture_106558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106558.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:4B522E28B934181EEEBAED990E6FF63D0E7462AD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106559.jpgsave_picture_106559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106559.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Duran Duran - Skin Trade (1987) Mix, 2024, Parlophone Records [FLAC|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106560.jpgsave_picture_106560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106560.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Plugin Boutique - DC Snares 1.0.2 VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106561.jpgsave_picture_106561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106561.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Oscar Mulero - Have you ever retired a human by mistake? (2024) [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106562.jpgsave_picture_106562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106562.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Uplifting Only Top 15: July 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106563.jpgsave_picture_106563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106563.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ John Summit - Comfort In Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ele
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106564.jpgsave_picture_106564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106564.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Bobaflex - Anything That Moves (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106565.jpgsave_picture_106565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106565.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Dy Karamoon - It's Never the Same (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106566.jpgsave_picture_106566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106566.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:A21B01AF2C75931B6259764404794B9F02D5DC4F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106567.jpgsave_picture_106567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106567.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Budda Power Blues - Walking Shoes & Thinking Hat (2024) [FLAC|Lossless|WEB-DL|tr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106568.jpgsave_picture_106568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106568.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Renato Sellani Trio - Grand Piano: The Music Of Michel Legrand (2010) Philology 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106569.jpgsave_picture_106569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106569.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Thunderlord - Destroyer (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106570.jpgsave_picture_106570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106570.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Dimitris Loizos - Back to the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106571.jpgsave_picture_106571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106571.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ J Use - Whispers in the Moonlight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106572.jpgsave_picture_106572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106572.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Enri Zavalloni - Organ Express (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106573.jpgsave_picture_106573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106573.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Ken Peplowski - At Mezzrow (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106574.jpgsave_picture_106574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106574.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Joe Tatton Trio - Galáctico (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106575.jpgsave_picture_106575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106575.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ AdrianoMaria - Night And Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106576.jpgsave_picture_106576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106576.jpg" />
 </div>
 
 

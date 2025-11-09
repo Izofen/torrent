@@ -6,7 +6,7 @@ Sacro ordine - Until the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205135.jpgsave_picture_205135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205135.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:05DE2113D1D6D2E371716B2C9A39DC3425B5E4C8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205136.jpgsave_picture_205136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205136.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Fats Navarro - Memorial (1947) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205137.jpgsave_picture_205137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205137.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:9CDF6FEA3E392A6D3088DB53136B32BD3D59D5CD
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205138.jpgsave_picture_205138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205138.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Morito Ergo Sum - A Mournful Foreboding (2016) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205139.jpgsave_picture_205139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205139.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:2E6AFB8F3C064B118D4C663C04222AD13471DFA5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205140.jpgsave_picture_205140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205140.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205141.jpgsave_picture_205141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205141.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:5B43EEA8ABF3A4F1CC166AE0BA69066B51219475
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205142.jpgsave_picture_205142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205142.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:B64791F8B7616C1ED39414AA6A8AAE1A0B823C1F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205143.jpgsave_picture_205143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205143.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Manowar - Battle Hymns (1982) Japanese Edition [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpgsave_picture_205144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205144.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ WWE 2K22 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.18 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205145.jpgsave_picture_205145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205145.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:1B6A6275AB0557111F667C86A8B2AE7BAB488BD7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205146.jpgsave_picture_205146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205146.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ WinBin2Iso 6.16 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205147.jpgsave_picture_205147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205147.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ NVIDIA GeForce Desktop Game Ready 473.81 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205148.jpgsave_picture_205148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205148.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Spotify 1.1.96.785 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205149.jpgsave_picture_205149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205149.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Offspring - Rise And Fall, Rage And Grace (2008) 15th Anniversary Deluxe Edi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205150.jpgsave_picture_205150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205150.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:12D3FA47ED6B034BCA6E823457EB08D29F73F63F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205151.jpgsave_picture_205151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205151.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VueScan Pro 9.8.15 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205152.jpgsave_picture_205152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205152.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Advanced SystemCare Pro 16.0.1.82 Portable by zeka.k [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205153.jpgsave_picture_205153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205153.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:6C71A5B28EDFDB408C4B2F2A3D7B1DA42C9D9626
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205154.jpgsave_picture_205154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205154.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:9971BEFF8E91E4B00C7507B03848AE441302CEC2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205155.jpgsave_picture_205155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205155.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ArchDialog | 99 летних вебинаров для дизайнеров ин
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205156.jpgsave_picture_205156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205156.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ K-Lite Codec Pack Update 17.7.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205157.jpgsave_picture_205157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205157.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:46C18A0533BE20F274214823DDF9B0B698E85900
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205158.jpgsave_picture_205158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205158.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BBVpn VPN: Unlimited VPN Proxy 3.4.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205159.jpgsave_picture_205159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205159.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:B3C80DA840CC0F7E42F4859712601DA794A334AC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205160.jpgsave_picture_205160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205160.jpg" />
 </div>
 
 

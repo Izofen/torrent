@@ -6,7 +6,7 @@ VA - The Best of Sounemot 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25728.jpgsave_picture_25728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25728.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - In the Mix with Neil MD (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25731.jpgsave_picture_25731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25731.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Trance Top 100, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25830.jpgsave_picture_25830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25830.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Club Charts Top 100 - Winter Edition 2025 [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26033.jpgsave_picture_26033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26033.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Kraftwerk - At The Cirkus (2004) Remastered, 2025, LEFTFIELD MEDIA [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26068.jpgsave_picture_26068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26068.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - The Best of 2024 from High Emotions Group Music (2025) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26471.jpgsave_picture_26471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26471.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - House Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26570.jpgsave_picture_26570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26570.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - My Chilled Afternoon: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26680.jpgsave_picture_26680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26680.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - City Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26685.jpgsave_picture_26685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26685.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Piano Calming Hours: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26700.jpgsave_picture_26700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_26700.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ djdtime - Melodic Techno & Ethereal Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26877.jpgsave_picture_26877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26877.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Deep House Hits For Summer 2025 - 2026 (2025) [MP3|320 Kbps] <House, Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26986.jpgsave_picture_26986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26986.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dionigi - Space Disco (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26991.jpgsave_picture_26991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26991.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - BC2 Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26993.jpgsave_picture_26993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26993.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Launch Ignition) (2025) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27303.jpgsave_picture_27303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27303.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blond:ish - Never Walk Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27306.jpgsave_picture_27306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27306.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Remixes Revisited, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27308.jpgsave_picture_27308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27308.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Torul - Superposition (2025) [FLAC|Lossless|WEB-DL|tracks] <Synth Pop>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27309.jpgsave_picture_27309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27309.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Gentle Rhythms: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27932.jpgsave_picture_27932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27932.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Top 8 December 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27940.jpgsave_picture_27940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27940.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Chill House Deep 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28676.jpgsave_picture_28676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28676.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Camouflage – 7 Albums (1988-2014) [FLAC|Lossless|tracks + .cue] <Electronic, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29010.jpgsave_picture_29010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29010.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Lounge Obsession, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29150.jpgsave_picture_29150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29150.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Fitness Motivation 50 Hits to Get You Started 2025 [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29499.jpgsave_picture_29499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29499.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ EhRah - Beyond The Sky (2024) [MP3|320 Kbps] <Synthwave, 80s Retrowave, Disco Ho
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29592.jpgsave_picture_29592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29592.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Winter Car Music Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29887.jpgsave_picture_29887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29887.jpg" />
 </div>
 
 

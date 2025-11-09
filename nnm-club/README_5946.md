@@ -6,7 +6,7 @@ Microsoft Windows 10.0.19045.3448, Version 22H2 (Updated September 2023) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187229.jpgsave_picture_187229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187229.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Horizon Chase 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187230.jpgsave_picture_187230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187230.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Satin - Appetition (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187231.jpgsave_picture_187231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187231.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:DD97A11D7FE10EC155FA96884CFF3E896A40AFB9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187232.jpgsave_picture_187232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187232.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:7A25A8854BBA67259E1096ADD11F864CEAE03311
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187233.jpgsave_picture_187233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187233.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Killer Kings - Burn For Love (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187234.jpgsave_picture_187234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187234.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:739D43BDF1D2145B3E9CA4FC91494ED062C754A8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187235.jpgsave_picture_187235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187235.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Threshold - Dividing Lines (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187236.jpgsave_picture_187236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187236.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:C8BBD2315C702B60B99BD664466C68E87BF6EC7A
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187237.jpgsave_picture_187237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187237.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Udemy, Andrei Dumitrescu | OpenAI API with Python Bootcamp: ChatGPT API, GPT-4, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187238.jpgsave_picture_187238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187238.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:D00A7F2B0D274B5539A07610C54E732B97307634
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187239.jpgsave_picture_187239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187239.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Miseration - Black Miracles and Dark Wonders (2022) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187241.jpgsave_picture_187241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187241.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Jimmy Cobb - This I Dig Of You (2019) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187242.jpgsave_picture_187242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187242.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Enemy Eyes - History's Hand (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187244.jpgsave_picture_187244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187244.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1970 (Updated September 2023)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187245.jpgsave_picture_187245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187245.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:CE3CCC04C2DE7E8ECBA6D26D75884E958D524670
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187246.jpgsave_picture_187246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187246.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Witchfinder - Forgotten Mansion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187247.jpgsave_picture_187247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187247.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Rising Steel - Beyond The Gates Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187248.jpgsave_picture_187248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187248.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ IObit Driver Booster Pro 11.0.0.21 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187249.jpgsave_picture_187249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187249.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Udemy, Learn IT University, Andrii Piatakha | Java from Zero to First Job, Pract
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187250.jpgsave_picture_187250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187250.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Doctor Doom - A Shadow Called Danger (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187251.jpgsave_picture_187251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187251.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Vault - The Perfect Truth (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187252.jpgsave_picture_187252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187252.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Amon Acid - Cosmogony (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Doom, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187254.jpgsave_picture_187254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187254.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Roadhog - Gates to Madness (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187255.jpgsave_picture_187255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187255.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Witchunter - Metal Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187256.jpgsave_picture_187256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187256.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187257.jpgsave_picture_187257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187257.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Windows 10 Pro 20H2 b19042.631 x64 ru by SanLex (edition 2020-12-05) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174623.jpgsave_picture_174623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174623.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Inner Road - Visions (2011) [FLAC|Lossless|image + .cue] <Sympho Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174624.jpgsave_picture_174624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174624.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AEA58C17C9CA0921159252E282EF10808FAF1D0F
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174625.jpgsave_picture_174625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174625.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1AD236DF2F921A706A171454CFD454DD0C67E0D6
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174626.jpgsave_picture_174626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174626.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Adobe Premiere Pro 2020 14.7.0.23 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174627.jpgsave_picture_174627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174627.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Shotgun Surgery - Shiteater (2022) [FLAC|Lossless|WEB-DL|tracks] <Dirty Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174628.jpgsave_picture_174628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174628.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ WinRAR 6.00 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174629.jpgsave_picture_174629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174629.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:0F683920DF6BD99D71D2BD04602C937C979337AA
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174630.jpgsave_picture_174630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174630.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:1E0D7BC594A453340D8A549ADEED9CD406DAD94F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174631.jpgsave_picture_174631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174631.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Highlord - Medusa's Coil (2004) Japanese Edition [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174632.jpgsave_picture_174632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174632.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Adobe Flash Player 32.0.0.465 (Web Installer) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174634.jpgsave_picture_174634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174634.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:05845C436E25DB92C9258367CF935FAC95FDD753
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174635.jpgsave_picture_174635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174635.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Aeon Zen - The Face Of The Unknown (2010) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174636.jpgsave_picture_174636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174636.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:BAB815679CE5134685BE55E0F820C0CE719B858E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174637.jpgsave_picture_174637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174637.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Aeon Zen - Ephemera (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174638.jpgsave_picture_174638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174638.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Macgo Mac Blu-ray Player Pro 3.3.22 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174640.jpgsave_picture_174640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174640.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Hazel 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174641.jpgsave_picture_174641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174641.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Bartender 4 v.4.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174643.jpgsave_picture_174643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174643.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:B5980D6F925E85FCA165840682B2B1263D9C26F9
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174644.jpgsave_picture_174644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174644.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Topaz Video AI 3.5.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174646.jpgsave_picture_174646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174646.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Discotron Remixes (2020) [MP3|320 Kbps] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174647.jpgsave_picture_174647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174647.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ WiFi Signal: Status Monitor  4.4.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174649.jpgsave_picture_174649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174649.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:8CAA69135CDD16D3161F786D8005A1DCF4CF654B
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174650.jpgsave_picture_174650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_174650.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Adobe Photoshop Lightroom Classic 10.1.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174651.jpgsave_picture_174651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174651.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Live Home 3D Pro Edition 4.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174653.jpgsave_picture_174653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_174653.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Windows 10 20H2 (19042.631) x64 Home + Pro + Enterprise (3in1) by Brux v.12.2020
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174654.jpgsave_picture_174654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174654.jpg" />
 </div>
 
 

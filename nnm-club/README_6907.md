@@ -6,7 +6,7 @@ Arjen A. Lucassen (Ayreon, Star One, Ambeon, Guilt Machine, The Gentle Storm) - 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237324.jpgsave_picture_237324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237324.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Shen - Outlines (2006) Native State Records [FLAC|Lossless|tracks+.cue] <Dub, ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237326.jpgsave_picture_237326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237326.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:9675DBF88C2959C23AFB682BA713E5416F7C34C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237328.jpgsave_picture_237328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237328.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Devoid - Lonely Eye Movement (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237329.jpgsave_picture_237329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237329.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Dynamic Wallpaper 14.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237330.jpgsave_picture_237330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237330.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6360D152490B6FB25C8E04DF10A7E364A17E4790
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237332.jpgsave_picture_237332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237332.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ SQLPro Studio 2020.09 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237333.jpgsave_picture_237333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237333.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Helestios - Your Pain Tastes Good (2020) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237335.jpgsave_picture_237335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237335.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Lutharo - Hiraeth (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237337.jpgsave_picture_237337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237337.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:5ECF2E063205E5B507888218C204C456860336EA
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237338.jpgsave_picture_237338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237338.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Viwizard Spotify Music Converter for Mac 2.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237339.jpgsave_picture_237339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237339.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:9B5C1D0F817134438B8AE8FC3C69C52306E21639
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237341.jpgsave_picture_237341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237341.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Lisa Gerrard, Jules Maxwell - Burn (2021) [AAC|~330 Kbps] <Gothic, Neoclassical,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237343.jpgsave_picture_237343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237343.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:E6B04543738836FEF23F8F9ACB46326D042DCDE2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237344.jpgsave_picture_237344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237344.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237345.jpgsave_picture_237345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237345.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:0B234C5DD8A504F7B19B9BA27F4A4FBDACE47A4B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237347.jpgsave_picture_237347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237347.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:29FC7C9033B1A4632E99A936F7571EEADAB980D9
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237350.jpgsave_picture_237350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237350.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Debit & Credit Premium - Personal Finance Manager 6.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237352.jpgsave_picture_237352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237352.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ South of the Circle (2022) [Ru/Multi] (23) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237353.jpgsave_picture_237353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237353.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:922E4DD117BAC7C84E34E28422C989DAAA48978C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237354.jpgsave_picture_237354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237354.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:208DC1EC5A37881D5B258F9F9F703FC7560381E4
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237355.jpgsave_picture_237355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237355.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Benny Goodman - The Essential Benny Goodman (1937 - 1958) 2CD, 2015, Not Now Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237356.jpgsave_picture_237356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237356.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:88D9A7E57AE3ABDD9EA2D9CE47D12904C1E2E618
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237359.jpgsave_picture_237359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237359.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:7E29086400C641C8423F1CDE11D837CE958A32CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237361.jpgsave_picture_237361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237361.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Midnight Phantom - Hollywood Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237365.jpgsave_picture_237365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237365.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:97390A7827959DB19512EB542AE62C8656CC2E24
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237367.jpgsave_picture_237367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237367.jpg" />
 </div>
 
 

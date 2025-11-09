@@ -6,7 +6,7 @@
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152225.jpgsave_picture_152225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152225.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AFF2A66DC59D58EE0CAE43B891D4FFA80D88A8DD
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152226.jpgsave_picture_152226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152226.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:78212738C6130830E830021C0E08B59245D2598B
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152228.jpgsave_picture_152228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152228.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Дискотека 2021 Dance Club Vol. 206 Новогодний выпус
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152229.jpgsave_picture_152229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152229.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Adobe Acrobat Reader для PDF 21.10.0.19961 Mod by Rajat, MixRoot, Valikovrepi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152230.jpgsave_picture_152230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152230.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:5AB436AC339EA02A8BA86CBD578758684E78B4A9
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152232.jpgsave_picture_152232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152232.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152233.jpgsave_picture_152233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152233.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:1A51471FB6A3264CD8454FD045287AA35AB18F41
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152234.jpgsave_picture_152234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152234.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Telegram Desktop 4.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152235.jpgsave_picture_152235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152235.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:BF619B230FE4A0B0555B94FC75CDEC342BFF5134
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152236.jpgsave_picture_152236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152236.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:5E10548A1381A7DC32E0568257107180AF8B3F43
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152237.jpgsave_picture_152237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152237.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:C1BFCB349B538880CA07E84D62944FC4A1EEEF5C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152238.jpgsave_picture_152238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152238.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:57DB3B79ACE928922465CA5F4DE3A70908642552
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152239.jpgsave_picture_152239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152239.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Gоds Оf Silenсе - Neverlаnd (2017) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152240.jpgsave_picture_152240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152240.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:190BD89C9654382A59DA9DE18EA60D06C4279E54
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152241.jpgsave_picture_152241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152241.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:997EBEA8508224B5E6B799BEAE9A172A03FB6E95
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152242.jpgsave_picture_152242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152242.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Adguard 2.3.2 (704) (CL-1.5.155) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152243.jpgsave_picture_152243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152243.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ magnet:?xt=urn:btih:D1A087FABA2903759F60FAD3CCE465D7D0B8D8D7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152244.jpgsave_picture_152244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152244.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Freemake Video Converter 4.1.9.3 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152245.jpgsave_picture_152245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152245.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Learn Squared, Milan Nikolic | Creature Design (2018) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152247.jpgsave_picture_152247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152247.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:8A173E6D80DBC2D978EB2D2BE5AAA80BE8BCD5E3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152249.jpgsave_picture_152249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152249.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:1C502851DAE97A427693B9846DD7104FD1239150
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152250.jpgsave_picture_152250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152250.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:47538C0159E388DEA1D06B9DF6B42FF546FE53A1
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152251.jpgsave_picture_152251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152251.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Monosnap 2.3.19 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152252.jpgsave_picture_152252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152252.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Jason van Wyk - Days You Remember (2013) White Notebook [FLAC|Lossless|WEB-DL|tr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152253.jpgsave_picture_152253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152253.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:B06658576E5703C7C1A1202B6497770B97E6B3E5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152254.jpgsave_picture_152254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152254.jpg" />
 </div>
 
 

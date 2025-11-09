@@ -6,7 +6,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146091.jpgsave_picture_146091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146091.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Print to PDF Pro for Mac 4.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146092.jpgsave_picture_146092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146092.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:4F70DB62899063A6B132894EDAEFE551E9429F90
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146093.jpgsave_picture_146093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146093.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:648850EA93715DCCCCA3484744746508DA7DBE51
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146094.jpgsave_picture_146094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146094.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Adobe After Effects CC 2015 (v13.6.1) RUS/ENG Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146095.jpgsave_picture_146095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146095.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:4FC11FA72FFFF9A250E700D9CF9805CB01DA6212
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146096.jpgsave_picture_146096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146096.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ KAZKA - NIRVANA (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146098.jpgsave_picture_146098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146098.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:07514200EE33BD6D60ED237351D4637D01092230
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146099.jpgsave_picture_146099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146099.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:CDE4EAF6293879033FC0EDA5699A56318B4E1D87
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146101.jpgsave_picture_146101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146101.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Deadfall Adventures (2013) [Ru/En] (1.0.0.16352/dlc/tr) Repack =nemos= [Digital 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146102.jpgsave_picture_146102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146102.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:E4EBD8BDD8F49FDB077882601E1FBFF235DE4042
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146104.jpgsave_picture_146104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146104.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:78C113A93943E0B9BD63FCE23247392469508B39
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146105.jpgsave_picture_146105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146105.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:5233AA23B56248AA1A705A2936893943FF3C46DA
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146106.jpgsave_picture_146106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146106.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Command & Conquer Generals Zero Hour: World War II (2013) [Ru/En] (0.27) Repack/
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146107.jpgsave_picture_146107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146107.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:78F97A7E57DEFA810EAC20C9F4765594239A2827
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146108.jpgsave_picture_146108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146108.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:7640B902E3D978A23BF044B1A19F9607B068CF33
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146110.jpgsave_picture_146110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146110.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:C4D7F35D9840B91B38076A9C6C41725A4A0B3753
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146111.jpgsave_picture_146111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146111.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:45C9ACFD883C4F60FD87E27174AB869033776489
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146112.jpgsave_picture_146112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146112.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:E035DFA872D183FED1900851BD48EF20458A7624
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146113.jpgsave_picture_146113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146113.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Allegorithmic Substance Painter 2019.3.1 (build 3547) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146115.jpgsave_picture_146115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146115.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ BioShock Remastered (2016) [Multi] (1.0.122872) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146116.jpgsave_picture_146116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146116.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:321998D5A81D8D5DAFF6F1B00DA7A50F85072170
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146117.jpgsave_picture_146117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146117.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:ED4D0DD798FE6B8695EBFDF35A91900F66CF0D21
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146118.jpgsave_picture_146118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146118.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:D3BD056B3A75102BB81B5D70F79A0D080F7A3968
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146120.jpgsave_picture_146120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146120.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146121.jpgsave_picture_146121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146121.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Smith Micro Poser Pro 11.0.1.31230 + Content + Plugins [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146122.jpgsave_picture_146122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146122.jpg" />
 </div>
 
 

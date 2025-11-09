@@ -6,7 +6,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237979.jpgsave_picture_237979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237979.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ HiBit System Information 2.1.10 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237980.jpgsave_picture_237980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237980.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Coffin Torture - 2 Albums (2018-2022) [MP3|320 Kbps] <Sludge, Doom, Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237981.jpgsave_picture_237981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237981.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Lennie Tristano - 1946 - 1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237982.jpgsave_picture_237982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237982.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:BE0C945C21B8F9908DFA45B62AF904C5523306D8
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237983.jpgsave_picture_237983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237983.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Dropzone 4 Pro 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237984.jpgsave_picture_237984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237984.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Antonia Clare, J. J. Wilson | Speak Out 2nd Intermediate (2015) [PDF] [Student's
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237985.jpgsave_picture_237985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237985.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Violent Force - Malevolent Assault of Tomorrow (1987) Reissue 2018 [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237986.jpgsave_picture_237986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237986.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Ashampoo Music Studio 10.0.0.26 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237987.jpgsave_picture_237987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237987.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Dronegoat - Dronegoat (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237988.jpgsave_picture_237988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237988.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Hazeshuttle - Hazeshuttle (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237989.jpgsave_picture_237989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237989.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:A93C3EBD0FE14EA798C01DD53663A930B9BB6CCE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237990.jpgsave_picture_237990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237990.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Redman Stuart | English Vocabulary in Use. Pre-intermediate and Intermediate (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237991.jpgsave_picture_237991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237991.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Fats Waller - 1938 (1996) Classics [FLAC|Lossless|image + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237992.jpgsave_picture_237992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237992.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Elle Tea - Fate Is At My Side (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237993.jpgsave_picture_237993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237993.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Ashampoo Music Studio 10.0.0.26 Portable by Жека [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237994.jpgsave_picture_237994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237994.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:9DB6F5315D0222BB855BF41612A56AF7E3B66247
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237995.jpgsave_picture_237995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237995.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ All Faces Down - Awol (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237996.jpgsave_picture_237996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237996.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:D6583A86F27DA36ED48AE85B95E2C43A8817FB02
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237997.jpgsave_picture_237997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237997.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Venti Compilation 8 (2023) 2CD, Compilation [MP3|255-277 kbps VBR] <Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237998.jpgsave_picture_237998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237998.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Gacha Bakradze - Obscure Languages (2021) Lapsus Records [FLAC|Lossless|WEB-DL|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237999.jpgsave_picture_237999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237999.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ NetLimiter 5.2.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238000.jpgsave_picture_238000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238000.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ foobar2000 1.5.5 DarkOne + DUIFoon Portable by MC Web (22.03.2022) (Облегч
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238001.jpgsave_picture_238001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238001.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:4F6D37D63A1360CD147810B9DEACEA79CF8D5983
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238002.jpgsave_picture_238002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238002.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ HiBit Startup Manager 2.5.15 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238003.jpgsave_picture_238003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238003.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Vex - Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238004.jpgsave_picture_238004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238004.jpg" />
 </div>
 
 

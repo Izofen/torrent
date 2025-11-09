@@ -6,7 +6,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43543.jpgsave_picture_43543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43543.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:41FD3F71CE3A5A66A957CA39085EC3D9D736C675
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43544.jpgsave_picture_43544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43544.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:8BEAAD93B158A89D0043388AB2F4F22DC382D01E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43545.jpgsave_picture_43545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43545.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D746D9351ED86666E6D6A5AF827DA3B4BFAC08CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43546.jpgsave_picture_43546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43546.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:6627789623E59FD8A55068306076EE6600ACBA52
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43547.jpgsave_picture_43547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43547.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Leo: The Firefighter Cat (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43548.jpgsave_picture_43548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43548.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:76284B94D7101730B5082E16D4670EBC32FFF68C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43549.jpgsave_picture_43549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43549.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:478435EA6E383C011EB47F6FE61F910F8A035A3C
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43550.jpgsave_picture_43550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43550.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E2DC137A44FBF3E87AF0F936A874414F8D602B18
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43551.jpgsave_picture_43551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43551.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:BAD151CCFFE7641F9743D09909939330FDA99552
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43552.jpgsave_picture_43552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43552.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Go Mecha Ball (2024) [Ru/Multi] (20240531) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43553.jpgsave_picture_43553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43553.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43554.jpgsave_picture_43554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43554.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:99C95E4EF12B502BE8FF24F188453997EF5FECED
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43555.jpgsave_picture_43555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43555.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:715C7DDAE233BC764E09D75A8F6EB2230F6D6D81
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43556.jpgsave_picture_43556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43556.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - 10s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43557.jpgsave_picture_43557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43557.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Pop Releases Of The Summer (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43558.jpgsave_picture_43558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43558.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:7065F5776F563C15D7B0C92EBEDE88FA2579AF9F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43559.jpgsave_picture_43559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43559.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:D68B24A0DF051539D038F8771397A71D3EA5E299
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43560.jpgsave_picture_43560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43560.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ VA - 00s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43561.jpgsave_picture_43561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43561.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:3FC18D659DD81C8CE9DCE3EA3FFE7890D5506F53
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43562.jpgsave_picture_43562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43562.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - Bravo Hits Party - 90er Vol. 2 (2024) 3 x CD, Compilation Box Set [MP3|320 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43563.jpgsave_picture_43563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43563.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43564.jpgsave_picture_43564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43564.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:D6BC2C0FA215D4C9D9D9B3EB67088A7D44374E49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43565.jpgsave_picture_43565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43565.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Kylie Minogue - Tension (2023) (Bonus Deluxe Edition) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43566.jpgsave_picture_43566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43566.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:6B904959F005A57D85AFA2907CBD225A1DCEA010
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43567.jpgsave_picture_43567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43567.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:06DD8EF52A6367135321754203F2A0F51450A1AF
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43568.jpgsave_picture_43568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43568.jpg" />
 </div>
 
 

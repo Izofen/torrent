@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170703.jpgsave_picture_170703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170703.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A427E1E1020D84F7F7F8229507111F78F48E94DC
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170704.jpgsave_picture_170704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170704.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:92A9E9DFD0FB4CC1A60CD90D2735EDD1270B3721
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170705.jpgsave_picture_170705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170705.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E5E75611C41B6F195734DB6725BFBD294773EAD9
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170707.jpgsave_picture_170707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170707.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Auslogics BoostSpeed 13.0.0.6 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170708.jpgsave_picture_170708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170708.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VideoSmile, Михаил Бычков | Супер 2D моушн-графика 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170709.jpgsave_picture_170709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170709.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:4723936CF0130D04D0CCE84159170BEBCDE6FB20
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170710.jpgsave_picture_170710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170710.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ uTorrent Pro 3.6.0 Build 46612 Stable Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170711.jpgsave_picture_170711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170711.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Udemy, Камилла Мукатаева | Основная грамматика
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170712.jpgsave_picture_170712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170712.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:6D40511D0467C63489C8812835663C489D33C6A6
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170713.jpgsave_picture_170713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170713.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Defender Tools 1.11 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170714.jpgsave_picture_170714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170714.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:40E0D24DA99ABB097FFF4809C501E4EA431FDF4C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170715.jpgsave_picture_170715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170715.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:47F189D1A9B0567A405269E0C0EFF5FDBFA7D3ED
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170716.jpgsave_picture_170716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170716.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Avast Clear 20.10.5824.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170717.jpgsave_picture_170717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170717.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ macOS 14 Sonoma 14.1 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170718.jpgsave_picture_170718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170718.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:7559C9B06E50ABFA4422E65ACA491FD2D0A4A0B6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170719.jpgsave_picture_170719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170719.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:EA031845EA9164FAD84E7194FD677C4A7A657A32
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170720.jpgsave_picture_170720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170720.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:B8BB655CB4485F66D093226F1F16EC1181A493BF
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170721.jpgsave_picture_170721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170721.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:59541EEE77CEE283EFF4AA4453C567BFD00F15CF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170722.jpgsave_picture_170722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170722.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ City Car Driving (2016) [Ru/Multi] (1.5.9) Repack Other s [Home Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170723.jpgsave_picture_170723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170723.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:5CF6F4FCDF54E1E5B26CAAF08000E00356206D87
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170724.jpgsave_picture_170724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170724.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ AVG Clear (AVG Remover) 20.10.5824.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170725.jpgsave_picture_170725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170725.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Softwaretesting, Арсений Батыров | Автоматизация те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170726.jpgsave_picture_170726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170726.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:DAC7FBEACD898F97029BD6413B5176306EDB420E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170727.jpgsave_picture_170727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170727.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:A3A176FDBCFD13CF8BE1F3A700FE057E8ACCA8FF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170728.jpgsave_picture_170728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170728.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Tor Browser Bundle 12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170729.jpgsave_picture_170729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170729.jpg" />
 </div>
 
 

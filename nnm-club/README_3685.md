@@ -6,7 +6,7 @@ Monkey's Audio 10.51 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116185.jpgsave_picture_116185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116185.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4EBEA2B38D3BDA54668EC241EB0227CA4A3061FB
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116186.jpgsave_picture_116186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116186.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B55570F35C0365AF4BB6AEE9922E5C6017D91BD1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116187.jpgsave_picture_116187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116187.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Final Draft 13 v.13.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116188.jpgsave_picture_116188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116188.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:68A07EB5D3371E0EF61C3D202720BAA31EFD9514
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116189.jpgsave_picture_116189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116189.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116190.jpgsave_picture_116190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116190.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - Jazz Vocals Pop Hits with a Jazz Twist (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116191.jpgsave_picture_116191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116191.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Proxyman for Mac 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116192.jpgsave_picture_116192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116192.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Aiseesoft AnyCoord for Mac 1.0.36 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116193.jpgsave_picture_116193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116193.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ MouseBoost pro for Mac 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116194.jpgsave_picture_116194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116194.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Don Powell’s Occasional Flames - Just My Cup Of Tea (2021) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116195.jpgsave_picture_116195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116195.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:AEF5B65C9632D4DE5C9911AF942912E5B1236CE0
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116196.jpgsave_picture_116196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116196.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:17145ED540174C39E10D72DEF164BF87833D7307
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116197.jpgsave_picture_116197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116197.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ DiskDigger 2.0.1.3863 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116198.jpgsave_picture_116198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116198.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ TweakNow WinSecret Plus! 5.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116199.jpgsave_picture_116199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116199.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Image Uploader 1.4.0 Build 5130 Nightly + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116200.jpgsave_picture_116200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116200.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:71AE4792F4031631AB427C7E290C7085F871E8B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116201.jpgsave_picture_116201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116201.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116202.jpgsave_picture_116202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116202.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Smash Into Pieces - 44 Releases (2009-2024) [MP3|320 Kbps] <Alternative rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116203.jpgsave_picture_116203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116203.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:330EE62FB2DF1CA5453FBE0C3E386417FF84D756
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116204.jpgsave_picture_116204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116204.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:1E985AB1A96E318BB9ED380ABB95C3922C1DD828
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116205.jpgsave_picture_116205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116205.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:61CC56E5ECA91978556664B3526C488C47E556FD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116206.jpgsave_picture_116206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116206.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ doPDF 11.9.444 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116207.jpgsave_picture_116207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116207.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ WinSCP 6.3.1 Build 14821 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116208.jpgsave_picture_116208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116208.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Nada (Nada Malanima) - Collection (1969-2022) [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116209.jpgsave_picture_116209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116209.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:C291927830820B21557A29D1E6301D7FC88CA86A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116210.jpgsave_picture_116210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116210.jpg" />
 </div>
 
 

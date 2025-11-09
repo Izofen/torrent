@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138660.jpgsave_picture_138660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138660.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CEBFC35FD572E46664D0988A3BB3E1756DAC67F5
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138661.jpgsave_picture_138661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138661.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:518D9C0AB7CBD215E06E646DBCF3023DD480A384
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138662.jpgsave_picture_138662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138662.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Drakengard 3 (2014) [PS3] [EUR] 3.41 [CFW / HEN] [Repack / 1.01 / DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138664.jpgsave_picture_138664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138664.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ BELOFF [dp] 2019
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138665.jpgsave_picture_138665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138665.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Slimjet 17.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138666.jpgsave_picture_138666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138666.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:D11886E161B69E0B938D33D225660B08E3CF2678
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138667.jpgsave_picture_138667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138667.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:2DE2F6AA6FAB28A8F6CD979D1E87A0A4C5119A5D
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138668.jpgsave_picture_138668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138668.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:2B79F9C438CCE4A8EBDF9F4DEC11EC2424E759C9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138669.jpgsave_picture_138669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138669.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Notepad3 5.20.915.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138670.jpgsave_picture_138670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138670.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Paint.NET 4.0.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138671.jpgsave_picture_138671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138671.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Photocasa, Татьяна Малышева | Портрет со всех сто
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138672.jpgsave_picture_138672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138672.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:784AD758DB357C1F6D6889A79AB00545C8E53FF8
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138673.jpgsave_picture_138673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138673.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:784AD758DB357C1F6D6889A79AB00545C8E53FF8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138674.jpgsave_picture_138674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138674.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Stand Up / Павел Воля. Большой Stand-Up (2018.12.30) SATRip
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138675.jpgsave_picture_138675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138675.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Chris Rea - The Road To Hell (1989) Geffen Records [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138677.jpgsave_picture_138677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138677.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:E1AB6BDBFA7589C5D4ECE4093A7826A5813BEBBF
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138678.jpgsave_picture_138678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138678.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Радио Шансон. Лучшее (2021) MP3 от DON Music [MP3|320 Kb
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138680.jpgsave_picture_138680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138680.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:1994E11CD968026190BF626606244F755DAC4ED9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138682.jpgsave_picture_138682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138682.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ onOne Perfect Photo Suite 7.0.2 Premium Edition + Ultimate Creative Pack 2 [Ан
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138683.jpgsave_picture_138683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138683.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Silent Circle - Chapter 80s (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138684.jpgsave_picture_138684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138684.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:445B677A6AC8AC074FA53368387E698C93AC7361
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138685.jpgsave_picture_138685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138685.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:F7B2AE1E119D785C0EC47F7142D47B05F84A0DA4
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138687.jpgsave_picture_138687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138687.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:C1B6D60AAE77B8B6C6FB2046A6D7D23BC90AE347
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138689.jpgsave_picture_138689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138689.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ K-Lite Codec Pack Update 11.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138690.jpgsave_picture_138690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138690.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Новогодняя Дискотека В Стиле Modern Talking (2012)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138691.jpgsave_picture_138691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138691.jpg" />
 </div>
 
 

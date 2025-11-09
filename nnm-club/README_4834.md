@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151234.jpgsave_picture_151234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151234.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151235.jpgsave_picture_151235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151235.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D7F76E64DC83365E2AABE2B2D835763E4057A684
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151236.jpgsave_picture_151236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151236.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A0DB8180EFEC1189ED09705D0244C12EB50B896F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151237.jpgsave_picture_151237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151237.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Kerish Doctor 2022 4.90 (DC 18.12.2022) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151238.jpgsave_picture_151238.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151238.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:8EDB392CB45C32D19F3139D18FF85E4CEBAEC398
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151239.jpgsave_picture_151239.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151239.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151240.jpgsave_picture_151240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151240.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Nora En Pure - Live @ DJ Mag Top 100 DJs Awards, Bali, Indonesia (2023-11-15) [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151241.jpgsave_picture_151241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151241.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:E963C3AE3039C1B7FF7554E2482FB3FC6489228B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151243.jpgsave_picture_151243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151243.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:80664B42835AC8C81AAEB64A3EA8272D6C168118
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151244.jpgsave_picture_151244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151244.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:5D2FE5A150AB81C181CB99950C986EBF623F80BF
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151246.jpgsave_picture_151246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151246.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:5D2FE5A150AB81C181CB99950C986EBF623F80BF
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151247.jpgsave_picture_151247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151247.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:1DAEDB2EF4E33FDD34BA21C6D4B77DF19A4E8A9B
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151248.jpgsave_picture_151248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151248.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Udemy, Stephen Ulibarri | Unreal Engine 5 C++ The Ultimate Game Developer Course
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151249.jpgsave_picture_151249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151249.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:993D341228A6D39669D6639E2CF880B550036E02
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151250.jpgsave_picture_151250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151250.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:993D341228A6D39669D6639E2CF880B550036E02
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151251.jpgsave_picture_151251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151251.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E97F85949BF21198BF421DA9E94F30E8753B1E2F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151252.jpgsave_picture_151252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151252.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ darktable 3.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151255.jpgsave_picture_151255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151255.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151256.jpgsave_picture_151256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151256.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:1C6A2D05B5476B11C35B88B36B2392F10153FB57
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151257.jpgsave_picture_151257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151257.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Pixelmator Pro 2.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151259.jpgsave_picture_151259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151259.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:6C9132A285A558D8C21E6AF695ED1369B158997C
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151261.jpgsave_picture_151261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151261.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:EEFD02F9E89903D0EF28B417D54132199BCC5EF6
 >>Прошедшие конкурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151262.jpgsave_picture_151262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151262.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ SRWare Iron 47.0.2500.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151263.jpgsave_picture_151263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151263.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Udemy, Илья Фофанов, Валерий Павлов | Бэкенд ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151264.jpgsave_picture_151264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151264.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Hit News Vol. 6 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151265.jpgsave_picture_151265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_151265.jpg" />
 </div>
 
 

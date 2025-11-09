@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241687.jpgsave_picture_241687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241687.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:36EC45D0054C8850B2B9B7D1DF01461ED9708F03
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241688.jpgsave_picture_241688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241688.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Septicflesh - A Fallen Temple (1998) [MP3|320 Kbps] <Atmospheric, Symphonic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241689.jpgsave_picture_241689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241689.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Vita Imana - VI (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241690.jpgsave_picture_241690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241690.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:D57CAE8EABC1C049C1DD87EAD73BAEFD8C8B17C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241691.jpgsave_picture_241691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241691.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Overlay 4.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241692.jpgsave_picture_241692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241692.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:6FD0D7C087D31EEBBB95B04E831E6E76152CC0DF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241693.jpgsave_picture_241693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241693.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Domkraft - Seeds (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241694.jpgsave_picture_241694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241694.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Blues Company - Дискография (включая альбомы Toscho) (1
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241695.jpgsave_picture_241695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241695.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:244008641B54C48772FCDDFC1CEAEF66FA75D9DE
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241697.jpgsave_picture_241697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241697.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ The Eddie "Lockjaw" Davis - Cookbook, Vol.1 (1958) 1991, Original Jazz Classics 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241698.jpgsave_picture_241698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241698.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Afraid of Destiny - Contra Omnes (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241699.jpgsave_picture_241699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241699.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:C260D8A957AF34F4E5A6DEF2287677D2F9BADB75
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241700.jpgsave_picture_241700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241700.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Sublime Merge Dev build 2009 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241701.jpgsave_picture_241701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241701.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Goldfrapp - Head First (2010)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electron
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241702.jpgsave_picture_241702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241702.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Total Commander 10.00 Extended 22.4 Full / Lite RePack (& Portable) by BurSoft [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241703.jpgsave_picture_241703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241703.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:301D7BDB2FE1ED349D594321EF655C5074BAE3D4
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241704.jpgsave_picture_241704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241704.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ OpenShot Video Editor 3.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241705.jpgsave_picture_241705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241705.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:F50D91EF330E2C0FA05F357FCCB1C33F22D3FD62
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241706.jpgsave_picture_241706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241706.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:63084664D3C1F9C12596C88AE7384B4201E9203C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241707.jpgsave_picture_241707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241707.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Andrew Hill - Time Lines (2006) Blue Note [FLAC|Lossless|tracks + .cue] <Avant-G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241708.jpgsave_picture_241708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241708.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:5C14418F75CFF4DF58AFB79F3C91E24FFEC71B08
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241709.jpgsave_picture_241709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241709.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:76DBE36FA22B81D8629C2EB7318EC70E0B4BB8B2
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241710.jpgsave_picture_241710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241710.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:0D46507E94A76580A151D0CCE0DD4BC0D9B8441F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241712.jpgsave_picture_241712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241712.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Von Freeman And Frank Catalano - You Talkin' To Me?! (2000) Delmark Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241713.jpgsave_picture_241713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241713.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ batchRESIZE 1.76 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241714.jpgsave_picture_241714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_241714.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Trance In Motion Vol.360 (2023) [MP3|320 Kbps|image + .cue] <Trance, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211631.jpgsave_picture_211631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211631.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CEB127CB109C737D4360E1630F600C662B809FC5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211633.jpgsave_picture_211633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211633.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ HitPaw Photo Enhancer for Mac 2.3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211636.jpgsave_picture_211636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211636.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:6C6911D7F86E1F503CBF873D7CCF3DB71A114C9B
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211638.jpgsave_picture_211638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211638.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:9B19CCA72F0457994A90CAF535E72908CD5E38E6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211640.jpgsave_picture_211640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211640.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:26163B964C1312062B450DAE72B8864F9BC1C87A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211641.jpgsave_picture_211641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211641.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:3F2C53B955A3898A49F4A67007BC233E3B048E27
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211643.jpgsave_picture_211643.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211643.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:3B823E690C28215BB27F2EE2095714981D364D57
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211644.jpgsave_picture_211644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211644.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Dessar - 2022 (2022) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211647.jpgsave_picture_211647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211647.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Topaz Photo AI 1.3.8 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211650.jpgsave_picture_211650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211650.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:D2D1FAA603813F5DB9F027156D8B744D646FECCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211653.jpgsave_picture_211653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211653.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:A33ADE98FDDE0733A87A2C189BFFD4526B665E92
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211654.jpgsave_picture_211654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211654.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:AAAAA3B2DA30FF4827F2F6E73928E5C3CCE933B6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211657.jpgsave_picture_211657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211657.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:2D3C34581EDF60CB0D55386A9B1F658B13DAEFC7
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211658.jpgsave_picture_211658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211658.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Poisonous Reflection - Time Is Not on Our Side (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211659.jpgsave_picture_211659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211659.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:560FC7ABEEBC8BCBE32078BC573BACF78141B6F2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211661.jpgsave_picture_211661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211661.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Balabolka 2.15.0.850 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211663.jpgsave_picture_211663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211663.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:4490151E123012D08AF39F9BDB5282D2034EDB67
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211665.jpgsave_picture_211665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211665.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - Hey, what's that sound - Hammond Organ! (2023) 2CD [MP3|320 Kbps] <Jazz, Ha
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211669.jpgsave_picture_211669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211669.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Boost for reddit v1.12.7 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211670.jpgsave_picture_211670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211670.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:D104AAFA2B23769EABA8AFEE0447EB2D42706362
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211673.jpgsave_picture_211673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211673.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:89DC83C3D4D69491173C783970C4AE8B95A47D39
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211675.jpgsave_picture_211675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211675.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:9CE0849845C01BE5E11D3B2D6250A9DE76C78192
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211678.jpgsave_picture_211678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211678.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:0214DD81DC13ED407D30F557885175080DAE74D4
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211680.jpgsave_picture_211680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211680.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Discovery: Махинаторы / Wheeler Dealers (2020-2021) WEBRip [H.264/1080
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211681.jpgsave_picture_211681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211681.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Discovery: Махинаторы / Wheeler Dealers (2021-2022) WEBRip [H.264/1080
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211683.jpgsave_picture_211683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211683.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Photoplay, Мария Климова | Цвет в фотографии (2020) W
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208125.jpgsave_picture_208125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208125.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:98928404C789437C6D33A25C9470D114B4C769E3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208128.jpgsave_picture_208128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208128.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ magnet:?xt=urn:btih:8FF20191198C8D143E71D1388242BB851FC15D8D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208129.jpgsave_picture_208129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208129.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ STORY OF SEASONS: A Wonderful Life (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208133.jpgsave_picture_208133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208133.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:525FF04A3A57D54D1CD813C920F8D92337F71A72
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208136.jpgsave_picture_208136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208136.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Gnomon Workshop, David Silberbauer | Create A Procedural Waterwheel Simulati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208137.jpgsave_picture_208137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208137.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:7FB1789EB8A67C0706CA56A3018BBE84EAFE811F
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208140.jpgsave_picture_208140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208140.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:C01C29ED5258C936FF2A36A90C2BD8B6EA3D2BE7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208141.jpgsave_picture_208141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208141.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:77F6E1ED7B1A68752D20297D1B426C56432773C7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208142.jpgsave_picture_208142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208142.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ XFolder File Manager / XFolder - Файловый менеджер 1.4.5.1 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208143.jpgsave_picture_208143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208143.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Spotify 1.2.16.947 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208146.jpgsave_picture_208146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208146.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Elmedia Video Player Pro 8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208148.jpgsave_picture_208148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208148.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:9A5F0E83D7F3E521DFF1EE468D05A299F03F0982
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208150.jpgsave_picture_208150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208150.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ ASCOMP BackUp Maker 8.202 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208151.jpgsave_picture_208151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208151.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Duplicate File Finder Pro 2315 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208154.jpgsave_picture_208154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208154.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ magnet:?xt=urn:btih:8696CDFB50D7898FA6498EACBC71277353F27EF6
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208156.jpgsave_picture_208156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208156.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Viber 20.5.1.2 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208158.jpgsave_picture_208158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208158.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ App Builder 2023.37 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208159.jpgsave_picture_208159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208159.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ IceCream Ebook Reader Pro 6.33 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208163.jpgsave_picture_208163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208163.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ GOM Player Plus 2.3.89.5359 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208164.jpgsave_picture_208164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208164.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Optimizer 15.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208167.jpgsave_picture_208167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208167.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:F6E2A680D9E9746C4F7580D123520F104414596A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208169.jpgsave_picture_208169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208169.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ascold Flow | Поездатое путешествие (Книга 2). Путе
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208172.jpgsave_picture_208172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208172.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ CopyQ 7.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208173.jpgsave_picture_208173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208173.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Immortal Love 10: Polar Lights / Бессмертная любовь 10: Сев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208174.jpgsave_picture_208174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208174.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:81380443C449CE02408D71486E2F222045223E86
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208176.jpgsave_picture_208176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208176.jpg" />
 </div>
 
 

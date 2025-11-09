@@ -6,7 +6,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25856.jpgsave_picture_25856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25856.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XnConvert 1.104.0 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25857.jpgsave_picture_25857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25857.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25858.jpgsave_picture_25858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25858.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Easy Notes 1.2.97.0225 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25859.jpgsave_picture_25859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25859.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:A9330315CAA56DD6B64B171631AA0C6B38E4B3C4
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25860.jpgsave_picture_25860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25860.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:A4128BCFAEE2C7EF4625A6F3398CBA11E8EBEA25
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25861.jpgsave_picture_25861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25861.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:9A2E8850647C2B38C896C1789CC15314F7595DE8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25862.jpgsave_picture_25862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25862.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:18D7C367935BC3F70584893CE593FF8E88A9C475
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25863.jpgsave_picture_25863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25863.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:101527E404BCB65A93F07E1471B87BB2FA1AF086
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25864.jpgsave_picture_25864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25864.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ IsMyLcdOK 5.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25865.jpgsave_picture_25865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25865.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:6EED08CEB644FBA5CF8568674172A3F3DBEF9D66
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25866.jpgsave_picture_25866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25866.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:56790C34E417BC90533E5009EAFDBE545833E94C
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25867.jpgsave_picture_25867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25867.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:20AD7D64FD7794CCA7573BF0905FC5AE4A6C1550
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25868.jpgsave_picture_25868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25868.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Folder Player Pro v5.31 b338 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25869.jpgsave_picture_25869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25869.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:ABECC605D87844485838D8529F3B414D404FF23F
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25870.jpgsave_picture_25870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25870.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ METRO QUESTER (2023) [Multi] (1.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25871.jpgsave_picture_25871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25871.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:8517D0551EBB78BF3B309621F14161F8A6D990F9
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25872.jpgsave_picture_25872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25872.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Masters of Rock & Metal - The Best Rock & Metal Tracks ever... (2025) [MP3|
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25873.jpgsave_picture_25873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25873.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Psiphon 3 build 185 RePack (& Portable) by elchupacabra (DC 27.02.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25874.jpgsave_picture_25874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25874.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:8F25F03C630ADAD9FFA38AC50D86D7B03F6941B0
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25875.jpgsave_picture_25875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25875.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25876.jpgsave_picture_25876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25876.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:5501D35AB0A30770DA5426AC43591273A679F8E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25877.jpgsave_picture_25877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25877.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:30E0639D911AC0737F04C9839B8C3A3C841ACDEC
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25878.jpgsave_picture_25878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25878.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:85AFAECC000B886C6CD2C682D87A894E89F4DA7D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25879.jpgsave_picture_25879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25879.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ IsMyHdOK 4.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25880.jpgsave_picture_25880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25880.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ OCCT 13.1.15 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25881.jpgsave_picture_25881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_25881.jpg" />
 </div>
 
 

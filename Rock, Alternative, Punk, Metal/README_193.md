@@ -6,7 +6,7 @@ George Hills - Dancing With A Stranger (1991) Reissue, Remastered, 2023, Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125709.jpgsave_picture_125709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125709.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mitch Malloy - Making Noise (2017) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125714.jpgsave_picture_125714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125714.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Hekz - Terra Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125738.jpgsave_picture_125738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125738.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mötley Crüe - From The Beginning (2025) [FLAC|Lossless|WEB-DL|tracks] <Glam Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125765.jpgsave_picture_125765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125765.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Jesse Roper - Way Down In The Valley (2025) [FLAC|Lossless|WEB-DL|tracks] <Ameri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125900.jpgsave_picture_125900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125900.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ King Cat Rhythm - Black Rings (2025) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125904.jpgsave_picture_125904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125904.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Rainbow - Transmission Impossible (2022) [MP3|320 Kbps] <AOR, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125991.jpgsave_picture_125991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125991.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Heartlay - The Alteration (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126055.jpgsave_picture_126055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126055.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Letters Sent Home - Forever Undone (2024) Extended Edition, 2025, SharpTone Reco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126059.jpgsave_picture_126059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126059.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Hot Rod Frankie - 9 Albums (2006-2025) [MP3|320 Kbps] <Psychobilly, RAC, Oli, Ho
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126091.jpgsave_picture_126091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126091.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Cyan Kicks - Come Hell, Come High Water (2025) [FLAC 24/48|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126099.jpgsave_picture_126099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126099.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Ten Years After - 12 Studio, 5 Live Albums, 10 Compilation, 3 Box Set (1967 - 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126159.jpgsave_picture_126159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126159.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Shah - Fire And Brimstone Collection (2022) [FLAC|Lossless|image + .cue] <Thrash
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126174.jpgsave_picture_126174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126174.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nightrider - Into the Future (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126176.jpgsave_picture_126176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126176.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bjorko - Heartrot (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126181.jpgsave_picture_126181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126181.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Shallow Rivers - The Tales Told Under the Willow (2022) [FLAC|Lossless|image + .
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126184.jpgsave_picture_126184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126184.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pedro Botero - Mas Sabe el Diablo (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126185.jpgsave_picture_126185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126185.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Smerdead - Зловещие истории (2022) [FLAC|Lossless|image + .cue] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126189.jpgsave_picture_126189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126189.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:103EBEFF565737AC8A1E32394A4FB80C5E968594
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126190.jpgsave_picture_126190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126190.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Nova Arminius - Perish for the earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126191.jpgsave_picture_126191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126191.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Inverno - Stasis (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove-Metal, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126192.jpgsave_picture_126192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126192.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Relayer - Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126193.jpgsave_picture_126193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126193.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Disperser CA - Critical Moment of Agony (2023) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126194.jpgsave_picture_126194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126194.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Storyum - Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126200.jpgsave_picture_126200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126200.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ art against agony - Sound of Inevitability (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126202.jpgsave_picture_126202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126202.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ magnet:?xt=urn:btih:3430696F99EA5C8C47728D01AE7A43B289BC5DE7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126207.jpgsave_picture_126207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126207.jpg" />
 </div>
 
 

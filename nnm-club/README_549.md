@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14584.jpgsave_picture_14584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14584.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14585.jpgsave_picture_14585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14585.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14586.jpgsave_picture_14586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14586.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:BA10C2970C8230660CBA0BE6909548EF64794122
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14587.jpgsave_picture_14587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14587.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:99529915CB1ACC788FC55B82D84FFBE66E9C224E
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14588.jpgsave_picture_14588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14588.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:D705B96C3C4BD18D39BD2A25FFCF69B27C7754CC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14589.jpgsave_picture_14589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14589.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:EDA6B29687387591E1EB2F883B23CFEC91F8ADFB
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14590.jpgsave_picture_14590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14590.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Discovery: Экоград / Ecopolis (2008) SATRip (серии 1-6 из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14591.jpgsave_picture_14591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14591.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:085851B6BEC80A698AEAD0D904A3DFEDD5FA31DE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14592.jpgsave_picture_14592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14592.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:63FAE1953F86932F92184EDC9D34A18F5973E149
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14593.jpgsave_picture_14593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14593.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:968755C51B9A25FAAC232621AE49E54E7B7798AE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14594.jpgsave_picture_14594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14594.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:DB9B0AA72DB2410C66E937F51053D2512DBF7F28
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14595.jpgsave_picture_14595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14595.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:AF3A81E1E350EA4946ABAE1822C1DF5311AF4BAF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14596.jpgsave_picture_14596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14596.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Remix NNM 10 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14597.jpgsave_picture_14597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14597.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Discovery: Шахты на Луне / Mining the Moon (Роб Бимер) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14598.jpgsave_picture_14598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14598.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:550CE60ABC2274346811CB6A12E573C29479FD8C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14599.jpgsave_picture_14599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14599.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1B670B0ACA99B562DF31B6F0F4AD2CD6BB55DCEA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14600.jpgsave_picture_14600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14600.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:6B4006B2F24D6B709DD9C8F74B364F201EC78E51
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14601.jpgsave_picture_14601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14601.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:6B4006B2F24D6B709DD9C8F74B364F201EC78E51
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14602.jpgsave_picture_14602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14602.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:F6F9E67571512A3E92EB32EDE3AE1835D99465EC
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14603.jpgsave_picture_14603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14603.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:339399DC1AF3E5770438CF1556E266DBD0CFA829
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14604.jpgsave_picture_14604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14604.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Device Info / Информация об устройстве v3.3.9.2 Mod by Bal
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14605.jpgsave_picture_14605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14605.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:EDA26F98C9CFEFF066E146BE91D129FC60313437
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14606.jpgsave_picture_14606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14606.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:78C4EAEE56EA32F56469713009103F06D0459E5C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14607.jpgsave_picture_14607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14607.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:29751BF2507985FA448295E73283D789E35A68DA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14608.jpgsave_picture_14608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14608.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ CoolUtils Total XML Converter 3.2.0.158 RePack (& Portable) by elchupacabra [Mul
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14609.jpgsave_picture_14609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14609.jpg" />
 </div>
 
 

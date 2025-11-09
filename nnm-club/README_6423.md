@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203679.jpgsave_picture_203679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203679.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Teletype, Роман Горелик | Бандл от Науки Дизайна.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203681.jpgsave_picture_203681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203681.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:086062DE458DBD4F90DBA15AA035157EA010459E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203682.jpgsave_picture_203682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203682.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:152D595F894C05ECD989706B63C30A808FEA1F44
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203683.jpgsave_picture_203683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203683.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1686FA6E0C9ECC6B7D504F6E3F59248DD98B9510
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203684.jpgsave_picture_203684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203684.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3A561B4F0B86AF563508B91E158CD14F66F3A79D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203685.jpgsave_picture_203685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203685.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:644167FA82865D8C481D883029507AD897C5D792
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203686.jpgsave_picture_203686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203686.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Antipin-STUDIO, Антипин Виталий | Основа основ (про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203687.jpgsave_picture_203687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203687.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:CA07BA737F493BF7316385E834B941CD9BF23954
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203688.jpgsave_picture_203688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203688.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:FFB78D87B2DBABFED7E2C3A5393CAB68A122A08C
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203689.jpgsave_picture_203689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203689.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Soulsad - Doomed to Funerals (2022) Compilation, Black Hearts Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203690.jpgsave_picture_203690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203690.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ The Death Wheelers - Chaos And The Art Of Motorcycle Madness (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203691.jpgsave_picture_203691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203691.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:2989CA3CE8B820536255A6BFE8800F3325F7056B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203692.jpgsave_picture_203692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203692.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Coma Doof - Miasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203693.jpgsave_picture_203693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203693.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:493E02651F93091EDC31A9F9BC5F5A12E2E4E011
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203694.jpgsave_picture_203694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203694.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:4BCABE9196134A7875DAA4590970919E93D55E51
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203695.jpgsave_picture_203695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203695.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:C58C42EB26886754A64A90221CCC5B11EB2E92AB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203696.jpgsave_picture_203696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203696.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:D7A0C065285863CC70B5A8CE7B7F6E76BD2A3435
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203697.jpgsave_picture_203697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203697.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:BF4C979B0F559A641D9029EF14132B4E2341BEFB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203698.jpgsave_picture_203698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203698.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:ED920A07478F80C38E9617E170F4D9ADC995D984
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203699.jpgsave_picture_203699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203699.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 из 12 + OV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203700.jpgsave_picture_203700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203700.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mix Up Studio 3.3.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203701.jpgsave_picture_203701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203701.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:5B5CD8DB01E971A32A0EE7D9A16AF607CC49F542
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203702.jpgsave_picture_203702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203702.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 из 10 +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203703.jpgsave_picture_203703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203703.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ PhotoRoom 4.6.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203704.jpgsave_picture_203704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203704.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Borracho - Blurring the Lines of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203705.jpgsave_picture_203705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203705.jpg" />
 </div>
 
 

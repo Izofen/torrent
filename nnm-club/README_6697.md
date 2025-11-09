@@ -6,7 +6,7 @@ Bigasoft Total Video Converter 6.2.0.7269 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229789.jpgsave_picture_229789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229789.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:22733883C1B93027E6EE64E56BDA4BAE58DAF6BF
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229791.jpgsave_picture_229791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229791.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ DTM 2012 все этапы / Deutsche Tourenwagen Masters 2012 (2012) IPTVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229792.jpgsave_picture_229792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229792.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:67B83C2804D0CA5C0F6EED45E29416266C8E4302
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229794.jpgsave_picture_229794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229794.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Uninstall Tool 3.7.3 Build 5712 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229795.jpgsave_picture_229795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229795.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 4 (2017) [AAC|~326 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229796.jpgsave_picture_229796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229796.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:685048911021659A38530FA8FD970B7169E60FC8
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229797.jpgsave_picture_229797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229797.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:2D18290B5043BA16E2835F104AAE75142F15AC9D
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229798.jpgsave_picture_229798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229798.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Network Scanner 4.4 build 221 [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229801.jpgsave_picture_229801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229801.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:0A46EFB6224DEE607113A96324584650CB7FDFF2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229803.jpgsave_picture_229803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229803.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:B8521095F09F5D910B7FF995A096B754A212CE4F
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229804.jpgsave_picture_229804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229804.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Stargazer - Dinomania (1994) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229805.jpgsave_picture_229805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229805.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Hudozhnik Online, Полина Абдулаева | Черно-белый Нов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229806.jpgsave_picture_229806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229806.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:1CF1EB088B8E5BB49CFE3167609810C277BAA751
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229807.jpgsave_picture_229807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229807.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:C0BA6F22B0CA7CA53826ABCF1BE03B7160460CE1
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229809.jpgsave_picture_229809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229809.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:DE3713EFB533521D7C641BC3A5FABA7D660D68D8
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229810.jpgsave_picture_229810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229810.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229812.jpgsave_picture_229812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229812.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ TweakBit Driver Updater 2.2.0.51477 RePack (& Portable) by TryRooM [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229813.jpgsave_picture_229813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229813.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Exporter for Contacts 1.13 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229814.jpgsave_picture_229814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229814.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Take it Happy!! - 1 альбом (2011) [FLAC|Lossless] <Touhou, Vocal, Doujin O
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229815.jpgsave_picture_229815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229815.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Memento Database Pro 5.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229817.jpgsave_picture_229817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229817.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Extreme Picture Finder 3.62.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229818.jpgsave_picture_229818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229818.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:239D90E24D42A322A955BAB740AC0AE66603CADC
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229824.jpgsave_picture_229824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229824.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Justice - Woman Worldwide (2018) 2CD, Japan [FLAC|Lossless|tracks + .cue] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229829.jpgsave_picture_229829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229829.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Ashampoo WinOptimizer 26.00.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229832.jpgsave_picture_229832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229832.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Big Room 3 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229847.jpgsave_picture_229847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_229847.jpg" />
 </div>
 
 

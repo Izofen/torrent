@@ -6,7 +6,7 @@
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126681.jpgsave_picture_126681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126681.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CD93D42DA5B7EABD31248CF4D00C5FE58457D399
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126682.jpgsave_picture_126682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126682.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E03048986BE827D4E97EA3ACBAB275EA0274ADEC
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126683.jpgsave_picture_126683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126683.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:513C7048C920BF37FBB976775B6F651E2AE96708
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126684.jpgsave_picture_126684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126684.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:000517C04D44C3FB22008DA8FECC1F1484E77DCB
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126685.jpgsave_picture_126685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126685.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ PhpStorm 2023.3.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126686.jpgsave_picture_126686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126686.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ GoodbyeDPI 0.2.2 Launcher 6.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126687.jpgsave_picture_126687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126687.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:1CF03DE9460542B875964922343748A2C68CF22E
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126688.jpgsave_picture_126688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126688.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:DFD2538F543A5255456B9E192A84CB5ED530B154
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126689.jpgsave_picture_126689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126689.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Понемногу отовсюду by Yuridar #D (1957-2023) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126690.jpgsave_picture_126690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126690.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Need For Speed: Shift (2009) [Ru/En] (1.0.2.0/dlc) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126691.jpgsave_picture_126691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126691.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126692.jpgsave_picture_126692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126692.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:DEB1DA6A63417E01BA1B49ED1AF091D525C5774F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126693.jpgsave_picture_126693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126693.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:B8968653DEAD3F65CB44DF727FE6185A9080B6CF
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126694.jpgsave_picture_126694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126694.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:C01DE1FC724C9745AD195155FAB8FA20447BF717
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126695.jpgsave_picture_126695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126695.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1EA6E4E3E1D5BB55781FAB5D521ED36DA6A127ED
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126696.jpgsave_picture_126696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126696.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:30423E1549E0C43287BFA73A82C5BAFF566D53C2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126697.jpgsave_picture_126697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126697.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:13A37FD084851537F39862761080EC259C4BF621
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126698.jpgsave_picture_126698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126698.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:12FB3705601D7206CC171767B906E30F30B85013
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126699.jpgsave_picture_126699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126699.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:CC97EC796287FCFD01B170881332239FC10A12A2
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126700.jpgsave_picture_126700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126700.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:BA34EBF3D06AD94A6440EF4D6114956396966F02
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126701.jpgsave_picture_126701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126701.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:4F06008767E19BBB72183F039C48BF8C40E513D5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126702.jpgsave_picture_126702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126702.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Under Ninja | Иные ниндзя [2023, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126703.jpgsave_picture_126703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126703.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126704.jpgsave_picture_126704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126704.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ WebStorm 2023.3.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126705.jpgsave_picture_126705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126705.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:C2359CA5E47D858515900D0E67C6FB78CEFF4DCE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126706.jpgsave_picture_126706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126706.jpg" />
 </div>
 
 

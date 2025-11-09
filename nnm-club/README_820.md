@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21659.jpgsave_picture_21659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21659.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1500AD3EB2F90C8FC96A10BA42460A42A3F4E4B4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21660.jpgsave_picture_21660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21660.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SnowRunner (2020) [Ru/Multi] (35.0/dlc) Repack Other s [4-Year Anniversary Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21661.jpgsave_picture_21661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21661.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Monaco 2 (2025) [Ru/Multi] (1.0.0+18962) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21662.jpgsave_picture_21662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21662.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FB286CBE54663A906D7CC64D47325AD9F752D52C
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21663.jpgsave_picture_21663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21663.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1A03699DF6C23809609179EEB44A8ABC8DB32117
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21664.jpgsave_picture_21664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21664.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:892E136EE668EF10A6FAAF583248DFEA48C05FBA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21665.jpgsave_picture_21665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21665.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:473A1F9D63BEC34260C48E9AD701B3FB5AA50BC8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21666.jpgsave_picture_21666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21666.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:CB39405A5EB381B9235F70D23EEC828A0C2ACB73
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21667.jpgsave_picture_21667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21667.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21668.jpgsave_picture_21668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21668.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:36174A32660F4DEAFF1E30208691C8B8C5492BB3
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21669.jpgsave_picture_21669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21669.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:9628DF1DA305C0AB6E5B8D793FC5E6FC5DC2FC90
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21670.jpgsave_picture_21670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21670.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:67036E4BC04C16D7B2A5E0AA7D9035DB53037DD8
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21671.jpgsave_picture_21671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21671.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:67BA4D4405E2D08D4C5A84E2C9EACF6F099477E8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21672.jpgsave_picture_21672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21672.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:285CD081670C9843D170D94A341368D54E7B18AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21673.jpgsave_picture_21673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21673.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ IObit Uninstaller Pro 14.3.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21674.jpgsave_picture_21674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21674.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:BFFD14EC2512D412B2F7FA7A0FB8BA7D74DB4490
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21675.jpgsave_picture_21675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21675.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21676.jpgsave_picture_21676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21676.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:3AAC3494885BC95B056CAAB5BB650A3AC1EE0D20
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21677.jpgsave_picture_21677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21677.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:AC32ABAE68DBE0434DD37E572A195D5A0A33EAD8
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21678.jpgsave_picture_21678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21678.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:28C1A0420A3504547034DA435FFC9B83CB4EF649
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21679.jpgsave_picture_21679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21679.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:A46412779321D874896D0315ED44610BD845453D
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21680.jpgsave_picture_21680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21680.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.4.1637/dlc) Repack FitGirl [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21681.jpgsave_picture_21681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21681.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:D05B1DB78FFD859F9535C8B790CF5A274E2DBF07
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21682.jpgsave_picture_21682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21682.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:4D5F07495DFB7048EEB0D136457BAE42C3C2D7B5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21683.jpgsave_picture_21683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21683.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:4D5F07495DFB7048EEB0D136457BAE42C3C2D7B5
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21684.jpgsave_picture_21684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21684.jpg" />
 </div>
 
 

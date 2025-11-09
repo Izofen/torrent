@@ -6,7 +6,7 @@ Joel Corry - Another Friday Night (2023) [FLAC 16-24/44.1-48] Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184829.jpgsave_picture_184829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184829.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:251E410B9F699D1A8FB38392C2A0A217136900F7
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184831.jpgsave_picture_184831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_184831.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.0.7) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184832.jpgsave_picture_184832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184832.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Adrenaline Mob - Studio Albums (4 releases) (2012-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184834.jpgsave_picture_184834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184834.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:9DD2E74B1B1559DC85FF52FB184AB90888821C0F
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184835.jpgsave_picture_184835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184835.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ The Raspberries - Live 1973-1974 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184838.jpgsave_picture_184838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184838.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:763C2E7C52187C75F6358348F352383F03EF2ADE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184839.jpgsave_picture_184839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184839.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:4DE95E3B1E66E52BC6B9CD386E38328333C2AFAA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184840.jpgsave_picture_184840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184840.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Comodo Internet Security Premium 12.2.2.7062 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184843.jpgsave_picture_184843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184843.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Maya - Love Potion No. 9 (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184844.jpgsave_picture_184844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184844.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:AE4296707F55176D815162EE1D1491C32E283A03
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184845.jpgsave_picture_184845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184845.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:5977CA9FB11FEB399A2548FB8D8EDF6E0B0D61A1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184848.jpgsave_picture_184848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184848.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Entropia - Eclipses (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184849.jpgsave_picture_184849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184849.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:4E45C096A89F39D26185F3D4F70E038530800264
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184850.jpgsave_picture_184850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184850.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ MORTEN - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184853.jpgsave_picture_184853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184853.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:2B2D93D14738C430F480C0B34EB369337CA03B94
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184854.jpgsave_picture_184854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184854.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:955B638011A513460B85ECD479523EA88227A60F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184858.jpgsave_picture_184858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184858.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:F37B2F03F15623DD9ECA160FC03F86F327376C39
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184859.jpgsave_picture_184859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184859.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Loonypark - Strange Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184860.jpgsave_picture_184860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184860.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:1B105D505B8190B0893E6E95E0D5C9CFA829EFF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184861.jpgsave_picture_184861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184861.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Big Bus Dream - C'mon Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184864.jpgsave_picture_184864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184864.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:E35B03118CF56F428CEC6B643577D129DE00AF8D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184865.jpgsave_picture_184865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184865.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Reg Organizer 9.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184867.jpgsave_picture_184867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184867.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:37C0615E3149C93394FCD8EDE79437C310615C17
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184869.jpgsave_picture_184869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184869.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:55A4EA6E06902FA2A301BFDA2D5EAFC503CDB7A3
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184870.jpgsave_picture_184870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184870.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:4E7C8CA8CD0959136B44720D4ED709F7EBEE6CD5
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184872.jpgsave_picture_184872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184872.jpg" />
 </div>
 
 

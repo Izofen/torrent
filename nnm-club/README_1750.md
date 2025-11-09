@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45857.jpgsave_picture_45857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45857.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B17591A19D4F4FDE190FCAEC38EA1300232EFC76
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45858.jpgsave_picture_45858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45858.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:00946B4CC28973CD1CCC8BDAC18D2C606B178D01
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45859.jpgsave_picture_45859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45859.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Warriors of the Nile 2 (2022) [Multi] (1.2030) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45860.jpgsave_picture_45860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45860.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Alfa eBooks Manager 8.6.36.1 Pro & Web [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45861.jpgsave_picture_45861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45861.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D0D6A8DF61F2812B3D1E82697E814A20776607B6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45862.jpgsave_picture_45862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45862.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:CBC2E4DB031D34D3C92EBDC09FE65432E2AB5AD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45863.jpgsave_picture_45863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45863.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Picture Insect: Bug Identifier v2.8.30 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45864.jpgsave_picture_45864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45864.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:5048E4E75C9D30CFBEF80DF83AB322FCB65E5CE1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45865.jpgsave_picture_45865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45865.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:7CC149E3D38D85CC1B95BAB9965671A1496615C3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45866.jpgsave_picture_45866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45866.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:4D64CC0548A133A1603160CDF2F307D0BB6C407E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45867.jpgsave_picture_45867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45867.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4D64CC0548A133A1603160CDF2F307D0BB6C407E
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45868.jpgsave_picture_45868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45868.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:8360BB9864C6ED6CE7692042E7C42DBBFF109361
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45869.jpgsave_picture_45869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45869.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45870.jpgsave_picture_45870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45870.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:356CB315436CABEFF55B228DCF54B6A41D154F1A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45871.jpgsave_picture_45871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45871.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:356CB315436CABEFF55B228DCF54B6A41D154F1A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45872.jpgsave_picture_45872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45872.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:F228C7D41F2FE6E9C39FDEAAF6731EB543A2B502
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45873.jpgsave_picture_45873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45873.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Twin Mind 5: The Deathly Trick (2024) [Multi] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45874.jpgsave_picture_45874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45874.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Warriors of the Nile (2020) [Multi] (1.0310) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45875.jpgsave_picture_45875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45875.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Classic Rock - Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45876.jpgsave_picture_45876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45876.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:B353DAA3949917CD52E9B8EF6315CD9F03AB040C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45877.jpgsave_picture_45877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45877.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:CAF5BB1D96D5DD4660A656C656E8B097A3BBCA16
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45878.jpgsave_picture_45878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45878.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Listen Audiobook Player v5.2.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45879.jpgsave_picture_45879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45879.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:14AF96D16B5135630E6830A22A75FDC6FC74FEA4
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45880.jpgsave_picture_45880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45880.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:F36C6EE35FD293942A3C059650AF7CB08C27550D
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45881.jpgsave_picture_45881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45881.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:46B355C45651D8264FD59A8644DBD7FF1CD592EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45882.jpgsave_picture_45882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45882.jpg" />
 </div>
 
 

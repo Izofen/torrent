@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144482.jpgsave_picture_144482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144482.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Pink Floyd - Wish You Were Here (1975) SACD, Remastered, 2011 EMI [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144483.jpgsave_picture_144483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144483.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:AFE616EFB05CE3FC58AD8A08045E31B3341B7140
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144484.jpgsave_picture_144484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144484.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:0374A6D917F29BC216456441912D9878F4564FAD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144485.jpgsave_picture_144485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144485.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Lyrical Soul Ballads (2018) [MP3|320 Kbps] <Funk, Soul, Ballads>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144486.jpgsave_picture_144486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144486.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:33877EAB039B1208B63ED9B39A9EE3AF9A9749E4
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144487.jpgsave_picture_144487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144487.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:C3DF91AAD94E2F81E312BD58EF9D93FD2E538437
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144488.jpgsave_picture_144488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144488.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:C3DF91AAD94E2F81E312BD58EF9D93FD2E538437
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144489.jpgsave_picture_144489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144489.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ WhitePhotoSchool, Сергей Гунин | Основы фотографии On
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144490.jpgsave_picture_144490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144490.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Swing Monkey 1.1 [Игра] (Android 2.1+)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144491.jpgsave_picture_144491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144491.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Swing Monkey - Интересная аркада, где мы играем за 
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144492.jpgsave_picture_144492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144492.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:50F39858B0A9B3A6424A21140E93A665F05C397F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144493.jpgsave_picture_144493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144493.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:5DAD47166BB3BF7D77F03FB99E64ED76EA84D8CB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144494.jpgsave_picture_144494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144494.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ NIUBI Partition Editor 7.2.7 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144497.jpgsave_picture_144497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144497.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.2) Scene Tenoke
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144498.jpgsave_picture_144498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144498.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:9EAFD739AC921D4EC4512D56736749A7A3FD61EF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144500.jpgsave_picture_144500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144500.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:36412759C5EA54B82C6901B86288944A48489BE6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144501.jpgsave_picture_144501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144501.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:9663B96250ED5E5023AD97C2BF82A9277ED46136
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144503.jpgsave_picture_144503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144503.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ The Striders - Out of the Blues (Int. Edition) (2020) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144504.jpgsave_picture_144504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144504.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:6CCA815B35D45F61622CCC85B9F5D2BC9A7CB498
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144505.jpgsave_picture_144505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144505.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Mozilla Thunderbird 60.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144507.jpgsave_picture_144507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144507.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:73DA94232DE1B2610183E3D1741A8A408BC7C7DD
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144508.jpgsave_picture_144508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144508.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:F19B643BC45F174971DF08B942A9BE2B79ABBDA8
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144509.jpgsave_picture_144509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144509.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ magnet:?xt=urn:btih:2624C3D9A309D6A8A1D58CFC54FE3705AE51E68F
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144511.jpgsave_picture_144511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144511.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Союз 57 (2015) [MP3|320 кб/с] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144512.jpgsave_picture_144512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144512.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:060F2A2A48752912486C7AA626753E36BEA0D8A2
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144513.jpgsave_picture_144513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_144513.jpg" />
 </div>
 
 

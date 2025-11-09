@@ -6,7 +6,7 @@ Bon Jovi - Rockin' In Cleveland 1984 (2012) Remaster, 2024, The Media Champ [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107877.jpgsave_picture_107877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107877.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Art of Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107878.jpgsave_picture_107878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107878.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Toxikk Deception - Harsh Reality (2024) [MP3|204-260 kbps VBR (V0)] <EBM, Dark E
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107879.jpgsave_picture_107879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107879.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:5FD5F5171F6B6562AAC49D50A7C5D889ED0C973C
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107880.jpgsave_picture_107880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107880.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:121B68D3B748C14E48D52D9252C99DE095BC3640
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107881.jpgsave_picture_107881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107881.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:96DA18F966EED60589C9953FA15D800067CEBE1F
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107882.jpgsave_picture_107882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107882.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Vince Guaraldi & Bola Sete - Vince & Bola (1963, 1966) 2000, Fantasy [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107883.jpgsave_picture_107883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107883.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wilbur Ware Quintet - The Chicago Sound (1957) 1989, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107884.jpgsave_picture_107884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107884.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Rezn - Burden (2024) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner, Doom, Drone>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107885.jpgsave_picture_107885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107885.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Annabel - Worldviews (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107886.jpgsave_picture_107886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107886.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Xeneris - Eternal Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107887.jpgsave_picture_107887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107887.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Mary Lou Williams Trio - Free Spirits (1975) 1987, SteepleChase [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107888.jpgsave_picture_107888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107888.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Gustave Reichert - Mars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107889.jpgsave_picture_107889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107889.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Finn Rees - Dawn Is A Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107890.jpgsave_picture_107890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107890.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jet Engine Dragons - Ronin (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107891.jpgsave_picture_107891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107891.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Vince Guaraldi - The Latin Side Of Vince Guaraldi (1964) 1996, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107892.jpgsave_picture_107892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107892.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107893.jpgsave_picture_107893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107893.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Returned To The Earth - Stalagmite Steeple (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107894.jpgsave_picture_107894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107894.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Warlord - Free Spirit Soar (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107895.jpgsave_picture_107895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107895.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Paradise In Flames - Blindness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107896.jpgsave_picture_107896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107896.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ David Gogo - YEAH! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107897.jpgsave_picture_107897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107897.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:E7E5800BB0D15AD79D7D396BE2FCD30C61E5B70D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107898.jpgsave_picture_107898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107898.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Jill Barber - Encore! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107899.jpgsave_picture_107899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107899.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:5A375E9173174F132CF2E76C7E4CCD219BF28824
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107900.jpgsave_picture_107900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107900.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Dagoba - Different Breed (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107901.jpgsave_picture_107901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107901.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Atlantis Drive - Atlantis Drive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107902.jpgsave_picture_107902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107902.jpg" />
 </div>
 
 

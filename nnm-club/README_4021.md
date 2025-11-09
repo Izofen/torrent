@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125107.jpgsave_picture_125107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125107.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:20972953DD216355506D0F9E8A716130631E2D5C
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125109.jpgsave_picture_125109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125109.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3869E0620C3FF2A83B227A38E124895E9DFC8783
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125110.jpgsave_picture_125110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125110.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:385374F49477869E91781E7C26D94CEA40509260
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125112.jpgsave_picture_125112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125112.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Planet VPN 2.7.8.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125113.jpgsave_picture_125113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125113.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Tokyo Revengers: Tenjiku Hen | Tokyo Revengers: Tenjiku Arc | Токийские
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125115.jpgsave_picture_125115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125115.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:D6FF31BE6473A9066CF2A914FEB9E4F9C10DFB21
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125116.jpgsave_picture_125116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125116.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:FCE09C06D6BE5BCF8B9884C326491E7E36E2C263
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125117.jpgsave_picture_125117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125117.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E406B7F0B30CF91E4FFFD678B44862571C4C2DF3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125118.jpgsave_picture_125118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125118.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:231748B9CBF91E8F9552AA517D043388957202C1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125119.jpgsave_picture_125119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125119.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:98FA73FDEB4CE78A1987CB91A2CAFA641F755657
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125120.jpgsave_picture_125120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125120.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Shattered Union / Shattered Union: Захват США (2005) [Ru] (1.00x) Repac
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125121.jpgsave_picture_125121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125121.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:872A7821581DB616C0236F06EF6F7129248F5F2A
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125122.jpgsave_picture_125122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125122.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:CC5CA6C318602AB0C7B2C76036A99AA19CF224BC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125123.jpgsave_picture_125123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125123.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:D596ABA4D665021FB8639895755C546169758CF6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125124.jpgsave_picture_125124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125124.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53385) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125125.jpgsave_picture_125125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125125.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Merchant of the Six Kingdoms (2023) [En] (5.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125126.jpgsave_picture_125126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125126.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Hogwarts Legacy (2023) [Ru/En] (10461750/dlc) Repack Decepticon [Digital Deluxe 
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125127.jpgsave_picture_125127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125127.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:23BB2BBA450B0C92AF33949822CA93F1CF10A599
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125128.jpgsave_picture_125128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125128.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:109D6BD30E2609001CF7258DCDBFED446C5F6CCC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125129.jpgsave_picture_125129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125129.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:776979FD038938E920A9EBB9B0BD174F8D86D44D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125130.jpgsave_picture_125130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125130.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:4C94BBB95A623DDFFB9DE5C4956B6935B43F43F3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125131.jpgsave_picture_125131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125131.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:DAE3EEC5F3E88DC236C4764341F39A9D63D1881B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125132.jpgsave_picture_125132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125132.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:F32F714E967E2B0B79C4E2C05B5A8937A16D19B3
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125133.jpgsave_picture_125133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125133.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Jujutsu Kaisen (2023) | Магическая битва [ТВ-2] [2023, TV, 23 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125134.jpgsave_picture_125134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125134.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:0B5EA30ABF9C6E27EF1E107BBE4B536AD50DBBEE
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125135.jpgsave_picture_125135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125135.jpg" />
 </div>
 
 

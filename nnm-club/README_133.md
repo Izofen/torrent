@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3508.jpgsave_picture_3508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3508.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:90880D4E06EB8E67754E838AFB640015599564FA
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3509.jpgsave_picture_3509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3509.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.70.1_m/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3510.jpgsave_picture_3510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3510.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack FitGirl [Collection
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3511.jpgsave_picture_3511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3511.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0648A64174BC8E3D6681AFA5B344BC4A36DF4366
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3512.jpgsave_picture_3512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3512.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Microsoft Windows 11 [10.0.26200.5074], Version 25H2 Preview - Оригинал�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3513.jpgsave_picture_3513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3513.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3514.jpgsave_picture_3514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3514.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Microsoft Activation Scripts (MAS) 3.6 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3515.jpgsave_picture_3515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3515.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:EB349B535CBCE471AB5FE5E56C1E865328615501
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3516.jpgsave_picture_3516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3516.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.0 Build 13 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3517.jpgsave_picture_3517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3517.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Windows 7 SP1 7601.27929 x64 3in1 by OneSmiLe [10.09.2025] [Ru]
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3518.jpgsave_picture_3518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3518.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.12R/dlc) Repack Let'sРlay [Complete Bu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3519.jpgsave_picture_3519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3519.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Sunkenland (2023) [Ru/Multi] (0.7.04) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3520.jpgsave_picture_3520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3520.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Look Outside (2025) [Ru/En] (1.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3521.jpgsave_picture_3521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3521.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3522.jpgsave_picture_3522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3522.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:465CD4B226737F09140FA7C9AF8A7007665423DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3523.jpgsave_picture_3523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3523.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:465CD4B226737F09140FA7C9AF8A7007665423DE
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3524.jpgsave_picture_3524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3524.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Adobe Acrobat Pro 2025.001.20693 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3525.jpgsave_picture_3525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3525.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Archicad 28.3.0 Build 6003 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3526.jpgsave_picture_3526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3526.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Mortal Sin (2025) [Ru/Multi] (1.0 HF1) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3527.jpgsave_picture_3527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3527.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:170653429D97199E84ABC3A3150C3C42EE75F07C
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3528.jpgsave_picture_3528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3528.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:DEBCE3DC68AFC162FA0555FC8462941FFDD00E00
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3529.jpgsave_picture_3529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3529.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:B7782219B2FB4299F9F188E3A72184F7F4D23E23
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3530.jpgsave_picture_3530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3530.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:07B1855B4E5453F28575F6472FC8F6804F7F3575
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3531.jpgsave_picture_3531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3531.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3532.jpgsave_picture_3532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3532.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Shattered Pixel Dungeon (2022) [Ru/Multi] (3.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3533.jpgsave_picture_3533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3533.jpg" />
 </div>
 
 

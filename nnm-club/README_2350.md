@@ -6,7 +6,7 @@ Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] Web
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61467.jpgsave_picture_61467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61467.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D468F040F96329ECD6395C867073A1E6E298C455
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61468.jpgsave_picture_61468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61468.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows и иностранные программы баз данных Microso
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61469.jpgsave_picture_61469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61469.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack Other s [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61470.jpgsave_picture_61470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61470.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:2608893326E703844FD7EDE539C3136704F19944
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61471.jpgsave_picture_61471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61471.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Mahou Shoujo ni Akogarete / Gushing over Magical Girls / Восхищаясь д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61472.jpgsave_picture_61472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61472.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Interview Ready, Gaurav Sen | System Design Course (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61473.jpgsave_picture_61473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61473.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:3D18B354F72B4EAC8614338E97F58052F42BB33C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61474.jpgsave_picture_61474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61474.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ YouTube: просмотр видео может сделать вас подоз
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61475.jpgsave_picture_61475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61475.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ YouTube: просмотр видео может сделать вас подоз
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61476.jpgsave_picture_61476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61476.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ YouTube: просмотр видео может сделать вас подоз
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61477.jpgsave_picture_61477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61477.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ AnyDesk 8.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61478.jpgsave_picture_61478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61478.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:3A5CA6EF62944F8E0D2006A43FAF288C2733639D
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61479.jpgsave_picture_61479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61479.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ BZ Напоминания и Дни Рождения PRO v3.3.7 Mod by Alex.Stra
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61480.jpgsave_picture_61480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61480.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ TablePlus 5.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61481.jpgsave_picture_61481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61481.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Avidemux 2.8.2 Nightly(r240316) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61482.jpgsave_picture_61482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61482.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:D1F892A55B2B6AF0D1232247C8A8A0D4C9358AF4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61483.jpgsave_picture_61483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61483.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Oka Unarchiver - Unzip ZIP RAR 2.1.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61484.jpgsave_picture_61484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61484.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Airbuddy for Mac 2 v.2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61485.jpgsave_picture_61485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61485.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Royal TSX for Mac 6.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61486.jpgsave_picture_61486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61486.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Wireshark 4.2.4 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61487.jpgsave_picture_61487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61487.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Room Arranger 9.8.3.645 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61488.jpgsave_picture_61488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61488.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Ghost Buster Pro 3.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61489.jpgsave_picture_61489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61489.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ O&O Defrag Professional 28.0 Build 10006 RePack (& Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61490.jpgsave_picture_61490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61490.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ InstaBro | Instagram Browser 5.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61491.jpgsave_picture_61491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61491.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Mp3tag 3.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61492.jpgsave_picture_61492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_61492.jpg" />
 </div>
 
 

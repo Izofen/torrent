@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137191.jpgsave_picture_137191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137191.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AD7E510D01D16B66D9EF4E3D91D67080259659C6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137192.jpgsave_picture_137192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137192.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ TranslucentTB 2022.1 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137193.jpgsave_picture_137193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137193.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:75F3A8A2E0635A31478A34CD0D3A0382196E6C1A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137194.jpgsave_picture_137194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137194.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:13E7B99818C5A5735D1C170093A3E19ADFEBC7BA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137195.jpgsave_picture_137195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137195.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:C82956FB922EF39A592B44FF327DADD8F7C9F188
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137196.jpgsave_picture_137196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137196.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:39FCF89B7E1B138932B29EB313840CF4EF760B08
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137197.jpgsave_picture_137197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137197.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механ�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137198.jpgsave_picture_137198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137198.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 5.95.4500 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137199.jpgsave_picture_137199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137199.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:4F49D0F05F18E2552EBCE8C7656AD3A96CCBE7C6
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137200.jpgsave_picture_137200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137200.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B00DDA1BE94106FD5FCE00DA3DD3E84525910409
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137201.jpgsave_picture_137201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137201.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137202.jpgsave_picture_137202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137202.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Aero Glass for Windows 10 RS 1.5.1 RePack by PainteR [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137203.jpgsave_picture_137203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137203.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137204.jpgsave_picture_137204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137204.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137205.jpgsave_picture_137205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137205.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:34F0B1D546D43185757C2A81BD012692465C7AF2
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137206.jpgsave_picture_137206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137206.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137207.jpgsave_picture_137207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137207.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137208.jpgsave_picture_137208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137208.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:040A1095141852EF1442C4DEC85D85BA36B732B6
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137209.jpgsave_picture_137209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137209.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:58F6F73310EE5E2F89D7CBB54B82D02B8F5E6194
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137210.jpgsave_picture_137210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137210.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:4C27A67DE4EDC33E59B66D9CF2DD52F10368605D
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137211.jpgsave_picture_137211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137211.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12 из 12] WE
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137212.jpgsave_picture_137212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137212.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Tom Clancy's H.A.W.X. (2009) [Ru/En] (1.02) RePack =nemos=
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137213.jpgsave_picture_137213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137213.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:7646B8778162784FF8007D6AEC063D4D8C419252
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137214.jpgsave_picture_137214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137214.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:AB009C89E7E52A491A1598D45A5378FC3C392F9C
 >>Хоккей. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137215.jpgsave_picture_137215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137215.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:E8D0EB22F10BC379B4216B20E669DA47CE564F6C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137216.jpgsave_picture_137216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137216.jpg" />
 </div>
 
 

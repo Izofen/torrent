@@ -6,7 +6,7 @@ The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Bea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237874.jpgsave_picture_237874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237874.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:60F7117FBF0628A8A67A947F0FB16B1DE452A755
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237875.jpgsave_picture_237875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237875.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CPU-Z 2.06.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237876.jpgsave_picture_237876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237876.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:03578FEA195EEDE167F10316D6605BCD32AD8150
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237877.jpgsave_picture_237877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237877.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:3A680F608463F7D5D7DC8D6EE83A87BDA4F7C938
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237878.jpgsave_picture_237878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237878.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:41A115AA0AB5F053DE4F592E9BC6639D5E40325E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237879.jpgsave_picture_237879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237879.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:9D26FA47050E34095E282A04CCD32A2B0FB8DE62
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237880.jpgsave_picture_237880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237880.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:AA01A1A47F5817540022F8E866EA86E7BDC5FF43
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237881.jpgsave_picture_237881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237881.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:C72EF11F1A83F7F18491432EAA021479BE45C0AE
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237882.jpgsave_picture_237882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237882.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:859BF3F304A9A3FF4778A8631F6F823319E25993
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237883.jpgsave_picture_237883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237883.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Enrico Pieranunzi Quartet - New Spring: Live At The Village Vanguard (2017) CAMJ
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237884.jpgsave_picture_237884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237884.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Plugin Alliance & NEOLD - U2A 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237885.jpgsave_picture_237885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237885.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:0C494D9B22BA450A4AE69324D0F0C4150818B6B9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237886.jpgsave_picture_237886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237886.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Especial Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237887.jpgsave_picture_237887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237887.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ The Golden Grass - Life Is Much Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <V
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237888.jpgsave_picture_237888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237888.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:59081E3CA819F39F84F49978CFD7D1D530E9B951
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237889.jpgsave_picture_237889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237889.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Notebooks – Write and Organize 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237890.jpgsave_picture_237890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237890.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ NG. Море надежды. Подводные сокровища Америк�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237891.jpgsave_picture_237891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237891.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Battlefield - We'll Rock Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237892.jpgsave_picture_237892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237892.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:E7ABCFE549D173B593C884590024538AA67D8E9B
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237893.jpgsave_picture_237893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237893.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Lennie Tristano Quintet - Live At Birdland (1945, 1949) 1990, Jazz Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237894.jpgsave_picture_237894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237894.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Royal Bliss - Survival (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237895.jpgsave_picture_237895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237895.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:F922B4AF51CBA7B7A7F3B06335C873702D9D8F1D
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237896.jpgsave_picture_237896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237896.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Opera Crypto Browser 99.0.4788.77 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237897.jpgsave_picture_237897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237897.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Perfectly Clear WorkBench 4.4.0.2503 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237898.jpgsave_picture_237898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237898.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:C1AEFEE8016501118AC6D8FDC82EE50590C2F162
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237899.jpgsave_picture_237899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237899.jpg" />
 </div>
 
 

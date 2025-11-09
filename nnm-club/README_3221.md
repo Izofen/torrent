@@ -6,7 +6,7 @@ Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Cont
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104098.jpgsave_picture_104098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104098.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104099.jpgsave_picture_104099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104099.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104100.jpgsave_picture_104100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104100.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Eradicator - The Paradox (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104101.jpgsave_picture_104101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104101.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104102.jpgsave_picture_104102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104102.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Andreas Diehlmann Band - That Old Blues Again (2024) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104103.jpgsave_picture_104103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104103.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Mothercrow - Foraneo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104104.jpgsave_picture_104104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104104.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Asha Parkinson - Possession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104105.jpgsave_picture_104105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104105.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Somewhereout - Providence (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104106.jpgsave_picture_104106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104106.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:C603D5CE4C92ECADDC277676FCEE016FF3B79B54
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104107.jpgsave_picture_104107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104107.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:939B43F56EC4688FAC8DE6D186151058F3ED70E3
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104108.jpgsave_picture_104108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104108.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:5D2DE85CAE0D709C05143AC3A760BBB67606087C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104109.jpgsave_picture_104109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104109.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:3862D19C70937A910F445D6959BA22F7A7F58872
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104110.jpgsave_picture_104110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104110.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Kat Von D - My Side of the Mountain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104111.jpgsave_picture_104111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104111.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Airstrike - S*x Sells (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104112.jpgsave_picture_104112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104112.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Fighter V - Heart Of The Young (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104113.jpgsave_picture_104113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104113.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Wizard - Studio Albums (12 releases) (1995-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104114.jpgsave_picture_104114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104114.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Massacration - Metal Is My Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104115.jpgsave_picture_104115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104115.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:328482B0D5317A400E06DB253E787C21BE6FA530
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104116.jpgsave_picture_104116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104116.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:32606776CE2AF4158AD059A4FD5134D9BF9EAA3F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104117.jpgsave_picture_104117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104117.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Stryper - To Hell With The Amps (2024) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104118.jpgsave_picture_104118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104118.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Frank Sinatra - Sinatra 80th: Live In Concert (1995) Capitol Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104119.jpgsave_picture_104119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104119.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:8B9B8D956B3AB626781D0697CD079A8D394363F6
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104120.jpgsave_picture_104120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104120.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Bloodest Saxophone feat. Crystal Thomas - Extreme Heat (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104121.jpgsave_picture_104121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104121.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dreadsight - Conspiracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104122.jpgsave_picture_104122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104122.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Stryper - When We Were Kings (2024) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104123.jpgsave_picture_104123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104123.jpg" />
 </div>
 
 

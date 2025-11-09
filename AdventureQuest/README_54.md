@@ -6,7 +6,7 @@ Sucker for Love: First Date (2022) [Multi] (2.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187654.jpgsave_picture_187654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187654.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Our Life: Beginnings & Always (2020) [En] (1.7.1.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187983.jpgsave_picture_187983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187983.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.3.268591) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188138.jpgsave_picture_188138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188138.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:38E5A29EE8303E9A1F9A392F404D1162385562F6
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188144.jpgsave_picture_188144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188144.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ The Chant (2022) [Ru/Multi] (Build 9851451/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188328.jpgsave_picture_188328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188328.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Shore (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188350.jpgsave_picture_188350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188350.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ JETT: The Far Shore (2023) [Multi] (2.1.7.r24099/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188363.jpgsave_picture_188363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188363.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Unheard - Voices of Crime (2023) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188410.jpgsave_picture_188410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188410.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Murder House (2020) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188660.jpgsave_picture_188660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188660.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Zniw Adventure (2020) [Multi] (1.3.4W) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188678.jpgsave_picture_188678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188678.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Isle Tide Hotel (2023) [Ru/Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188683.jpgsave_picture_188683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188683.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Seven Nights Ghost (2023) [Multi] (1.03) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188720.jpgsave_picture_188720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188720.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (Build 11395309) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189098.jpgsave_picture_189098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189098.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ No Son of Mine (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189113.jpgsave_picture_189113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189113.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189141.jpgsave_picture_189141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189141.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189604.jpgsave_picture_189604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189604.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190760.jpgsave_picture_190760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190760.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lempo (2023) [Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191064.jpgsave_picture_191064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191064.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191182.jpgsave_picture_191182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191182.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191570.jpgsave_picture_191570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191570.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Under The Waves (2023) [Ru/Multi] (Build 11920395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191651.jpgsave_picture_191651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191651.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191653.jpgsave_picture_191653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191653.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Great North Shelter 2 (2023) [Ru/En] (Build 12078048) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191664.jpgsave_picture_191664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191664.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Great North Shelter 2 (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191748.jpgsave_picture_191748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191748.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192281.jpgsave_picture_192281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192281.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Murder Is Game Over (2022) [En] (2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192475.jpgsave_picture_192475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192475.jpg" />
 </div>
 
 

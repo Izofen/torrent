@@ -6,7 +6,7 @@
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13989.jpgsave_picture_13989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13989.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Pow
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13990.jpgsave_picture_13990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13990.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Magic Finger Project - The All Time Greatest Synthesizer Hits Now And Forever, V
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13991.jpgsave_picture_13991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13991.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:1CE5051264891497ABC94AD44D093B0FE3A18BF6
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13992.jpgsave_picture_13992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13992.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Photo Studio PRO v2.8.2.4355 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13993.jpgsave_picture_13993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13993.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Pola & Bryson - Overgrown (2025) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13994.jpgsave_picture_13994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13994.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:2608AEF1B6065FB106187394D2BF3C3FD8B42A3D
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13995.jpgsave_picture_13995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13995.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:70AFE5B04FF0E9C1FBBC8F6FEB0D77669F0B48F4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13996.jpgsave_picture_13996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13996.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:5B1A6EA0AEBF8D44584CCCDFA44EFD883011ABFE
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13997.jpgsave_picture_13997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13997.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:6D1240A9808CA5083BAC94CC66FFAF98005C55E3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13998.jpgsave_picture_13998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13998.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Devil May Cry 4 (2015) [Multi] (1.0/dlc) License GOG [Special Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13999.jpgsave_picture_13999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_13999.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:6DCED5EA851BC3E7E89D665401417D2E913D56CA
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14000.jpgsave_picture_14000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14000.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ FBReader Premium v3.8.15 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14001.jpgsave_picture_14001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14001.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:C2EF4D5EDF83555C885876A033CA95201C219A93
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14002.jpgsave_picture_14002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14002.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Steinberg - Cubase Pro 14 14.0.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14003.jpgsave_picture_14003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14003.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:CEAA19489976D62F8C00BFE75A03D73AB0D4DDC0
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14004.jpgsave_picture_14004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14004.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:7CC974FDF66FC8D92AC318361501E6A7533EA4E8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14005.jpgsave_picture_14005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14005.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:0560929F856ECDFDD6141052A81BAA450883855E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14006.jpgsave_picture_14006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14006.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ magnet:?xt=urn:btih:3D5926E6C757ED78F4CEFFA3BC8426CFCB90E731
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14007.jpgsave_picture_14007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14007.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ V.A. - ZYX Italo Disco Spacesynth Collection 11 (2025) [FLAC|Lossless|WEB-DL|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14008.jpgsave_picture_14008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14008.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:83300A99AFFD31090523C58DC1596CD3D26E4DB4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14009.jpgsave_picture_14009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14009.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ V.A. - Cafe del Mar 45th Anniversary (2025) [FLAC|Lossless|WEB-DL|tracks] <Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14010.jpgsave_picture_14010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14010.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:2114F54DB2B4D8448FD7A94A0B0195AB9782162A
 >>Детские (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14011.jpgsave_picture_14011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14011.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:9591F78AA3AECD0DDCD584DF48D17EFA55249DA0
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14012.jpgsave_picture_14012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14012.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:6CEA8052C9AEB9D395BE1AA5F69C4DD216723EC7
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14013.jpgsave_picture_14013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14013.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.6 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14014.jpgsave_picture_14014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14014.jpg" />
 </div>
 
 

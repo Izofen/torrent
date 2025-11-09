@@ -6,7 +6,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115249.jpgsave_picture_115249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115249.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2AA20F1E412742E06AF865111B45B9FAC0BF3A47
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115250.jpgsave_picture_115250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115250.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ MathType 7.8.0.0 [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115251.jpgsave_picture_115251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115251.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:36BE3B4F68F9C58705AEE53B6D5A6FE8B194CB2C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115252.jpgsave_picture_115252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115252.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:33B0B760D196078D0A8C3C517E500575CF3BD765
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115253.jpgsave_picture_115253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115253.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:11D2FF7DE46F79D7734D95152280591B12C4D3B0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115254.jpgsave_picture_115254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115254.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kameron Hussain, Frahaan Hussain | Linux Unveiled: From Novice to Guru (2024) [E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115255.jpgsave_picture_115255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115255.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:3DB69709452553B98D6648726E695E937D0A242A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115256.jpgsave_picture_115256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115256.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:685BE2E2D57A703265DE2E5FB052F64D66B9DD0D
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115257.jpgsave_picture_115257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115257.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:E34BD361090860A4A2D7539A30A0CB860073FA6F
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115258.jpgsave_picture_115258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115258.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:228A194E7831479A345926A44F077E1042DA6608
 >>Компьютеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115259.jpgsave_picture_115259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115259.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:BC621E778CCB4938AA87825DCC95BC69998915C9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115260.jpgsave_picture_115260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115260.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Udemy, Ilyas Shakenov | Финансовая математика (2024) WEB-DL 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115261.jpgsave_picture_115261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115261.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:4532D83287A4D286C39DDC8C20AEBC52A4BEE91D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115262.jpgsave_picture_115262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115262.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:896AA38F9862CB74F5CEAA32A9B9DB883743D9AF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115263.jpgsave_picture_115263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115263.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:896AA38F9862CB74F5CEAA32A9B9DB883743D9AF
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115264.jpgsave_picture_115264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115264.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:5C5DC1D8351036980479500764056E974B201E4D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115265.jpgsave_picture_115265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115265.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ CineBench 2024.1.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115266.jpgsave_picture_115266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115266.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Photo Mechanic Plus v6.0 build 7102 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115267.jpgsave_picture_115267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115267.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Udemy, Stanislav Gorchakov | Автоматизированный Telegram-ка�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115268.jpgsave_picture_115268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115268.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115269.jpgsave_picture_115269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115269.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:FE097DAFCD65F3D3B3DE7C42F2F390F34AF659F4
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115270.jpgsave_picture_115270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115270.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ The Lost Legends of Redwall: The Scout Anthology (2024) [Multi] (1.0) Repack Fit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115271.jpgsave_picture_115271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115271.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:6C7E59FEF515ED8D100FEAE2F493E0CA120F36EE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115272.jpgsave_picture_115272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115272.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:70BA6FA271805C98179F1C827FFF67DE2C19C528
 >>Звездные врата / Stargate
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115273.jpgsave_picture_115273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115273.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115274.jpgsave_picture_115274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115274.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41489.jpgsave_picture_41489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41489.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Display Driver Uninstaller 18.0.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41490.jpgsave_picture_41490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41490.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ AMEDAMA (2024) [Multi] (2.0.0/2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41491.jpgsave_picture_41491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41491.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:2BA2DA0BD4CFD98896765B5CE781F9FE046996DD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41492.jpgsave_picture_41492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41492.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:AAF884F89BBA6B99649F9CAAB87F8E806C26D86B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41493.jpgsave_picture_41493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41493.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:AAF884F89BBA6B99649F9CAAB87F8E806C26D86B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41494.jpgsave_picture_41494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41494.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:89552FBE806867A38B63FA95D655EF590381BFF1
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41495.jpgsave_picture_41495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41495.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ IsMyLcdOK 5.81 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41496.jpgsave_picture_41496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41496.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B4ACF2448BFB3AED46B647FB6B1FCAAB7C76FF2D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41497.jpgsave_picture_41497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41497.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0.2 Build 7 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41498.jpgsave_picture_41498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41498.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:918273B289611D9643DEF282776C7A733FB7EE08
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41499.jpgsave_picture_41499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41499.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ REYNATIS (2024) [Multi] (1.0.3/dlc) Scene FAiRLiGHT
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41500.jpgsave_picture_41500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41500.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:A31A35676D3A71B89646D0C863A54A39600052B6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41501.jpgsave_picture_41501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41501.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PotPlayer 240827 (1.7.22319) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41502.jpgsave_picture_41502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41502.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NirLauncher Package 1.30.14 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41503.jpgsave_picture_41503.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41503.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Wise Data Recovery Pro 6.2.0.517 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41504.jpgsave_picture_41504.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41504.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Topaz Gigapixel AI 7.4.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41505.jpgsave_picture_41505.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41505.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ StartAllBack 3.8.10.5173 (3.6.16.4729) StartIsBack 2.9.20 (2.9.1) / 1.7.6 / 2.1.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41506.jpgsave_picture_41506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41506.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:8DF37132CBFCD2AA96DFFB6E094213E4B3EC536F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41507.jpgsave_picture_41507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41507.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ OCCT 13.1.10 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41508.jpgsave_picture_41508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41508.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ PotPlayer 240930 (1.7.22332) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41509.jpgsave_picture_41509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41509.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ O&O Defrag Professional 29.0 Build 11110 RePack by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41510.jpgsave_picture_41510.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41510.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Native Instruments - Kontakt 8.0.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41511.jpgsave_picture_41511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41511.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ VueScan Pro 9.8.37 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41512.jpgsave_picture_41512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41512.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Krita 5.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41513.jpgsave_picture_41513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41513.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:D540D21D29AAE7A33DD1B5939889580DC1A2A735
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41514.jpgsave_picture_41514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41514.jpg" />
 </div>
 
 

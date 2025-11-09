@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202186.jpgsave_picture_202186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202186.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202187.jpgsave_picture_202187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202187.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2058FB018E2195CF5B8FAE7BCFF23E64323D3AF3
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202188.jpgsave_picture_202188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202188.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:54793DE83BE5611AA37EECF13125AFE39668B5C4
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202189.jpgsave_picture_202189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202189.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EF14B4F37F5BD72FFF6105AC29C006A3656B5200
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202190.jpgsave_picture_202190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202190.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E38792349F8823C922A722D50E6F06358201104F
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202191.jpgsave_picture_202191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202191.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.01.53364) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202192.jpgsave_picture_202192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202192.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EBDAB308FAB65CDBF3A3BBED8632C20734E8FCC0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202193.jpgsave_picture_202193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202193.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:C75635B0E96098FBE4C9E8EC89FD46BEB4EEF9CD
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202194.jpgsave_picture_202194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202194.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:5C0BB8ADDDFF565C48392C06193035C674ED93E2
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202195.jpgsave_picture_202195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202195.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:EF10F48FAD656FF3D9FD96317B9EAA32456E5FD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202196.jpgsave_picture_202196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202196.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Udemy, John Purcell | Learn Advanced Java (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202197.jpgsave_picture_202197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202197.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D8F34DCAFE934F335EA6BBA2ECF7BDB2D286F292
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202198.jpgsave_picture_202198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202198.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Antivirus Removal Tool 2023.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202199.jpgsave_picture_202199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202199.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:2CB4261687D2680F733B732A31590721D71CF39C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202200.jpgsave_picture_202200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202200.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:AAE56FB52D823742D4931DDD5210E8CA69C3F825
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202201.jpgsave_picture_202201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202201.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:76FC366E58A6EE91716EA71AB6C594B24495CDA4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202202.jpgsave_picture_202202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202202.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Lonnie Mack - 14 Albums (1963 - 2002) 15 CD [FLAC|Lossless|image + .cue|tracks +
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202203.jpgsave_picture_202203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202203.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ The Legend of Zelda: Tears of the Kingdom (2023) [Switch] [USA] 16.0.3 [NSP] [Li
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202204.jpgsave_picture_202204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202204.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:3BA0A43CFE377C8CCA689E388A12FBA56E493973
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202205.jpgsave_picture_202205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202205.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:8EB871F48A7E0284FB9C4A435C3097C3BAC53626
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202206.jpgsave_picture_202206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202206.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:65EDA1FC9B777E0BD344824AF9115622090691F0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202207.jpgsave_picture_202207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202207.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:8F22E9A200FC7BEF72FC8D725CC2CD162CBD39A5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202208.jpgsave_picture_202208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202208.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Internet Download Manager 6.42 Build 52 RePack by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202209.jpgsave_picture_202209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202209.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ magnet:?xt=urn:btih:20B78D554D560451DF0026EA39F33122562B275A
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202210.jpgsave_picture_202210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202210.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Udemy, Arno Pretorius | Python Django: Ultimate Web Security Checklist (2023) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202211.jpgsave_picture_202211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202211.jpg" />
 </div>
 
 

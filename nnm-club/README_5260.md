@@ -6,7 +6,7 @@ Topaz Mask AI 1.0.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163545.jpgsave_picture_163545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163545.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A339388EF3E40A6D49E657ACB8CF98B7AD375F3B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163546.jpgsave_picture_163546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163546.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Caramba Switcher + Corporate + Lab 2019.12.05 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163547.jpgsave_picture_163547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163547.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163548.jpgsave_picture_163548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163548.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Riverside - ID.Entity (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163549.jpgsave_picture_163549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163549.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163550.jpgsave_picture_163550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163550.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Black Label Society - Doom Crew Inc. (2021) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163552.jpgsave_picture_163552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163552.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:F046B508DEADC418B102627F427590EB95760955
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163553.jpgsave_picture_163553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163553.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:FE482602C9BE10F6B563B75F012D50B18D7DB7F9
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163554.jpgsave_picture_163554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163554.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:3B81E5BCFB256F8C04992F833CB0B7AE44200D94
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163555.jpgsave_picture_163555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163555.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Kontrust - madworld (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163556.jpgsave_picture_163556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163556.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:B98D3AA255BE3F076D3A71373D0C23AA3C77F96E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163557.jpgsave_picture_163557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163557.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Microsoft Windows 10.0.17763.914 Version 1809 (December 2019 Update) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163558.jpgsave_picture_163558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163558.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Louis Armstrong - The Complete Louis Armstrong Decca Sessions (1935 - 1946) 7CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163559.jpgsave_picture_163559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163559.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ KMSAuto++ Portable 1.7.8 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163560.jpgsave_picture_163560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163560.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:8D89A5335D40FD1C6766911F4C858A605E113227
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163561.jpgsave_picture_163561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163561.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:EDCE1DE6F173AE515DAE621F88684FCE65996163
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163562.jpgsave_picture_163562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163562.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ John Towner Williams - Звёздные войны: Скайуокер. Восх
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163563.jpgsave_picture_163563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163563.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 1 (2018) [AAC|~327 Kbps] <Broken Be
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163564.jpgsave_picture_163564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163564.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Things 3 v.3.19.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163565.jpgsave_picture_163565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163565.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Saint Kotar (2021) [Ru/Multi] (1.53/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163566.jpgsave_picture_163566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163566.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:0FCD5773C5F9733E88B33AB0528F704782FE78AB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163567.jpgsave_picture_163567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163567.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:978FC0F7928A18A7DD4E20AA11CE35F27D12FA94
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163568.jpgsave_picture_163568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163568.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:D8F28771F0F46A40F1238B6ADEB3EA9839F912D0
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163569.jpgsave_picture_163569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163569.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ DMG Canvas 3.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163570.jpgsave_picture_163570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163570.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:13B4ABF5BFDCE7E3A48C2F1C480D3C0263D56CD0
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163571.jpgsave_picture_163571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163571.jpg" />
 </div>
 
 

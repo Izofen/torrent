@@ -6,7 +6,7 @@ YT Downloader 7.23.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239663.jpgsave_picture_239663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239663.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D30F3E47EFD4E3BFB393DF1511B230E5223721B4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239664.jpgsave_picture_239664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239664.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Don Patterson & Booker Ervin - Legends Of Acid Jazz (1964) 1996, Prestige [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239665.jpgsave_picture_239665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239665.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EB762DDD5EBA86555F2CEDFF6A8A341241AA3378
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239666.jpgsave_picture_239666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239666.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ TextMan 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239667.jpgsave_picture_239667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239667.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:C279881FC39EC5A72B60C630AAE80763A00A5702
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239668.jpgsave_picture_239668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239668.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ The Arcs - Electrophonic Chronic (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Indie Ro
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239669.jpgsave_picture_239669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239669.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Vocal Miracles (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239670.jpgsave_picture_239670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239670.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Posterino 3 v3.10.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239671.jpgsave_picture_239671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239671.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:4BFC3343E745C11633103B8EFDD4D71713D0B105
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239672.jpgsave_picture_239672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239672.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:42CF6624B733C19E3C4231DF692870F6428702A5
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239673.jpgsave_picture_239673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239673.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Sandboxie plus 1.9.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239674.jpgsave_picture_239674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239674.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:CEFAE1D89C11D70731419511EAC5883C3E01D910
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239675.jpgsave_picture_239675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239675.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:4D2716DA2C1A981EB10A98ED3535180E5FF98EE3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239676.jpgsave_picture_239676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239676.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:F2C2DA3380A2C5F5CC9D838DEDF97F86093A0477
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239677.jpgsave_picture_239677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239677.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:39073715BE16F14A77A4949E80CABC363F660B67
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239678.jpgsave_picture_239678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239678.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ DeskCover 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239679.jpgsave_picture_239679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239679.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ magnet:?xt=urn:btih:D893F9FC309D0BC5A5FE20C14A2659BFA6673C3C
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239680.jpgsave_picture_239680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239680.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Optimizer 15.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239681.jpgsave_picture_239681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239681.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:067F8F094444937E95E973B3D10B460BF399CDDF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239682.jpgsave_picture_239682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239682.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Dropzone 4 Pro v 4.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239683.jpgsave_picture_239683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239683.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:EC67575434C3C7D369531B46726955B4070A6D94
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239684.jpgsave_picture_239684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239684.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Khymera - Hold Your Ground (2023) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239685.jpgsave_picture_239685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239685.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Sonny Landreth - 15 albums, 18CD (1981-2020) [FLAC|Lossless|image + .cue|tracks 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239686.jpgsave_picture_239686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239686.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:92682DD8D456B415563CAE8C087CC61C31F5CBA7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239687.jpgsave_picture_239687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239687.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ PDFpen 13 v13.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239688.jpgsave_picture_239688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239688.jpg" />
 </div>
 
 

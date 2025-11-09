@@ -6,7 +6,7 @@ Hard Rain - Два альбома (1997 - 1999) [MP3|320 кб/с]<Melodic Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134194.jpgsave_picture_134194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134194.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:3FF4F08433568583FA6CA9FE1BA6B2700701B66E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134195.jpgsave_picture_134195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134195.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Topaz Video AI 4.0.6 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134197.jpgsave_picture_134197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134197.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:927B60538ED2F4ECEDEF768D4EA1AEFCAFCAD5E4
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134198.jpgsave_picture_134198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134198.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Sorcerer - Reign Of The Reaper (2023) 2 x CD [FLAC|Lossless|image + .cue] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134199.jpgsave_picture_134199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134199.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - До 18 и старше №40 Зима (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134200.jpgsave_picture_134200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134200.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ magnet:?xt=urn:btih:8E9E9A4E9DDCFEE8AD93C8F400DF3A356EF45640
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134201.jpgsave_picture_134201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134201.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Google Chrome 119.0.6045.200 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134202.jpgsave_picture_134202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134202.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Ashampoo Photo Optimizer 10.0.0.19 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134205.jpgsave_picture_134205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134205.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Dag Arnesen Trio - Norwegian Song 3 (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134206.jpgsave_picture_134206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134206.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134207.jpgsave_picture_134207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134207.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:D21262AB5F1F6425EE985BA8DEFF9D540381C3BC
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134208.jpgsave_picture_134208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134208.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Cal Tjader - Several Shades Of Jade & Breeze From The East (1963) 1997, Verve [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134209.jpgsave_picture_134209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134209.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ GeoGebra 4.2.12 + Portable [Multi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134210.jpgsave_picture_134210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134210.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ GeoGebra — свободно распространяемая (GPL) динам�
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134211.jpgsave_picture_134211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134211.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:92D048E8B38EEB543FBD97773BEC3E642FA1227D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134212.jpgsave_picture_134212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134212.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Pale Moon 32.5.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134213.jpgsave_picture_134213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134213.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Best HD Wallpapers Pack (25.12.12) [Wallpapers]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134214.jpgsave_picture_134214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134214.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:9C0A83A5F633A59CCD28E2D35D47D269822FC068
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134215.jpgsave_picture_134215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134215.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Music News vol.319 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134217.jpgsave_picture_134217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134217.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ New Blues Underground - Whiskey Straight (2012) [FLAC|Lossless]<Blues-Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134218.jpgsave_picture_134218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134218.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Garden Planner 3.8.53 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134219.jpgsave_picture_134219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134219.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:92061836757C01C322F887B253D2EA5D7A96B3CE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134220.jpgsave_picture_134220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134220.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Xodo PDF - Ридер и Редактор 8.8.0 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134221.jpgsave_picture_134221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134221.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Moon+ Reader Pro 8.6 (806001) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134222.jpgsave_picture_134222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134222.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134223.jpgsave_picture_134223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134223.jpg" />
 </div>
 
 

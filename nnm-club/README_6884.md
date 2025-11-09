@@ -6,7 +6,7 @@ Depressive Witches - Bad Flask (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236343.jpgsave_picture_236343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236343.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1BD8D751FD032C61C57E1F6AAB1651FA0E4E56BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236345.jpgsave_picture_236345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236345.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:764DE14746CB32E88F45E2D68C86133F50D7CA92
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236346.jpgsave_picture_236346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236346.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ IObit Smart Defrag Pro 8.4.0.266 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236347.jpgsave_picture_236347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236347.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Acon Digital Acoustica Premium Edition 7.3.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236348.jpgsave_picture_236348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236348.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Whoopie Cat - 3 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236349.jpgsave_picture_236349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236349.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Hank Jones - Here's Love (1963) 2011, Universal [FLAC|Lossless|image + .cue] <Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236350.jpgsave_picture_236350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236350.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:9D612DC8F570AFAA89EDE9375B430B581EC703C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236353.jpgsave_picture_236353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236353.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ RapidWeaver 8 v8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236354.jpgsave_picture_236354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236354.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ EF Commander 2022.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236355.jpgsave_picture_236355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236355.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ VA - Chillout Orange, Vol. 3: Relaxing Chillout Vibes (2020) [AAC|~307 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236356.jpgsave_picture_236356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236356.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Joy Winter [ex. Lime] - Frantic Romantic (1990) [MP3|320 Kbps] <Electronic, Free
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236357.jpgsave_picture_236357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236357.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ SysAdmin Software Portable v.0.5.8.0 by rezorustavi (07.05.2022) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236361.jpgsave_picture_236361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236361.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Hazell Dean - The Dean & Ware Collection, Vol. 2 (2021) [AAC|~313 Kbps] <Pop, Di
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236362.jpgsave_picture_236362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236362.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ SSH Config Editor Pro 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236363.jpgsave_picture_236363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236363.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:74667B91E99C159DD657F0250D61457D1745100F
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236364.jpgsave_picture_236364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236364.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:4EB172E7508844E973D0C316BF816E2E5A650A3F
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236365.jpgsave_picture_236365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236365.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:1D2634EFD90AB1294A86619C9B4BD91F9B4A46DA
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236367.jpgsave_picture_236367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_236367.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Acorn 7 v7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236369.jpgsave_picture_236369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236369.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Battery Charging Alert 3.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236370.jpgsave_picture_236370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236370.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:0ECE660F2934492A4F43E38DF0086118C792582C
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236371.jpgsave_picture_236371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236371.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:A0F8AEE97F12245401A707B4C667571BD84C778B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236372.jpgsave_picture_236372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236372.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Udemy, Hamid Reza Afshari | 3ds Max 2023 for Beginners (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236375.jpgsave_picture_236375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236375.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Exposure X6 v6.0.5.196 ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236377.jpgsave_picture_236377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236377.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236378.jpgsave_picture_236378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236378.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Fugitive - Nobody Gets out Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236379.jpgsave_picture_236379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236379.jpg" />
 </div>
 
 

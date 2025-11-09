@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41983.jpgsave_picture_41983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41983.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ XYplorer 26.40.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41984.jpgsave_picture_41984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41984.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:186FBCDB46230E1B974E7FCC2E2D74824156E247
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41985.jpgsave_picture_41985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41985.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ZD Soft Screen Recorder 12.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41986.jpgsave_picture_41986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41986.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:067049473CD25967DD8F612FB11516123D920484
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41987.jpgsave_picture_41987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41987.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:E2AD4DE4152C6B0A1B53522DD65B11FE40C89D18
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41988.jpgsave_picture_41988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41988.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ QOwnNotes 24.9.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41989.jpgsave_picture_41989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41989.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:EC5EED00FBD17114B3DF1D5B55A5B83E4024611E
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41990.jpgsave_picture_41990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41990.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:80342D1C802F83D9368DB56F47895AEBD5A41565
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41991.jpgsave_picture_41991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41991.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:58420B3F017B694750B0318D3AEB0452EFC816EE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41992.jpgsave_picture_41992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41992.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:7975CA171C16085EFDA26AC4B88EB59BE608952E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41993.jpgsave_picture_41993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41993.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Let's Party (1988) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, Disco, Funk, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41994.jpgsave_picture_41994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41994.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Kontor Top Of The Clubs 2024.02 (2024) [MP3|~245 Kbps (V0)] <House, Club, P
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41995.jpgsave_picture_41995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41995.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:7E11961C09B913D19210B76702A5FE6ABDA6631B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41996.jpgsave_picture_41996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41996.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Powermix Vol. 5 (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41997.jpgsave_picture_41997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41997.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:6D6A97964D4C58BD2EE5431E1368460876C028BE
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41998.jpgsave_picture_41998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41998.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:31983E4F2E341C8B3D6CA04EE3F3D4BBCA5E72D3
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41999.jpgsave_picture_41999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41999.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ SQLite Expert Professional 5.5.23.634 RePack (& Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42000.jpgsave_picture_42000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42000.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Soft Organizer Pro 9.55 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42001.jpgsave_picture_42001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42001.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:29ED8AC584379137FC0E871E662089BE0BA75213
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42002.jpgsave_picture_42002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42002.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:D929ED629BFB2799B514DFA3ED8AE5EF10222018
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42003.jpgsave_picture_42003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42003.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:95C8AA53A2BB96793C18A12A653AFDAB3D20E8F2
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42004.jpgsave_picture_42004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42004.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:530B67D8B971F124C99A663987806F91AD51A3FA
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42005.jpgsave_picture_42005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42005.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ CoolUtils Total Audio Converter 6.1.0.274 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42006.jpgsave_picture_42006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42006.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Autorun Organizer 5.45 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42007.jpgsave_picture_42007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42007.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ iFind Data Recovery 9.7.4.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42008.jpgsave_picture_42008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42008.jpg" />
 </div>
 
 

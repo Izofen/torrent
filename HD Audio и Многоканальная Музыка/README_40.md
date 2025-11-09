@@ -6,7 +6,7 @@ Ratt - Studio Albums (2 releases) (1999; 2010) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42304.jpgsave_picture_42304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42304.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ivy Lab - Infinite Falling Ground Pt.2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42305.jpgsave_picture_42305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42305.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Delta Blues Collective - My Town Was Memphis in 1973 (2024) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42307.jpgsave_picture_42307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42307.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Steve Louw - Between Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42309.jpgsave_picture_42309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42309.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Patti LuPone - A Life in Notes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42310.jpgsave_picture_42310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42310.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Crimson Veil - Hex (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42311.jpgsave_picture_42311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42311.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Luna Sol - Vita Mors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42312.jpgsave_picture_42312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42312.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Mylene Farmer - RemiXXL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42393.jpgsave_picture_42393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42393.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ruth Moody - The Wanderer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42417.jpgsave_picture_42417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42417.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Toni Braxton - Singles Collection (2000) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42500.jpgsave_picture_42500.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42500.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Legacy of Light - Fragments of Major Arcana (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42511.jpgsave_picture_42511.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42511.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Cold Contrast - Last Honest Words (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42512.jpgsave_picture_42512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42512.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Hiraes - Studio Albums (2 releases) (2021-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42513.jpgsave_picture_42513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42513.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Little Quirks - Little Quirks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42515.jpgsave_picture_42515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42515.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Metal Church - Studio Albums (14+1 releases) (1985-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42559.jpgsave_picture_42559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42559.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:6FA9A1DE82C6223C1BDBF70BB9541F719EEC2A34
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42600.jpgsave_picture_42600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42600.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Manu Chao - Viva Tu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Rock, Regg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42602.jpgsave_picture_42602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42602.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Jamie xx - In Waves (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42613.jpgsave_picture_42613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42613.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Babbba - Hypnotic Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Swing, Smo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42617.jpgsave_picture_42617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42617.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Hurricanes - Back to the Basement (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42619.jpgsave_picture_42619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42619.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Calliope Calliopeia Band - Long Distance You and Me (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42620.jpgsave_picture_42620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42620.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Purple Disco Machine - Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42725.jpgsave_picture_42725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42725.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Katy Perry - 143 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42832.jpgsave_picture_42832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42832.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Seether - Studio Albums (11 releases) (2000-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42838.jpgsave_picture_42838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42838.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Nightwish - Studio Albums (11 releases) (1997-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42908.jpgsave_picture_42908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42908.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Nightwish - Yesterwynde (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Symphonic Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43035.jpgsave_picture_43035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43035.jpg" />
 </div>
 
 

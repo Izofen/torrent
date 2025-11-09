@@ -6,7 +6,7 @@ World War Z (2019) [Ru/Multi] (2.36/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34931.jpgsave_picture_34931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34931.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Alder's Blood (2020) [Ru/Multi] (2.0.1) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34934.jpgsave_picture_34934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34934.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.0.0/dlc) Scene Rune [P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34949.jpgsave_picture_34949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34949.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34950.jpgsave_picture_34950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34950.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ ArkCraft: The Rebirth of the World / ArkCraft: Возрождение мира (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34958.jpgsave_picture_34958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34958.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.36/dlc) Repack seleZen [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34968.jpgsave_picture_34968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34968.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Disney Epic Mickey: Rebrushed (2024) [Multi] (1.0.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34974.jpgsave_picture_34974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34974.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Lords of the Fallen (2023) [Multi] (1.6.49/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34976.jpgsave_picture_34976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34976.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ The Thing: Remastered (2024) [Multi] (1.0) Scene Skidrow
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34987.jpgsave_picture_34987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34987.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ B-17 Flying Fortress : The Mighty 8th Redux (2024) [En] (1.0.15) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34988.jpgsave_picture_34988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34988.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ inbento (2019) [Ru/Multi] (2.51) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34993.jpgsave_picture_34993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34993.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35029.jpgsave_picture_35029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35029.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 51996) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35039.jpgsave_picture_35039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35039.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35043.jpgsave_picture_35043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35043.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Golf Peaks (2018) [Ru/Multi] (3.60) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35048.jpgsave_picture_35048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35048.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35049.jpgsave_picture_35049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35049.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (Reika Update) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35054.jpgsave_picture_35054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35054.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35067.jpgsave_picture_35067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35067.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2891297/dlc) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35112.jpgsave_picture_35112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35112.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35140.jpgsave_picture_35140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35140.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Lorn's Lure (2024) [Ru/Multi] (Build 16415308) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35149.jpgsave_picture_35149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35149.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Vaporum: Lockdown (2020) [Ru/Multi] (Build #80) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35153.jpgsave_picture_35153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35153.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack dixen18 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35172.jpgsave_picture_35172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35172.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.248.905/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35173.jpgsave_picture_35173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35173.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ HUMANKIND (2021) [Ru/Multi] (1.0.27.4539/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35182.jpgsave_picture_35182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35182.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.2.0.5) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35185.jpgsave_picture_35185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35185.jpg" />
 </div>
 
 

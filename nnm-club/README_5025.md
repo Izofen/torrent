@@ -6,7 +6,7 @@ VA - Acoustic Women (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157071.jpgsave_picture_157071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157071.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2B72BAF88FE20F358AFDCBAACBFEA67800088A52
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157072.jpgsave_picture_157072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157072.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D13CAC2CB8CE723E156A9917DA463579DA2CCC07
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157073.jpgsave_picture_157073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157073.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9862B7C93AD472652827D3B397E6A81696E07D7B
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157077.jpgsave_picture_157077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157077.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Black Sabbath - The End (2017) Live, 3CD, Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157078.jpgsave_picture_157078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157078.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ HDCleaner 1.322 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157080.jpgsave_picture_157080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157080.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:48F9E11A05A08286CA0017A2AC66A0589DD94442
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157081.jpgsave_picture_157081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157081.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ DxO ViewPoint 4.11.0 Build 260 (x64) Portable by 7997 [Multi]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157082.jpgsave_picture_157082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157082.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:ED6CA9C040A9F8AAD01A861BB3CA5D442A49F1C7
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157083.jpgsave_picture_157083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157083.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Comedy Woman (13.12.2019) WEB-DLRip (сезон 9, выпуск 13)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157084.jpgsave_picture_157084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157084.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:B41FDB81AFC2B833A4BCBB5518B0ECDEBE0FCF65
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157086.jpgsave_picture_157086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157086.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ The Bat! Professional 9.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157088.jpgsave_picture_157088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157088.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ PrivaZer 4.0.16 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157089.jpgsave_picture_157089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157089.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157090.jpgsave_picture_157090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157090.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:B347E627EEA7140082399B28F15A50F52462789B
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157092.jpgsave_picture_157092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157092.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:73219167F94F7B8D535262F409B5430A05B1614B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157093.jpgsave_picture_157093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157093.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:B15D29CA94562FD5D6D22097D4553DBFEE9BB8F4
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157094.jpgsave_picture_157094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157094.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:AEC3FEB684703C949C1E02A65733D357EB56609C
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157095.jpgsave_picture_157095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157095.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:B7607E330F9F552E13B3027B3AC8D9A0EE1C9709
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157096.jpgsave_picture_157096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157096.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:69B7C1CCDD1D94D51622140CB92F2A212996B426
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157097.jpgsave_picture_157097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157097.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:F9D491C01466CA724487A30CDA9382302A783B5B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157099.jpgsave_picture_157099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157099.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Wondershare UniConverter 15.0.5.18 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157100.jpgsave_picture_157100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157100.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:65765EED70F5394777C268F42DA4FE24DC92A7EF
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157101.jpgsave_picture_157101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157101.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:2F02FD9470EF373948C7D1F79C22AD968CB09537
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157102.jpgsave_picture_157102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157102.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Новогодний хоровод Vol.2 (2018) [MP3|192-320 Kbps] <Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157103.jpgsave_picture_157103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157103.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:1724587FB82E598911ACA662D6D346139E9305E3
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157106.jpgsave_picture_157106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157106.jpg" />
 </div>
 
 

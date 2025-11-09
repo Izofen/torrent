@@ -6,7 +6,7 @@
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141631.jpgsave_picture_141631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141631.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CFC89B2145C9B50BB2BD1D5F3CECA8AE6945FD92
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141632.jpgsave_picture_141632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141632.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lynda.com | CSS: Gradients (2013) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141633.jpgsave_picture_141633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141633.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ BookMacster 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141634.jpgsave_picture_141634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141634.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:ACF39C951F7AFB975F3E10ADD11D8397F7DC55A1
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141635.jpgsave_picture_141635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141635.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:5B865DC0D717884F7331EB1D0716EF284B0E9186
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141636.jpgsave_picture_141636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141636.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:E1E3E52CA1A75393BC284BCFB66C20F4A80664F7
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141637.jpgsave_picture_141637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141637.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Opera One 105.0.4970.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141638.jpgsave_picture_141638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141638.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:1C31CA71EF3CCA9E0F40E17CCDDCF1CDE39CA18A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141639.jpgsave_picture_141639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141639.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ VA - Hits of My Soul Vol. 29 (2017) [MP3|320 кб/с]<Rock, Metal, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141641.jpgsave_picture_141641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141641.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Boom 3D 1.3.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141644.jpgsave_picture_141644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141644.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:068A0781DE74D69B162C4E2E414D3205DC2716D0
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141645.jpgsave_picture_141645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141645.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:F4D6F8C61F595782EDF53C84B318D7EF1FCF508D
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141648.jpgsave_picture_141648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141648.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ hamedbahram.io, Hamed Bahram | The Ultimate NextJs Course (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141649.jpgsave_picture_141649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141649.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Recovery USB-Flash for HP 15-ay512ur / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141650.jpgsave_picture_141650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141650.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:1A9399DF3887AAA244CE07D0FEFE4BDAB4E3AC40
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141651.jpgsave_picture_141651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141651.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Windows 10 32in1 (x86/x64) + LTSC +/- Office 2019 by SmokieBlahBlah 23.12.18 [Ru
 >>15
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141652.jpgsave_picture_141652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141652.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Foxit PhantomPDF Business 5.5.3.1211 [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141653.jpgsave_picture_141653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141653.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Foxit Phantom - приложение для просмотра, редактир
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141654.jpgsave_picture_141654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141654.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:EA92D5CD97326CA380FF5BBCCF8A0049397EE286
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141655.jpgsave_picture_141655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141655.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Livelock (2016) [Ru/En] (1.0.25218) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141656.jpgsave_picture_141656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141656.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:27B16EB63E9A9EED86D926628E45A32E32CADFD4
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141658.jpgsave_picture_141658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141658.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:C0278F3BDB7903D5A570C2F83A30815DD28788F9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141659.jpgsave_picture_141659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141659.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:B47CD30B1FE30E1E0FC0302D252D838F16CACD89
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141660.jpgsave_picture_141660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141660.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:38B7B6B1B6E444BA51D07CAB5E2638F1AAF99120
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141661.jpgsave_picture_141661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141661.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Opus VII - Prima Opus Magnum (2013) [FLAC|Lossless|image + .cue] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141662.jpgsave_picture_141662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_141662.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Defleshed - Under the Blade (1997) Reissue 2000 [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245715.jpgsave_picture_245715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245715.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - The Rock Collection: Rock The World (1992) 2CD Compilation [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245716.jpgsave_picture_245716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245716.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Lord Mountain - The Oath (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245720.jpgsave_picture_245720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245720.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mask of Prospero - Hiraeth (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245726.jpgsave_picture_245726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245726.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nar Mattaru - Ancient Atomic Warfare (2015) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245734.jpgsave_picture_245734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245734.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Velian - Godless (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245736.jpgsave_picture_245736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245736.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Defleshed - Abrah Kadavrah / Ma Belle Scalpelle (1996 / 1994) Compilation, Relea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245743.jpgsave_picture_245743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245743.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ravenia - Beyond The Walls Of Death (2016) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245749.jpgsave_picture_245749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245749.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - The Rock Collection: Rock Heroes (1991) 2CD Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245757.jpgsave_picture_245757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245757.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Visceral Evisceration - 2 Albums (1994-2019) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245759.jpgsave_picture_245759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245759.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Slegest - Avstand (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245768.jpgsave_picture_245768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245768.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:6709F80A4C0AF59849DD6F27515848D83CFE51DA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245794.jpgsave_picture_245794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245794.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ The Zombies - Different Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245795.jpgsave_picture_245795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245795.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Little Black Stitches - Hush Crush (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245801.jpgsave_picture_245801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245801.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Scalp - Black Tar (2023) [MP3|320 Kbps] <Death Metal, Grindcore, Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245816.jpgsave_picture_245816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245816.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Xentrix - Seven Words (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245849.jpgsave_picture_245849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245849.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Project - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245863.jpgsave_picture_245863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245863.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Rhapsody - Dawn Of Victory (2000) Reissue, 2005, Limb Music Products [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245873.jpgsave_picture_245873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245873.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Roxanne - Stereo Typical (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245899.jpgsave_picture_245899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245899.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ City and Colour - The Love Still Held Me Near (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245905.jpgsave_picture_245905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245905.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Highway Chile - Keeper Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245916.jpgsave_picture_245916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245916.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ HammerFall - Dominion (2019) Japanese Edition [WavPack|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245917.jpgsave_picture_245917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245917.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:9A9C8BA320CCF232619FAFFE6100CDFBAD6A3F95
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245934.jpgsave_picture_245934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245934.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ The Steve Miller Band - Your Saving Grace (1969) Reissue, 1987, Capitol [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245939.jpgsave_picture_245939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245939.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245948.jpgsave_picture_245948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245948.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Black Rabbit - Hypnosomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245950.jpgsave_picture_245950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245950.jpg" />
 </div>
 
 

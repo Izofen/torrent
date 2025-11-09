@@ -6,7 +6,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76469.jpgsave_picture_76469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76469.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76479.jpgsave_picture_76479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76479.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76481.jpgsave_picture_76481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76481.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:CFD85012E275719AA7A7F9C66FB4E10DF43663AD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76485.jpgsave_picture_76485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76485.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:42D5182AB495FB60D578419EE03954C8134DFA8B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76493.jpgsave_picture_76493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76493.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:42D5182AB495FB60D578419EE03954C8134DFA8B
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76497.jpgsave_picture_76497.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76497.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76498.jpgsave_picture_76498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76498.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Deep Purple - Nobody's Perfect (1988) 2SHM-CD Set /2011 Universal Music Japan/ [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76501.jpgsave_picture_76501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76501.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Deep Purple — британская рок-группа, образованна
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76508.jpgsave_picture_76508.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76508.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Deep Purple — британская рок-группа, образованна
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76512.jpgsave_picture_76512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76512.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Tindersticks - The Something Rain (2012) [FLAC|Lossless]<Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76515.jpgsave_picture_76515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76515.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wild Cherry - 6 Альбомов [1970-2002] [MP3|192-320 kbps]<Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76519.jpgsave_picture_76519.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76519.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Super Hits (2002)Жанр: Funk  |Продолжительность: 03:45:24
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76523.jpgsave_picture_76523.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76523.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:AD0D7CD661236D5DDEA234AF170B81C4A3600998
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76530.jpgsave_picture_76530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76530.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76535.jpgsave_picture_76535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76535.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76540.jpgsave_picture_76540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76540.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:FDA0F4A2DEA54F2515785F19D75DBE4C6D9FA6E3
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76550.jpgsave_picture_76550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76550.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:45833E50BAC1DF50723F0D208EFC9670B5C2A2C2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76555.jpgsave_picture_76555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76555.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:8B4847663ECFDDEA727695BA511D5E28899D7536
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76557.jpgsave_picture_76557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76557.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76571.jpgsave_picture_76571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76571.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76573.jpgsave_picture_76573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76573.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:B8D64920B9F141374559CDCE19DA72506CF3E0CC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76578.jpgsave_picture_76578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76578.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76581.jpgsave_picture_76581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76581.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:61CCDF08150F2B2910D1CBCF30D98852B4BEBC73
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76582.jpgsave_picture_76582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76582.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Code Geass Hangyaku no Lelouch R2 Special Edition: Zero Requiem / Code Geass: Le
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76584.jpgsave_picture_76584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76584.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:55A806BF40D1BF63C3EA9CD6564F2CDB650EFD53
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76600.jpgsave_picture_76600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76600.jpg" />
 </div>
 
 

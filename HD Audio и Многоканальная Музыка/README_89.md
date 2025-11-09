@@ -6,7 +6,7 @@ Osvaldo Di Dio - Blues For Pino (2025) [FLAC 24-Bit/44.1 kHz|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71618.jpgsave_picture_71618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71618.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71667.jpgsave_picture_71667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71667.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Epysode - Studio Albums (2 releases) (2011-2013) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71691.jpgsave_picture_71691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71691.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AARA - Eiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Atmosphe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71706.jpgsave_picture_71706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71706.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Gareth Huggett - Modern Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71711.jpgsave_picture_71711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71711.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Brian Grilli - Great Big Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71712.jpgsave_picture_71712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71712.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Jeff Krause & Brokedown Gramophone - Tears for My Friends (2025) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71713.jpgsave_picture_71713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71713.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Crimson Storm - Livin' on the Bad Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71716.jpgsave_picture_71716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71716.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Aldo Farias with Mario Nappi, Tommaso Scannapieco & Pietro Iodice - Worlds (2025
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71717.jpgsave_picture_71717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71717.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Starchilde - Jupiter Brain (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progres
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71726.jpgsave_picture_71726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71726.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Olivia Rox - Super Cool Songs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71730.jpgsave_picture_71730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71730.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Kemas - Deus X Machina (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71739.jpgsave_picture_71739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71739.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Diogo M. Jr. - Rock com Maestria (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71740.jpgsave_picture_71740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71740.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ GTO Trio featuring Gadi Lehavi, Tal Mashiach and Ofri Nehemya - GTO TRIO: Within
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71743.jpgsave_picture_71743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71743.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Paper Lace - The Best Of Paper Lace (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71761.jpgsave_picture_71761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71761.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ The Smoothies - Head to Christmas: A Soulful Christmas (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71762.jpgsave_picture_71762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71762.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Elyose - Évidence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71763.jpgsave_picture_71763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71763.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Masque of Art - Masquerade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71767.jpgsave_picture_71767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71767.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Magnum - Live At KK's Steel Mill (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71768.jpgsave_picture_71768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71768.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Vampires Everywhere - The Devil Made Me Do It (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71769.jpgsave_picture_71769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71769.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Eguana - Destiny, Vol. 4 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient |
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71779.jpgsave_picture_71779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71779.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ The Smoothies - Winter Chill (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71780.jpgsave_picture_71780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71780.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Beriedir - Liminal Spaces (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71789.jpgsave_picture_71789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71789.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Asphyx - Studio Albums (10 releases) (1991-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71791.jpgsave_picture_71791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71791.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Guy Verlinde & Tom Eylenbosch - Promised Land Blues (2025) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71796.jpgsave_picture_71796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71796.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71798.jpgsave_picture_71798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71798.jpg" />
 </div>
 
 

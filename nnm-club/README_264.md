@@ -6,7 +6,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6948.jpgsave_picture_6948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6948.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:36F633025EAE6EF901D20A5DBFF78F9E56E6D6DC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6949.jpgsave_picture_6949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6949.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:E4E7535C3BED111D56603DC2FF276CAC2A8E818A
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6950.jpgsave_picture_6950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6950.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Windows Server [10.0.25398.1791], version 23H2 (Updated August 2025) - Ориг�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6951.jpgsave_picture_6951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6951.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Reyvi - Favorites Collection (2025) [MP3|320 Kbps] <Euro-Disco, New Italo Disco 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6952.jpgsave_picture_6952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6952.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1BD68A43E6BC1D9FEE3B159A072F2C77C5C75F53
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6953.jpgsave_picture_6953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6953.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:9564A6D2D788CD775C79D022522DD7F15C2C3E98
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6954.jpgsave_picture_6954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6954.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - Summer Like (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6955.jpgsave_picture_6955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6955.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:AC9916697BD49E5320C81452B994A2320B6FE46D
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6956.jpgsave_picture_6956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6956.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Microsoft Windows 11 [10.0.22631.5768], Version 23H2 (Updated August 2025) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6957.jpgsave_picture_6957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6957.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:A4872ECA33F0F46142EF829ED80DC563125D8BB4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6958.jpgsave_picture_6958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6958.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:586E056B9BDDC46BD268B2E2A8212A664AFEC124
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6959.jpgsave_picture_6959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6959.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (20250814/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6960.jpgsave_picture_6960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6960.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6961.jpgsave_picture_6961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6961.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6962.jpgsave_picture_6962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6962.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:33321804ADC0E8AE7AC65AA4B0CE840122F3591F
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6963.jpgsave_picture_6963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6963.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6964.jpgsave_picture_6964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6964.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.10776-250723/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6965.jpgsave_picture_6965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6965.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ OCCT 14.2.6 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6966.jpgsave_picture_6966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6966.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Windows Server 2022 LTSC [10.0.20348.4052], Version 21H2 (Updated August 2025) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6967.jpgsave_picture_6967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6967.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (19.08.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6968.jpgsave_picture_6968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6968.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Russian Covers (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6969.jpgsave_picture_6969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6969.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:44DEC929126A1BFA4DDC0C579787975FC79890FC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6970.jpgsave_picture_6970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6970.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ AIMP 5.40.2691 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6971.jpgsave_picture_6971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6971.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Microsoft Windows 10 [10.0.19045.6216], Version 22H2 (Updated August 2025) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6972.jpgsave_picture_6972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6972.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:F722BB5C5C8E437CE873864451C3480EDBD304C0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6973.jpgsave_picture_6973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6973.jpg" />
 </div>
 
 

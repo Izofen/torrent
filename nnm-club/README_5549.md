@@ -6,7 +6,7 @@ Headshot - Eyes Of The Guardians (2022) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171259.jpgsave_picture_171259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171259.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2951735F839B591DF2E830897B400877E8A130CD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171260.jpgsave_picture_171260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171260.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Thomas Dolby - Halloween: A Thomas Dolby Creation (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171261.jpgsave_picture_171261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171261.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Robert Conti - To The Brink! (2005) Pinnacle Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171262.jpgsave_picture_171262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171262.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Ruby Braff - The Mighty Braff (1954, 1955) 1989, Charly Records [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171263.jpgsave_picture_171263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171263.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:E832D4EB2225C180A75201D50B60AD984D1C834E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171264.jpgsave_picture_171264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171264.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Thad Jones, Kenny Burrell, Frank Wess - After Hours (1957) 1992, Prestige [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171265.jpgsave_picture_171265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171265.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Grant Green - His Majesty, King Funk (1965) 2004, Universal [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171267.jpgsave_picture_171267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171267.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tombstone - Shadows of Fear (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171268.jpgsave_picture_171268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171268.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Viikate - Rillumarei! (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171269.jpgsave_picture_171269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171269.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Clare Fischer Latin Jazz Big Band - Ritmo! (2012) Clavo Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171270.jpgsave_picture_171270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171270.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Sonny Clark - Quintets (1957, 1958) 2000, Toshiba-EMI [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171271.jpgsave_picture_171271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171271.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Deliver 2.7.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171272.jpgsave_picture_171272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171272.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Boxy SVG 4.14.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171273.jpgsave_picture_171273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171273.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ File List Export 2.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171274.jpgsave_picture_171274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171274.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Scrutiny 12.8.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171275.jpgsave_picture_171275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171275.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Adobe Lightroom Classic for Mac 13.0.1 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171276.jpgsave_picture_171276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171276.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ KMS Tools Portable by Ratiborus 18.10.2023 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171277.jpgsave_picture_171277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171277.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:3EC2C464F1554C2858BA886B8F949B5BE9949BF3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171278.jpgsave_picture_171278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171278.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Windows 11 22H2 (x64) 24in1 +/- Office 2021 by Eagle123 (10.2023) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171279.jpgsave_picture_171279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171279.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ F-Secure Freedome VPN 2.69.35.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171280.jpgsave_picture_171280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171280.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:9F4FC863AC933995DFAB00ED3608835D65F22DDE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171281.jpgsave_picture_171281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171281.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:7D5902559933DB36BA83B6C289606B7B96AE39A3
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171282.jpgsave_picture_171282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171282.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:32A0E68383E8B0615A8F7444C1A66F9B396611A0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171283.jpgsave_picture_171283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171283.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:B0005522AAC8D14100A717EA72D0CF5BC4B374C9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171284.jpgsave_picture_171284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171284.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:C9A6D4DC2BDCC722ECF7034E9BA70323F14F2758
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171285.jpgsave_picture_171285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171285.jpg" />
 </div>
 
 

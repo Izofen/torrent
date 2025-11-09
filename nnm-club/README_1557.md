@@ -6,7 +6,7 @@ Zorin OS 17.2 Pro / Pro Lite / Core / Lite / Edu [x86_64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40838.jpgsave_picture_40838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40838.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:95EF8C1AFF96FEA07D3FDDA006B970626C8C575D
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40839.jpgsave_picture_40839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40839.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Nero Burning Rom 2022 24.5.1.2 Portable by DemoNNM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40840.jpgsave_picture_40840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40840.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:80E1AB5FB226EA60376E510D892283C1D4455904
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40841.jpgsave_picture_40841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40841.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:6AEB7F3F5910596BC6B56AE5EE58357FC2539AFE
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40842.jpgsave_picture_40842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40842.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:B78C946B4CDEDA32AB1634B832F602A5133C1DF8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40843.jpgsave_picture_40843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40843.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:E784916B0C6A2C7F94E42154E0B3D45C54AB3E9C
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40844.jpgsave_picture_40844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40844.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Rufus 4.6 (Build 2205) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40845.jpgsave_picture_40845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40845.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:489CDEE69150C4C588771103BF3CD1FEB9518502
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40846.jpgsave_picture_40846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40846.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Open Server 6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40847.jpgsave_picture_40847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40847.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:F98181DF691914379DDF9300AEB4640C9A365F3A
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40848.jpgsave_picture_40848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40848.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Manor Lords (2024) [Ru/Multi] (0.8.004) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40849.jpgsave_picture_40849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40849.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:1BA04324E59F72779C1F73B4B86F8BBAAE7BF228
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40850.jpgsave_picture_40850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40850.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Windowed Borderless Gaming (2012) [En] (2.1.0.1) Portable
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40851.jpgsave_picture_40851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40851.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Paul McCartney, Wings - Band On The Run (1973) SHM-CD, Japanese Edition, Reissue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40852.jpgsave_picture_40852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40852.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ QOwnNotes 24.10.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40853.jpgsave_picture_40853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40853.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:1623FE4C148A254653AB0CE280CFBB925582DBFA
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40854.jpgsave_picture_40854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40854.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:A9DC90CEAABBBF66747750C69FC7F8FE9ECB041D
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40855.jpgsave_picture_40855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40855.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:10D42DA9C73CE3F72ACC90DE1011D4C260D8A7C2
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40856.jpgsave_picture_40856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40856.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Paul And Linda McCartney - Ram (1971) SHM-CD, Japanese Edition, Reissue, Remaste
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40857.jpgsave_picture_40857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40857.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Re
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40858.jpgsave_picture_40858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40858.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BalenaEtcher 1.19.24 + Portable (Pre-release) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40859.jpgsave_picture_40859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40859.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:B8D9BB37BF79897EDCAD55171ED1E28C8FF5E915
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40860.jpgsave_picture_40860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40860.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Paul McCartney & Wings - Wild Life (1971) Archive Collection, Remaster, 2018, Pa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40861.jpgsave_picture_40861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40861.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:F84666A3163944C5E6EC85D5A15EFE3BCE533870
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40862.jpgsave_picture_40862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40862.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.41 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40863.jpgsave_picture_40863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40863.jpg" />
 </div>
 
 

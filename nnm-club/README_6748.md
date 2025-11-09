@@ -6,7 +6,7 @@ Mitch Malloy - The Last Song (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232098.jpgsave_picture_232098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232098.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:43F7C0A726266F7F574598602F2B73D2462486C2
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232101.jpgsave_picture_232101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232101.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:0E817267FFDC2A3866204149D575DE1BB82DEAA4
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232102.jpgsave_picture_232102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232102.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:9CCB0A4A2A1F6269BDB0AD19EDE48A54DFEED23F
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232105.jpgsave_picture_232105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232105.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Suren Arustamyan - I Am Free (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232107.jpgsave_picture_232107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232107.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Mecca - Everlasting (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232108.jpgsave_picture_232108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232108.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:92C47A016F9123B6081E552721ED50DD2A811DFE
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232109.jpgsave_picture_232109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232109.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:A19C74FA38A715042973220EB52C4885AE7CB02D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232110.jpgsave_picture_232110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232110.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:53CA294441871379BDF8EDA96A3CC1FA12FEDB99
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232113.jpgsave_picture_232113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232113.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:7BEEEC009608122FAC283E95E1295DC9F6599E15
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232114.jpgsave_picture_232114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232114.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Nighthawk - Prowler (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232116.jpgsave_picture_232116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232116.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ RTG. Исторические кинотеатры Петербурга (2013) H
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232118.jpgsave_picture_232118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232118.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:A6FEF30165718BF2C92C0C48A7091A25DCCB77EA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232119.jpgsave_picture_232119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232119.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:DB018A391D7944D6CC450667F279855AA9A53FA7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232120.jpgsave_picture_232120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232120.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Macrorit Data Wiper 6.9.0 Pro / Unlimited / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232123.jpgsave_picture_232123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232123.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ YT Saver Video Downloader & Converter for Mac 6.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232125.jpgsave_picture_232125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232125.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:84B1F9BE909B212B3095664A9F54F5F9E612701F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232126.jpgsave_picture_232126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232126.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Bluzy Threesome - The Unknown Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232127.jpgsave_picture_232127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232127.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:9CAD7C37BE42340A864BFF0E6D2A47ACC15A2B99
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232131.jpgsave_picture_232131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232131.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Garrett Campbell - Skies Of Dragonlight (2023) [MP3|320 Kbps] <Symphonic Power, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232135.jpgsave_picture_232135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232135.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Blaze Bayley - Damaged Strange Different and Live (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232137.jpgsave_picture_232137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232137.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Cher - It's a Man's World (1995) Deluxe Edition, Remaster, 2023, Warner Records 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232138.jpgsave_picture_232138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232138.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Chris Geith - Chasing Rainbows (2014) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232141.jpgsave_picture_232141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232141.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Pyramaze - Bloodlines (2023) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232144.jpgsave_picture_232144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232144.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:588143903BD26EB09ECD79BD94F60B50DDF480B0
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232146.jpgsave_picture_232146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232146.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ magnet:?xt=urn:btih:5E9A53647572D323527C57EFB021AB9508B3F9A4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232147.jpgsave_picture_232147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232147.jpg" />
 </div>
 
 

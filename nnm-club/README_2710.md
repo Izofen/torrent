@@ -6,7 +6,7 @@ Photo Studio PRO v2.7.13.3738 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71210.jpgsave_picture_71210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71210.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71211.jpgsave_picture_71211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71211.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ EarthView 7.11.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71212.jpgsave_picture_71212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71212.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:A60A7A022FF09FC3E8BA3724853E40E19E899916
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71213.jpgsave_picture_71213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71213.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1370EFA7C0D5ABC22945342651B395197EB0BAEF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71214.jpgsave_picture_71214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71214.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:3E657F2618A548C854B60E7DCDE20AB958563AD3
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71215.jpgsave_picture_71215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71215.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:13730AAB31EC19964483052536A102FD683E0847
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71216.jpgsave_picture_71216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71216.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:EF2BD097670A88501D46E9ACF7C62DCCA45BF473
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71217.jpgsave_picture_71217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71217.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:2DFAAB48A25C7C38A97BEF10F376907526CF35F6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71218.jpgsave_picture_71218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71218.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71219.jpgsave_picture_71219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71219.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:768648D4857C3D201579E3BC0AF82000C95AB338
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71220.jpgsave_picture_71220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71220.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71221.jpgsave_picture_71221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71221.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Italo Strikes Back (1997) [AAC|320 Kbps] <Electronic, Pop, Euro House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71222.jpgsave_picture_71222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71222.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:380C31FA11D9F31DC36AB9014360E6D42C0299ED
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71223.jpgsave_picture_71223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71223.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:7FEE8B6A25169F69BA77E925A8E067485FA28B3B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71224.jpgsave_picture_71224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71224.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Italo Strikes Back (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71225.jpgsave_picture_71225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71225.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:442330AA72B28E82F625146C1A9DAB4063C67CDE
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71226.jpgsave_picture_71226.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71226.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:CC1E6FD07623C6FA925E0EABDDA2F8DAF9F55717
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71227.jpgsave_picture_71227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71227.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VA - Nothing But... Trancetopia, Vol. 23 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71228.jpgsave_picture_71228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71228.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Kilmara - Journey to the Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71229.jpgsave_picture_71229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71229.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:6B1FB91CE6204AF16590AAE9B1008350953152A8
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71230.jpgsave_picture_71230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71230.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:4A9BE940D4F2EDF035A44E4176C6251A6F208DA8
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71231.jpgsave_picture_71231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71231.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Donna Regina - Lazing Away (1992) Remastered, 2025, Karaoke Kalk [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71232.jpgsave_picture_71232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71232.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:C026C38E703158818C8F78476B452F718A4F4545
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71233.jpgsave_picture_71233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71233.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:53F14615E6255F4D9D27F1A69C91B210D5DF832C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71234.jpgsave_picture_71234.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71234.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Lane 8 & Sultan + Shepard - Live @ Field Stage, Proper NYD (2025-01-01) [MP3|320
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71235.jpgsave_picture_71235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71235.jpg" />
 </div>
 
 

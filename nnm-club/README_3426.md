@@ -6,7 +6,7 @@ GForce - impOSCar 3 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109437.jpgsave_picture_109437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109437.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:74CFC4C88C88DA50BCD4C07578ADFB19A06AE123
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109438.jpgsave_picture_109438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109438.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Jazz Guitar Club, Background Instrumental Music Collective, Romantic Love Songs 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109439.jpgsave_picture_109439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109439.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ Demon - Invincible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109440.jpgsave_picture_109440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109440.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:763A47989109B044945457FC24669BB32799624F
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109441.jpgsave_picture_109441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109441.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109442.jpgsave_picture_109442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109442.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Elvellon - Ascending in Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109443.jpgsave_picture_109443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109443.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:55EA452F12EA3B563E2CD0E8E790BDE11490C0E6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109444.jpgsave_picture_109444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109444.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Deep Trance Showcase III (2024) [MP3|320 Kbps] <Trance, Progressive, Electr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109445.jpgsave_picture_109445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109445.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:4D6EC71CE47529933B600B18B023E8F4BB797C12
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109446.jpgsave_picture_109446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109446.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ QuickEdit Text Editor Pro 1.11.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109447.jpgsave_picture_109447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109447.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ VA - Levitated - Trance Essentials Vol. 4 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109448.jpgsave_picture_109448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109448.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Demon - Invincible (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109449.jpgsave_picture_109449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109449.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Jonathan Young - Sea Shanty Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109450.jpgsave_picture_109450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109450.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Universe III - Universe III (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109451.jpgsave_picture_109451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109451.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PhotoRoom v4.9.6 b1399 Mod by RBMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109452.jpgsave_picture_109452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109452.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Collective Soul - Here To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109453.jpgsave_picture_109453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109453.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:FAFD65C8A9846E060B41713EE40DD1F23645192F
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109454.jpgsave_picture_109454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109454.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Starship - No Protection (1987) Specialty Records Pressing [FLAC 2.0|192/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109455.jpgsave_picture_109455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109455.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:D9B9F7FC7F5E4D94440627A31CC3B7FD38F2CAC0
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109456.jpgsave_picture_109456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109456.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:01EDA222FC9A5A8AA3FED819275ABE146322E2F3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109457.jpgsave_picture_109457.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109457.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Slash - Orgy of the Damned (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109458.jpgsave_picture_109458.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109458.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:ECE423C7AC82AF293F3375F76030F326B5082001
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109459.jpgsave_picture_109459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109459.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Kris Baha - Cyber Body Music Vol.1 (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Te
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109460.jpgsave_picture_109460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109460.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:DF016A4589666144D361E41B42CB4A30BCC1BD93
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109461.jpgsave_picture_109461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109461.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Ayreon - 01011001 - Live Beneath The Waves (2024) 2 x CD [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109462.jpgsave_picture_109462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109462.jpg" />
 </div>
 
 

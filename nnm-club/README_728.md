@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19254.jpgsave_picture_19254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19254.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19255.jpgsave_picture_19255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19255.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:C1E23612EFECFC69BBA7F9278F68ECAAF989ADBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19256.jpgsave_picture_19256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19256.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ HDCleaner 2.091 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19257.jpgsave_picture_19257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19257.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ jetAudio HD Music Player Plus v12.3.2 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19258.jpgsave_picture_19258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19258.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Icecream Video Converter Pro 1.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19259.jpgsave_picture_19259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19259.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Icecream Video Editor Pro 3.24 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19260.jpgsave_picture_19260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19260.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:E698813644BE2E5F2E8B9361AFEC278F52C6B488
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19261.jpgsave_picture_19261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19261.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ ZEPHON (2024) [Ru/Multi] (1.1.4/dlc) Repack Other s [Supporter Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19262.jpgsave_picture_19262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19262.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19263.jpgsave_picture_19263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19263.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:B6DAEB2CA8E46A2C89818218832AA861D865AFB3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19264.jpgsave_picture_19264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19264.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Joplin 3.3.12 + Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19265.jpgsave_picture_19265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19265.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Light Image Resizer 7.2.0.101 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19266.jpgsave_picture_19266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19266.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Follow the meaning v1.1.39 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19267.jpgsave_picture_19267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19267.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:36AE81FBFEB327F5C5203DF9642CA4F373E6C025
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19268.jpgsave_picture_19268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19268.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:4D7C7D4BC5065182B88F4FB261EF4A7EA8A81591
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19269.jpgsave_picture_19269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19269.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:0AC15037EBD759F3342B2D593139675AEFAECC76
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19270.jpgsave_picture_19270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19270.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:E7C0BE9BCEB8295730D7753ECBB0636977AF62F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19271.jpgsave_picture_19271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19271.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:D0DC2A3B110BF053C965EE309B83FC04B71D8E96
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19272.jpgsave_picture_19272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19272.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:CA2ED84A455148A1DB7D9299C945CDFEBB9828B1
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19273.jpgsave_picture_19273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19273.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:F1960A5079C61CC4DA5669BD95DA4EFD965FB19F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19274.jpgsave_picture_19274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19274.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:2AC6BECE7DF9B3F9B9058E991665752C216EEF79
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19275.jpgsave_picture_19275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19275.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19276.jpgsave_picture_19276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19276.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ magnet:?xt=urn:btih:AEF440C84AF06FF832D0358CC0A9AA74F8A7581C
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19277.jpgsave_picture_19277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19277.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Cuphead v1.60 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19278.jpgsave_picture_19278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19278.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Icecream Screen Recorder PRO 7.44 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19279.jpgsave_picture_19279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19279.jpg" />
 </div>
 
 

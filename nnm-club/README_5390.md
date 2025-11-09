@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167020.jpgsave_picture_167020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167020.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Black Pumas - Chronicles of a Diamond (2023) [MP3|320 Kbps] <neo-soul, psychedel
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167021.jpgsave_picture_167021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167021.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Pink Floyd - The Later Years: 1987-2019 (2019) 5CD [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167022.jpgsave_picture_167022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167022.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:7FB9920BB83B8DE7BD045728BCB8422B2F71CA7D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167023.jpgsave_picture_167023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167023.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Modern Talking - Maxi & Singles Collection (2019) 3CD, Dieter Bohlen Edition [FL
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167024.jpgsave_picture_167024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167024.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ FX Player Pro 3.7.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167025.jpgsave_picture_167025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167025.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Deliver Express 2.6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167026.jpgsave_picture_167026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167026.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ uTorrent Pro 3.6.0 Build 46612 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167027.jpgsave_picture_167027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167027.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:CD1986AFD35B39130FBA2C8804CC00FE7FDB8183
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167028.jpgsave_picture_167028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167028.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Laibach - Nova Akropola (1986) Expanded Edition, Remastered & Redesigned, 2023, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167029.jpgsave_picture_167029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167029.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Yate 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167030.jpgsave_picture_167030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167030.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Maretimo Late Night Grooves, Vol.1 - Cosmopolitan Lounge Music (2021) [AAC|
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167031.jpgsave_picture_167031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167031.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я стала злодей�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167032.jpgsave_picture_167032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167032.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Scott Empson | CCNA 200-301 Portable Command Guide Fifth Edition / Сокращ�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167033.jpgsave_picture_167033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167033.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ JRiver Media Center 31.0.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167034.jpgsave_picture_167034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167034.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Lordi - Lordiversity: Abracadaver (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167035.jpgsave_picture_167035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167035.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ AIDA64 Extreme /Engineer / Business 6.85.6300 RePack (& Portable) by KpoJIuK [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167036.jpgsave_picture_167036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167036.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Bar 25 Music: Selektion 2021 (2021) [AAC|~321 Kbps] <Deep House, Tech House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167037.jpgsave_picture_167037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167037.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:10E79AA6A2DADD74CA5AD552855946A6FB0F4449
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167038.jpgsave_picture_167038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167038.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:A5EE8A79E9CBD48E434C0C341ACB67F04C916B50
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167039.jpgsave_picture_167039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167039.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:0D0C2637B585FA18E915E119D61AE017E6F69F9A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167040.jpgsave_picture_167040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167040.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ WinRAR 6.00 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167041.jpgsave_picture_167041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167041.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:95A210C922F10EDF78FFFA85E48D3F17C6FEC9DE
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167042.jpgsave_picture_167042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167042.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ AB/CD - Back 'n' Attack (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167043.jpgsave_picture_167043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167043.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - FROZEN ORANGE (2021) [AAC|~314 Kbps] <Dub Techno, Deep House, Deep Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167044.jpgsave_picture_167044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167044.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:B9D98ABBB913716E2D57BEBF0EAA1C99238A4AD5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167045.jpgsave_picture_167045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167045.jpg" />
 </div>
 
 

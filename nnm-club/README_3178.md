@@ -6,7 +6,7 @@ PJ Harvey - To Bring You My Love (1995) CD, Album, Club Edition [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102966.jpgsave_picture_102966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102966.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:FECBD1124413DEB889D51F95D021F11FBDA45A66
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102967.jpgsave_picture_102967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102967.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aeon Gods - King Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102968.jpgsave_picture_102968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102968.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Father John Misty - Mahashmashana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102969.jpgsave_picture_102969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102969.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:4CC8E638EC98BD2C4129E036746B28564EEF7087
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102970.jpgsave_picture_102970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102970.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:DC8FB2C61FB099D43AB6D7C6AD81235EEE399462
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102971.jpgsave_picture_102971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102971.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:CD9486ED0CC60F63586175DA4BC712EA5DAD2A52
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102972.jpgsave_picture_102972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102972.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Brazil, 936249809
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102973.jpgsave_picture_102973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102973.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Linkin Park - Live In Texas (2003) 2003+, China, 7-88000-508-0 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102974.jpgsave_picture_102974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102974.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:C6A90F68AB75F63976AAF28AC152BD6D712310A0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102975.jpgsave_picture_102975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102975.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:612C0F16460A89D79FF1CE3A444340A7AEFBEF2C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102976.jpgsave_picture_102976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102976.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:9D4A162DDEBD18B3791F5BC14EC9CA44DDF247C2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102977.jpgsave_picture_102977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102977.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Asgaard - When The Twilight Set In Again (1998) [FLAC|Lossless|image + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102978.jpgsave_picture_102978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102978.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:B549AC29CEB6992C46FE214A9FE19B7D28A321AD
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102979.jpgsave_picture_102979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102979.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:479202758782BB534B710E58A32AFC304E6AB2D2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102980.jpgsave_picture_102980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102980.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:607C920AB27874818C6A399F686D95E65CA76018
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102981.jpgsave_picture_102981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102981.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:0FC7BBA531E4A4AD31FFBDFD7966CEFE38D83480
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102982.jpgsave_picture_102982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102982.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:49C8C88C8471D877C0BC2631CE8E7C813205AF16
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102983.jpgsave_picture_102983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102983.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Poppy - Negative Spaces (2024) [FLAC|Lossless|tracks + .cue] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102984.jpgsave_picture_102984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102984.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - The Best Of Suanda Progressive 2024 (2024) [MP3|320 Kbps] <Trance, Progress
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102985.jpgsave_picture_102985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102985.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ magnet:?xt=urn:btih:BB8F0FB46BA10ADAC3D69B7FA21E38368753924F
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102986.jpgsave_picture_102986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102986.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:4B407A7F78F3D04DC8BF8A387E25D03E93950C8B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102987.jpgsave_picture_102987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102987.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Moondive - Dive With Me (2004) [FLAC|Lossless|image + .cue] <Power Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102988.jpgsave_picture_102988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102988.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Bleed The Sky - Paradigm In Entropy (2005) [FLAC|Lossless|image + .cue] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102989.jpgsave_picture_102989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102989.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Herod - For Whom the Gods Would Destroy (2004) [FLAC|Lossless|image + .cue] <Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102990.jpgsave_picture_102990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102990.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Maggoth - System Error (2011) Ressued, 2017, Defense Records [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102991.jpgsave_picture_102991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102991.jpg" />
 </div>
 
 

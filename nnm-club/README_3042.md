@@ -6,7 +6,7 @@ Ashley Wallbridge - The Inner Me (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96201.jpgsave_picture_96201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96201.jpg" />
 </div>
 
 
@@ -37,7 +37,7 @@ magnet:?xt=urn:btih:0FFD516CEC172CC1FAFDF5EABF4E7C96CF282DA1
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96203.jpgsave_picture_96203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96203.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ Narco - La Rave Del Infierno: Alita De Mosca Remixes (2012) [MP3|320 кб/с]<El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96204.jpgsave_picture_96204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96204.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ VA - Весенний хит-парад Record 6 50/50 (2012) [MP3|256 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96211.jpgsave_picture_96211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96211.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Armada Presents The Miami Soundtrack 2012 (2012) [MP3|320 кб/с]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96213.jpgsave_picture_96213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96213.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ magnet:?xt=urn:btih:28BFAAD81596514B9F0E030D44ACD95F0DE3B5D3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96223.jpgsave_picture_96223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96223.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:439B956AD0EB708A0CFC95A674B9A091DDC14204
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96225.jpgsave_picture_96225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96225.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:68F2F8847E46C6EF397C71049FBDAF4722EBCDE8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96228.jpgsave_picture_96228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96228.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Count Down Rock Ballads (5CD Boxset) (1993) [MP3|320 кб/с]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96231.jpgsave_picture_96231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96231.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Dash Berlin Top 20 - March (2012) [MP3|320 кб/с]<Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96232.jpgsave_picture_96232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96232.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:909ADFEDBAF623BBACEE785C7C3A2D6E780DF685
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96235.jpgsave_picture_96235.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96235.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Ideal Chill II-IV (WEB) (2010-2012) [MP3|~225 кб/с (V1), 320 кб/с (CB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96236.jpgsave_picture_96236.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96236.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Soulfly - Enslaved (2012) [MP3|320 кб/с (CD Rip)]<Thrash Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96244.jpgsave_picture_96244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96244.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:A63D29336D02447BF848C3B1D6ABFC879ADCB30B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96246.jpgsave_picture_96246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96246.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:018818FA203CD5B4123309D87BCC164A1F942BCF
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96250.jpgsave_picture_96250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96250.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Nedry - In A Dim Light (2012) [MP3|320 Kbps]<Dubstep, Electronic, IDM, Trip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96251.jpgsave_picture_96251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96251.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:8045D41A56C2B05204AADC1E2289C9A978E8B68E
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96260.jpgsave_picture_96260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96260.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:098E9027382CC0A86D055CCFD9A559044DC7710E
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96264.jpgsave_picture_96264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96264.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:5559948116A14BFC9D12DDF76EA845EE9D1A8CF2
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96271.jpgsave_picture_96271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96271.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:FEAA9C08E548A7A8317EF610C1F00A5110C5FCB4
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96272.jpgsave_picture_96272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96272.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96280.jpgsave_picture_96280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96280.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Coolio - Forever The Best (2006) [MP3|320 кб/с]<Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96286.jpgsave_picture_96286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96286.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Gormenghast - Resist Or Serve (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96295.jpgsave_picture_96295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96295.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Абсолютный Свежачок Сезона (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96297.jpgsave_picture_96297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96297.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ magnet:?xt=urn:btih:EAA25AC519556AE7CD312906A75A67F107ACCC38
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96303.jpgsave_picture_96303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96303.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ magnet:?xt=urn:btih:B7A9925C8B84EDE1FF46BC719BBB611B3487AA95
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96304.jpgsave_picture_96304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96304.jpg" />
 </div>
 
 

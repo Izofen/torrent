@@ -6,7 +6,7 @@ TinkerTool System 6 v6.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238810.jpgsave_picture_238810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238810.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4BAD9B8A7DA9EC630500BCA2BFE912EE5CFCAD28
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238811.jpgsave_picture_238811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238811.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:3525414497131468A724E7B67A90DBDCEDA366B2
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238813.jpgsave_picture_238813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238813.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ CloudMounter 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238814.jpgsave_picture_238814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238814.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Whirlingrey - Cursed by God (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238816.jpgsave_picture_238816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238816.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ PrivaZer 4.0.74 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238817.jpgsave_picture_238817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238817.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:5557D0C5937FE778FF5C4E9EB15168465FBE56D3
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238819.jpgsave_picture_238819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238819.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rise To Fall - The Fifth Dimension (2023) [FLAC 2.0|44/24|WEB-DL|tracks] <Melodi
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238820.jpgsave_picture_238820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238820.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:DBF6BA8E9C07FEFE8E09B390D9333AF528193D01
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238821.jpgsave_picture_238821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238821.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Warspite - Confrontation Course (2006) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238823.jpgsave_picture_238823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238823.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ PotPlayer 220420 (1.7.21632) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238824.jpgsave_picture_238824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238824.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Fires In the Distance - Air Not Meant for Us (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238826.jpgsave_picture_238826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238826.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:B24BDCC64A7BB4523216A28F5946B41CDE8B9563
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238827.jpgsave_picture_238827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238827.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:D64A3975CE7229B830606AE35951E27A0E4CAE65
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238828.jpgsave_picture_238828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238828.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:0301198F340E730EB091B80AC625752F54D945F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238830.jpgsave_picture_238830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238830.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Oscar Peterson - Great Connection (1971) 2005, Universal [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238831.jpgsave_picture_238831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238831.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Eternity's End - Embers Of War (2021) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238833.jpgsave_picture_238833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238833.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:6F7AF63BA3DDAD7C6188007FE92FF988136B365B
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238834.jpgsave_picture_238834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238834.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Sightless Era - Revelation (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238835.jpgsave_picture_238835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238835.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:FB235319CC2D9A4A06A535673849E561714F3070
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238836.jpgsave_picture_238836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238836.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:3BFD739388D0C3898BB72A55F12D18201B8E1157
 >>Побег / Prison Break
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238839.jpgsave_picture_238839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238839.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Resistor - The 5th Season (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238840.jpgsave_picture_238840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238840.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:15EC8CB1AE490E2E36048946CEC402FEB402816E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238842.jpgsave_picture_238842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238842.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Madonna - Best Of... (2002) All Stars Presents Series, Unofficial Release [APE|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238843.jpgsave_picture_238843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238843.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:5CAF627BA34EF7C720DC29961214D74FA5CC4EF9
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238844.jpgsave_picture_238844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238844.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:A5B7DAC886147A4402827BC9AE9E72019465377C
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238846.jpgsave_picture_238846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238846.jpg" />
 </div>
 
 

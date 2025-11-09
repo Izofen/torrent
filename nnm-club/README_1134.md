@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29839.jpgsave_picture_29839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29839.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:EC3AB2666BB3F2D885C14C3DCC3C2BA7AA3D8696
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29840.jpgsave_picture_29840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29840.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:D78C25B5E2B5C2FE5D0D35CF3F2F11D0941D7AD3
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29841.jpgsave_picture_29841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29841.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Listen Audiobook Player v5.2.11 (1026) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29842.jpgsave_picture_29842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29842.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ MAGIX Vegas Pro 22.0 Build 239 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29843.jpgsave_picture_29843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29843.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:42C7E7A0C28C8A581F091E741482BF7818A0BC1B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29844.jpgsave_picture_29844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29844.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:13C05AF76AF639671F6DC582AC7D710E846E25E2
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29845.jpgsave_picture_29845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29845.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:70174D561F856CB3A2372596B0A0ECE72583C0C7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29846.jpgsave_picture_29846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29846.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:70174D561F856CB3A2372596B0A0ECE72583C0C7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29847.jpgsave_picture_29847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29847.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:6F61E343A2AE523D6A9E2D0099A8EC850503287D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29848.jpgsave_picture_29848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29848.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:6F61E343A2AE523D6A9E2D0099A8EC850503287D
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29849.jpgsave_picture_29849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29849.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:0036E9A206FDF5D869CE84DA46D929A11A3C7AB4
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29850.jpgsave_picture_29850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29850.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Reg Organizer 9.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29851.jpgsave_picture_29851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29851.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ The Outer Worlds (2023) [Ru/Multi] (1.4/dlc) Repack Let'sРlay [Spacer’s Choic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29852.jpgsave_picture_29852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29852.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:13DDD19E56538E646E6AA2E99ECA989461DE8698
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29853.jpgsave_picture_29853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29853.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:9E175C3EEE83736C408528E468A047E784A42B5A
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29854.jpgsave_picture_29854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29854.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:1E59D07646AF725BAF57D37FD782480EA9CE14E5
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29855.jpgsave_picture_29855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29855.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Grand Theft Auto Vice City (2021) [Ru/Multi] (1.113.49697469) Repack Let'sРlay 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29856.jpgsave_picture_29856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29856.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ magnet:?xt=urn:btih:5EBCD8862B8A9A982DFC7627FE63DC9CA58108C6
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29857.jpgsave_picture_29857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29857.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:D2F0036A0FA7C278B1667C5AF3CE41650945D9FF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29858.jpgsave_picture_29858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29858.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ magnet:?xt=urn:btih:D2F0036A0FA7C278B1667C5AF3CE41650945D9FF
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29859.jpgsave_picture_29859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29859.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ magnet:?xt=urn:btih:12AF062A34B8DA6D75B984114AE12337A6224D4C
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29860.jpgsave_picture_29860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29860.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Zoom Player MAX 20.1.0 Build 2010 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29861.jpgsave_picture_29861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29861.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:C5732D18ABB421367408F16FEFCEAD9783D5884B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29862.jpgsave_picture_29862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29862.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29863.jpgsave_picture_29863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29863.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Launcher for zapret 1.5 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29864.jpgsave_picture_29864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29864.jpg" />
 </div>
 
 

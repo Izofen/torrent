@@ -6,7 +6,7 @@ Compressor 4.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191271.jpgsave_picture_191271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191271.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Beyond Compare Pro 4.4.4.27058 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191272.jpgsave_picture_191272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191272.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:04BC83CCF37A8B018724E319978CBFB996B0E0D9
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191273.jpgsave_picture_191273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191273.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ BluffTitler 16.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191274.jpgsave_picture_191274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191274.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191275.jpgsave_picture_191275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191275.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:24606E141ED4CE42DFAE704D2BC17493FF0F760B
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191276.jpgsave_picture_191276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191276.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:EA004AEF883DA70BE23C0AFA9560DA6634D8A6E2
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191277.jpgsave_picture_191277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191277.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ ByClick Downloader Premium 2.3.33 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191278.jpgsave_picture_191278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191278.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7CFBE8515D09C4AED572E1D39A75B71179512E64
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191279.jpgsave_picture_191279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191279.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:9BF2292279447D706F139A8C45A8F8F0837B1687
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191280.jpgsave_picture_191280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191280.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:300C25890A5E009AFA0B7CA836B36AE906F0C999
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191281.jpgsave_picture_191281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191281.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Dark Side Of The Moon - Metamorphosis (2023) [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191282.jpgsave_picture_191282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191282.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:2EAD29FF7AAAFF13E47D91FD1B7C68E4C180191B
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191283.jpgsave_picture_191283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191283.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Joe Cocker - Stingray (1976) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191284.jpgsave_picture_191284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191284.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ OOMPH! - Richter und Henker (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191285.jpgsave_picture_191285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191285.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:C05C8266C58730888316E3F922FAE51CEB2CB3A8
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191286.jpgsave_picture_191286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191286.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Mirillis Action! 4.37.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191287.jpgsave_picture_191287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191287.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:EBF738B86B130DD9C75B9D0D41060A1A36311395
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191288.jpgsave_picture_191288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191288.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Windows 11 Manager 1.1.7 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191289.jpgsave_picture_191289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191289.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:99C36758E3231B1A9024DC86F8F7DE740C0C202D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191290.jpgsave_picture_191290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191290.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Ubisoft Massive | Артбук по играм Tom Clancy's The Division / The W
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191291.jpgsave_picture_191291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191291.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:30FC5FA59D3DE3250DEF3B886AA45BA59B4A18DA
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191292.jpgsave_picture_191292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191292.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:99715D3DA971AD4CD8F25C7305001D1D55B817C4
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191293.jpgsave_picture_191293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191293.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191294.jpgsave_picture_191294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191294.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ MediaHuman YouTube Downloader 3.9.9.76 (2410) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191295.jpgsave_picture_191295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191295.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:63B7B5CF6E7C185ED7A4878CB6DC9D4EE63094C3
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191296.jpgsave_picture_191296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191296.jpg" />
 </div>
 
 

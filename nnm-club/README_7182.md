@@ -6,7 +6,7 @@ Sumatra PDF 3.5.15432 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245685.jpgsave_picture_245685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245685.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Harry Manx & Kevin Breit - Jubilee (2003) [APE|Lossless|image + .cue] <Blues, Fo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245686.jpgsave_picture_245686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245686.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera GX 89.0.4447.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245687.jpgsave_picture_245687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245687.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fort Firewall 3.8.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245688.jpgsave_picture_245688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245688.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:780861F0B9E708F8A64C03CF7BEC09298F8A64E3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245689.jpgsave_picture_245689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245689.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ System Dashboard 4.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245690.jpgsave_picture_245690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245690.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:65236CA72DB52D8AC0DF424C36AE8A30970C37C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245691.jpgsave_picture_245691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245691.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Beatport Trance Pack  (01.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emot
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245692.jpgsave_picture_245692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245692.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ The Black Box Revelation - Poetic Rivals (2023) [FLAC 2.0|88.2/24|WEB-DL|tracks]
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245693.jpgsave_picture_245693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245693.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ EditPlus 5.7.0 build 4352 + EditPlus 5.7.0 patch 4385 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245694.jpgsave_picture_245694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245694.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Porcupine Tree - Closure / Continuation (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245695.jpgsave_picture_245695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245695.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ magnet:?xt=urn:btih:F86754C739CCF04880A90171F458F47DA2EE7718
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245696.jpgsave_picture_245696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245696.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Zoner Photo Studio X 19.2303.2.440 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245697.jpgsave_picture_245697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245697.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:14A53EA4A043D410C40FCD8DAB00028285164998
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245698.jpgsave_picture_245698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245698.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:FDE28D06E913A7813F3E59B2FCFAFE4AD0584CDE
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245699.jpgsave_picture_245699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245699.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Third Eye - Vengeance Fulfilled (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245700.jpgsave_picture_245700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245700.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:71A506BDC12287AF51EC944DBD373931AA787E6B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245701.jpgsave_picture_245701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245701.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Uncle Noking - Время историй (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245702.jpgsave_picture_245702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245702.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Sublime Text Dev Build 4131 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245703.jpgsave_picture_245703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245703.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ PSPaudioware - PSP 285 1.0.0 VST, VST 3, AAX (x64) Repack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245704.jpgsave_picture_245704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245704.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Funk, Soul & Blues Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245705.jpgsave_picture_245705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245705.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ BurnAware Professional 15.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245706.jpgsave_picture_245706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245706.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ David Newman - Bigger & Better (1968) Remaster, 2012, Warner[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245707.jpgsave_picture_245707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245707.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Tribunal - The Weight Of Remembrance (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245708.jpgsave_picture_245708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245708.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Metropolis - Metropolis (2018) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245709.jpgsave_picture_245709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245709.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Evil Invaders - Shattering Reflection (2022) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245710.jpgsave_picture_245710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245710.jpg" />
 </div>
 
 

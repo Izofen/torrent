@@ -6,7 +6,7 @@ Balabolka 2.15.0.857 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152754.jpgsave_picture_152754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152754.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:4D8669E607798CC2DC0944BFDD657B8FAE129AF5
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152756.jpgsave_picture_152756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152756.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:5E10C0D2D7A53E448460CC66D326A7265F734CAB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152757.jpgsave_picture_152757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152757.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:5E10C0D2D7A53E448460CC66D326A7265F734CAB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152759.jpgsave_picture_152759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152759.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:B115AB32FDABD87BD78AB5C9772B44423DD2390B
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152761.jpgsave_picture_152761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152761.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ VueScan Pro 9.7.71 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152762.jpgsave_picture_152762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152762.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152763.jpgsave_picture_152763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152763.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Find Any File (FAF) 2.4b1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152764.jpgsave_picture_152764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152764.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:84160A7D9F9B5365F0D6F8EB9B5A41328A415136
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152765.jpgsave_picture_152765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152765.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:563FB5BEF61A86FD9A608A27F7892B7665D37A60
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152767.jpgsave_picture_152767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152767.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:7D69A90B19B4260B9428AD17F377CBFBDB60290E
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152768.jpgsave_picture_152768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152768.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.5.62.0.8) Repack xatab [Special Ed
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152769.jpgsave_picture_152769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152769.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Monster God - Clouds Of Grey (2022) [MP3|320 Kbps] <Stoner Doom Meatal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152770.jpgsave_picture_152770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152770.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:217CEEB6360EE386BDAC6F60DEA892660A614048
 >>Отечественные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152772.jpgsave_picture_152772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152772.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ NG: Дикая природа России / Wild Russia (2009) HDTVRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152773.jpgsave_picture_152773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152773.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ AIMP 5.01 Build 2355 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152774.jpgsave_picture_152774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152774.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:9C829312E04CB1F37FA261DF40D97F6F0DDB347B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152775.jpgsave_picture_152775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152775.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:165A262FE85BBBC02B04346EB6CF3AAAAE5F317A
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152776.jpgsave_picture_152776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152776.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Tony Hadley (Spandau Ballet) - Christmas Album (2016) Special Edition [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152777.jpgsave_picture_152777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152777.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:379B6AC52EF4166C66EB7B9FB09ED54D8EEDE9BF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152778.jpgsave_picture_152778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152778.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:27F5C386F05C751B61E31B9064587A439E3FF676
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152780.jpgsave_picture_152780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152780.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:E76FE5CE1F459423B55565F2E3D1DA81558FF18E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152782.jpgsave_picture_152782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152782.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Resident Evil 5 / Biohazard 5 (2009) [Ru/En] (1.1.0/dlc) Repack West4it [Gold Ed
 >>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152783.jpgsave_picture_152783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152783.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Coleman Hawkins And His All-Stars - Timeless Jazz (1955) 2007, Membran Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152784.jpgsave_picture_152784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152784.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ IrfanView 4.54 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152785.jpgsave_picture_152785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152785.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:3642A2CFAD80A199365D54E41522EAD4BAFC894F
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152786.jpgsave_picture_152786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152786.jpg" />
 </div>
 
 

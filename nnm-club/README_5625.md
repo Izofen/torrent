@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173243.jpgsave_picture_173243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173243.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TechSmith Camtasia 2022 Studio 2022.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173244.jpgsave_picture_173244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173244.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ YT Saver Video Downloader & Converter for Mac 7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173245.jpgsave_picture_173245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173245.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Eucharist - Studio Albums (3 releases) (1993-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173246.jpgsave_picture_173246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173246.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:B58C92B655A0974235EF4E4CA06AA1FAD14BC230
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173247.jpgsave_picture_173247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173247.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Joe Pass - Catch Me! (1963) 2003, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173248.jpgsave_picture_173248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173248.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Ella Fitzgerald & Joe Pass - Hamburg Duets (1976) 2008, Gambit Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173249.jpgsave_picture_173249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173249.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:5DA53A109F92A33EB37E422E522448B648B02166
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173250.jpgsave_picture_173250.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173250.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Vintage Caravan - The Monuments Tour (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173251.jpgsave_picture_173251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173251.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Heavy Load - Riders of the Ancient Storm (2023) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173252.jpgsave_picture_173252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173252.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Powerstorm - Act II (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173253.jpgsave_picture_173253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173253.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Creeper - Sanguivore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Britpop, Glam R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173254.jpgsave_picture_173254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173254.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ magnet:?xt=urn:btih:109DB72A78EA07353095D050C9A286819F0028A9
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173255.jpgsave_picture_173255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173255.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Oscar Peterson - In London: The Rare Trio Session (1971) 2014, Pacific Delights 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173256.jpgsave_picture_173256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173256.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ magnet:?xt=urn:btih:BC2ADCB4071E2168F1D88EC48B47A8503D1847EB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173257.jpgsave_picture_173257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173257.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Comaniac - None For All (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173258.jpgsave_picture_173258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173258.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Notebooks – Write and Organize 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173259.jpgsave_picture_173259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173259.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:A9A9B4AA7DA5A1B4556D1D5E9E2FCED641B26CDC
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173260.jpgsave_picture_173260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173260.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Squealer - Insanity (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173261.jpgsave_picture_173261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173261.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Storyist 4 v.4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173262.jpgsave_picture_173262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173262.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Paid Charons Fare - Mourn (2015) EP, Release 2018, GS Productions [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173263.jpgsave_picture_173263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173263.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ AlpineQuest v2.3.7 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173264.jpgsave_picture_173264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173264.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:AE5FE8AEDFA9B47588536E63F85AC472EB16D9DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173265.jpgsave_picture_173265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173265.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:2B1AA4E016BA7858A2C37DF08C8EE3E92EBE9EB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173266.jpgsave_picture_173266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173266.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173267.jpgsave_picture_173267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173267.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Mortal Kombat 1 Premium Edition (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173268.jpgsave_picture_173268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173268.jpg" />
 </div>
 
 

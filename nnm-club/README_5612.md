@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172904.jpgsave_picture_172904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172904.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CAF120ABE4065F97EDD257341BA6E9F5FE852E2B
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172905.jpgsave_picture_172905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172905.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1FD4E4538766998C8AC105F2607555CFCF529EC4
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172906.jpgsave_picture_172906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172906.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ ADB AppControl 1.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172907.jpgsave_picture_172907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172907.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:4F9AE6E3E5959D0A52CEA5454ED302FDC8B44EAF
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172908.jpgsave_picture_172908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172908.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Vosphia (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172909.jpgsave_picture_172909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172909.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Понемногу отовсюду by Yuridar #I-J (1960-2023) Compilation
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172910.jpgsave_picture_172910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172910.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:B836838A8064A11E2901B9C112A1093850F69A7B
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172911.jpgsave_picture_172911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172911.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:103E0297CC3330D76345F59BEEEE27BCBAE3AFA2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172912.jpgsave_picture_172912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172912.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:8C98849F9E44F1C2950C0D5400266C9F269F2459
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172913.jpgsave_picture_172913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172913.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Microsoft прекратила поддержку самой первой Window
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172914.jpgsave_picture_172914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172914.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Microsoft прекратила поддержку самой первой Window
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172915.jpgsave_picture_172915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172915.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:F410599D301479193C40B62FC03E6BC3B92855A6
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172916.jpgsave_picture_172916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172916.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:C3E5AF4D2F5C7A4AF4D9E12A5F0BF6B15E0BC076
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172917.jpgsave_picture_172917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172917.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:363BC8E64331C3E09FDA6EA2CA28E643DB179802
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172918.jpgsave_picture_172918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172918.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:6A8D192F8EA81786C6014437D24D710C977A3F86
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172919.jpgsave_picture_172919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172919.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Adobe After Effects 2024 v.24.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172920.jpgsave_picture_172920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172920.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:062EA584CF7D3D67A757EEC5DF499CA42DC172E8
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172921.jpgsave_picture_172921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172921.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Auslogics Driver Updater 1.26.0.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172922.jpgsave_picture_172922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172922.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Adobe Photoshop Lightroom Classic 13.0.1.1 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172923.jpgsave_picture_172923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172923.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172924.jpgsave_picture_172924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172924.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:C676DC5C4C10993C31A1D949C9581EA869E48C8C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172925.jpgsave_picture_172925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172925.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:5B8F72302DE6ACA14F39E23337BC01F8734404A0
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172926.jpgsave_picture_172926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172926.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:C064310E483EE35454618C4778E343E6E8BF3191
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172927.jpgsave_picture_172927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172927.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Adobe Illustrator 28.0.0.88 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172928.jpgsave_picture_172928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172928.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:033936D584FBC1874D9795026EC04990572207F2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172929.jpgsave_picture_172929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172929.jpg" />
 </div>
 
 

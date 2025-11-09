@@ -6,7 +6,7 @@ NOIYSE PROJECT - Path Of The Sun 1 (2022) Compilation [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189758.jpgsave_picture_189758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189758.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Big Be
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190394.jpgsave_picture_190394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190394.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Alien Vampires - Return Me To Hell (2023) 2CD, Uncensored version [FLAC|Lossless
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190439.jpgsave_picture_190439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190439.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - House Relax 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190475.jpgsave_picture_190475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190475.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - BPR Compilation Vol 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190545.jpgsave_picture_190545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190545.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Brandy Kills - Невечное лето на многолюдном пляже 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190560.jpgsave_picture_190560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190560.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Laibach - The Engine of Survival (2023) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190563.jpgsave_picture_190563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190563.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Ed Rush & Optical - Classic Essential Mix 1999 (Rebroadcast 03.09.2023) [MP3|287
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190617.jpgsave_picture_190617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190617.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 21 (Special Selection) (2022) 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191072.jpgsave_picture_191072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191072.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Club Sounds Best Of 2022 [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191082.jpgsave_picture_191082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191082.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - House It Up Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Funky House, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191107.jpgsave_picture_191107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191107.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Eguana - One Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychill, Downte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191216.jpgsave_picture_191216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191216.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VA - A State Of Trance, Ibiza 2023 (Mixed by Armin van Buuren) (2023) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191261.jpgsave_picture_191261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191261.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - I Love Ibiza 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191304.jpgsave_picture_191304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191304.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Soft Cell - *Happiness Not Included (2022) [FLAC|Lossless|image + .cue] <Synth-p
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191357.jpgsave_picture_191357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191357.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Trance 2022 Vol 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191626.jpgsave_picture_191626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191626.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Chilled Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191827.jpgsave_picture_191827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191827.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Exploring Trance (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progress
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191879.jpgsave_picture_191879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191879.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Outburst Records Presents Prism Volume 4 (2023) [FLAC|Lossless|tracks] <Har
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191897.jpgsave_picture_191897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191897.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ BT-84 - Lost Years (2023) [MP3|320 Kbps] <Synth-pop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191899.jpgsave_picture_191899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191899.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Dancing Services, Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191915.jpgsave_picture_191915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191915.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Deep-House World Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192044.jpgsave_picture_192044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192044.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Sex Music - Sex Songs Instrumental Melodies for Sensual Exploration (2021) 3CD [
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192267.jpgsave_picture_192267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192267.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Wonderful Days: Best Of 90s Classic Rave Tracks (2021) CD, Compilation [MP3
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192306.jpgsave_picture_192306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192306.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192434.jpgsave_picture_192434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192434.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ The Midnight - Red, White and Bruised: The Midnight Live (2023) [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192436.jpgsave_picture_192436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192436.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42555.jpgsave_picture_42555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42555.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - compilation musical kaleidoscope part 3 (2024) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42556.jpgsave_picture_42556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42556.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Grapple Dogs: Cosmic Canines (2024) [Multi] (1.0.2) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42557.jpgsave_picture_42557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42557.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Шансон премьера 2024 сентябрь (Новые песни.
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42558.jpgsave_picture_42558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42558.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Metal Church - Studio Albums (14+1 releases) (1985-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42559.jpgsave_picture_42559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42559.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6FA9A1DE82C6223C1BDBF70BB9541F719EEC2A34
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42560.jpgsave_picture_42560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42560.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:0C1B831701307846E5C38EA5E1593606E5B62C9E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42561.jpgsave_picture_42561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42561.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ SpaceX хочет запустить пять кораблей на Марс д�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42562.jpgsave_picture_42562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42562.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ SpaceX хочет запустить пять кораблей на Марс д�
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42563.jpgsave_picture_42563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42563.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ SpaceX хочет запустить пять кораблей на Марс д�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42564.jpgsave_picture_42564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42564.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ IceCream Ebook Reader Pro 6.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42565.jpgsave_picture_42565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42565.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Electronic Wonderland (2024) [MP3|320 Kbps] <Electronic, Synthwave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42566.jpgsave_picture_42566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42566.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:97D88FB1320A29C003133D985B6D57C40C0214BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42567.jpgsave_picture_42567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42567.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:C0A6152EC261F9A945428372ED39E4AA71318F80
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42568.jpgsave_picture_42568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42568.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Opera One 113.0.5230.132 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42569.jpgsave_picture_42569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42569.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:B0BBE7E019AF1A5D66C59AE9C946902BAF1A9AAB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42570.jpgsave_picture_42570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42570.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:C02B42DCF7531F1FA96512381CFFE2F47ED3456D
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42571.jpgsave_picture_42571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42571.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ JetBrains Rider 2024.2.5 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42572.jpgsave_picture_42572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42572.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Revo Uninstaller Free 2.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42573.jpgsave_picture_42573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42573.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42574.jpgsave_picture_42574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42574.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42575.jpgsave_picture_42575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42575.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:40325028401C8823684D6D5ECD1CD40ACB2176AF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42576.jpgsave_picture_42576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42576.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Blender 4.2.2 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42577.jpgsave_picture_42577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42577.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Icecream PDF Editor Pro 3.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42578.jpgsave_picture_42578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42578.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Virtual Rides 3 - Funfair Simulator (2017) [Multi] (2.6.0f2.2/dlc) License GOG [
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42579.jpgsave_picture_42579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42579.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ magnet:?xt=urn:btih:386A891B76D5694B93876B1BC35C8B340C3049B7
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42580.jpgsave_picture_42580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42580.jpg" />
 </div>
 
 

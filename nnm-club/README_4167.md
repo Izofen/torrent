@@ -6,7 +6,7 @@ VA - Yoga Breath - Relaxing Moments (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128940.jpgsave_picture_128940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128940.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:2A1AA705E31AE8F3F257014D21867F17B86CCC88
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128941.jpgsave_picture_128941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128941.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A0C18C6EF104F66DDC8D893FC2C8EC1215431E4B
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128942.jpgsave_picture_128942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128942.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Linda Jo Rizzo - Best Of (1999) [FLAC|Lossless]<Italo-Disco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128943.jpgsave_picture_128943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128943.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Linda Jo Rizzo - Best Of (1999) [FLAC|Lossless]<Italo-Disco>
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128947.jpgsave_picture_128947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128947.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Words of Wonders: Игра в слова v5.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128949.jpgsave_picture_128949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128949.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128951.jpgsave_picture_128951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128951.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128953.jpgsave_picture_128953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128953.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:E4E7201DF2C247BB2C39250C7D62E2D01B8E8CC1
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128954.jpgsave_picture_128954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128954.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ FastStone Capture 11.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128956.jpgsave_picture_128956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128956.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128958.jpgsave_picture_128958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128958.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:C059DD3D7B0D7ACEFC13474E7CCAB6C9E6D16904
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128959.jpgsave_picture_128959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128959.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:6939AD6FF443C97B88904F8DEE6382CD68594391
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128961.jpgsave_picture_128961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128961.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:F294A3EFD8272BFC813FC91D4A5814587FC7CBE6
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128964.jpgsave_picture_128964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128964.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:3AE379630365A2AE70617D3373AA162DDDC32CE3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128967.jpgsave_picture_128967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128967.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Sirup Amsterdam 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128968.jpgsave_picture_128968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128968.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Magic Deep-House, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128969.jpgsave_picture_128969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128969.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:8368E75B6AB3F19983E8C1A129F75142418323BB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128970.jpgsave_picture_128970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128970.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:D8355A24202CFEA69970268DF18D0B528F398F7D
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128971.jpgsave_picture_128971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128971.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:BF288F5DE3A5C0E4759B5028056B771DF14DF1AA
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128972.jpgsave_picture_128972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128972.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:F4EDC7BEB33C3D0D42DF376669CC39D1541C6FDD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128973.jpgsave_picture_128973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128973.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ PhotoCASA, Сергей Парышков | Креативные приемы в 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128974.jpgsave_picture_128974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128974.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:E72C212152F63BA105643CB5CE657D601756FA61
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128975.jpgsave_picture_128975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128975.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Int
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128976.jpgsave_picture_128976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128976.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:C36BD15D52D09A9A7A0B28E1FD7B2B9EC66D07EE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128977.jpgsave_picture_128977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128977.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:4BDF17C86851FDAD58BA6001EEA5B986318B22C7
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128978.jpgsave_picture_128978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128978.jpg" />
 </div>
 
 

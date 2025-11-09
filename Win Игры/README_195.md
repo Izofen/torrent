@@ -6,7 +6,7 @@ John Wick Hex (2019) [Ru/Multi] (1.03) Scene DARKSiDERS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59245.jpgsave_picture_59245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59245.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ GWENT: Rogue Mage / ГВИНТ: Маг-Отступник (2022) [Ru/Multi] (1.0
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59260.jpgsave_picture_59260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59260.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (13890751/dlc) Repack Decepticon [Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59263.jpgsave_picture_59263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59263.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Purpose 1951 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59319.jpgsave_picture_59319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59319.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59323.jpgsave_picture_59323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59323.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59325.jpgsave_picture_59325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59325.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ One Last Dinner (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59327.jpgsave_picture_59327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59327.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59334.jpgsave_picture_59334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59334.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Die Again (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59355.jpgsave_picture_59355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59355.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Jupiter Hell (2021) [En] (1.8h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59364.jpgsave_picture_59364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59364.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Knight Cats 3: Whisper of the Universe / Коты-рыцари 3: Шепот В�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59418.jpgsave_picture_59418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59418.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Sheba: A New Dawn (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59426.jpgsave_picture_59426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59426.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59436.jpgsave_picture_59436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59436.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shanghai Summer (2024) [Ru/Multi] (1.6.20.2) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59451.jpgsave_picture_59451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59451.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Harold Halibut (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59455.jpgsave_picture_59455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59455.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ INSPIRE (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59456.jpgsave_picture_59456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59456.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Turnip Boy Robs a Bank (2024) [Ru/Multi] (1.0.4f0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59461.jpgsave_picture_59461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59461.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59521.jpgsave_picture_59521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59521.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Acolyte of the Altar (2024) [En] (1.0.69) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59529.jpgsave_picture_59529.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59529.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ My Life: Farm Vet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59533.jpgsave_picture_59533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59533.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Death Noodle Delivery (2024) [Ru/Multi] (3.2.8) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59537.jpgsave_picture_59537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59537.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Anomaly Loop (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59547.jpgsave_picture_59547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59547.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Pathfinder: Gallowspire Survivors (2024) [Ru/Multi] (1.0.3719) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59554.jpgsave_picture_59554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59554.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.17) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59558.jpgsave_picture_59558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59558.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BMX Streets (2024) [En] (1.0.0.109.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59561.jpgsave_picture_59561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59561.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Yet Another Fantasy Title / YAFT (2024) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59565.jpgsave_picture_59565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59565.jpg" />
 </div>
 
 

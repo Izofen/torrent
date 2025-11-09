@@ -6,7 +6,7 @@ UB40 - Compilation (2025) [MP3|320 Kbps] <Reggae, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27315.jpgsave_picture_27315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27315.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27325.jpgsave_picture_27325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27325.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Record Super Chart 15.02.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27422.jpgsave_picture_27422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27422.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Assorted remixes compilation (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27604.jpgsave_picture_27604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27604.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Between the Worlds (2025) [MP3|320 Kbps] <Native American, New Age, World>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27620.jpgsave_picture_27620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27620.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Music News For Forum vol.062 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27728.jpgsave_picture_27728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_27728.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Music News For Forum vol.060 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28256.jpgsave_picture_28256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28256.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - ЕвроХит Топ 40 Europa Plus 07.02.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28286.jpgsave_picture_28286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28286.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Bloodhound Gang - Compilation (1995-2015) [MP3|320 Kbps] <Alternative, Comedy ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28569.jpgsave_picture_28569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28569.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Classic Glam Rock (2025) [MP3|320 Kbps] <Rock, Glam>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28589.jpgsave_picture_28589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28589.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Time Of Rock & Metal от ALEXnROCK Part 1 (2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28709.jpgsave_picture_28709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28709.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Music News For Forum vol.059 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28774.jpgsave_picture_28774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28774.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Light And Shadows (2025) [MP3|320 Kbps] <Rock, Alternative Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28885.jpgsave_picture_28885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28885.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Music News For Forum vol.058 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28985.jpgsave_picture_28985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28985.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Top Of Favorite Tracks (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29110.jpgsave_picture_29110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29110.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Car Music Mix 6 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29257.jpgsave_picture_29257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29257.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ronnie James Dio - Compilation (2025) [MP3|320 Kbps] <Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29278.jpgsave_picture_29278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29278.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Glamourous Beats (2025) [MP3|320 Kbps] <Nu Disco, Funky House, Electro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29390.jpgsave_picture_29390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29390.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - National Pop Dance Music Vol.97 (2025) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29490.jpgsave_picture_29490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29490.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - My guitar is crying (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29605.jpgsave_picture_29605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29605.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Bryan Ferry & Roxy Music - Compilation (1972-2018) [MP3|320 Kbps] <Art rock, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29692.jpgsave_picture_29692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29692.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ U.D.O. - Compilation (2025) 2 CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29780.jpgsave_picture_29780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29780.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Euromartina - Part 2 compilation (2025) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29786.jpgsave_picture_29786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29786.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Accept - Compilation (1979-2024) [MP3|320 Kbps] <Heavy metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29813.jpgsave_picture_29813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29813.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Music News For Forum vol.057 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29914.jpgsave_picture_29914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29914.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Понемногу отовсюду by Yuridar #S (1958-2022) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29977.jpgsave_picture_29977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_29977.jpg" />
 </div>
 
 

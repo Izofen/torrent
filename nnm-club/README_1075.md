@@ -6,7 +6,7 @@
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28300.jpgsave_picture_28300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28300.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6/dlc) Repack seleZen [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28301.jpgsave_picture_28301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28301.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ECF4733127EE6A3994CB9FA0E749FB447C590531
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28302.jpgsave_picture_28302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28302.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:ECF4733127EE6A3994CB9FA0E749FB447C590531
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28303.jpgsave_picture_28303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28303.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:1E1D547392C86011202E7655F6AAAD436C77CF05
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28304.jpgsave_picture_28304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28304.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1E1D547392C86011202E7655F6AAAD436C77CF05
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28305.jpgsave_picture_28305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28305.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:0386C2233CDFEEA1F1744E2DD44DB0DDF2C575A5
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28306.jpgsave_picture_28306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28306.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Topaz Photo AI Pro 3.5.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28307.jpgsave_picture_28307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28307.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:807135197955DB9D4DC738BD89134566056421F6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28308.jpgsave_picture_28308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28308.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.091) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28309.jpgsave_picture_28309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28309.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco ACI. Базовый �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28310.jpgsave_picture_28310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28310.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Men of War: Assault Squad 2  / В тылу врага: Штурм 2 (2014) [Ru/E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28311.jpgsave_picture_28311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28311.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:35B36D883D68C82163D01D4DF69CCFB0C93F6836
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28312.jpgsave_picture_28312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28312.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:08ED37D1C79A04493DE28DCE061AAF84726C3936
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28313.jpgsave_picture_28313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28313.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:08ED37D1C79A04493DE28DCE061AAF84726C3936
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28314.jpgsave_picture_28314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28314.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28315.jpgsave_picture_28315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28315.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Hired 2 Die (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28316.jpgsave_picture_28316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28316.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:9B807559616909D8870EABE5B9EED5CF2A10D525
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28317.jpgsave_picture_28317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28317.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:167B76F756603B7FCED71F6F4753F1FCA893D855
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28318.jpgsave_picture_28318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28318.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:3098D5AD06F76DE1560081252C50E12F3AB9533B
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28319.jpgsave_picture_28319.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28319.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:61D8F9ED22D7A3A676ECDBD65B1AE8301184D778
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28320.jpgsave_picture_28320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28320.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28321.jpgsave_picture_28321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28321.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:98CE04F8AE85759817E35A720AABF9C439908008
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28322.jpgsave_picture_28322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28322.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:B49A80E97E945523FD70C09D906309627EF10083
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28323.jpgsave_picture_28323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28323.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28324.jpgsave_picture_28324.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_28324.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:D62CFA43B67FC98C6573FC87F070E9A1C9C7DCFF
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28325.jpgsave_picture_28325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28325.jpg" />
 </div>
 
 

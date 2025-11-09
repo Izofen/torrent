@@ -6,7 +6,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71054.jpgsave_picture_71054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71054.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BB239871209A23FDB1A4AFE1F60BF2B0CCBC56C5
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71055.jpgsave_picture_71055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71055.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:52D05A4B44E4BC863C0F99470E3FD88697D064F2
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71056.jpgsave_picture_71056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71056.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Kolossos - Game Law Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71057.jpgsave_picture_71057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71057.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F5A4C5C62098E64E5681DB2BD1AC008F6328552A
 >>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71058.jpgsave_picture_71058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71058.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Enshine - Studio Albums (3 releases) (2013-2021) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71059.jpgsave_picture_71059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71059.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ The Wrath Project - The Cure Is the Disease (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71060.jpgsave_picture_71060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71060.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Whipstriker - Seven Inches Of Hell (Part II) (2018) Compilation, Limited Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71061.jpgsave_picture_71061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71061.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Buddy Rich - Big Band Machine (1975) 2005, LRC [FLAC|Lossless|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71062.jpgsave_picture_71062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71062.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71063.jpgsave_picture_71063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71063.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Clifford Jordan, Richard Davis, James Williams, Ronnie Burrage - Four Play (1990
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71064.jpgsave_picture_71064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71064.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Art Farmer & Hal Mckusick Quintet - Complete Studio Recordings (1956 - 1958) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71065.jpgsave_picture_71065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71065.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:9A44D7A3F26BADC20265B88D72559AD9DBF39737
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71066.jpgsave_picture_71066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71066.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:DF17E72826C483220A89FAE6A3419F9B7825F071
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71067.jpgsave_picture_71067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71067.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:9BBFC535BC4D8DE71883981DAF0EB0186A31311E
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71068.jpgsave_picture_71068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71068.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:01DEEC4CADA58A08FD6BA8999A4167CD86667671
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71069.jpgsave_picture_71069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71069.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:49BEF079C1FEE6798E59866D515D9DAEFFCF8CF1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71070.jpgsave_picture_71070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71070.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Spacesynth Forever 4 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71071.jpgsave_picture_71071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71071.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Smart AudioBook Player Pro v11.2.0 Mod by Kirlif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71072.jpgsave_picture_71072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71072.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ File & Image Uploader 8.5.0 Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71073.jpgsave_picture_71073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71073.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:9D9C17B06246566A97340DF6B5698E257077C025
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71074.jpgsave_picture_71074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71074.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ GeoGebra 6.0.874.1 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71075.jpgsave_picture_71075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71075.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:95EE8105525A80A906E932A685DB34F3B17B3537
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71076.jpgsave_picture_71076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71076.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:64CD2803221121F60144CF1ACA98ADFF50642A0A
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71077.jpgsave_picture_71077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71077.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Daff Moon Phase (Фазы Луны) v3.43 Mod by shv7net [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71078.jpgsave_picture_71078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71078.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:625055B2954944819E34883ABB7CC70A10B3A351
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71079.jpgsave_picture_71079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71079.jpg" />
 </div>
 
 

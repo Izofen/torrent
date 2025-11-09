@@ -6,7 +6,7 @@ DeathOrchestra - Symphony of Death (2020) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189412.jpgsave_picture_189412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189412.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189413.jpgsave_picture_189413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189413.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:EAC13BCC7E5DC4170A367512C3B5750FEB62B4B3
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189414.jpgsave_picture_189414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189414.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dash 7.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189415.jpgsave_picture_189415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189415.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:1CFEC267779C09C8350EF5C77453F08118BCE265
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189416.jpgsave_picture_189416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189416.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:4817B85C39421F2D823A7CD39687BB8955AA71E8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189417.jpgsave_picture_189417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189417.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ I Am Your God - The Resurrection (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189418.jpgsave_picture_189418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189418.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Ablaze My Sorrow - The Suicide Note (2009) EP, 2017, Reissue, Ablaze Productions
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189419.jpgsave_picture_189419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189419.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bookshelf - Library 6.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189420.jpgsave_picture_189420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189420.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Werewolves - My Enemies Look And Sound Like Me (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189421.jpgsave_picture_189421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189421.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:1DF7F7AB070DD4BBE3CCDFEE9652E7EDE10DE465
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189422.jpgsave_picture_189422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189422.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:20E3CEA16E13CCADA90665AA4D9D2D375F235212
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189423.jpgsave_picture_189423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189423.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Gross Reality - Return To Ruin (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189424.jpgsave_picture_189424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189424.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:9F654FBDA673BAC6D105F4E85B498F7CC69EEB91
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189425.jpgsave_picture_189425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189425.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ McCoy Tyner - What's New? (1987) 1998, West Wind [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189426.jpgsave_picture_189426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189426.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:0BE153F57DC9B15FE3D3DEBBD784FB852856149B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189427.jpgsave_picture_189427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189427.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Cookie 7.0.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189428.jpgsave_picture_189428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189428.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Soulver 3 v.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189429.jpgsave_picture_189429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189429.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Austin Gold - Those City Lights (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189430.jpgsave_picture_189430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189430.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:BC68763025022E52BB4E2EA050AD1D5EFFAC2FC6
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189431.jpgsave_picture_189431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189431.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ HoudahSpot 6 v.6.1.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189432.jpgsave_picture_189432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189432.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:589CDE064EBA91E84C5CEFB2878F3D7C4D41B3DC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189433.jpgsave_picture_189433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189433.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ GoodTask 7.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189434.jpgsave_picture_189434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189434.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ The White Buffalo - Year Of The Dark Horse (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189435.jpgsave_picture_189435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189435.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Spillage - Electric Exorcist (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189436.jpgsave_picture_189436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189436.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Enuff Z'Nuff - Finer Than Sin (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189437.jpgsave_picture_189437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189437.jpg" />
 </div>
 
 

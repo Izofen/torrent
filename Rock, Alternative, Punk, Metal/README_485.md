@@ -6,7 +6,7 @@ RADIO TAPOK - БЛИЦКРИГ (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251705.jpgsave_picture_251705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251705.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RADIO TAPOK - БЛИЦКРИГ (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251706.jpgsave_picture_251706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251706.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Who - Who Are You (2025) Box Set, 7XCD, Reissue, Remastered, 	Polydor, Delux
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251728.jpgsave_picture_251728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251728.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Prost - Believe Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251756.jpgsave_picture_251756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251756.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dmitry Spirin (ex-Тараканы) - Live in Belgrade (2025) [MP3|320 Kbps] <Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251812.jpgsave_picture_251812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_251812.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:A8F6DBE4C255F5D9034D31FF57AD730840B6673E
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251880.jpgsave_picture_251880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251880.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:92F71065620EB835B1689CB941AD22FEE3E46B8A
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251894.jpgsave_picture_251894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251894.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Answer - 8 альбомов (2006 - 2023) 13 CD [FLAC|Lossless|tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251907.jpgsave_picture_251907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251907.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Alcatrazz - 11 аlbums, 2 Box sets, 27 CD (1983-2023) Discography [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251911.jpgsave_picture_251911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251911.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dave Matthews Band - 28 альбомов, 3 Box Set (1993 - 2023) 68 CD [FLAC|Wa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251966.jpgsave_picture_251966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251966.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Omega Infinity - The Anticurrent (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251968.jpgsave_picture_251968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251968.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Stereophonics - 14 альбомов (1997 - 2022) 18 CD [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251982.jpgsave_picture_251982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251982.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:C32AFFA22C94489D2191DC0102B7F033A537A354
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252074.jpgsave_picture_252074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252074.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Mark Knopfler - Headin' Home (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252233.jpgsave_picture_252233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252233.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Jethro Tull's Ian Anderson - 53 albums, 16 Box sets, 222CD (1968-2023) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252234.jpgsave_picture_252234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252234.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ God's Gift - God's Gift (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252289.jpgsave_picture_252289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252289.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Cranberries - MTV Unplugged (Live MTV Unplugged) (2025) [FLAC 24/96|Lossless
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252314.jpgsave_picture_252314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_252314.jpg" />
 </div>
 
 

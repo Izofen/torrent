@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163255.jpgsave_picture_163255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163255.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B8A97D267382F541B06AFD81F05312725330B44D
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163256.jpgsave_picture_163256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163256.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2FF296F744FDEE1E8078CEAF4D1A818C91747537
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163257.jpgsave_picture_163257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163257.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Chester - Hold The Line (1987) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163258.jpgsave_picture_163258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163258.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ RAW Power 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163259.jpgsave_picture_163259.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163259.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:44957AE0C662E29430FB3B06605AF8A5B3AA10AD
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163260.jpgsave_picture_163260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163260.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:6DCF35CF1617D1645D6E07CD74CE35C2A0D71CFB
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163261.jpgsave_picture_163261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163261.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:B44FA8E378DE9D60CB5DD457AB35481036AD9E05
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163262.jpgsave_picture_163262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163262.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ iVI Video Converter 4 v4.740 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163263.jpgsave_picture_163263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163263.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:A994E80D719A50C6D10476AF084926AB4E1DD060
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163264.jpgsave_picture_163264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163264.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:0C2644B0C212E639A45D3F645CD465D1EA1442EE
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163265.jpgsave_picture_163265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163265.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:52AF046693DBB29B9B44FFBB120E4FCEF834F43F
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163266.jpgsave_picture_163266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163266.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:55186D9B3B4CF383699E1C790557F785C4ECF117
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163267.jpgsave_picture_163267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163267.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163268.jpgsave_picture_163268.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163268.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Viwizard Spotify Music Converter for Mac 2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163269.jpgsave_picture_163269.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163269.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:46139CF848596D5FCB92CC1F96D051FA107D8DD6
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163270.jpgsave_picture_163270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163270.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:CEB4DEDB79D1E76EC2940424C394957E8A51CBC5
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163271.jpgsave_picture_163271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163271.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Gumroad, Tim Bergholz | Blade Tutorial Extended Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163272.jpgsave_picture_163272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163272.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:CC427BBDA074D21F76D5061C31A69F7FEF7EA86A
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163273.jpgsave_picture_163273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163273.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:951B4EE3201D2E5D4B308D1F618AF038F66AC89C
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163274.jpgsave_picture_163274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163274.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Return To Void - Infinite Silence (2020) [MP3|320 Kbps] <Heavy-Metal, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163275.jpgsave_picture_163275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163275.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ DRmare Music Converter for Spotify 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163276.jpgsave_picture_163276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163276.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:CA80B2F804512EF76F6D87D5C41730E79ED26D2A
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163277.jpgsave_picture_163277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163277.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:437440FDFD0BCFAB142767771D96785C7611F70F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163278.jpgsave_picture_163278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163278.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Shattered Hope - Vespers (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163279.jpgsave_picture_163279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163279.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:A34B8C79C15B271EFAAE42ED350502740CCD3711
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163280.jpgsave_picture_163280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163280.jpg" />
 </div>
 
 

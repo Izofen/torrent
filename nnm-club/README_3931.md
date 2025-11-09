@@ -6,7 +6,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122693.jpgsave_picture_122693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122693.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:8E7E5B8E6E2F818827A56147F8811823E123C6C1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122694.jpgsave_picture_122694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122694.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:479902610802F8E55A865B2DD91E52945A1593E6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122695.jpgsave_picture_122695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122695.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:4405282674EB78011E9A36948B1D72E80B5DA003
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122696.jpgsave_picture_122696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122696.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:7B6F3AB144DBB96F36790FE90694A1884BCF66BC
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122697.jpgsave_picture_122697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122697.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:A19EF0C8CEF3916F660E56FFE58C3B06567DD90A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122698.jpgsave_picture_122698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122698.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ KingStation 0.3a (2024) [PC] [License] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122699.jpgsave_picture_122699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122699.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Warmen - Here For None (2023) [FLAC|Lossless|image + .cue] <Melodic Death, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122700.jpgsave_picture_122700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122700.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Eon Timer 2.9.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122701.jpgsave_picture_122701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122701.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Mimestream 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122702.jpgsave_picture_122702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122702.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ SpamSieve 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122703.jpgsave_picture_122703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122703.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ The Fixed Trio - Talladega (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122704.jpgsave_picture_122704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122704.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Travis Koester - Mister Travis (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122705.jpgsave_picture_122705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122705.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Varathron - The Crimson Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122706.jpgsave_picture_122706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122706.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Scavenger - Feral (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Prog, Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122707.jpgsave_picture_122707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122707.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122708.jpgsave_picture_122708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122708.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Soulver 3 v.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122709.jpgsave_picture_122709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122709.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Dropshare 5 v.5.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122710.jpgsave_picture_122710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122710.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ EasyGantt Classic  4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122711.jpgsave_picture_122711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122711.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ iShowU Studio 2 v.2.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122712.jpgsave_picture_122712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122712.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Serial Box & SerialSeeker 01-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122713.jpgsave_picture_122713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122713.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ FxFactory Pro 8.0.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122714.jpgsave_picture_122714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122714.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:C55C338F8990C724E99A628AF16AD2AAB34410B6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122715.jpgsave_picture_122715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122715.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Woody & The Bluepackers - Porch (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122716.jpgsave_picture_122716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122716.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ OnlySwitch 2.4.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122717.jpgsave_picture_122717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122717.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Brothers Brown - Nowhere Left To Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122718.jpgsave_picture_122718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122718.jpg" />
 </div>
 
 

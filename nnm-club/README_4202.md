@@ -6,7 +6,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130160.jpgsave_picture_130160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130160.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:59ACFEB194915D66DD08933AF215DDA853F2FF17
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130161.jpgsave_picture_130161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130161.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130162.jpgsave_picture_130162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130162.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Canon EOS DIGITAL Solution Disk 25.0 [En/Fr/It/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130163.jpgsave_picture_130163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130163.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Canon EOS DIGITAL Solution Disk из комплектации камер Canon E
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130164.jpgsave_picture_130164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130164.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:450F08DE75B3D481003A85919165304853FC3D8F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130166.jpgsave_picture_130166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130166.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VMware Workstation Player 16.2.2 build 19200509 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130167.jpgsave_picture_130167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130167.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:D949DC8381704A0A4220CAFA62BA2295328D2050
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130168.jpgsave_picture_130168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130168.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:B53DFF2C6D5A8A3F57F3F016AB229ADEDA84CBAD
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130169.jpgsave_picture_130169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130169.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Ashampoo WinOptimizer 19.00.23 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130170.jpgsave_picture_130170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130170.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Ashampoo UnInstaller 11.00.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130171.jpgsave_picture_130171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130171.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:35D987C88A35948CA23096CAD55530D87038B9AE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130172.jpgsave_picture_130172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130172.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:35D987C88A35948CA23096CAD55530D87038B9AE
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130174.jpgsave_picture_130174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130174.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:256A5C64BA4103D954D9D65DAB54FEA1CA1179B3
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130176.jpgsave_picture_130176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130176.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:4E69E6BD094AB55C8C32E6E82EA9334011DF132A
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130177.jpgsave_picture_130177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130177.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:49F6F27D9B9B7E9AE458152937731E33B2B3F8A3
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130178.jpgsave_picture_130178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130178.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:49F6F27D9B9B7E9AE458152937731E33B2B3F8A3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130179.jpgsave_picture_130179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130179.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:6441CDB56A2B32FAB7010B3DD37BA1BD058CC3F9
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130180.jpgsave_picture_130180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130180.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:AD7C9E7DA1D96BF8975EE537361049AC40DEFBA9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130181.jpgsave_picture_130181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130181.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:E04949C2C4FD13D45D01E2F66D49C7924B94E5EA
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130184.jpgsave_picture_130184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130184.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:9121D89B33F332BBF70417E9F7C567753D08E37A
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130185.jpgsave_picture_130185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130185.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Anthropics Portrait Professional Studio v10.9.3 RePack by wadimus [2012,ENG\RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130186.jpgsave_picture_130186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130186.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Portrait Professional - автономная программа для обра�
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130189.jpgsave_picture_130189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130189.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130190.jpgsave_picture_130190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130190.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ School of Motion, Mark Christiansen | VFX For Motion After Effects (2020) PCRec 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130191.jpgsave_picture_130191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130191.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ magnet:?xt=urn:btih:B2317770707510E93219C8CC3D8D6FE426B311AC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130193.jpgsave_picture_130193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130193.jpg" />
 </div>
 
 

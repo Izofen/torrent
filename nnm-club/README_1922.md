@@ -6,7 +6,7 @@ Amorphis - Tales From The Thousand Lakes (1994) Live At Tavastia, Remastered, 20
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50329.jpgsave_picture_50329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50329.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C1F0052EC3137E290A1238FAA2D3FB32AEDA53D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50330.jpgsave_picture_50330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50330.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Glary Utilities Pro 6.12.0.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50331.jpgsave_picture_50331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50331.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Moon+ Reader Pro v9.5 (b905000) Mod by Lucky Las [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50332.jpgsave_picture_50332.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50332.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:6F9547299FCB25151FF11ABDB7295581B6862B80
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50333.jpgsave_picture_50333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50333.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:54A54991F63940A7EF332D5C442B07C44A2EA3F2
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50334.jpgsave_picture_50334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50334.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ eM Client Pro 10.0.3125.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50335.jpgsave_picture_50335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50335.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ magnet:?xt=urn:btih:77DD896AAAF71115E86102BD2E327C2365B5DBE1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50336.jpgsave_picture_50336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50336.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Mr. Big - Ten (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50337.jpgsave_picture_50337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50337.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ FanControl V196 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50338.jpgsave_picture_50338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50338.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:213AD84F596900FD7957298D35D777D5D63F8EAF
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50339.jpgsave_picture_50339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50339.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ iFind Data Recovery 9.2.3.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50340.jpgsave_picture_50340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50340.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:8D288020608B3D54B7F7EC839F29DE82C2C53AB8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50341.jpgsave_picture_50341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50341.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:E4DB374BE30CD166CE02B5FAA5E3F21606DF584B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50342.jpgsave_picture_50342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50342.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ PhotoRoom v5.1.4 b1491 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50343.jpgsave_picture_50343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50343.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:D17D60F1A4B0C487A2F8F84110ED85BC62DB13AB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50344.jpgsave_picture_50344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50344.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Wavesequencer - Hyperion 1.57 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50345.jpgsave_picture_50345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50345.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.38 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50346.jpgsave_picture_50346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50346.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Moon+ Reader Pro v9.5 (b905000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50347.jpgsave_picture_50347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50347.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Slate Digital Plugins 07.2024 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50348.jpgsave_picture_50348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50348.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Display Driver Uninstaller 18.0.7.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50349.jpgsave_picture_50349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50349.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:DEA1E0A5B1BE974DBFCC0C77762D6F6A1992065D
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50350.jpgsave_picture_50350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50350.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:ABB6CF4D343814AC511C3531307BB2B85594C141
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50351.jpgsave_picture_50351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50351.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Summer tracks on repeat 2... (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50352.jpgsave_picture_50352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50352.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:567E4FA4431D080CDAE80F51886271B232D6DDC4
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50353.jpgsave_picture_50353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50353.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ FastStone Capture 10.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50354.jpgsave_picture_50354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50354.jpg" />
 </div>
 
 

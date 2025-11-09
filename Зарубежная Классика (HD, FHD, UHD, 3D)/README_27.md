@@ -6,7 +6,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229550.jpgsave_picture_229550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_229550.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:7EDC1C53CE60C09B6AC1B243E89CEAE7F2C5733A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230530.jpgsave_picture_230530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_230530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1E2114A4268EC3977801D2AE3136A2ACE56A879A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231732.jpgsave_picture_231732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_231732.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:CF9C7D5CEB7437138BB7DE5EE2706831DAAC3C56
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232120.jpgsave_picture_232120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232120.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1F2ECF98CE58C496958FD9A287090FE129DE0AB2
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232367.jpgsave_picture_232367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_232367.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:C6C8C13F6AA40735E1840F7471D5AADCB22EA61C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232649.jpgsave_picture_232649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232649.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:6C4C68DA03E46ACBCADA1FE9B8E492ABA57CCFC5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232817.jpgsave_picture_232817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_232817.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:BDCBAB18A142DB098301A69BAD427826238C44F5
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233570.jpgsave_picture_233570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233570.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:AC58296E1047BDCBACEE350F6AACDAAC915FC930
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233634.jpgsave_picture_233634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233634.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:E122C7B3AE3A878758B932420F5A2BC1245A2CA1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233694.jpgsave_picture_233694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233694.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:367A28DD9F73715062020BBF3CADD308D5ED61AE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234294.jpgsave_picture_234294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234294.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:F84C014C200FE126C057AC1D93EE63167AA383DC
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235448.jpgsave_picture_235448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235448.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:10137C1FF7CABB116C3D27ED5297E86F6FB52F1E
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236459.jpgsave_picture_236459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236459.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:996CC69ED1DDE822A7D0BBB21E46FCE50E51930B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236801.jpgsave_picture_236801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236801.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:1BFB24CB164051F72DC9CDA4F75A1D2D98F9E8F6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237022.jpgsave_picture_237022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237022.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:6DA1931C59D94A07497E64D5349C28AA5BD1C784
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237780.jpgsave_picture_237780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237780.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:F9FD43B373CCE7CCF68F31973DE1EEF20E9ED8A3
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237834.jpgsave_picture_237834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237834.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:DB9C382C343FEA0E55418DB1964F08D0E2B2858A
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239141.jpgsave_picture_239141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239141.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:4EE74816ECED08002719B4817EA957596DCF256B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239652.jpgsave_picture_239652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239652.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:89F17DDD9D470514AFE29DCC768BDE5E06F24D8B
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239653.jpgsave_picture_239653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239653.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:47B8C6C407AE7D6CA0A293C5EA82C330D04146B9
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239754.jpgsave_picture_239754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239754.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:D0532AE1855667E265432AF7BBDD30AAE3925E2D
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239822.jpgsave_picture_239822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239822.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:A66CC66606CF9FC0A7C889FAA880405F2EAEB5A7
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239979.jpgsave_picture_239979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239979.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:931B48CEBB8ADC751C7B2CDFC13D2540BEF4A9DD
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240502.jpgsave_picture_240502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240502.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:F69B089B515E0DD7B8BE302828C8313DE69F3113
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240589.jpgsave_picture_240589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240589.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:D0C37489E3334F6C97DDD386C14C01D856530F57
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240662.jpgsave_picture_240662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240662.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bethlehem - Bethlehem (2016) [MP3|320 Kbps] <Black Metal, Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243163.jpgsave_picture_243163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243163.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hounds Of Bayanay (Псы Байаная) - Legends Of The North (2023) [FLAC|Lo
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243169.jpgsave_picture_243169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243169.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Silence In Solitude - Resurgence (2016) [MP3|320 Kbps] <Melodic Death Metal, Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243170.jpgsave_picture_243170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243170.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Remedy - Something That Your Eyes Won't See (2022) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243171.jpgsave_picture_243171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243171.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ EVO (Eternal Voice of Orbits) - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|track
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243173.jpgsave_picture_243173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243173.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:6C7CC3FB4B8C34C9DA0E9B872DE8557C9CA8FD81
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243191.jpgsave_picture_243191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243191.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Trallery - Catalepsy (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243197.jpgsave_picture_243197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243197.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:16426253974182C674CDAA4F75BE73B93F4A0A63
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243207.jpgsave_picture_243207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243207.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:8E6CC979A43102F0FE09584A7BC56C76D36F850A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243208.jpgsave_picture_243208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243208.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Universal Sigh - Cherish (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243209.jpgsave_picture_243209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243209.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Nordjevel - Nordjevel (2016) Limited Edition [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243210.jpgsave_picture_243210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243210.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Dark Fury - Vae Victis! (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243218.jpgsave_picture_243218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243218.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:67E086E7B5832D37499A33377EFD7CE35356052E
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243220.jpgsave_picture_243220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243220.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Emerald Lord - Attaining the Supreme (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243226.jpgsave_picture_243226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243226.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Call Me Karizma - Francis (2022) 2023, Deluxe Edition [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243229.jpgsave_picture_243229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243229.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Djevelkult - Drep Alle Guder (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243234.jpgsave_picture_243234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243234.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hardcore Superstar - Abrakadabra (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard R
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243243.jpgsave_picture_243243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243243.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Wizards Of Hazards - Supernatural (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243249.jpgsave_picture_243249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243249.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:9EA7BEB5694E41373F29639AB0E200ACF7E7BF2D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243255.jpgsave_picture_243255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243255.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Joan Jett & The Blackhearts - Changeup (Acoustic) (2022) [FLAC 2.0|96/24|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243263.jpgsave_picture_243263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243263.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Abanamat - Abanamat (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243264.jpgsave_picture_243264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243264.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Odal - Geistes Unruh (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243271.jpgsave_picture_243271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243271.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Eta Lux - High and Low (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243273.jpgsave_picture_243273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243273.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dawn of Darkness - The First Seven Signs (2022) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243279.jpgsave_picture_243279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243279.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ TOOL - Opiate² (2022) single [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243289.jpgsave_picture_243289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243289.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Defleshed - Fast Forward (1999) Reissue 2002 [APE|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243290.jpgsave_picture_243290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243290.jpg" />
 </div>
 
 

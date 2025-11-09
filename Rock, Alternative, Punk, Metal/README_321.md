@@ -6,7 +6,7 @@ Freternia - The Gathering (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185576.jpgsave_picture_185576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185576.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Strigoi - Abandon All Faith (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185578.jpgsave_picture_185578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185578.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185581.jpgsave_picture_185581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185581.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Vigilance - Edge Of Time (1999) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185588.jpgsave_picture_185588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185588.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Nir Nakav - The Nir-Death Experiment (2020) [MP3|320 Kbps] <Progressive Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185600.jpgsave_picture_185600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185600.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Insignium - In die Abgründe (2005) [FLAC|Lossless|image + .cue] <Black Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185604.jpgsave_picture_185604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185604.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Vigilance - Secrecy (1997) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185608.jpgsave_picture_185608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185608.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hollow Haze - Between Wild Landscapes And Deep Blue Seas (2019) Japanese Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185609.jpgsave_picture_185609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185609.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Wardog - A Sound Beating (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185612.jpgsave_picture_185612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185612.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Without Warning - Believe (1995) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185616.jpgsave_picture_185616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185616.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Re-Stoned - Orange Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185621.jpgsave_picture_185621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185621.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Without Warning - Making Time (1993) 2003 reissue [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185622.jpgsave_picture_185622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185622.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185629.jpgsave_picture_185629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185629.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Nocny Kochanek - O Jeden Most Za Daleko (2022) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185631.jpgsave_picture_185631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185631.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Diamonds to Dust - Amidst the Hallowed and the Vanquished (2022) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185635.jpgsave_picture_185635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185635.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Gaupa - Myriad (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185639.jpgsave_picture_185639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185639.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Tulus - Old Old Death (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185642.jpgsave_picture_185642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185642.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Primal Scream - More Light (2013) Japanese Deluxe Edition [FLAC|Lossless]<Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185822.jpgsave_picture_185822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185822.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ public static void main - Всё_пропало (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185966.jpgsave_picture_185966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185966.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Atrophy - Lexical Occultation 1.618 The Veil From Beyond (2009) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185989.jpgsave_picture_185989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185989.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:0C78852B7532F04A4C6D38CFBB52E674022F1CCB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186002.jpgsave_picture_186002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186002.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Raspy Junker - Bad Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal / Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186007.jpgsave_picture_186007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186007.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Ignea - Dreams of Lands Unseen (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186013.jpgsave_picture_186013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186013.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Hax - Wives with Knives (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186028.jpgsave_picture_186028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186028.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Lieder Distortion - The Age of Art (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186032.jpgsave_picture_186032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186032.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Doris Melton - Reflected Perspective (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186035.jpgsave_picture_186035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186035.jpg" />
 </div>
 
 

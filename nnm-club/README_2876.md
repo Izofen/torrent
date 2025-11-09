@@ -6,7 +6,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84213.jpgsave_picture_84213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84213.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:DA73F7B75F8D29B12EBB3ABCF915D6C72121BED7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84214.jpgsave_picture_84214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84214.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Bascom AVR 2.0.7.1 [Английский и Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84215.jpgsave_picture_84215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84215.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Creedence Clearwater Revival - Compilation (2006) [DSD 2.0 1bit/2822,4kHz |SACD-
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84216.jpgsave_picture_84216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84216.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Bulletstorm Limited Edition [Ru] (RePack/1.0.7147.0) 2011 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84219.jpgsave_picture_84219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84219.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ magnet:?xt=urn:btih:FFEF5C84709687A3B63F6661476D1DA7B79869E7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84221.jpgsave_picture_84221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84221.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ magnet:?xt=urn:btih:C8B51E93995A136362E8210262B9E20E559AB59E
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84224.jpgsave_picture_84224.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84224.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:3A1C3273270EF372965A307E48FF3C50DC09DF55
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84225.jpgsave_picture_84225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84225.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Ghost Encounters: Deadwood (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84227.jpgsave_picture_84227.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84227.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ magnet:?xt=urn:btih:DDC7726DDC8E809DB2B2BB3088E04588EB9F7DA0
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84228.jpgsave_picture_84228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84228.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ magnet:?xt=urn:btih:DDC7726DDC8E809DB2B2BB3088E04588EB9F7DA0
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84229.jpgsave_picture_84229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84229.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:C3C1D13CDC2A2EAF6F421A40447F84BD86BACE53
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84230.jpgsave_picture_84230.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84230.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:09BFEBB0CC831D0385A693F23CE26882227AB332
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84231.jpgsave_picture_84231.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84231.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:DC5877D08F5901B6A8EA5140B1E8E411BA034A4F
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84232.jpgsave_picture_84232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84232.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:6613E3AA905672DAE6EE77BF4A08C70A8C6F4CE6
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84242.jpgsave_picture_84242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84242.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:6613E3AA905672DAE6EE77BF4A08C70A8C6F4CE6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84243.jpgsave_picture_84243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84243.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:785420C746426C581FEF3759258DC8B1D61DD17F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84245.jpgsave_picture_84245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84245.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ magnet:?xt=urn:btih:AF3D5FF7CEB465267CB094A36D6D99F3DC1ECEAC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84246.jpgsave_picture_84246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84246.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:121726663A7626D5D5860A591BA5974DDFCB1F7D
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84247.jpgsave_picture_84247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84247.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - 100% Хиты Радио Шансон (2012) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84249.jpgsave_picture_84249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84249.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:F8DACB32FF8F9FDFF1DFE3830FA2935DB10D216A
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84251.jpgsave_picture_84251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84251.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E08A2E03A50B8CA3ED1452872B939E1AE8D3BFD9
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84252.jpgsave_picture_84252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84252.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:F37775FFECD07F43DBAF8D2470F599AE71F69568
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84253.jpgsave_picture_84253.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84253.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:519ADA56CC407971D904A3E940420E88080B10D4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84254.jpgsave_picture_84254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84254.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84255.jpgsave_picture_84255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84255.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Kaido Player 7.1.36.40 [Русский]
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84256.jpgsave_picture_84256.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84256.jpg" />
 </div>
 
 

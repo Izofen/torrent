@@ -6,7 +6,7 @@ n-Track Studio Suite 10.0.0.8168 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162423.jpgsave_picture_162423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162423.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Markgraf - Markgraf (2020) [FLAC|Lossless|tracks + .cue] <Black Metal, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162424.jpgsave_picture_162424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162424.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:A6F36682BA9D51777CAC330B6924BA8A4FBEACCA
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162425.jpgsave_picture_162425.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162425.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Between the Buried and Me - Colors (2007) Remix, Remaster, 2020 [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162426.jpgsave_picture_162426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162426.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:3BA52E973899C04416EF2F8FBC674D79656D0246
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162427.jpgsave_picture_162427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162427.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ Qbserve 1.87 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162428.jpgsave_picture_162428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162428.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:714D7FF68D62382508363E41C64CF692100EA78A
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162429.jpgsave_picture_162429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162429.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Blank & Jones feat. Julian & Roman Wasserfuhr - Jazzed EP (2023) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162430.jpgsave_picture_162430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162430.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:3D68B6CE5C05A463E1FA8A7B0F5B27EAF751F79A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162431.jpgsave_picture_162431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162431.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Blatant Disarray - High Time for a War Crime (2020) [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162432.jpgsave_picture_162432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162432.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ magnet:?xt=urn:btih:875834F1FEF8A1BA6F3D13D9797AD1EFC18A0212
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162433.jpgsave_picture_162433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162433.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ NetShred X 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162434.jpgsave_picture_162434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162434.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:E675A8929DA006AEE509DF07F469DF95ACDAAF5D
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162435.jpgsave_picture_162435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162435.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:1320249E4E879666518FC8F1CD6FAC1093722F61
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162436.jpgsave_picture_162436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162436.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Alice Cooper - Compilation (1969-2025) [MP3|320 Kbps] <Shock rock, Hard rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162437.jpgsave_picture_162437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162437.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Metadata Converter Pro for Mac 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162438.jpgsave_picture_162438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162438.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ BusyContacts 1.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162439.jpgsave_picture_162439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162439.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Speedtest от Ookla 5.2.3 Mod by maxi123444 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162440.jpgsave_picture_162440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162440.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:EFF2152D4F956DE8F535534A965BEBAE2CA01800
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162441.jpgsave_picture_162441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162441.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:AD8AE77F76235169E4A8450E368FAE1D35538559
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162442.jpgsave_picture_162442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162442.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Dropzone 3 v3.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162443.jpgsave_picture_162443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162443.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Candice Ivory - When The Levee Breaks: The Music of Memphis Minnie (2023) [FLAC|
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162444.jpgsave_picture_162444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162444.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ ProFind 1.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162445.jpgsave_picture_162445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162445.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ BusyCal 3 v3.12.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162446.jpgsave_picture_162446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162446.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ John Di Martino's Romantic Jazz Trio - Lovegame - Tribute to LADY GAGA (2012) Ja
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162447.jpgsave_picture_162447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162447.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:B78A75C9BDA784638D25559F1FEFDE9293CF6F88
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162448.jpgsave_picture_162448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162448.jpg" />
 </div>
 
 

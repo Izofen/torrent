@@ -6,7 +6,7 @@ The Moody Blues - Long Distance Voyager (1981) Reissue, 2008, Decca [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133507.jpgsave_picture_133507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133507.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ URL Manager Pro 6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133509.jpgsave_picture_133509.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133509.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ magnet:?xt=urn:btih:68EDFEFC237633B232D500A078E1B98D401A1AEB
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133512.jpgsave_picture_133512.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133512.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Daisy Jones & The Six - AURORA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133513.jpgsave_picture_133513.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133513.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Orphaned Land - A Heaven You May Create - Live @ Heichal HaTarbut, Tel Aviv 2021
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133515.jpgsave_picture_133515.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133515.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:B0449DF1A2CD7038F88BF46C3A9E32A22212EDEF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133516.jpgsave_picture_133516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133516.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:77C4E33A015C4B278602A485B330B5724987DF2E
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133517.jpgsave_picture_133517.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133517.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ Dissection - Storm of the Light's Bane (1995) Reissue, Remastered, 2006, 2CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133518.jpgsave_picture_133518.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133518.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ LikArt - Мессия в MP3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Ro
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133520.jpgsave_picture_133520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133520.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:C0ACCBAC7E974D26D88ADEEAD02ADA4AEA11C8CA
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133521.jpgsave_picture_133521.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133521.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ magnet:?xt=urn:btih:5F5301C427E8077316C5CD28FAA964D63351328A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133522.jpgsave_picture_133522.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133522.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Flames Of Fire - Our Blessed Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133524.jpgsave_picture_133524.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133524.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ magnet:?xt=urn:btih:A9AF360851A8A46412ABFAD9B0868C8924E04D00
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133525.jpgsave_picture_133525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133525.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:BFF38ED4C0B688EB526FA1B5E18C52FFCD4D66E6
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133526.jpgsave_picture_133526.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133526.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Wise Care 365 Pro 2.16 Build 167 Final [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133528.jpgsave_picture_133528.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133528.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Skiltron - Bruadarach (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Celtic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133531.jpgsave_picture_133531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133531.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Herb Ellis - Man With The Guitar (1965) 2021, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133533.jpgsave_picture_133533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133533.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:56E0B894D1C1390E3C69126A06B5888799896435
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133535.jpgsave_picture_133535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133535.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:641CCC354C7376342C2304E7931BAA350FBB3280
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133537.jpgsave_picture_133537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133537.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:D4EC4A5F33D8E890A94E5179E81F55715EDCB4B7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133538.jpgsave_picture_133538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133538.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ DEgITx - Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Electro-Indust
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133539.jpgsave_picture_133539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133539.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:63900F0EBC0D757853018D0D1B0344D6106E629F
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133540.jpgsave_picture_133540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133540.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Count Basie - Basie's Beat (1965, 1967) 2020, Universal [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133541.jpgsave_picture_133541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133541.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:41E068A76641E803465D691CF9B5C9512D9770AE
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133542.jpgsave_picture_133542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133542.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Dissection - The Somberlain (1993) Reissue, Remastered, 2006, 2CD [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133543.jpgsave_picture_133543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133543.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dorothy Ashby - The Fantastic Jazz Harp of Dorothy Ashby (1965) 2016, Spellbound
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133544.jpgsave_picture_133544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133544.jpg" />
 </div>
 
 

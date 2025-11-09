@@ -6,7 +6,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115197.jpgsave_picture_115197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115197.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5545814AF19BA78606EE8F2A418E901D45C3E44B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115198.jpgsave_picture_115198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115198.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3207C3EDB96F1929E608397B0DA5ACCB1235CB6B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115199.jpgsave_picture_115199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115199.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:80865395B947F33426BB75CA4AD807466649D23F
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115200.jpgsave_picture_115200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115200.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:7AEF8A4A04BAB042F4F2679125143EA3A323ED7C
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115201.jpgsave_picture_115201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115201.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:11AB48E320DF30D1EB0CD602936F283CE60C1A32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115202.jpgsave_picture_115202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115202.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Kakutou Bijin Wulong Rebirth | Fighting Beauty Wulong Rebirth | Боевая к�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115203.jpgsave_picture_115203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115203.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Quick CPU 4.9.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115204.jpgsave_picture_115204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115204.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ RAR for Linux 7.00 [x32, x64] (tar.gz)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115205.jpgsave_picture_115205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115205.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Kakutou Bijin Wulong | Fighting Beauty Wulong | Боевая красавица 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115206.jpgsave_picture_115206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115206.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ IObit Driver Booster Pro 11.3.0.43 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115207.jpgsave_picture_115207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115207.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:8E3BDF6B4A4E1BDC81DB4FFA2587D97D8E6AC0E3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115208.jpgsave_picture_115208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115208.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:E9B9F656E784D782A251EFA3FFE235A2CEC205F8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115209.jpgsave_picture_115209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115209.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Google Chrome 122.0.6261.95 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115210.jpgsave_picture_115210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115210.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ExtraDisks 24.2.1 Home [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115211.jpgsave_picture_115211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115211.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ CPU Temp 1.5.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115212.jpgsave_picture_115212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115212.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Electronic compilation part 59 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115213.jpgsave_picture_115213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115213.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Google Chrome 122.0.6261.95 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115214.jpgsave_picture_115214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115214.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:FBC8131AEDCCCDE813D1AA260ED24587A463C4DF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115215.jpgsave_picture_115215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115215.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ NetLimiter 5.3.8.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115216.jpgsave_picture_115216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115216.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Viktoria Mullova, Tchaikovsky / Sibelius, Boston Symphony Orchestra, Seiji Ozawa
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115217.jpgsave_picture_115217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115217.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:AEE03D34F0F60C29B49CC3136D1D0F6D55D3AEC6
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115218.jpgsave_picture_115218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115218.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:5470B1CCEBF01CA778CFA0352407AF0F19F96542
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115219.jpgsave_picture_115219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115219.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ AI Beauty / ИИ Красота v1.52 Mod by CVXUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115220.jpgsave_picture_115220.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115220.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:C15870034AC95591FD83CD90709C1355535741CF
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115221.jpgsave_picture_115221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115221.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:D2E903A17BB025DE675CA0D04D1C5370116897E3
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115222.jpgsave_picture_115222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115222.jpg" />
 </div>
 
 

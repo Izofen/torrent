@@ -6,7 +6,7 @@ EarthView 7.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192597.jpgsave_picture_192597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192597.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:38F9AAFBEFEE37450A1309F4946FE45176E121AC
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192598.jpgsave_picture_192598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192598.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:781C8DABDF9BFB7F2398AFA6FAD5C9978875ECD1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192599.jpgsave_picture_192599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192599.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DC871A909537205145739C129C52505C13FAE496
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192600.jpgsave_picture_192600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192600.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ W.A. Production CHORDS Pro + Notes 1.0.0 VSTi, VSTi3, AAX RePack by TeamCubeadoo
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192601.jpgsave_picture_192601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192601.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:FAAC2FDCCE8A534C31AA3A086269E16C8811CC65
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192602.jpgsave_picture_192602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192602.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:7DB6C08B0E6F7731D0A555875D70966853100DA0
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192603.jpgsave_picture_192603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192603.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:0001D5408AA9E67C65DE77939ADD96A01012BBEA
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192604.jpgsave_picture_192604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192604.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:38340306E52A86B845CCF74C506E1A4206398FBE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192605.jpgsave_picture_192605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192605.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:F0FA071B78E75235F36C83C6160B2EFCF091ACC0
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192606.jpgsave_picture_192606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192606.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:2B8AA959C5F099B3F94D34CD2B4597D14500CC8E
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192607.jpgsave_picture_192607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192607.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Sinoia Caves - Beyond The Black Rainbow (2014) [FLAC|Lossless|tracks + .cue] <So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192608.jpgsave_picture_192608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192608.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ magnet:?xt=urn:btih:8993DCB5EAFEBB9285DFBF50C288056FB88EBB6F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192609.jpgsave_picture_192609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192609.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192610.jpgsave_picture_192610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192610.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:9D56803B2EA75FD2EB4705BE79094586D72417EC
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192611.jpgsave_picture_192611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192611.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ OpenedFilesView 1.91 Portable [Ru/En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192612.jpgsave_picture_192612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192612.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Whale Browser (NAVER Whale) 3.22.205.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192613.jpgsave_picture_192613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192613.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Eric Clapton - Clapton Chronicles: The Best of Eric Clapton (1999) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192614.jpgsave_picture_192614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192614.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:E4468DB6EEE2F96215AD09A4F56A96BB9433FFB9
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192615.jpgsave_picture_192615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192615.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:429D4732B5C84993B04A6C83B884FABF277A940A
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192616.jpgsave_picture_192616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192616.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Wise Care 365 Pro 6.5.7.630 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192617.jpgsave_picture_192617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192617.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192618.jpgsave_picture_192618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192618.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ GeoGebra 6.0.741.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192619.jpgsave_picture_192619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192619.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ SlimBrowser 18.0.0.0 + Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192620.jpgsave_picture_192620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192620.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:4A31D187AC42490EDFAF9DDF6F7BA5CC76708DD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192621.jpgsave_picture_192621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192621.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ CamScanner 6.48.1.2308290000 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192622.jpgsave_picture_192622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192622.jpg" />
 </div>
 
 

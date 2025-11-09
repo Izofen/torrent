@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162881.jpgsave_picture_162881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162881.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ zCommander - File Manager for Mac 6.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162882.jpgsave_picture_162882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162882.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E6C97E3224935A9F463FAC4702DC555C7569D677
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162883.jpgsave_picture_162883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162883.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FD0E0C607B0914B9EDF6F55EB73E3B5642ADFDE4
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162884.jpgsave_picture_162884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162884.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Sweet - Isolation Boulevard (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162885.jpgsave_picture_162885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162885.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:09A656996ABACA69F595203FFE46E33E869A0C3C
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162886.jpgsave_picture_162886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162886.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:792AB7B86625DF357035B37CDCBCF44F04FA421C
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162887.jpgsave_picture_162887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162887.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:D3F3BCD93CCA0AFB9B7D7EB76B736CC100956B61
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162888.jpgsave_picture_162888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162888.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Barbara Law - Take All Of Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162889.jpgsave_picture_162889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162889.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Eminem - Music To Be Murdered By: Side B (2020) Deluxe Edition, Explicit [FLAC|L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162890.jpgsave_picture_162890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162890.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ magnet:?xt=urn:btih:D62018A44072E1A106DE03CE203829091569EECE
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162891.jpgsave_picture_162891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162891.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:22CC60F34B3E8282CA5FABFE5BE4CB1DE7E1E475
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162892.jpgsave_picture_162892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162892.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ CG Cookie, Wayne Dixon | OFF-ROAD: Rig and Animate an RC Monster Truck in Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162893.jpgsave_picture_162893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162893.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Adobe Substance 3D Designer 11.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162895.jpgsave_picture_162895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162895.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:321358D5784D35480A70622222E63A8F07379B61
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162896.jpgsave_picture_162896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162896.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Soft Pop (relax) 2 (2021) [MP3|320 Kbps] <Pop, Chillout, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162897.jpgsave_picture_162897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162897.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:5FBDD15DDE6BC8B7B00B53B244913698DBDA98F1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162898.jpgsave_picture_162898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162898.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:60D751BA9A4D1BBAA77935BD788644AC4B473483
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162899.jpgsave_picture_162899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162899.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Disco Is Alive (2020) [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162900.jpgsave_picture_162900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162900.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:16310883A84306BD471C922C6B1E7D2531996739
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162901.jpgsave_picture_162901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162901.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162902.jpgsave_picture_162902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162902.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162904.jpgsave_picture_162904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162904.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Mozilla Thunderbird 91.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162905.jpgsave_picture_162905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162905.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Ventoy 1.0.85 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162906.jpgsave_picture_162906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162906.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Paul McCartney - McCartney III (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162907.jpgsave_picture_162907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162907.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Coffee & Jazz: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162908.jpgsave_picture_162908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162908.jpg" />
 </div>
 
 

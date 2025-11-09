@@ -6,7 +6,7 @@ R-Drive Image System Recovery Media Creator 7.0 Build 7004 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233927.jpgsave_picture_233927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233927.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Halloween Chilling Time 2021 (2021) [AAC|~288 Kbps] <Downtempo, Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233928.jpgsave_picture_233928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233928.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:2B845ED0231025C1EF69919B90E6D6AF0EFF7D0F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233929.jpgsave_picture_233929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233929.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Birdstone - Loss (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233930.jpgsave_picture_233930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233930.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ DxO PhotoLab Elite 6.6.0 build 192 RePack by KpoJIuK [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233931.jpgsave_picture_233931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233931.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:7146E2FDAC5001A2ED2D24350283950906937A21
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233932.jpgsave_picture_233932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233932.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ App Tamer 2.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233933.jpgsave_picture_233933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233933.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ KineMaster - Видеоредактор 7.1.0.30516.GP Mod by Shadow_Patcher, ba
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233934.jpgsave_picture_233934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233934.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:792C565C87211CFCBF32CC2C282FEAF9F1A88D07
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233935.jpgsave_picture_233935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233935.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Après Lounge Club (2021) [AAC|~323 Kbps] <Downtempo, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233936.jpgsave_picture_233936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233936.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ RAR Extractor - Unzip ZIP 7Z 7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233938.jpgsave_picture_233938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233938.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Hollow Rogues - Hollow Rogues (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern South
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233939.jpgsave_picture_233939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233939.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Viber 20.1.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233940.jpgsave_picture_233940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233940.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ FBackup 9.8.764 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233941.jpgsave_picture_233941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233941.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ RSS Guard 4.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233942.jpgsave_picture_233942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233942.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:66C0197F6399AAFF7B6A6A7A17D0C1E8C51E1892
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233943.jpgsave_picture_233943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233943.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:3FED4A2B4BE19DB8BC4826A2C11F7DE38BFEF87C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233945.jpgsave_picture_233945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233945.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ U.D.O. - Game Over (2021) [AAC|~354 Kbps] <Heavy Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233946.jpgsave_picture_233946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233946.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:ADCD46CC29D81BA0F43C457A080796ED99C61A73
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233947.jpgsave_picture_233947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233947.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Anthem - Gypsy Ways (20th Anniversary) (1988) Remaster, 2005, King Rec. [WavPack
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233948.jpgsave_picture_233948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233948.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:20B1C83FB587FA4FAC6C705EFEE03A0948FB865C
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233949.jpgsave_picture_233949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233949.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:E8C72548CF8FF921A0FEC1BB9E752C54FC1C9BEC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233950.jpgsave_picture_233950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233950.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Google Chrome 113.0.5672.127 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233951.jpgsave_picture_233951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233951.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:BA1D9F0BCC4EC8B17FEECA99F1E18543AA0B23A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233952.jpgsave_picture_233952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233952.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ VA - Chill Out Garden, Vol. 1 (2021) [AAC|~313 Kbps] <Downtempo, Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233954.jpgsave_picture_233954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233954.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Scars - Trust No One! (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233955.jpgsave_picture_233955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233955.jpg" />
 </div>
 
 

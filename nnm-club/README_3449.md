@@ -6,7 +6,7 @@ Cradle of Haze - Fairytales (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Got
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110035.jpgsave_picture_110035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110035.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:301962F5F36FF1DA228C5E490AFB463FD48BD120
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110036.jpgsave_picture_110036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:355C572D0E9C54DB0E6E6D963E6B0979603FBD05
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110037.jpgsave_picture_110037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110037.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Broken Homes - Broken Homes (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110038.jpgsave_picture_110038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110038.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:08CF3344BB4D85B9F6EAF97231318CE41197FF5E
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110039.jpgsave_picture_110039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110039.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Violet Eternal - Reload The Violet (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110040.jpgsave_picture_110040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110040.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ VA - Redux Selection Vol. 5 (2024) (2024) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110041.jpgsave_picture_110041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110041.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Dango Torres - TBI (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110042.jpgsave_picture_110042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110042.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mikel Gaztelurrutia Trio - Black on White (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110043.jpgsave_picture_110043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110043.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ As the Sun Falls - Kaamos (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110044.jpgsave_picture_110044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110044.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Johan Farjot & Friends - Caravan Party (2021) 2023, Klarthe Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110045.jpgsave_picture_110045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110045.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Julian Costello Quartet - And All The Birds Were Set Free (2024) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110046.jpgsave_picture_110046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110046.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Katinka Alme Band - Sirkus (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110047.jpgsave_picture_110047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110047.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ John Chambers - Searching (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110048.jpgsave_picture_110048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110048.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Oakman - Violent Oblivion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110049.jpgsave_picture_110049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110049.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Luke Krubeck - Ground-N-Center (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110050.jpgsave_picture_110050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110050.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Blaze of Perdition - In Void and Serpent the Spirit is One (2009) Split [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110051.jpgsave_picture_110051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110051.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:8FD1B56E5D6F5E506A9F19CF1D19004A150B1D19
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110052.jpgsave_picture_110052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110052.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Houston Person - Legends Of Acid Jazz: Person to Person! & Houston Express (1970
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110053.jpgsave_picture_110053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110053.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Lares - Towards Nothingness (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110054.jpgsave_picture_110054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110054.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ben Webster - Ben Webster (1940-e) 2004, Centurion Jazz [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110055.jpgsave_picture_110055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110055.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Blaze of Perdition - Near Death Revelations (2015) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110056.jpgsave_picture_110056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110056.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Blaze of Perdition - Towards the Blaze of Perdition (2010) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110057.jpgsave_picture_110057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110057.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Lennie Tristano - The New Tristano (1960 - 1962) 2013, Warner [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110058.jpgsave_picture_110058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110058.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Lares - Mask of Discomfort (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110059.jpgsave_picture_110059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110059.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Blaze of Perdition - The Hierophant (2011) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110060.jpgsave_picture_110060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110060.jpg" />
 </div>
 
 

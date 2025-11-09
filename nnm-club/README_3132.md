@@ -6,7 +6,7 @@ PotPlayer 251002 (1.7.22623) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101001.jpgsave_picture_101001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101001.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AEB1EC351137F8A68C11D6CFC309913C6774F2F5
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101002.jpgsave_picture_101002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101002.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Reg Organizer 9.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101003.jpgsave_picture_101003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101003.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ AIMP 5.40.2696 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101004.jpgsave_picture_101004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101004.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Reg Organizer 9.87 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101005.jpgsave_picture_101005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101005.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:B60F861C093828757AD500295A46F609DCFD4724
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101006.jpgsave_picture_101006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101006.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Internet Download Manager 6.42 Build 49 RePack by KpoJIuK [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101007.jpgsave_picture_101007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101007.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:7A2BE50DD7661956D1D1B13B9114BDDBCE85ACD9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101008.jpgsave_picture_101008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101008.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:567CE08A1A41F945625CCFD21D42BEFDD7794F81
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101009.jpgsave_picture_101009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101009.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:BA6850AEBF2856441FBECD5E9FBBF861E7D543E5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101010.jpgsave_picture_101010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101010.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Internet Download Manager 6.42 Build 49 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101011.jpgsave_picture_101011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101011.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:9A3E36C49632FCFEDA10D605E9C8EC2326C6BE45
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101012.jpgsave_picture_101012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101012.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:9CDE631377CE896B4F98587AC162F1E0924FD720
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101013.jpgsave_picture_101013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101013.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Reg Organizer 9.87 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101014.jpgsave_picture_101014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101014.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adex - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101015.jpgsave_picture_101015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101015.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:E32F536C09991F7B80BF7543E811233EFF5D4A55
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101016.jpgsave_picture_101016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101016.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:11159F66F2BDD224FD52437501A15507331B729A
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101017.jpgsave_picture_101017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101017.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:9C890E706E8D08271F61440EE4B7B37438EA9D6E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101018.jpgsave_picture_101018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101018.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:3DB37634BE1CE5C5CECF15908ECBADBB9E52D7AA
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101019.jpgsave_picture_101019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101019.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:E39C9C75B75EDF2D1C7F380E84B26B0192A19C05
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101020.jpgsave_picture_101020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101020.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:191EA7D486DD0C2C9F9F025420A091CE75967B2A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101021.jpgsave_picture_101021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101021.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:4CCF6D99A1778E47D382D48AFCC452C1C87C41A4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101022.jpgsave_picture_101022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101022.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ The Midnight - Syndicate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101023.jpgsave_picture_101023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101023.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:F0C1D76E4F98FB1191EE21001C6C9AFECB347907
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101024.jpgsave_picture_101024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101024.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:9C8914CF339D630DAE64244C909F332D19A85066
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101025.jpgsave_picture_101025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101025.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:221F6AB3C8E79D630674147AE94B0CF766185EAF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101026.jpgsave_picture_101026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101026.jpg" />
 </div>
 
 

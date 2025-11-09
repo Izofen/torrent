@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186136.jpgsave_picture_186136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186136.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | С особым навыком я 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186140.jpgsave_picture_186140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186140.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.3448]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186141.jpgsave_picture_186141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186141.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Thinknetica Pro, Кирилл Храпков  | Проектирование Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186142.jpgsave_picture_186142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186142.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186144.jpgsave_picture_186144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186144.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A979952660BCC711C0095A5274C23CF981F8B823
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186145.jpgsave_picture_186145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186145.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:EA8B3733ACFF17139ADC9856DE37A1A03B5F0146
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186146.jpgsave_picture_186146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186146.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8982F8D129414671940BCD13BC9AF562B7A99A58
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186147.jpgsave_picture_186147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186147.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186148.jpgsave_picture_186148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186148.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ vpnify - Безлимитный VPN 2.1.4.5 Mod by YouAreFinished [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186149.jpgsave_picture_186149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186149.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:266C7A51B4A940C70FF7CE6C027D748669C479C6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186151.jpgsave_picture_186151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186151.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Watashi no Shiawase na Kekkon | My Happy Marriage | Мой счастливый 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186152.jpgsave_picture_186152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186152.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Marvelous Designer 12 Personal 7.2.209.43690 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186154.jpgsave_picture_186154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186154.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | С особым навыком я 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186155.jpgsave_picture_186155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186155.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ InfraSpace (2023) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186156.jpgsave_picture_186156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186156.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:1B1051A77FB9D8B50B162614E03E1A5D2F65AC04
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186157.jpgsave_picture_186157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186157.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:B7B1FAEECF2463ECF595A1C61D1CD5DE302D783A
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186158.jpgsave_picture_186158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186158.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186159.jpgsave_picture_186159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186159.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:9753D33473F886AAD59D2675A461A50D45C6545A
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186160.jpgsave_picture_186160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186160.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186161.jpgsave_picture_186161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186161.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Shinigami Bocchan to Kuro Maid (2023) | The Duke of Death and His Maid (2023) | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186163.jpgsave_picture_186163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186163.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:5536CB766BCCAAC4DCAE0F57F22BD59B14455A51
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186164.jpgsave_picture_186164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186164.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mix: Meisei Story 2nd Season - Nidome no Natsu, Sora no Mukou e | Микс: Ис
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186165.jpgsave_picture_186165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186165.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:90ECE47DBEBF310334338BA249DAB791A587743C
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186166.jpgsave_picture_186166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186166.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Horimiya: Piece | Horimiya: The Missing Pieces | Хоримия [ТВ-2] [2023, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186167.jpgsave_picture_186167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186167.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:439489E7E0F5BD703CAEA679C0715D84540D24C1
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186169.jpgsave_picture_186169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186169.jpg" />
 </div>
 
 

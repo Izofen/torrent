@@ -6,7 +6,7 @@ HWiNFO 7.61 Build 5175 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215244.jpgsave_picture_215244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215244.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Live Wallpaper & Themes 4K Pro 17.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215252.jpgsave_picture_215252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215252.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:93FDA1EB0D7C496D358F23DD89CE2C3354A113FB
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215260.jpgsave_picture_215260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215260.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:DAF14FE657F2B50F4234BB7B0C3920BF71027444
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215271.jpgsave_picture_215271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215271.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Sandboxie plus 1.10.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215280.jpgsave_picture_215280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215280.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215290.jpgsave_picture_215290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215290.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Energiza Pro for Mac 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215302.jpgsave_picture_215302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215302.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8CCA4C12E00661CFB3AFF9DBECC0CD07B544E3D5
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215314.jpgsave_picture_215314.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215314.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:B5566FE3D1BE20FE5CFF73D35C91ECA95B70AE41
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215320.jpgsave_picture_215320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215320.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Various Artists - Immortal Randy Rhoads - The Ultimate Tribute (2015) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215328.jpgsave_picture_215328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215328.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Blindstone - Scars To Remember (2023) [FLAC|Lossless|image + .cue] <Heavy Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215333.jpgsave_picture_215333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215333.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:D9893DEAC14C99CED4D6618988A8C640EA50C0D1
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215343.jpgsave_picture_215343.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215343.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Cardhop 2.2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215352.jpgsave_picture_215352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215352.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Asia - Resonance (2010) The Omega Tour 2010 - Live In Basel, Switzerland, 4th Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215363.jpgsave_picture_215363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215363.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Cocktail Ventura Edition 16.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215371.jpgsave_picture_215371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215371.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Duane Allen - Yin-Yang (2004) [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215376.jpgsave_picture_215376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215376.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Cordovas - The Rose of Aces (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215388.jpgsave_picture_215388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215388.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Sandboxie 5.65.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215396.jpgsave_picture_215396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215396.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Smooze Pro 2.0.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215407.jpgsave_picture_215407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215407.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Enuff Z'Nuff - 1985 (1994) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215420.jpgsave_picture_215420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215420.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Virgin Steele - The Passion of Dionysus (2023) [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215465.jpgsave_picture_215465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215465.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Etreum - Evolucion (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215472.jpgsave_picture_215472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215472.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Kataklysm - Goliath (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215479.jpgsave_picture_215479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215479.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:8426C8C78AAF8A0FFAD3DE7B641101479525D135
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215496.jpgsave_picture_215496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215496.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ AYVY 1.21.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215506.jpgsave_picture_215506.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215506.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Billie Bottle's Temple Of Shibboleth - The Mending Tour (2023) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215514.jpgsave_picture_215514.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_215514.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Tarkan - Лучшие песни (2008) [FLAC|Lossless|image + .cue]<Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79634.jpgsave_picture_79634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79634.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Turtle Odyssey 2 / Одиссея Черепашки 2 (P) [Ru] 2007
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79639.jpgsave_picture_79639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79639.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:11E74CB3E7E7AAA5660B958FBB7B6465DBA68C9D
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79640.jpgsave_picture_79640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79640.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79641.jpgsave_picture_79641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79641.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Black Lagoon The Second Barrage / Пираты «Черной лагуны» (в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79642.jpgsave_picture_79642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79642.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:F3E11A2DA6257102288690B7A53D844BC84F83BF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79647.jpgsave_picture_79647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79647.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:3588D48995F513015E80188183CCF95F250F7F4E
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79650.jpgsave_picture_79650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79650.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:AF33C4B577BD64177CD6F5BE736AF35DA2889CAC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79651.jpgsave_picture_79651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79651.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:AF33C4B577BD64177CD6F5BE736AF35DA2889CAC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79658.jpgsave_picture_79658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79658.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Kerish Doctor 2012 4.35 [Мульти, есть русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79659.jpgsave_picture_79659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79659.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Progressive Goa Trance 1-9 (2002-2009) [MP3|~238 кб/с (V0)]<Psychedelic 
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79660.jpgsave_picture_79660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79660.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:9283A3DB4C0CD0194245BAA896B09964697CAB0E
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79661.jpgsave_picture_79661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79661.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:9283A3DB4C0CD0194245BAA896B09964697CAB0E
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79664.jpgsave_picture_79664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79664.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:BC127DA67DBB4FE0029903C11EF794E98BA137E7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79665.jpgsave_picture_79665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79665.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Windows 7 SP1 x64 Ultimate Standart by keglit 29.02.2012 [Английский,�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79675.jpgsave_picture_79675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79675.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Windows 7 SP1 x64 Ultimate Standart by keglit 29.02.2012 [Английский,�
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79678.jpgsave_picture_79678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79678.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Nero 11.2.00400 Full RePack + Toolkit by Vahe-91 [RUS / ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79684.jpgsave_picture_79684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79684.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Nero 11.2.00400 Full RePack + Toolkit by Vahe-91 [RUS / ENG]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79688.jpgsave_picture_79688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79688.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Mylene Farmer - Stade de France (2009) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79691.jpgsave_picture_79691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79691.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / Зов Припяти. PostScript Anarchy [Ru]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79692.jpgsave_picture_79692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79692.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B0067CA4A350C390BA764DCB8C6F106E275441DC
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79694.jpgsave_picture_79694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79694.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:0A49352834B7C6DAF3D8ED45D9073048CB7E27DE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79695.jpgsave_picture_79695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79695.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Alkid Live CD&USB 29-02-2012 [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79696.jpgsave_picture_79696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79696.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79698.jpgsave_picture_79698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79698.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Windows 7 PE x86 by Morphius71rus  [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79700.jpgsave_picture_79700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79700.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Exaella / Эксэлла [2011, OVA, 4] DVDRip 480p raw + eng + rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79703.jpgsave_picture_79703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_79703.jpg" />
 </div>
 
 

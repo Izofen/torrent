@@ -6,7 +6,7 @@ Tricky Doors / Хитрые двери (2024) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52726.jpgsave_picture_52726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52726.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (3.00.01/dlc) Scene FairLigh
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52745.jpgsave_picture_52745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52745.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52748.jpgsave_picture_52748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52748.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52755.jpgsave_picture_52755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52755.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52760.jpgsave_picture_52760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52760.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ A Castle Full of Cats (2022) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52765.jpgsave_picture_52765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52765.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ The Night is Grey (2024) [En] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52819.jpgsave_picture_52819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52819.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ DNF Duel (2022) [Multi] (1.81/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52822.jpgsave_picture_52822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52822.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Fix it - The Handyman Simulator (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52836.jpgsave_picture_52836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52836.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52870.jpgsave_picture_52870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52870.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Myth Or Reality 3: Snowbound Secrets / Мифы или реальность 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52900.jpgsave_picture_52900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52900.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Chiyo (2024) [Multi] (1.0.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52925.jpgsave_picture_52925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52925.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.1/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52929.jpgsave_picture_52929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52929.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Redout II (2) (2022) [Ru/Multi] (1.3.1/dlc) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52956.jpgsave_picture_52956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52956.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52959.jpgsave_picture_52959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52959.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53025.jpgsave_picture_53025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53025.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ BYTES: The Reverse Tower Defense (2024) [En] (1.0) Repack FitGirl
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53030.jpgsave_picture_53030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53030.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Loser Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53042.jpgsave_picture_53042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53042.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pinball M (2023) [Multi] (1.0.4/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53052.jpgsave_picture_53052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53052.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Cosmotroid (2024) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53053.jpgsave_picture_53053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53053.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Whacking Hell! (2024) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53056.jpgsave_picture_53056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53056.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53063.jpgsave_picture_53063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53063.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:6B886E22CBEB80B183C83166CB976ECE4DAB911C
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53066.jpgsave_picture_53066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53066.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Q.U.B.E. 10th Anniversary (2022) [Ru/Multi] (1.4.24) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53080.jpgsave_picture_53080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53080.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53097.jpgsave_picture_53097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53097.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ My Little Pony: A Zephyr Heights Mystery (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53126.jpgsave_picture_53126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53126.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Lo Greco Bros - This Way To Love Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109242.jpgsave_picture_109242.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109242.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Phil Davis - ALIVE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109243.jpgsave_picture_109243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109243.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adam Hawley - Unstoppable (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109244.jpgsave_picture_109244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109244.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Relaxing Jazz Music, Smooth Jazz Lounge School - London Jazz Rhythms: Jazz Relax
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109252.jpgsave_picture_109252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109252.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Matthew Rotker-Lynn - Introducing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109257.jpgsave_picture_109257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109257.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Johan Rudebjer trio - Sandkorn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109260.jpgsave_picture_109260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109260.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Monsieur MALA - Monsieur MALA (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109261.jpgsave_picture_109261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109261.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Alan Broadbent - Jazz Funk (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109262.jpgsave_picture_109262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109262.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Delta OG - Aged Friends & Old Whiskey (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109263.jpgsave_picture_109263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109263.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Disaster Pony - Disaster Pony (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contem
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109264.jpgsave_picture_109264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109264.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Lainz - Indigo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Dance>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109266.jpgsave_picture_109266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109266.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Romantic Time, Jazz Guitar Club, Love Music Zone - Romantic Latin Guitar Ballads
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109274.jpgsave_picture_109274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109274.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Galantis - Rx (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109280.jpgsave_picture_109280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109280.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109281.jpgsave_picture_109281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109281.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Relax Time Zone, Jazz Acústico - Slow Day with Jazz (Instrumental Relaxing Musi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109284.jpgsave_picture_109284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109284.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Jazz Saxophone, Romantic Moods Academy - Seductive Sax: Set the Mood, Romantic J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109294.jpgsave_picture_109294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109294.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ The Mavericks - Moon & Stars (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109306.jpgsave_picture_109306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109306.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Rapsody - Please Don't Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109307.jpgsave_picture_109307.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109307.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Godsmack - Awake (2000) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109310.jpgsave_picture_109310.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109310.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Martin Lechner - Another Step (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109312.jpgsave_picture_109312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109312.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Peemai - Gaga Gundul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109313.jpgsave_picture_109313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109313.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Rostros Sin Rostro - Features & ShiT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109315.jpgsave_picture_109315.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109315.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109317.jpgsave_picture_109317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109317.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Alan Braufman - Infinite Love Infinite Tears (2024) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109318.jpgsave_picture_109318.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109318.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ lostWall - woodwerk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109321.jpgsave_picture_109321.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109321.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Zoar Miranda - A Happy Day for a Sad Bird (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109323.jpgsave_picture_109323.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109323.jpg" />
 </div>
 
 

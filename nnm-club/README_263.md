@@ -6,7 +6,7 @@ Glary Disk Cleaner 6.0.1.31 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6922.jpgsave_picture_6922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6922.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Microsoft Windows 11 [10.0.22631.5768], Version 23H2 (Updated August 2025) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6923.jpgsave_picture_6923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6923.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Music News For Forum vol.128 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6924.jpgsave_picture_6924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6924.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:94D997AB9163552D65911073B8321DA154890E67
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6925.jpgsave_picture_6925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6925.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:BA6413FCCED78F05AB0DB90B848D000C79526CC3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6926.jpgsave_picture_6926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6926.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Glary Utilities Pro 6.30.0.34 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6927.jpgsave_picture_6927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6927.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:2EFE64C00E5EC0D3739A5934AE763C8CF640FD1B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6928.jpgsave_picture_6928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6928.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MiniMeters 1.0.15 STANDALONE, VST 3, CLAP (x64) RePack [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6929.jpgsave_picture_6929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6929.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:E863F720330FBE0C9099111A204E926810380481
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6930.jpgsave_picture_6930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6930.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:D584DC25410C88C82E6F4656F5C649FB34CD0EC4
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6931.jpgsave_picture_6931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6931.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:E45484A98424A0973928CBAAEF182EACC8B23839
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6932.jpgsave_picture_6932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6932.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Cockos REAPER 7.43 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6933.jpgsave_picture_6933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6933.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:15825096D823558E07124B3420DC419D2530DA00
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6934.jpgsave_picture_6934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6934.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ magnet:?xt=urn:btih:C8BED3D974E4AADA69C177735F8FEB103E5E8BCC
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6935.jpgsave_picture_6935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6935.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:7A6282F17A40C8A9621F79977551A32E9B679AF5
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6936.jpgsave_picture_6936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6936.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:8619D26C8BAA435D8C85B0D42210A78B1680961B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6937.jpgsave_picture_6937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6937.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ RadioMaximus 2.33.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6938.jpgsave_picture_6938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6938.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [O
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6939.jpgsave_picture_6939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6939.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:3552843121BF622EE46CF84DB13432D0DF87C3E1
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6940.jpgsave_picture_6940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6940.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ RarmaRadio Pro 2.77.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6941.jpgsave_picture_6941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6941.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:5BF414073CCE1FB333086263FDC11DAB8F838775
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6942.jpgsave_picture_6942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6942.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:BBC7EB0CC8E5516BF960A5F4129F52027F64A04D
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6943.jpgsave_picture_6943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6943.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6944.jpgsave_picture_6944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6944.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Xiaomi Home (Ранее. MiHome) v10.8.700 Mod by Vevs [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6945.jpgsave_picture_6945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6945.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:6EF02F8E2A67CDAC01814962DBBCD756924454B7
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6946.jpgsave_picture_6946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6946.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:740BCE0554EBC4F857CD43B0045C1887E2A2A1ED
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6947.jpgsave_picture_6947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6947.jpg" />
 </div>
 
 

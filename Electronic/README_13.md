@@ -6,7 +6,7 @@ VA - Disco Down The Best of 2023 (2023) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31580.jpgsave_picture_31580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31580.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Disco Down The Best of 2021 (2021) [MP3|320 Kbps] <House, Nu-Disco, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31583.jpgsave_picture_31583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31583.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Pure Bliss Vocals Volume 4 (2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31589.jpgsave_picture_31589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31589.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Markus Schulz - Escape (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31602.jpgsave_picture_31602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31602.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - A Decade Of Female Vocal Trance (2010 - 2020) (2020) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31618.jpgsave_picture_31618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31618.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Vocal Trance Gems - Summer (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31668.jpgsave_picture_31668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31668.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Pure Bliss Vocals Vol. 3 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31698.jpgsave_picture_31698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31698.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Pure Bliss Vocals Volume 5 (2013) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31700.jpgsave_picture_31700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31700.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Pure Vocal Trance Hits Vol. 2 (2016) [MP3|320 кб/с] <Trance, Vocal Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31703.jpgsave_picture_31703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31703.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Vocal Trance Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31705.jpgsave_picture_31705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31705.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Vocal Anthems Amsterdam (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31708.jpgsave_picture_31708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31708.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31716.jpgsave_picture_31716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31716.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bobina - Speed Breaker (2016) [MP3|320 кб/с] <Progressive Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31718.jpgsave_picture_31718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31718.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Vocal Trance Hits 2015-02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31723.jpgsave_picture_31723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31723.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Didier Marouani & Space  - New Collection (2009) [MP3|320 кб/с]<Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31736.jpgsave_picture_31736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31736.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Manuel Rocca Presents: White Clouds Vol. 2 (2014) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31789.jpgsave_picture_31789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31789.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Adrian & Raz Vocal Trance Top 10 Volume 1 - 3 (2013) [MP3|320 кб/с]<Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31804.jpgsave_picture_31804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31804.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Massive Vocal Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31808.jpgsave_picture_31808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31808.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Chicane - Thousand Mile Stare: The Collectors Edition (2CD) (2011) [MP3|320 kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31818.jpgsave_picture_31818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31818.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Black - Wonderful Life (1987) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31881.jpgsave_picture_31881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31881.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Megafauna - I Owe This Land a Body (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Am
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31896.jpgsave_picture_31896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31896.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Tangerine Dream - One Night In Africa (2013) [MP3|320 кб/с]<Traditional Elect
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31952.jpgsave_picture_31952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31952.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Armin van Buuren - A State of Trance Episode 1206 (2025) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31980.jpgsave_picture_31980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31980.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Levitated Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31985.jpgsave_picture_31985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31985.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Silent Shore Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31986.jpgsave_picture_31986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31986.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Pool Party Lounge Summertime Mix (2015) [MP3|320 кб/с]<Downtempo, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31992.jpgsave_picture_31992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31992.jpg" />
 </div>
 
 

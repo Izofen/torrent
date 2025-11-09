@@ -6,7 +6,7 @@ Sir Roland Hanna & George Mraz - Ancestral Light (1995) 2CD, 1999, Red Earth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171599.jpgsave_picture_171599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171599.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Clipboard Manager 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171600.jpgsave_picture_171600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171600.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Clare Fischer - Memento (1992) Discovery Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171601.jpgsave_picture_171601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171601.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ EdgeView 4.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171602.jpgsave_picture_171602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171602.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Thorns of Grief - Anthems to My Remains (2019) [FLAC|Lossless|image + .cue] <Fun
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171603.jpgsave_picture_171603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171603.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Iris 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171604.jpgsave_picture_171604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171604.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ The Fallen - Drowned in an Unknown Meaning of Life and Death (2016) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171605.jpgsave_picture_171605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171605.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Solar Sons - Chameleon (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171606.jpgsave_picture_171606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171606.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Solar Sons - Another Dimension (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171607.jpgsave_picture_171607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171607.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Stats 2.9.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171608.jpgsave_picture_171608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171608.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5413.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171609.jpgsave_picture_171609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171609.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:3D789775BC003508EECA3D57D64173F94911885C
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171610.jpgsave_picture_171610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171610.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:AD6E01FFF0B819C88D3587AEFC219B8EEE05ABF6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171611.jpgsave_picture_171611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171611.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:EC6F2A9D76718465BB7C7F3E23D082C2854F30BE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171612.jpgsave_picture_171612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171612.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ magnet:?xt=urn:btih:303B36C59FF6AE90E2E16F0B596F34DE3BC78680
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171613.jpgsave_picture_171613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171613.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ magnet:?xt=urn:btih:65D8400A52FB004B942E78EB6452699381453A21
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171614.jpgsave_picture_171614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171614.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ magnet:?xt=urn:btih:D415431B745D7AFDB4AB27A5C7F8B2DE58E09C95
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171615.jpgsave_picture_171615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171615.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ MInstAll v.21.10.2023 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171616.jpgsave_picture_171616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171616.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:FB42A0EECC8F558B63B89B6D400A2BC199466D6E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171617.jpgsave_picture_171617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171617.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ magnet:?xt=urn:btih:DC7988589B2940B3152F4181C738B7241AE517A6
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171618.jpgsave_picture_171618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171618.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:44103081E861BE6CF7F2DA37AC43E43072108FEF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171619.jpgsave_picture_171619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171619.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171620.jpgsave_picture_171620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171620.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ magnet:?xt=urn:btih:AAE57AAF16D54A3E92E4B935D1637BA4DBE8B003
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171621.jpgsave_picture_171621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171621.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Legacy Woodworking Machinery| Фрезерный стол с ручным при
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171622.jpgsave_picture_171622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171622.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:43D447875ED9AA743E1E643F15C5DA1A86E05BAA
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171623.jpgsave_picture_171623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171623.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:43D447875ED9AA743E1E643F15C5DA1A86E05BAA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171624.jpgsave_picture_171624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171624.jpg" />
 </div>
 
 

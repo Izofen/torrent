@@ -6,7 +6,7 @@ Sunrider Legends Tactics (2025) [Multi] (1210/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202240.jpgsave_picture_202240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202240.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:0435D70F1BC7C5796B3DC018A229591B63C16A86
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202241.jpgsave_picture_202241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202241.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Unto The End (2020) [Ru/Multi] (1.61) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202243.jpgsave_picture_202243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202243.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202244.jpgsave_picture_202244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202244.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ SUPERHOT: MIND CONTROL DELETE v.1.0.21.l1.1.35  (2020) [Multi/Ru] [macOS Native 
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202245.jpgsave_picture_202245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202245.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202246.jpgsave_picture_202246.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202246.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:6D096C5C4DDCED78E2FA538520D17D98D60254D0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202247.jpgsave_picture_202247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202247.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:2CD7D049217A8876D3EFBE79FA2A94B6201E52EB
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202248.jpgsave_picture_202248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202248.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202249.jpgsave_picture_202249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202249.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Queen's Wish: The Conqueror (2019) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202250.jpgsave_picture_202250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202250.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9ED4950EC8F26C6B63B48FC6A0A32003B83AA51C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202252.jpgsave_picture_202252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202252.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:5ED3F41768321CDA126D3E64CF659BA2AC3C6700
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202253.jpgsave_picture_202253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202253.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adobe Photoshop 2023 24.2.0.315 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202254.jpgsave_picture_202254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202254.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:A871E980A442F794CE56F40574E0D0085ACCA7C1
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202255.jpgsave_picture_202255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202255.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AR Ruler App: Tape Measure Cam v2.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202256.jpgsave_picture_202256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202256.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:DDD9D7CD67691932F317F2FC8027DBDD060B281D
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202257.jpgsave_picture_202257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202257.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:36E35682C9E01180EC768CB4C588A475844A71C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202258.jpgsave_picture_202258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202258.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:ECF115851C4E8A6141BA9F00A0BA0E2319D392FC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202259.jpgsave_picture_202259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202259.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:D79AF8660D676BE814B539A45A1A5D1DA45507B2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202260.jpgsave_picture_202260.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202260.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:05C5FBCDE05FC0576C5545046C9040FF646157D9
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202261.jpgsave_picture_202261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202261.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:EBE6929F3BA08AFE62D6090A86A77BC0B3707722
 >>Теория Большого Взрыва / The Big Bang Theory; Детство Шелдона / Young Sheldon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202262.jpgsave_picture_202262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202262.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:0AC591B84D6CFD6DFB3210E35698B0F2381CE9AA
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202263.jpgsave_picture_202263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202263.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Toto Cutugno (Тото Кутуньо) [Сборник] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202264.jpgsave_picture_202264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202264.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Anhdv Boot 2023 Premium v23.3 x86-x64 (03.02.2023) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202265.jpgsave_picture_202265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202265.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:B37790B7597CCD4E3D3062FB5C677E21ED61DDBD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202266.jpgsave_picture_202266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202266.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VSDC Video Editor Pro 8.1.1.450 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202267.jpgsave_picture_202267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202267.jpg" />
 </div>
 
 

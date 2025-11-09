@@ -6,7 +6,7 @@ Queen - Sheer Heart Attack (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171181.jpgsave_picture_171181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171181.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Queen - Queen (1973) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171182.jpgsave_picture_171182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171182.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:590E938CE0C3C9F466CC2F6AC576FF30EA469EE3
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171183.jpgsave_picture_171183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171183.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:A60F83ADAE21AF9CA7F9471B85D4A90E0DF85D3A
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171184.jpgsave_picture_171184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171184.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Duolingo: изучай языки 5.125.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171185.jpgsave_picture_171185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171185.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Queen - A Day At The Races (1976) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171186.jpgsave_picture_171186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171186.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ DxO PureRAW 3 for Mac v.3.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171187.jpgsave_picture_171187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171187.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ O&O Defrag Professional + Server 27.0 Build 8046 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171188.jpgsave_picture_171188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171188.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:7701BEA5477B3D450895EE834061D70E53CB1DFE
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171189.jpgsave_picture_171189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171189.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:F89D6E1CCC62BDEC60C161B03424496F85250C1E
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171190.jpgsave_picture_171190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171190.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Chris Botti - Vol. 1 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171191.jpgsave_picture_171191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171191.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ R-Wipe & Clean 20.0.2427 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171192.jpgsave_picture_171192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171192.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ GM EPUB Reader Pro 2.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171193.jpgsave_picture_171193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171193.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Alfred PowerPack 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171194.jpgsave_picture_171194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171194.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Busuu - изучение языков 31.3.2(828895) Mod by maxi123444 [Ru/Multi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171195.jpgsave_picture_171195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171195.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ K-Lite Codec Pack Update 17.8.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171196.jpgsave_picture_171196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171196.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Icecream PDF Editor Pro 3.1.2  Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171197.jpgsave_picture_171197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171197.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ ConceptDraw MINDMAP 15 v.15.0.0.296 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171198.jpgsave_picture_171198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171198.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Capture One 23 Enterprise 16.3.0.76 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171199.jpgsave_picture_171199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171199.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Colibri 2.1.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171200.jpgsave_picture_171200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171200.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mike Mareen - Love-Spy (1985) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171201.jpgsave_picture_171201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171201.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:0B1858C98EFEE61DFDA56F38393C3F84EB3BD1E2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171202.jpgsave_picture_171202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171202.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Jazz Funk Instrumentals Vol. 4(Funky Soul Jazzy Instrumental Acid Tracks) (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171203.jpgsave_picture_171203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171203.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ ConceptDraw DIAGRAM 17 v.17.0.0.468 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171204.jpgsave_picture_171204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171204.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ David A. Stewart Featuring Candy Dulfer - Lily Was Here (1989) [OGG Vorbis|480 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171205.jpgsave_picture_171205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171205.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ HWiNFO 7.65 Build 5250 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171206.jpgsave_picture_171206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171206.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Icecream PDF Editor PRO 2.71 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240396.jpgsave_picture_240396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240396.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UADA - Djinn (2020) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240397.jpgsave_picture_240397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240397.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:D43CE5803577937CCE3F6B0DB751626D713E077F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240398.jpgsave_picture_240398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240398.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:465FB68DBC129C976A9C853BCE988CB388F88762
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240399.jpgsave_picture_240399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240399.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:77205AD6747E03F65A77CBA875B10DECC65753CA
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240400.jpgsave_picture_240400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240400.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ WindowManager 10.10.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240401.jpgsave_picture_240401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240401.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Invicta - Triumph and Torment (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240402.jpgsave_picture_240402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240402.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Artstation Learning, Javier Perez | Substance Designer: 10 Most Useful Nodes (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240403.jpgsave_picture_240403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240403.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:B67A519D22C6A5C871B732781BE24F4578504DBD
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240404.jpgsave_picture_240404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240404.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Killing Tyranny - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240405.jpgsave_picture_240405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240405.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:1324A3B767786638AEC957D26CA0FCC36CF0FFDB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240406.jpgsave_picture_240406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240406.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Nasty - Realigion (2017) [FLAC|Lossless|WEB-DL|tracks] <Belgium  Beatdown Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240407.jpgsave_picture_240407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240407.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Legends (2023) [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240408.jpgsave_picture_240408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240408.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:CEF016550D607D4F8E6834F2E0263568DBE6D36E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240409.jpgsave_picture_240409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240409.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:B65CE5ECA2858F0E7D3A2D416FC386B8C70862FD
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240410.jpgsave_picture_240410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240410.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Born Ready Games | Артбук по игре Strike Suit Zero / Strike Suit Zer
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240411.jpgsave_picture_240411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240411.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ magnet:?xt=urn:btih:11282E560C1C2FE7934F6075F226CDE3A1C8B33C
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240412.jpgsave_picture_240412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240412.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Clipboard Manager 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240413.jpgsave_picture_240413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240413.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Yiihuu, Yang Fan | Super Dynamic Designer (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240414.jpgsave_picture_240414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240414.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Dead Earthlings - Dead Earthlings (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240415.jpgsave_picture_240415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240415.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:7D15591536F3C93AFBF905E225FD3FB185B6D66C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240416.jpgsave_picture_240416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240416.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:01C019E2961A18C32DB07117D70F24AF0ABE90E6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240417.jpgsave_picture_240417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240417.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ The Buddy Collette Big Band - Live At El Camino College (1990) 2006, UFO-BASS [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240418.jpgsave_picture_240418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240418.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Gary Moore - Run for Cover (1985) Reissue, 2023, Universal, Japanese Edition [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240419.jpgsave_picture_240419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240419.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Inventtor - Em Meio a Escuridao (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240420.jpgsave_picture_240420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240420.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ magnet:?xt=urn:btih:FC5D8895FEA9ADDB9F20E0172828417FEC3D43A3
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240421.jpgsave_picture_240421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240421.jpg" />
 </div>
 
 

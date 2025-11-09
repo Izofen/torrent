@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245503.jpgsave_picture_245503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245503.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E0F6D833CD11DE29E62EF327F9EF3EF93909EEB7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245504.jpgsave_picture_245504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245504.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:DF097B567BB4020645E624DDCAF0E04779322F32
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245505.jpgsave_picture_245505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245505.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Alfred PowerPack 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245506.jpgsave_picture_245506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245506.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:27945400E7F301BFCD34C205B3E7809A17392363
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245507.jpgsave_picture_245507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245507.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1A38595B073AB7305BDE8AD897BE65EBBDCE6E08
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245508.jpgsave_picture_245508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245508.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:04BF8DEDA34048728A579CCADD33E8929CB859F9
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245509.jpgsave_picture_245509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245509.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Firefox Browser 111.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245510.jpgsave_picture_245510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245510.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:0A5981EF0A625BC4FAC57714F1754595095452F7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245511.jpgsave_picture_245511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245511.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Roger Shah & Ambedo - Tribute To Earth (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245512.jpgsave_picture_245512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245512.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ GM Right Mouse Pro 2.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245513.jpgsave_picture_245513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245513.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:0D8B3EFC3125ACC663070E959E5101026FEFE81D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245514.jpgsave_picture_245514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245514.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Harry Manx - 20 Strings And The Truth (2015) [FLAC|Lossless|tracks] <Blues, Folk
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245515.jpgsave_picture_245515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245515.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:4045BCB064556835C34FFF22225F2253A66BFF5A
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245516.jpgsave_picture_245516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245516.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:F026EC7A697F5B564F835A7F70860AFC2E1F7560
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245517.jpgsave_picture_245517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245517.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ PrivaZer 4.0.72 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245518.jpgsave_picture_245518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245518.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Optimage 3.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245519.jpgsave_picture_245519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245519.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Los Quarks - Time Shifting (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245520.jpgsave_picture_245520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245520.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Opera 97.0.4719.28 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245521.jpgsave_picture_245521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245521.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - News & The Blues: Telling It Like It Is (1990) Series: Roots n' Blues [WavP
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245522.jpgsave_picture_245522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245522.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Nagart - Вы это слышали? (2021) EP [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245523.jpgsave_picture_245523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245523.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Clubbing Tech House: November Set (2021) [MP3|320 Kbps] <Tech House, Club, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245524.jpgsave_picture_245524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245524.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Google Earth Pro 7.3.4.8573 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245525.jpgsave_picture_245525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245525.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:17EDBB393825CCF2DC14018202B50EDA1FE53767
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245526.jpgsave_picture_245526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245526.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Devil's Whiskey - Historias De Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245527.jpgsave_picture_245527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245527.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Photo Supreme 2023.1.1.4877 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245528.jpgsave_picture_245528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245528.jpg" />
 </div>
 
 

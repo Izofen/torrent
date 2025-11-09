@@ -6,7 +6,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228563.jpgsave_picture_228563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228563.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:6C9205766F866B61EAAD6189148A4E5555486059
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228565.jpgsave_picture_228565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228565.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:72FB1E7F7ED6F13C6AD33ED07B94941F60A36788
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228566.jpgsave_picture_228566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228566.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Hydra - Rock The World (1976) Reissue, 2010, Crossroad Productions [MP3|320 кб
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228567.jpgsave_picture_228567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228567.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Narada Michael Walden - The Dance Of Life (1979) LP [MP3|320 Kbps] <Disco, Funk 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228570.jpgsave_picture_228570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228570.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:A5DCC4A20C5F242DADFCAA57B004A03ECC04943D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228571.jpgsave_picture_228571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228571.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:68FEE828ADBF47BE7B92B5B6B167DE2E7136E8A3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228574.jpgsave_picture_228574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228574.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:F2D137D5B84F80F7AB771D4C9958DE093AECC444
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228575.jpgsave_picture_228575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228575.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:4D3D4D3C4697C06EA852B342E6266CC5EB5FCB41
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228576.jpgsave_picture_228576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228576.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ magnet:?xt=urn:btih:FFF1177B22E7E7A2721E1E1D53C70FC03B4EA9A0
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228580.jpgsave_picture_228580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228580.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:765913A3264F63C36CF4533EDB9F779055E467A7
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228581.jpgsave_picture_228581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228581.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:BFD46C3C62F687D164C41A253692BF1A48521DAB
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228582.jpgsave_picture_228582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228582.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228583.jpgsave_picture_228583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228583.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Annalist - Artemis (1995) [FLAC|Lossless|image+.cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228584.jpgsave_picture_228584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228584.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Korn - Untitled (2007) Deluxe, 2023, Tempo Music [MP3|320 Kbps] <Nu Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228588.jpgsave_picture_228588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228588.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:5E5F451CCB267F567A041D02B7137E1CD3426218
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228589.jpgsave_picture_228589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228589.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Hetman Partition Recovery 3.3 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228590.jpgsave_picture_228590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228590.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:CA8D8FE4BEA942D74BC16A3677A528179D3B5FD4
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228591.jpgsave_picture_228591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228591.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Daydreamer's Chillout Sounds (2015) [MP3|320 кб/с] <Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228592.jpgsave_picture_228592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228592.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228593.jpgsave_picture_228593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228593.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:5279EA6FB339E8EF071E7389BC9A1CFB836CD045
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228595.jpgsave_picture_228595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228595.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:74413CE49F23664524CEDC10C03EEE3938B680D0
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228597.jpgsave_picture_228597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228597.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:163868AF0B4CDF4F62AD9D63E7291EF05CBBC654
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228598.jpgsave_picture_228598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228598.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:896179DB040DA18C5E2B5BD0EB0402543F3FF283
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228599.jpgsave_picture_228599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228599.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Simple Sticky Notes 4.8 Portable by Joo Seng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228600.jpgsave_picture_228600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228600.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:208396499E6A357A8A3368608166FD2BD54D2F37
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228601.jpgsave_picture_228601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_228601.jpg" />
 </div>
 
 

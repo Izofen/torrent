@@ -6,7 +6,7 @@ Times Of Grace - The Hymn Of A Broken Man (2011) [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161175.jpgsave_picture_161175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161175.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Akroasis - Ilion (2021) [FLAC|Lossless|image + .cue] <Thrash, MDM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161199.jpgsave_picture_161199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161199.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:65BD868236B8FD562C0528D273CBB9533AE8AF6C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161233.jpgsave_picture_161233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161233.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sticks N' Stones - Get Stoned (2020) [MP3|320 Kbps] <Glam Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161299.jpgsave_picture_161299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161299.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Light? - Standard of Ridiculous Accident (2022) [FLAC|Lossless|image + .cue] <In
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161327.jpgsave_picture_161327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161327.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ magnet:?xt=urn:btih:CFA68D5CB4D1B4E3ED243CD527D979A6B177A71D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161329.jpgsave_picture_161329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161329.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Dream Theater - The Number of the Beast (2002) Reissue, Remastered, Special Edit
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161330.jpgsave_picture_161330.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161330.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Reternity - A Test of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161338.jpgsave_picture_161338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161338.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Rise to the Sky - 4 Albums (2019-2020) [FLAC|Lossless|tracks + .cue] <Atmospheri
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161367.jpgsave_picture_161367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161367.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Waterhill - Sleepwalker (2020) [MP3|320 Kbps] <Melodic-Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161371.jpgsave_picture_161371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161371.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:17123C72ADCDEAA26080E9E106BA3D5B75BC0C00
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161378.jpgsave_picture_161378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161378.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Mark Murdock - The Phoenix Has Risen (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161383.jpgsave_picture_161383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161383.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:5DFECC7F1B99BB57ACE2068EB24510A4836E5C4D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161397.jpgsave_picture_161397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161397.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Imposter - Абсцесс (2020) [MP3|320 Kbps] <Street-Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161401.jpgsave_picture_161401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161401.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:9D54D33BCE51300424A95C5ED4F3111CE4DD9E87
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161405.jpgsave_picture_161405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161405.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Binary Creed - A Battle Won (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161407.jpgsave_picture_161407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161407.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ El Mashe - Спасение утопающих (2020) [MP3|320 Kbps] <Alternativ
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161409.jpgsave_picture_161409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161409.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Tet Rishonot - Девять первых (2022) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161423.jpgsave_picture_161423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161423.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Blind Vision - Happily Never After (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161429.jpgsave_picture_161429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161429.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Unheilig - MTV Unplugged - Unter Dampf - Ohne Strom (2015) Deluxe Edition Box [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161430.jpgsave_picture_161430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161430.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Rising Wings - Reach (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161433.jpgsave_picture_161433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161433.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Big Mouthers - Wishes (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161434.jpgsave_picture_161434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161434.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ The Lust - Black Dahlia Poem (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161436.jpgsave_picture_161436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161436.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Brian Bart - Future Vision (1987) Reissue, Remastered, 2023, MelodicRock Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161442.jpgsave_picture_161442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161442.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Stealing Death - Speed Force (2020) [MP3|320 Kbps] <Heavy-Metal, Thrash-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161443.jpgsave_picture_161443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161443.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Bacchus Baracus - All Art Is Theft (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161445.jpgsave_picture_161445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161445.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170358.jpgsave_picture_170358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170358.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:E2DE60E256D3501929433216F337EFC9E25BDA44
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170359.jpgsave_picture_170359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170359.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:D73C42D2465AD9FAA581E66A1F98A6C10B0AABB2
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170360.jpgsave_picture_170360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170360.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:C56DFE0EBF12766C79E9A6F935F40C4E7E9BD40F
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170361.jpgsave_picture_170361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170361.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:119F85B0757E622FE84D2E4ED187CF0FBE3BD3C5
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170362.jpgsave_picture_170362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170362.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2D07211A4152326A1ABA9A6912BF284916EA2C93
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170363.jpgsave_picture_170363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170363.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Topaz Sharpen AI 2.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170364.jpgsave_picture_170364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170364.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:1BB944E919587B262D664EEC37B952BADC63BCB5
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170365.jpgsave_picture_170365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170365.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:785A3B8BA433E4D893F94767032951F7CE6002ED
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170366.jpgsave_picture_170366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170366.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E5959C4C0FE49CB7D1EFA48245B47DC860ACFFAE
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170367.jpgsave_picture_170367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170367.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:60F0277B852E7996838476F475FEEC5C08BDE3B5
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170368.jpgsave_picture_170368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170368.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:61962BBFBBCCA43D8F6F17EB04F0FD01E97B5FD7
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170369.jpgsave_picture_170369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170369.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Journey - Frontiers (1983) Remastered, 2023, Columbia [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170370.jpgsave_picture_170370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170370.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:83EC3B9256A22AF00612E59B54918C1818759C41
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170371.jpgsave_picture_170371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170371.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ GoodNotes 5 v5.7.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170372.jpgsave_picture_170372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170372.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - Psygressive Vol. 5 (2019) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170373.jpgsave_picture_170373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170373.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ magnet:?xt=urn:btih:26C07A75110E08929202C56DFFDD0740B5065381
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170374.jpgsave_picture_170374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170374.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ DJ Shadow - Action Adventure (2023) [MP3|320 Kbps] <Hip-Hop/Rap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170375.jpgsave_picture_170375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170375.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:D6283FE242B1D99912BF04769F2808AA3D8104E6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170376.jpgsave_picture_170376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170376.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Window Focus 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170377.jpgsave_picture_170377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170377.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ DiskTrix UltimateDefrag 6.0.46.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170378.jpgsave_picture_170378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170378.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Udemy, Krista King | Станьте Мастером Математическо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170379.jpgsave_picture_170379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170379.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VueScan Pro 9.7.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170380.jpgsave_picture_170380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170380.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ magnet:?xt=urn:btih:3CA774A385A12378D0076B227F3AB943F15A2656
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170381.jpgsave_picture_170381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170381.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - You & Me (2021) [MP3|320 Kbps] <Pop,Folk, Indie, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170382.jpgsave_picture_170382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170382.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:F84A547B8FA2AB7B7D9B7524FF9EADB7C2F21FFA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170383.jpgsave_picture_170383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170383.jpg" />
 </div>
 
 

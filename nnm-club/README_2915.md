@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85925.jpgsave_picture_85925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85925.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Erotic Chill Vol. 1 - Sweet And Sexy (2012) [MP3|320 кб/с]<Ambient, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85928.jpgsave_picture_85928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85928.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ magnet:?xt=urn:btih:FCC0ED345045637A3B936DF817DA4A7B72420745
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85929.jpgsave_picture_85929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85929.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Suzi Quatro - Story (2011) [MP3|320 кб/с]<Rock, Hard Rock, Blues>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85931.jpgsave_picture_85931.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85931.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:68BED2C69474081733B14E0408DE7646DEF06244
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85932.jpgsave_picture_85932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85932.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:68BED2C69474081733B14E0408DE7646DEF06244
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85934.jpgsave_picture_85934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85934.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:68BED2C69474081733B14E0408DE7646DEF06244
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85935.jpgsave_picture_85935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85935.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:5C85862505955D12F3C379446B1A21614B654ACD
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85936.jpgsave_picture_85936.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85936.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Yngwie Malmsteen - Best Ballads (1996) [MP3|320 кб/с]<Neo-classical metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85937.jpgsave_picture_85937.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85937.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ magnet:?xt=urn:btih:01107BC522E2C22F12D7316B1FCEE2C9C04D83C4
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85938.jpgsave_picture_85938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85938.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ magnet:?xt=urn:btih:18C2C1DA886BD89B7105C87B74C4FF875D42A858
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85939.jpgsave_picture_85939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85939.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ magnet:?xt=urn:btih:CCE394CCFC69E99AF80D3BFA657068DB8779EFFD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85940.jpgsave_picture_85940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85940.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:57AE56721FC691A3F0070D12BDCC9615F74194E4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85941.jpgsave_picture_85941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85941.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:57AE56721FC691A3F0070D12BDCC9615F74194E4
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85942.jpgsave_picture_85942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85942.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:54210AF14B13A91B8A5382DD53921AAF8BFDB469
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85944.jpgsave_picture_85944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85944.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F4B37DDFEEB84D045392A10CF88653FA9FC37B7D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85945.jpgsave_picture_85945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85945.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85949.jpgsave_picture_85949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85949.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85957.jpgsave_picture_85957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85957.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:92486D5EF72068A531C60EBD6AC87A4608BBF44E
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85958.jpgsave_picture_85958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85958.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Stacking + 1 DLC [En] (RePack) 2012 l Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85959.jpgsave_picture_85959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85959.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:02EA494CCA63C2A8A604AC7E671EB49FBF76F456
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85960.jpgsave_picture_85960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85960.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:91B5301779577F78AEC2086471E3C8FC72FFDDC1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85962.jpgsave_picture_85962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85962.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:F17C25780CD96450DFF861B93608A627BAF90A02
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85963.jpgsave_picture_85963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85963.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:8264EFAF71DAD0021CF55AECF6B811FFC7829B29
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85964.jpgsave_picture_85964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85964.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ B.B. King: Live (2006) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85969.jpgsave_picture_85969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85969.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ B.B. King: Live (2006) [720p] BDRip
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85971.jpgsave_picture_85971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85971.jpg" />
 </div>
 
 

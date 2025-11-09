@@ -6,7 +6,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14819.jpgsave_picture_14819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14819.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Parrot Timer / Кухонный таймер v2.9.0 Mod by Alex.Strannik [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14820.jpgsave_picture_14820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14820.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:93A21F85806387681BD33046A35FFA823DF871B7
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14821.jpgsave_picture_14821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14821.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ VA - National Pop Dance Music Vol.109 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14822.jpgsave_picture_14822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14822.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Way of the Hunter (2022) [Ru/Multi] (1.27/dlc) Repack seleZen [Ultimate Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14823.jpgsave_picture_14823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14823.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ VA - Compilation Part 167 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14824.jpgsave_picture_14824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14824.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14825.jpgsave_picture_14825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14825.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ VaporCam (90s) / 90-е - Глюк VHS Видеоэффекты v1.7.7 Mod by Ale
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14826.jpgsave_picture_14826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14826.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:58C54BCD8DDB661FC44EF82EC4FC8AF3FA0F2238
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14827.jpgsave_picture_14827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14827.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:58C54BCD8DDB661FC44EF82EC4FC8AF3FA0F2238
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14828.jpgsave_picture_14828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14828.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Shazam v15.26.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14829.jpgsave_picture_14829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14829.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ V.A. - Cafe del Mar Ibiza Chillout Mix VI (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14830.jpgsave_picture_14830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14830.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:EB44D489604182F35B946452451DB23EA3DB20D4
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14831.jpgsave_picture_14831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14831.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:04461CDE5B3E65CBBA9B05E60782203892159AAF
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14832.jpgsave_picture_14832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14832.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D20BEC710B46454C19DC9E73BFFE01E0CF29CB3E
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14833.jpgsave_picture_14833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14833.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:543854E6ECB398C930A147ECE9DD084922819178
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14834.jpgsave_picture_14834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14834.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Jigsawscapes® - Пазлы v4.0.2 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14835.jpgsave_picture_14835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14835.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - National Pop Dance Music Vol.107 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14836.jpgsave_picture_14836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14836.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.11.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14837.jpgsave_picture_14837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14837.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ magnet:?xt=urn:btih:229EB3C97FDCB1D168AA52C995AD63A00F11FA91
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14838.jpgsave_picture_14838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14838.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:A6E4C5484668E6415B90EFD59435252406394052
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14839.jpgsave_picture_14839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14839.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ magnet:?xt=urn:btih:AD49D9C485593BB14BDF5B4EEAA03C2CFFA0833B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14840.jpgsave_picture_14840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14840.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:0A3A0DDF5163806D2BAF87E66F3CA86B735CDA45
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14841.jpgsave_picture_14841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14841.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:EBCBEE15191A0C3934F5167061BC63C3B9B04F3B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14842.jpgsave_picture_14842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14842.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ WPS Office + PDF v18.18 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14843.jpgsave_picture_14843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14843.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Muviz Edge v2.0.4.0 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14844.jpgsave_picture_14844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14844.jpg" />
 </div>
 
 

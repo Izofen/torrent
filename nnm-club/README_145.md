@@ -6,7 +6,7 @@ Mindseye (2025) [Ru/Multi] (5302548/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3820.jpgsave_picture_3820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3820.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:2F71AD229A75B4537BFF1CB71FCFC6E22D9F3471
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3821.jpgsave_picture_3821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3821.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:6D60E8895370D90C01E210C718499B65AE6081EA
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3822.jpgsave_picture_3822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3822.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:22D32848A9D2DA9A7417151B437C4DEAD9005EF7
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3823.jpgsave_picture_3823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3823.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:0EF275FEBA190B800BE43B45BF4AEBA0818359B5
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3824.jpgsave_picture_3824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3824.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6A8384ACF941B2EA9EEC8921B6F3F632CA0D73D8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3825.jpgsave_picture_3825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3825.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:36B1F2F005BEE0A5A78C677F93B44C5ADFC7C389
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3826.jpgsave_picture_3826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3826.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:3B7AD757496548E7CCCEF13303B7EEB15F7E41E7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3827.jpgsave_picture_3827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3827.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:78988E14DC77D5A34E8241FAC8788EE32E335B0B
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3828.jpgsave_picture_3828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3828.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3829.jpgsave_picture_3829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3829.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:DA43EA89C635EB03C4D7D02DE09513AD684C4C76
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3830.jpgsave_picture_3830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3830.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:01C4D00150CA8CCD99BDD14967BDF385BC7A8788
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3831.jpgsave_picture_3831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3831.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:01C4D00150CA8CCD99BDD14967BDF385BC7A8788
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3832.jpgsave_picture_3832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3832.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ magnet:?xt=urn:btih:AEEBEEEB6E74E24F228023A709A295022F92D14B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3833.jpgsave_picture_3833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3833.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:B3B231A8F832D2269EDE3695AF77FB15640C25C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3834.jpgsave_picture_3834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3834.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:DD9EA3CD6F16A37921D77E34ED7AD95E54169808
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3835.jpgsave_picture_3835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3835.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:AD7353162E6BC58760ABCA3750E858208ADF8AF5
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3836.jpgsave_picture_3836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3836.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Гонка (07.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3837.jpgsave_picture_3837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3837.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ El Michels Affair - 24 Hr Sports (2025) [MP3|320 Kbps] <Progressive House, Downt
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3838.jpgsave_picture_3838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3838.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3839.jpgsave_picture_3839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3839.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:E4CFB8D57270E77BBB1E999829499A52913CC652
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3840.jpgsave_picture_3840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3840.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3841.jpgsave_picture_3841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3841.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:FF1597AAEC1325DE94C5007616A37596F94E594E
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3842.jpgsave_picture_3842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3842.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Faithless - Champion Sound (2025) [MP3|320 Kbps] <House, Trance, Trip-Hop>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3843.jpgsave_picture_3843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3843.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Faithless - All Blessed (2021) Deluxe - Explicit, 2021, BMG[FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3844.jpgsave_picture_3844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3844.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:EE4D0B054F781B087EDD50D20E65A2021A49D012
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3845.jpgsave_picture_3845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3845.jpg" />
 </div>
 
 

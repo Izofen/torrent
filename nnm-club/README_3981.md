@@ -6,7 +6,7 @@ Alai Oli - Снег и пепел, Volume 2: ТТП (2023) [MP3|320 Kbps] <Regga
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124032.jpgsave_picture_124032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124032.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E38F73B8109ADB6E6BD1D27ADCC9A444F687ED5C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124033.jpgsave_picture_124033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124033.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Atomic Freak - Nuclear Meltdown (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124034.jpgsave_picture_124034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124034.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:39CA247F811FE41D60AF32C11AC4271B96D1BF50
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124035.jpgsave_picture_124035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124035.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ magnet:?xt=urn:btih:B9549733CCDA7034C8ED2CED573CD27E155132C9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124036.jpgsave_picture_124036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124036.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - The Best Club Tracks 2024 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124037.jpgsave_picture_124037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124037.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PowerDirector – Video Editor v13.1.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124038.jpgsave_picture_124038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124038.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:258671166232429DA85E3C6FB44608BD30D98622
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124039.jpgsave_picture_124039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124039.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:934017EF05E38C95BB2353CB30DC4640B14513BE
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124040.jpgsave_picture_124040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124040.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:9136EE1201D25AC7D3BA83A5E1DC82B7D241B396
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124041.jpgsave_picture_124041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124041.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:74DD48D37BB989EAD9CFC35FF4C01ABCAC84981B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124042.jpgsave_picture_124042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124042.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124043.jpgsave_picture_124043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124043.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:2AC1EA4620A79A9A606C6D32BF0EA921323D711E
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124044.jpgsave_picture_124044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124044.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:2A2BBD076B01FE4AC57A50B464357445B89D04AF
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124045.jpgsave_picture_124045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124045.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:38DB671F18568F337C7DF06E4EB85986E103551A
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124046.jpgsave_picture_124046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124046.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:7766440F0BBF6452DBA45BF7DD60B6E71A84B002
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124047.jpgsave_picture_124047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124047.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Mursic - Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124048.jpgsave_picture_124048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124048.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Immortal Guardian - Unite and Conquer (2023) [FLAC|Lossless|WEB-DL|tracks] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124049.jpgsave_picture_124049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124049.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Isoo Fukui Quartet Featuring Kazuhiro Matsuishi - Sunrise / Sunset (1976) 2013, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124050.jpgsave_picture_124050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124050.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Krabathor - Orthodox & Mortal Memories (2014) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124051.jpgsave_picture_124051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124051.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:1D8C13BA693C2A2669CDE466C7747DA1FB6CF724
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124052.jpgsave_picture_124052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124052.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124053.jpgsave_picture_124053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124053.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ magnet:?xt=urn:btih:7DB44E315363A49B6D227BAFF5CC3EEEC28658E8
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124054.jpgsave_picture_124054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124054.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Music News vol.329 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124055.jpgsave_picture_124055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124055.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:68428B8FB55A15F2B4442138E37316649FCE0609
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124057.jpgsave_picture_124057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124057.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Privacy Eraser Free 6.2.2 Build 4820 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124058.jpgsave_picture_124058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124058.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Topaz Gigapixel AI 7.1.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59829.jpgsave_picture_59829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59829.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:FD37E3A8528629369A6E18EF3359B3BC613A2B52
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59830.jpgsave_picture_59830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59830.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:FD37E3A8528629369A6E18EF3359B3BC613A2B52
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59831.jpgsave_picture_59831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59831.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:DAEA1B06AE3A6B8E05EE0CE3793FD8F69F50087B
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59832.jpgsave_picture_59832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59832.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8363642E3EB6756EFEE06E0B141872E5D0103066
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59833.jpgsave_picture_59833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59833.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59834.jpgsave_picture_59834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59834.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59835.jpgsave_picture_59835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59835.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:F8741C4FB9A0ADE9C51DC04C086218152DB5506D
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59836.jpgsave_picture_59836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59836.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Turbo Kid (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59837.jpgsave_picture_59837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59837.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MythForce (2023) [Ru/Multi] (1.0.5.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59838.jpgsave_picture_59838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59838.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:B1622C261A33DDE24502A59DB0FC394C8603C628
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59839.jpgsave_picture_59839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59839.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Inkbound (2024) [Multi] (1.0.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59840.jpgsave_picture_59840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59840.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:DEF639125BDC92B07A17DB01563FB40AA42FD044
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59841.jpgsave_picture_59841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59841.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:AB531DF9D0D2BDEF8B2B1F8DC24AD2AF411E1583
 >>Медитации (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59842.jpgsave_picture_59842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59842.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft .Net Packages AIO 11.04.24 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59843.jpgsave_picture_59843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59843.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ NightFeed (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59844.jpgsave_picture_59844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59844.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:B3F5BC2A05300A9EC6D6B795C86554E176B271B6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59845.jpgsave_picture_59845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59845.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:9663A4876995CDBA853D44D56968D44C7B503051
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59846.jpgsave_picture_59846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59846.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Monsters Domain (2024) [Ru/Multi] (2.6.5) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59847.jpgsave_picture_59847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59847.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:047FF93D2B2D3D2AB60AC6B4982F85906323EDED
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59848.jpgsave_picture_59848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59848.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Chillout Sounds Scape (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59849.jpgsave_picture_59849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59849.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B27F86664E3DBADC4610A8DE919B4B01787B8C65
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59850.jpgsave_picture_59850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59850.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - House Beats Unlimited (2024) [MP3|320 Kbps] <Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59851.jpgsave_picture_59851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59851.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Trance Nation (2024) [MP3|320 Kbps] <Trance, Electro, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59852.jpgsave_picture_59852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59852.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Cx Проводник / Cx File Explorer 2.2.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59853.jpgsave_picture_59853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59853.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ magnet:?xt=urn:btih:D07AB65B28CD3E9786F9A87E579B0C2B6BE248A9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59854.jpgsave_picture_59854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_59854.jpg" />
 </div>
 
 

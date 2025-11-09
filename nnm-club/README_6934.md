@@ -6,7 +6,7 @@ FSNotes 6.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238083.jpgsave_picture_238083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238083.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B9C0CBE1BD551CDC537371C952E587E77573EF1A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238084.jpgsave_picture_238084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238084.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Martial Solal - The Vogue Recordings, Vol.2 (1955, 1956) 1993, Vogue [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238085.jpgsave_picture_238085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238085.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:97EAE5593168D3B6ADCD146F594E7376195AB6FC
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238086.jpgsave_picture_238086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238086.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:1303BE7DC8980CAD870DE3705DAC9055955118BA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238087.jpgsave_picture_238087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238087.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Vanguard - The Power That You Hold (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238088.jpgsave_picture_238088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238088.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:49161204E65D435D065C2F26F6032F0F5A7D150B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238089.jpgsave_picture_238089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238089.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Baardvader - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238090.jpgsave_picture_238090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238090.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:AE79E94D712B295BF810BC64D7B71C48DE94629C
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238091.jpgsave_picture_238091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238091.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Drama Noir - A Necromancy Lore (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238092.jpgsave_picture_238092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238092.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Buck Clayton - 1949 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238093.jpgsave_picture_238093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238093.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ magnet:?xt=urn:btih:16E2FC5AC791322234643167856B9ED33E8AA17E
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238094.jpgsave_picture_238094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238094.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Everyone Piano 2.5.5.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238095.jpgsave_picture_238095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238095.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:0096A62896B021089556D7B241C9FEF97AA935DC
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238096.jpgsave_picture_238096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238096.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:61D1C9945B244ADCB9C6E8050A5CCF4B949EB6F1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238097.jpgsave_picture_238097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238097.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:1668FB73766796F7D64EA3843934EC204969FFEB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238098.jpgsave_picture_238098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238098.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Disk Xray 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238099.jpgsave_picture_238099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238099.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Carrier Wave - Carrier Wave (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238100.jpgsave_picture_238100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238100.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Moho Pro 13.5.4 Build 20220425 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238101.jpgsave_picture_238101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238101.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:CDA244D661A8B09CA7294675ADE6348780D5411A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238102.jpgsave_picture_238102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238102.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:81433B80EC19BAB7F2D1BF4FA3D878BAE73B70B1
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238103.jpgsave_picture_238103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238103.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ GroupsPro 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238104.jpgsave_picture_238104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238104.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Loners - Отражения (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238105.jpgsave_picture_238105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238105.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ IObit Driver Booster Pro 10.4.0.127 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238106.jpgsave_picture_238106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238106.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:ADD546DAC9BAD594CFD91E82F79ECA90F9082DFF
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238107.jpgsave_picture_238107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238107.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:09D1CFB7CE84E3F0C332E6D3484744ECB48DB8A8
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238108.jpgsave_picture_238108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238108.jpg" />
 </div>
 
 

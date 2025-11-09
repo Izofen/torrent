@@ -6,7 +6,7 @@ DesktopDigitalClock 4.55 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235402.jpgsave_picture_235402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235402.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Ed Sheeran — «-» (Deluxe) (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Acoust
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235403.jpgsave_picture_235403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235403.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:49633819FAE8FF171A41380B09DD878FEB1A007B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235404.jpgsave_picture_235404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235404.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:FFD40BD13E0F889E09A355F09BBAA85C2543C6DA
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235405.jpgsave_picture_235405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235405.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ VA - Endless Sunset: Urban Chillout Music (2022) [AAC|~339 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235406.jpgsave_picture_235406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235406.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ This Is Falling - TIFwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235407.jpgsave_picture_235407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235407.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Leigh Neville | The SAS 1983–2014 (2016) [EPUB, PDF] [Elite #211] [EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235408.jpgsave_picture_235408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235408.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ HamaSaari - Ineffable (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235409.jpgsave_picture_235409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235409.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Il Paradiso Degli Orchi - Samir (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235410.jpgsave_picture_235410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235410.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ magnet:?xt=urn:btih:2593C6B46FA6D7B017015983265AD37DD1E16ED6
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235411.jpgsave_picture_235411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235411.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Glary Utilities Pro 5.205.0.234 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235412.jpgsave_picture_235412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235412.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Knights of Blood - El juicio de Osiris (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235413.jpgsave_picture_235413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235413.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:A6A28E90FE280F1020E2F72F98C6CC3AB3B21513
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235414.jpgsave_picture_235414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235414.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Sir Chloe - I Am The Dog (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235415.jpgsave_picture_235415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235415.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:33B7F48583B9AC41951BD4DC5D4CFF8EBACBEE09
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235416.jpgsave_picture_235416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235416.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ ApolloOne - Photo Video Viewer 3.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235417.jpgsave_picture_235417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235417.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ AllDup 4.5.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235418.jpgsave_picture_235418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235418.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Sonny Rollins - Jazz Profile (1956, 1957) 1998, Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235419.jpgsave_picture_235419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235419.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:AE53647442D9353467C2C80C6857F12854683911
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235420.jpgsave_picture_235420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235420.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ W.E.B - Jesus Heist (2008) [FLAC|Lossless|image + .cue] <Black Metal, Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235421.jpgsave_picture_235421.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235421.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:9C2E03B6ED92C4DE27752FA0FC6B6D67F9986AAC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235422.jpgsave_picture_235422.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235422.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ EFootball PES 2021 Season Update (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.03] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235423.jpgsave_picture_235423.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235423.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Great Voyager - Great Voyager (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235424.jpgsave_picture_235424.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235424.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ WinBin2Iso 6.11 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235425.jpgsave_picture_235425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_235425.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Lounge Tribute, Vol. 7 (2014) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235426.jpgsave_picture_235426.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235426.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Jake Fryer & Bud Shank Quintet - In Good Company (2009) 2011, Capri Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235427.jpgsave_picture_235427.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235427.jpg" />
 </div>
 
 

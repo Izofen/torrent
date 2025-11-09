@@ -6,7 +6,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251466.jpgsave_picture_251466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251466.jpg" />
 </div>
 
 

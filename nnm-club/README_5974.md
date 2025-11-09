@@ -6,7 +6,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.0.71 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188040.jpgsave_picture_188040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188040.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:25CF89533941AB4251A45B2DF39FD43569A90B4F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188041.jpgsave_picture_188041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188041.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:554AC7B535C0625EAAD0CFA1F476D007795EB6C3
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188042.jpgsave_picture_188042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188042.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:A1ED4590DA750E70C0C904C1BE804C8313041B27
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188043.jpgsave_picture_188043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188043.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C145B2B523BE298BC1C8F3F63E6575A2854B491E
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188044.jpgsave_picture_188044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188044.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:6A849A645E23B77CD8888D86B99C42BF3297CB5B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188045.jpgsave_picture_188045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188045.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:3779B994EC48F8D2D69CA3D150665E7359ADFEAD
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188046.jpgsave_picture_188046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188046.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:5CE9714727170BEBC0985FC20323F7C6ED15B9F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188047.jpgsave_picture_188047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188047.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Vince Watson - Another Moment In Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188048.jpgsave_picture_188048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188048.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:758182EE629613CBED3BF7AD9A1CB90F5629E63A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188049.jpgsave_picture_188049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188049.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:DE198F7F66BC98696C377DD3C9070D3CB8DACF7F
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188051.jpgsave_picture_188051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188051.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:540BB8BA18DBA2BE05E091A50109A33F30DAB5E8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188052.jpgsave_picture_188052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188052.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Triangolo - Triangolo (1979) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188053.jpgsave_picture_188053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188053.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Text Editor Pro 27.6.0 + Portable + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188054.jpgsave_picture_188054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188054.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:6891308FFC2362FF22FCD5A1C02CFD0A17E18BAB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188055.jpgsave_picture_188055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188055.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:4F08560CB26D9B72F92C1BEE443A98C0BB254827
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188056.jpgsave_picture_188056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188056.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:7E23D78D73A01DBA131640ED101D3171816CA6ED
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188057.jpgsave_picture_188057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188057.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:2FEABF18432E40EB52F4346BDA9B82FB340C58DD
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188058.jpgsave_picture_188058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188058.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:E8ABFC8071504D926B025EB50B4F2E3D91C1C644
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188059.jpgsave_picture_188059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188059.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:57DB8FE298583ECAF059F26D580E2D0F11166AA7
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188060.jpgsave_picture_188060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188060.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:6778AA31258E5424F780CC542812CD589AE03D5A
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188061.jpgsave_picture_188061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188061.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Aeveris - White Elephant (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188062.jpgsave_picture_188062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188062.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:982CD2472F5914FF422EE3090B0A7CBF0076560F
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188064.jpgsave_picture_188064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188064.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:EAE4223FD7F5F08006E7A32577C828F2171AA2B5
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188065.jpgsave_picture_188065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188065.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:BDE094E344CEB3CE7670BE367E7D22D020B3AE68
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188066.jpgsave_picture_188066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188066.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ magnet:?xt=urn:btih:ADF71C5BB5E8846A87BFCC8621B4F34545897013
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188067.jpgsave_picture_188067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188067.jpg" />
 </div>
 
 

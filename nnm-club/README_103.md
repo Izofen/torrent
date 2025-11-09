@@ -6,7 +6,7 @@ inZOI (2025) [Ru/Multi] (20250910.7320.W) Repack Wanterlude [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2715.jpgsave_picture_2715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2715.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:1BE28C988B87789A9E7670F52609321F5A85F71F
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2716.jpgsave_picture_2716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2716.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2717.jpgsave_picture_2717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2717.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:89D03F89230429B80D9B32CB97C6431AD235F246
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2718.jpgsave_picture_2718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2718.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.43050s/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2719.jpgsave_picture_2719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2719.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:10010A13E09C354123DF7E5047DB6E96586F5214
 >>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2720.jpgsave_picture_2720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2720.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ KeeperRL (2024) [En] (1.2.6) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2721.jpgsave_picture_2721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2721.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2722.jpgsave_picture_2722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2722.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:DDFCD1F99F1161025B54B71A56BBF0A263BF42E5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2723.jpgsave_picture_2723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2723.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:38F53206324117AEB10F874840E39A01080BC6AE
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2724.jpgsave_picture_2724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2724.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Elder Scrolls IV: Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc) Re
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2725.jpgsave_picture_2725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2725.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ magnet:?xt=urn:btih:F8ACBA3F9827DA4F7A442187753BF6C1F54A8AFA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2726.jpgsave_picture_2726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2726.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:3665A0C55FDD7C46B08C9F0B2912DCC2A560E2C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2727.jpgsave_picture_2727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2727.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:925231FEA13E1EE002D54C4E687F16425E68C55D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2728.jpgsave_picture_2728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2728.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Discovery. Великий замысел по Стивену Хокингу / St
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2729.jpgsave_picture_2729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2729.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Nevertel - Start Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2730.jpgsave_picture_2730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2730.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Starset - Silos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Metal, A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2731.jpgsave_picture_2731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2731.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Shame - Cutthroat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Post-Punk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2732.jpgsave_picture_2732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2732.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ The Matt Swanton Band - Growing Pains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2733.jpgsave_picture_2733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2733.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Nicolas Cage Fighter - I Watched You Burn (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2734.jpgsave_picture_2734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2734.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Vhäldemar - XX Anniversary - Live at BEC Barakaldo (2025) 2XCD, Japanese Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2735.jpgsave_picture_2735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2735.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:D5805098512B378814F550F748D0F92D43862CCE
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2736.jpgsave_picture_2736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2736.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:A9D844E7F05117B855A78CA3F5658FE62BC2FA80
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2737.jpgsave_picture_2737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2737.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Prospective - The Weight Of What I've Become (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2738.jpgsave_picture_2738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2738.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:633BB575ABEC4D4B73D5A122E5398B4E1B76CFE5
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2739.jpgsave_picture_2739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2739.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Willie Phoenix - Friends (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2740.jpgsave_picture_2740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2740.jpg" />
 </div>
 
 

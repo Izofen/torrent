@@ -6,7 +6,7 @@ The Haunted - Studio Albums (10 releases) (1998-2025) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15841.jpgsave_picture_15841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15841.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rivers of Nihil - Дискография (7 releases) (2010-2025) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16061.jpgsave_picture_16061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16061.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Cradle of Filth - Existence Is Futile (2021) [FLAC|24/192|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16141.jpgsave_picture_16141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16141.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Peter Bjargo (Bjärgö, Arcana, Onus) - Studio Albums (10 releases) (2005-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16142.jpgsave_picture_16142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16142.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16200.jpgsave_picture_16200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16200.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16201.jpgsave_picture_16201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16201.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16229.jpgsave_picture_16229.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16229.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16454.jpgsave_picture_16454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16454.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16721.jpgsave_picture_16721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16721.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16752.jpgsave_picture_16752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16752.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ W.A.S.P. - First Blood..Last Cuts (1993) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16753.jpgsave_picture_16753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16753.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16921.jpgsave_picture_16921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_16921.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:318497F6114A7D202D9D796F776F4AD04A8F687E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16971.jpgsave_picture_16971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16971.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17002.jpgsave_picture_17002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17002.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Jan Sparring/Nils-Borge Gardh/Linda Hutchens/Bobby Jones & New Life - Till 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17340.jpgsave_picture_17340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17340.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17341.jpgsave_picture_17341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17341.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17533.jpgsave_picture_17533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17533.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17669.jpgsave_picture_17669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17669.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:25D23E69C54D65E0269803C37953A0DA104B129D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18083.jpgsave_picture_18083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18083.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:DCD334B6E2FD61E022688C8968F04F3540EC0A9D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18300.jpgsave_picture_18300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18300.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ magnet:?xt=urn:btih:9C25E8FA7CFB40B6F550B304759B97904124627B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18393.jpgsave_picture_18393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18393.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18737.jpgsave_picture_18737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18737.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sleep Token - Studio Albums (6 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18739.jpgsave_picture_18739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18739.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Bad Boys Blue - The Fifth (1989) 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18767.jpgsave_picture_18767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18767.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18829.jpgsave_picture_18829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_18829.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19035.jpgsave_picture_19035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_19035.jpg" />
 </div>
 
 

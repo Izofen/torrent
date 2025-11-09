@@ -6,7 +6,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197186.jpgsave_picture_197186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197186.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (11394767) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197187.jpgsave_picture_197187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197187.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:ECE2B18C44759378E350A1B2843B9BCFD1EDFA3C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197188.jpgsave_picture_197188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197188.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ uTorrent Pro 3.6.0 Build 46822 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197189.jpgsave_picture_197189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197189.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:609F7A11BB1E05F5B68AB9A3D2AFE6915D5A427D
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197190.jpgsave_picture_197190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197190.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ John B - To Russia With Love (2008) [MP3|320 kbps]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197191.jpgsave_picture_197191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197191.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Angry Birds в кино / Angry Birds (2016 - 2019) BDRip [H.264/720p] [Дило
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197192.jpgsave_picture_197192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197192.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Garmin: Дороги России Топо 6.42 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197193.jpgsave_picture_197193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197193.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:F083AAC6B8424CAB6C4AEE2C209222245B75616A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197194.jpgsave_picture_197194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197194.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:826CA7F638084031D1CBD7E4660F46136B67C259
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197195.jpgsave_picture_197195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197195.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ VA - Музыка для машины Vol.25 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197196.jpgsave_picture_197196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197196.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ DJ Грув - Белый альбом (2007) [FLAC|946 kbps]<Electronic, Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197197.jpgsave_picture_197197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197197.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:4C45F1278EBCDF7706A2219FFA9F0FFC4DD63B06
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197198.jpgsave_picture_197198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197198.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:F9F72137B59941A7AB101AFDE090EFAE8CF95F17
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197200.jpgsave_picture_197200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197200.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Apeiron, Алексей Арестович | Семинар «Безжалост
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197201.jpgsave_picture_197201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197201.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:23AE726ABA19211C57B0F0685D78767F7F2AA210
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197202.jpgsave_picture_197202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197202.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:F0105879A158F77F3B909B51FF878AB6CB5C98FB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197203.jpgsave_picture_197203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197203.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.01.1279966) Scene Tenoke [Soundtr
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197205.jpgsave_picture_197205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197205.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ CUETools 2.2.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197206.jpgsave_picture_197206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197206.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:B17EB2F4FED18CA8E1396527DBD6A224CA9FDDFC
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197207.jpgsave_picture_197207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197207.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:DEF4BE418963CE7220AF82703EEAEE8F149F378D
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197208.jpgsave_picture_197208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197208.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:F45233A04368C92C7C99321B0B3E27F6CD2C78C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197209.jpgsave_picture_197209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197209.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Keyman 16.0.139 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197210.jpgsave_picture_197210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197210.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ PolskieCentrumKLD, Томаш Оманьски | Полный курс поль�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197211.jpgsave_picture_197211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197211.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:85524749B5A8989C70A1058DB85E2EE1AF0D0925
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197212.jpgsave_picture_197212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197212.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:8837B89C8CA16CB761680D8A6282AFA0AA5FE461
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197213.jpgsave_picture_197213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197213.jpg" />
 </div>
 
 

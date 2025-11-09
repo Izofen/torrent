@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172094.jpgsave_picture_172094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172094.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:62859EAFD7652C8FAF79BE2D52E40CF7FCD5A777
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172095.jpgsave_picture_172095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172095.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172096.jpgsave_picture_172096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172096.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ FBackup 9.8.826 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172097.jpgsave_picture_172097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172097.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Windows Firewall Control 6.9.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172098.jpgsave_picture_172098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172098.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ PDF Expert 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172099.jpgsave_picture_172099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172099.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ VA - Trance: The Vocal Session 2024 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172100.jpgsave_picture_172100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172100.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ XYplorer 25.00.0200 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172101.jpgsave_picture_172101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172101.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Radiant Photo 1.1.2.318 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172102.jpgsave_picture_172102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172102.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ The Haxans - The Dead And Restless (2023) [MP3|320 Kbps] <Alternative Rock, Goth
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172103.jpgsave_picture_172103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172103.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Zoner Photo Studio X 19.2309.2.501 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172104.jpgsave_picture_172104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172104.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Lost Engineer - Antigravity (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172105.jpgsave_picture_172105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172105.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Skype 8.106.0.212 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172106.jpgsave_picture_172106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172106.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ DirPrintOK 6.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172107.jpgsave_picture_172107.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172107.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:E0176F56011BA89744FF8012DE133F3D15EC705D
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172108.jpgsave_picture_172108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172108.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ LASCALA - LINEA (2023) Deluxe Edition [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172109.jpgsave_picture_172109.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172109.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:5A72244128243E7982FB254C7F9A5689A43FCEC8
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172110.jpgsave_picture_172110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172110.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Audio Hijack 4.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172111.jpgsave_picture_172111.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172111.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:D1E36A96A98158B7841889A3B0299B37A33674F9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172112.jpgsave_picture_172112.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172112.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172113.jpgsave_picture_172113.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172113.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Q-Dir 11.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172114.jpgsave_picture_172114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172114.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:645D2E01D7791B247B5045316898922D9B999551
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172115.jpgsave_picture_172115.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172115.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Volkor X - The Loop (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172116.jpgsave_picture_172116.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172116.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:32864DA596613BB80B12F0713DB5750890FF767C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172117.jpgsave_picture_172117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172117.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ doPDF 11.9.432 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172118.jpgsave_picture_172118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172118.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:8ECDD2C5E90D0B2882788D9D19622CB3C6DBC7DA
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172119.jpgsave_picture_172119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172119.jpg" />
 </div>
 
 

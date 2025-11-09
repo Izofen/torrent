@@ -6,7 +6,7 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130898.jpgsave_picture_130898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130898.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Santa Claus&Santa Girls. Super Collection Wallpapers (30.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130901.jpgsave_picture_130901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130901.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:5BC8CAC52F0A0AE0283D483036F73027D8EC2245
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130902.jpgsave_picture_130902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130902.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:25ED1724B37040F467573458B039EC75424A5DA7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130903.jpgsave_picture_130903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130903.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ SGS Battle For: Madrid (2023) [Ru/Multi] (23.11.29) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130904.jpgsave_picture_130904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130904.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ New year wallpapers 2013 (31.12.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130905.jpgsave_picture_130905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130905.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:F99E6B9F0AE2D446A165E7382BA1AE31FDFAD879
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130906.jpgsave_picture_130906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130906.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:F8BFB7C7C396B30FD93E2857D73AAAD3B36BC8B4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130907.jpgsave_picture_130907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130907.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:F8BFB7C7C396B30FD93E2857D73AAAD3B36BC8B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130908.jpgsave_picture_130908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130908.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Udemy, Aidan Perry | Unreal Engine: Ultimate Survival Horror Course (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130909.jpgsave_picture_130909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130909.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:26E68AAB2270DD6C1856F3996357C97B43F6C6DB
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130910.jpgsave_picture_130910.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130910.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ magnet:?xt=urn:btih:B7AE1301A39976BC76B533D01624BED38705F539
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130911.jpgsave_picture_130911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130911.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:872400B6EE254BA2A04C84B4C0A49402DEB3D9FE
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130912.jpgsave_picture_130912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130912.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:E3B94B9F119533B0C4B74869A74C3095EC77C2A4
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130913.jpgsave_picture_130913.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130913.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Hard Disk Sentinel PRO 6.10.7 Build 12918 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130915.jpgsave_picture_130915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130915.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:E2D04F82693E95D3C5E695D40F07285C9D3D30FC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130916.jpgsave_picture_130916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130916.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Humble Pie - 23 Albums, 2 Box Set (1969 - 2022) 43 CD [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130917.jpgsave_picture_130917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130917.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:243D765C0F07AC4F7E0C58F2CA78CF284B7181E9
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130918.jpgsave_picture_130918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130918.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130919.jpgsave_picture_130919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130919.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ David Hidalgo, Mato Nanji, Luther Dickinson - 3 Skulls And The Truth (2012) [FLA
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130920.jpgsave_picture_130920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130920.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ David Hidalgo, Mato Nanji, Luther Dickinson - 3 Skulls And The Truth (2012) [FLA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130921.jpgsave_picture_130921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130921.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Jools Holland & His Rhythm & Blues Orchestra -  3 Albums (2010-2012)  [MP3|320 �
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130922.jpgsave_picture_130922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130922.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ magnet:?xt=urn:btih:7BBDC7412BA576DA562E1B855516FD0B9F97FD93
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130923.jpgsave_picture_130923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130923.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ magnet:?xt=urn:btih:7BBDC7412BA576DA562E1B855516FD0B9F97FD93
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130925.jpgsave_picture_130925.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130925.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:259BB1831838058EC37DAB1DB5D49C8B1E300175
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130927.jpgsave_picture_130927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130927.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:259BB1831838058EC37DAB1DB5D49C8B1E300175
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130929.jpgsave_picture_130929.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130929.jpg" />
 </div>
 
 

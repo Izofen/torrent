@@ -6,7 +6,7 @@
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38939.jpgsave_picture_38939.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38939.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38940.jpgsave_picture_38940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38940.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:2653B98C6CB406524E441916B604D34D701326A6
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38941.jpgsave_picture_38941.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38941.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.3.7.0 + Portable (unofficial) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38942.jpgsave_picture_38942.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38942.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:7A6F058B8D9B8011CA4964C8C5427DE24C2EC9F1
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38943.jpgsave_picture_38943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38943.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Topaz Photo AI 3.3.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38944.jpgsave_picture_38944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38944.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:7B6A68A6A134D89144A1FE150D790AFCFF03022A
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38945.jpgsave_picture_38945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38945.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:9B44A45B29C04DEB71F91FA5EA583FD7DD5C2106
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38946.jpgsave_picture_38946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38946.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ TweakPower 2.064 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38947.jpgsave_picture_38947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38947.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:46E102183BFD977EC562150259A59C5CEA0F435A
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38948.jpgsave_picture_38948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38948.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:78AE21B80B78A7493E8F52F04D1CE724EF36859B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38949.jpgsave_picture_38949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38949.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ magnet:?xt=urn:btih:11F582AB6920EF705ED2A159BDF426EA408EBFF7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38950.jpgsave_picture_38950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38950.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:14C795CAD88D7C36C030870595E710844F2CF5C7
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38951.jpgsave_picture_38951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38951.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:6D226FB07120A0898D00EF25C08213400D004753
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38952.jpgsave_picture_38952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38952.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:D1D1B039023BB34ABC247CF53B7F5694796A5C98
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38953.jpgsave_picture_38953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38953.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:DCCEA10EF96F1B79D30F037A76314776D4587B46
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38954.jpgsave_picture_38954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38954.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Q: Загадка женщины / Q / Desire (2011) BDRip [H.264/1080p] [Handma
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38955.jpgsave_picture_38955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38955.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Adguard 7.19.0 (7.19.4853.0) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38956.jpgsave_picture_38956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38956.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:4F52D1A7465F4F75018FC85B9055473CE53CA7BA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38957.jpgsave_picture_38957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38957.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:E0AD801A166D48435DFCB2914303D57356F34048
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38958.jpgsave_picture_38958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38958.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:F616F800C6E29943F6492E06CF32D269EFF6FBD7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38959.jpgsave_picture_38959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38959.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Metallica Tributes Collection (20 releases) (1994-2021) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38960.jpgsave_picture_38960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38960.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:806683B9DE4FBA3C7A4B8A2AC9119D2370903A5F
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38961.jpgsave_picture_38961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38961.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:DA6636CEAE661422D0074B50315C2D0C1EAE44F2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38962.jpgsave_picture_38962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38962.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:DA6636CEAE661422D0074B50315C2D0C1EAE44F2
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38963.jpgsave_picture_38963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38963.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Caramba Switcher Corporate 2024.08.01 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38964.jpgsave_picture_38964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_38964.jpg" />
 </div>
 
 

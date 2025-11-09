@@ -6,7 +6,7 @@
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56371.jpgsave_picture_56371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56371.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9983BC512973E133D0555CD62C0EDDBA9DAF56F5
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56372.jpgsave_picture_56372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56372.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ AMD Radeon Software Adrenalin Edition 24.5.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56373.jpgsave_picture_56373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56373.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Google Chrome 125.0.6422.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56374.jpgsave_picture_56374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56374.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:85659C65DFEDC81CDFC9CCCFB3DD74329981C204
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56375.jpgsave_picture_56375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56375.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:2C8F93AAC2CBDEDF45497375C2200C658D8F7F2B
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56376.jpgsave_picture_56376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56376.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Memrise: говори на новом языке 2024.04.29.0 Mod by AppModz [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56377.jpgsave_picture_56377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56377.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:6849209E12C22BDA32605A6DABEE700B209322D2
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56378.jpgsave_picture_56378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56378.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:A2112FE582EBDA1819ECD5DB07C703AD333F3139
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56379.jpgsave_picture_56379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56379.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ ASAP Utilities for Excel 8.6 Home and Student [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56380.jpgsave_picture_56380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56380.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:2471DA62CFA8F355E3A489D7FB45871907DD9FBE
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56381.jpgsave_picture_56381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56381.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Zemskurs, Алексей Земсков | Замер и оцифровка кв�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56382.jpgsave_picture_56382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56382.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Capture One 23 Enterprise 16.4.1.2127 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56383.jpgsave_picture_56383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56383.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Smokie - 9 Albums, Box Sets, (1990-2002) 12CD [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56384.jpgsave_picture_56384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56384.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ MAGIX Vegas Pro 21.0 Build 314 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56385.jpgsave_picture_56385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56385.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ WinRAR 7.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56386.jpgsave_picture_56386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56386.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56387.jpgsave_picture_56387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56387.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ WiFi Analyzer v5.4 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56388.jpgsave_picture_56388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56388.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ magnet:?xt=urn:btih:C7BBAC417D0399ACC0E5A82DFE334F9A8A8DE6C7
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56389.jpgsave_picture_56389.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56389.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ magnet:?xt=urn:btih:87CABC91DE9C5325D0E11F0A5100190EEF82D667
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56390.jpgsave_picture_56390.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56390.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ magnet:?xt=urn:btih:0AEA6621BF22FA4E9C7CA1FF78B1A1E18096DBB5
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56391.jpgsave_picture_56391.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56391.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ WinRAR 7.01 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56392.jpgsave_picture_56392.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56392.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Windows Manager 2.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56393.jpgsave_picture_56393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56393.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:ED2DECEF7300EBBE013EEE66BC62D36EE5831535
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56394.jpgsave_picture_56394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56394.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ PicWish: AI Photo Editor v1.6.11 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56395.jpgsave_picture_56395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56395.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VueScan Pro 9.8.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56396.jpgsave_picture_56396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_56396.jpg" />
 </div>
 
 

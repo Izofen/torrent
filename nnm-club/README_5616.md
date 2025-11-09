@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173008.jpgsave_picture_173008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173008.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:1972E135250D76378D34B154F1F3247A5606C81F
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173009.jpgsave_picture_173009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173009.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Cosmic Gate - Live @ Rock Bar Bali Sunset Set, Indonesia (2023-10-06) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173010.jpgsave_picture_173010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173010.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Figura Autumn 2023 [MP3|320 Kbps] <Melodic House,Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173011.jpgsave_picture_173011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173011.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:D79A462ABCB8AF70BA034D3DE787433BDF9E9052
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173012.jpgsave_picture_173012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173012.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:7316427E0CEF55BE9380CEFD5BE3F28999612A5F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173013.jpgsave_picture_173013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173013.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:568F962DF07124799F6377A59CF2442312ADB474
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173014.jpgsave_picture_173014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173014.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:59935E6BFDD7345A8B5D49A2346D7B3B2894C526
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173015.jpgsave_picture_173015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173015.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Megadeth - Unplugged In Boston (2006) (Reissued-2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173016.jpgsave_picture_173016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173016.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Mitchell's Kiss Of The Gypsy - Unfinished Business (2022) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173017.jpgsave_picture_173017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173017.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Rian - Wings (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173018.jpgsave_picture_173018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173018.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Oni - The Silver Line (2023) [MP3|320 Kbps] <Progressive Metalcore, Djent>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173019.jpgsave_picture_173019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173019.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Bullet - Studio Albums (6 releases) (2006-2018) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173020.jpgsave_picture_173020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173020.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ The Lion's Daughter - Bath House (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173021.jpgsave_picture_173021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173021.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:F8A0EC3C888BD8E70D1616C4D70FE595D8058D07
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173022.jpgsave_picture_173022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173022.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Scrivener 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173023.jpgsave_picture_173023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173023.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:E2E4949FDA037D770A98A61D2CE1B49A9834EA80
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173024.jpgsave_picture_173024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173024.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ MotoGP. Этап 15. Гран-при Индонезии. Гонка (15.10.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173025.jpgsave_picture_173025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173025.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:8BAA743AC8D94D3420D44FDD78FFCFB8AE0FA18A
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173026.jpgsave_picture_173026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173026.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ SSH Config Editor Pro 2.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173027.jpgsave_picture_173027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173027.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:93368CC3B2B3660A0E4718257DF3F6F959EBC5CF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173028.jpgsave_picture_173028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173028.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Kent Hilli - Nothing Left To Lose (2023) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173029.jpgsave_picture_173029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173029.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ SПRUТ - Падая в небо (2023) [MP3|320 Kbps] <Nu Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173030.jpgsave_picture_173030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173030.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ magnet:?xt=urn:btih:1339E384B8E497BE7099804CD5FF74CD417230DD
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173031.jpgsave_picture_173031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173031.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Nitroverts - Endogenous (2023) 2CD, Deluxe Edition, FIXT [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173032.jpgsave_picture_173032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173032.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Arc Angel - Arc Angel (1983) Reissue, 2023, Bad Reputation [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173033.jpgsave_picture_173033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_173033.jpg" />
 </div>
 
 

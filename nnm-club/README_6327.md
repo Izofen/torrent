@@ -6,7 +6,7 @@ MAGIX Vegas Pro 20.0 Build 403 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198144.jpgsave_picture_198144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198144.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CF4E8E6E8AE4687CC2B0617D4F18E929C99DD2C4
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198145.jpgsave_picture_198145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198145.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:01C396B093D7FB155995ECE94852F945A78FD900
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198147.jpgsave_picture_198147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198147.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E7EC2B67BDBCE40EACCD0B7C83E9E8D5D6AB7349
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198148.jpgsave_picture_198148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198148.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ R-Studio Technician 9.2 Build 191153 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198149.jpgsave_picture_198149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198149.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:E4FEAE1C17B9975B491A707A3565E9C4658D8996
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198150.jpgsave_picture_198150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198150.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ OnlyStopWatch 6.16 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198151.jpgsave_picture_198151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198151.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:05B7F234FA0CB69CB08E9E1DBE3410B066F296C2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198153.jpgsave_picture_198153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198153.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:66C4374BB92C9B1C7FCBF6B29A1705A7C3A1B4A1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198154.jpgsave_picture_198154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198154.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:490F0B04D9E46516411E12AE9111AE9EE991C4AD
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198155.jpgsave_picture_198155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198155.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ magnet:?xt=urn:btih:371799BDB802CA253B5987A4C68004A802560D09
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198156.jpgsave_picture_198156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198156.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - The Hits Album - 80s Dance (2023) Box Set [MP3|320 Kbps] <Pop, Dance, Other
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198157.jpgsave_picture_198157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198157.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:60D8B2894C72CF9C2C03F57B21A6A075FCC84515
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198158.jpgsave_picture_198158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198158.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Balabolka 2.15.0.847 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198159.jpgsave_picture_198159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198159.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:F95F30C22F20AF430AED427551577A2853E10427
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198160.jpgsave_picture_198160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198160.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:567981689A46962131FC383E4489F3312E4F481B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198161.jpgsave_picture_198161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198161.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:E619D33F6D232C95BE5F9CDA2878A451455B7841
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198162.jpgsave_picture_198162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198162.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Ungoogled Chromium 113.0.5672.93-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198163.jpgsave_picture_198163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198163.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ The Gnomon Workshop, Alessandro Cangelosi | Natural Environment Creation Techniq
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198164.jpgsave_picture_198164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198164.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (1905) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198165.jpgsave_picture_198165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198165.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ My Train Arrives (2019) [Ru/Multi] (1.0/dlc) Scene TinyIso [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198166.jpgsave_picture_198166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198166.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Udemy | Библиотека курсов по Matlab (2022) [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198167.jpgsave_picture_198167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198167.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:BA4AC2D91B6D5436AC71AA3AC36BF1237B11F9B4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198169.jpgsave_picture_198169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198169.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Infliction: Extended Cut (2018) [Ru/Multi] (3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198170.jpgsave_picture_198170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198170.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:829B243370BA3A537A02E45C91572058BC093A7D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198172.jpgsave_picture_198172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198172.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ pixel.one | Создание 2D игр в Unity (2019) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198173.jpgsave_picture_198173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_198173.jpg" />
 </div>
 
 

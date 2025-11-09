@@ -6,7 +6,7 @@ XMind Pro 2024 24.03 beta [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119154.jpgsave_picture_119154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119154.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Garmin: City Navigator Thailand NT 2023.40 Globetech [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119155.jpgsave_picture_119155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119155.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:79542DE67127BAB01DC163B3F16BD6B1942382E6
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119156.jpgsave_picture_119156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119156.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:53C680A92CE81102AAC9F70A69318DDF21C9DCE7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119157.jpgsave_picture_119157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119157.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A4C3E05ECD0CC590B74C02D4B2B7C2F86BE8A31C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119158.jpgsave_picture_119158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119158.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Glarysoft Malware Hunter PRO 1.179.0.799 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119159.jpgsave_picture_119159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119159.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B7CC8E92B71720A8CCEEF97332D66845A0F40BA5
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119160.jpgsave_picture_119160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119160.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Reg Organizer 9.40 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119161.jpgsave_picture_119161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119161.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ DJ BoBo - Greatest Hits (2006) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119162.jpgsave_picture_119162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119162.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Compilation Electronic part 51 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119163.jpgsave_picture_119163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119163.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:451FC2F5BE070120AA97012DA95D818A9E958F2F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119164.jpgsave_picture_119164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119164.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:FD115747E36B6D619B0BCAA10A689CFC4C35F0B1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119165.jpgsave_picture_119165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119165.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:FEE4C726600296B36EBCA0549E4785FB2BB26377
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119166.jpgsave_picture_119166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119166.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Metallica - Master Of Puppets (1986) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119167.jpgsave_picture_119167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119167.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:4C431658C7F81E53F5A7B5F275546BC0B0334311
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119168.jpgsave_picture_119168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119168.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sumatra PDF 3.6.15949 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119169.jpgsave_picture_119169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119169.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:3E172135126894E9A08634586835E22F9417D200
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119170.jpgsave_picture_119170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119170.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:840A67BFEDC1C884FE1EC0165B49F619C7B4BC6A
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119171.jpgsave_picture_119171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119171.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:C1E6BD470B4671E4C8AAA3127E853CCD9C6E6C36
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119172.jpgsave_picture_119172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119172.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:A8EA3A1CC9B67C892EA589ACB029F288C8DA817C
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119173.jpgsave_picture_119173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119173.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:9BFB49C4F9C1AC7E571ABE3982DF6D05BC4103EF
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119174.jpgsave_picture_119174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119174.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:6310EC8FFA309E8F05EC22469D5C3260B4C22652
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119175.jpgsave_picture_119175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119175.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:B321B08336219E56042C2F4D16ED84C791EDE1A0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119176.jpgsave_picture_119176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119176.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:71421A4446FEF11DC87C91FE5D8DCC59C6ADB80D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119177.jpgsave_picture_119177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119177.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:74BA8BD394410D2B497B7792B91C6EDFFEB7EEB8
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119178.jpgsave_picture_119178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119178.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Universal USB Installer 2.0.2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119179.jpgsave_picture_119179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119179.jpg" />
 </div>
 
 

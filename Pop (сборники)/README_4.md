@@ -6,7 +6,7 @@ VA - Zumba Dance 2011 (2011) [MP3|~ 256 кб/с]<Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82210.jpgsave_picture_82210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82210.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ VA - Асса! Танцуют Все! (2012) [MP3|192-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82850.jpgsave_picture_82850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_82850.jpg" />
 </div>
 
 
@@ -72,7 +72,7 @@ VA - Russian Pop music (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83055.jpgsave_picture_83055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83055.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ VA - Лучшие из Лучших. Русские Хиты (2012) [MP3|256 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83059.jpgsave_picture_83059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83059.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Горячий Союз Русский (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83211.jpgsave_picture_83211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83211.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Танцевальный топ радиостанций Зарубежны
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83218.jpgsave_picture_83218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83218.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - XXXL Популярный 50/50 Весна (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83629.jpgsave_picture_83629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83629.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Лучший Русский Хит (2012) [MP3|128-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83633.jpgsave_picture_83633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83633.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Лучшие Из Лучших Зарубежный №19 (2012) [MP3|256 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83652.jpgsave_picture_83652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83652.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Убойные весенние хиты (2012) [MP3|256кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83856.jpgsave_picture_83856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83856.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - I Love ZYX Italo Disco Collection Vol.1-13 (2002-2012) [MP3|320 кб/с]<Di
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84378.jpgsave_picture_84378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84378.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Здравствуйте, гости! (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84460.jpgsave_picture_84460.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84460.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Весенний муз-отрыв радио Record 6 (2012) [MP3|192 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84464.jpgsave_picture_84464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84464.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Двигай попой! Full Collection (1996-2006) [MP3|128 ~ 320 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84602.jpgsave_picture_84602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84602.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Europa Plus: Бомба хит 2 50/50 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84640.jpgsave_picture_84640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84640.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - XXXL Золотые 80-е Зарубежный (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84919.jpgsave_picture_84919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84919.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - Вечеринка В Стиле Руки Вверх! 8 (2012) [MP3|192-320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85516.jpgsave_picture_85516.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85516.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Популярная поп музыка (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85525.jpgsave_picture_85525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85525.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85877.jpgsave_picture_85877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85877.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - Дискотека Бездна Original 50/50 vol. 3 (2012) [MP3|128-320 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85891.jpgsave_picture_85891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85891.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Хиты Авторадио Русский №20 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86158.jpgsave_picture_86158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86158.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Французская музыка в подарок (2012) [MP3|256 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86428.jpgsave_picture_86428.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86428.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ VA - Звездная 200-ка (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86491.jpgsave_picture_86491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86491.jpg" />
 </div>
 
 
@@ -769,7 +769,7 @@ VA - Любимые весенние хиты (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86502.jpgsave_picture_86502.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86502.jpg" />
 </div>
 
 
@@ -802,7 +802,7 @@ VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86636.jpgsave_picture_86636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86636.jpg" />
 </div>
 
 
@@ -835,7 +835,7 @@ VA - Super Italo Disco (2012) [MP3|128 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87301.jpgsave_picture_87301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87301.jpg" />
 </div>
 
 

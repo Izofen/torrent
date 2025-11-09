@@ -6,7 +6,7 @@ TerraTime v2.7.3 - Виртуальная Земля с часовыми поя�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90736.jpgsave_picture_90736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90736.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ TerraTime v2.7.3 - Виртуальная Земля с часовыми поя�
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90738.jpgsave_picture_90738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90738.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Spyro Gyra - 5 Albums (2001 - 2007) [DTS 5.1|(SACD-Rip) tracks]<Jazz fusion, Smo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90739.jpgsave_picture_90739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90739.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Песни и Музыка Для Малышей (2008) [MP3|192 kbps]<Де
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90741.jpgsave_picture_90741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90741.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ magnet:?xt=urn:btih:2E8D87FC074E682A29AB70B90AFB3EB18551BA5D
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90743.jpgsave_picture_90743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90743.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:2E8D87FC074E682A29AB70B90AFB3EB18551BA5D
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90746.jpgsave_picture_90746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90746.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:E12FA1EB235452889F0294ABB31A0034010EAB77
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90747.jpgsave_picture_90747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90747.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:E12FA1EB235452889F0294ABB31A0034010EAB77
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90748.jpgsave_picture_90748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90748.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:E12FA1EB235452889F0294ABB31A0034010EAB77
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90751.jpgsave_picture_90751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90751.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:E12FA1EB235452889F0294ABB31A0034010EAB77
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90753.jpgsave_picture_90753.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90753.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ FreeBSD 8.3 [i386] (1xDVD+1xCD+LiveFS+USB IMG+BootOnly)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90754.jpgsave_picture_90754.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90754.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ FreeBSD 8.3 [amd64] (1xDVD+1xCD+LiveFS+USB IMG+BootOnly)
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90757.jpgsave_picture_90757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90757.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ FreeBSD является очень удобной платформой для �
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90759.jpgsave_picture_90759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90759.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ magnet:?xt=urn:btih:2DCEA988BA705FBF65FDCD4BC8EDAA31A894E3AA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90760.jpgsave_picture_90760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90760.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ClearOS Community 6.2 [i386 + x86-64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90761.jpgsave_picture_90761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90761.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:2FE5152750BCCD1D16CEB437D43FF6C89DF2996C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90762.jpgsave_picture_90762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90762.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ magnet:?xt=urn:btih:2FE5152750BCCD1D16CEB437D43FF6C89DF2996C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90763.jpgsave_picture_90763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90763.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ CorelDRAW Graphics Suite X6 16.0.0.707 [Английский + Русский] b
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90766.jpgsave_picture_90766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90766.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ CorelDRAW Graphics Suite X6 16.0.0.707 [Английский + Русский] b
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90767.jpgsave_picture_90767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90767.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Assassin's Creed Director's Cut Edition [Ru] (RePack/1.02) 2008 | SHARINGAN
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90769.jpgsave_picture_90769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90769.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Walking Dead: Episode 1 [En] (L) 2012 l RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90770.jpgsave_picture_90770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90770.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:253C3880240A5E377ED7A853C4BEEF19F780F5F3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90774.jpgsave_picture_90774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90774.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:253C3880240A5E377ED7A853C4BEEF19F780F5F3
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90775.jpgsave_picture_90775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90775.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:05208572DFEEBA7896E351EC6906B51A7EF2A9D7
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90779.jpgsave_picture_90779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90779.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Revo Uninstaller PRO 2.5.8 RePack (& Portable) by KpoJIuk [Мульти, ест�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90780.jpgsave_picture_90780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90780.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ BioShock [Native] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90781.jpgsave_picture_90781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_90781.jpg" />
 </div>
 
 

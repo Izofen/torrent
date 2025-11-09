@@ -6,7 +6,7 @@ Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1774.jpgsave_picture_1774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1774.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1778.jpgsave_picture_1778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1778.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1780.jpgsave_picture_1780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1780.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1781.jpgsave_picture_1781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1781.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1782.jpgsave_picture_1782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1782.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1790.jpgsave_picture_1790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1790.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sarah McLachlan - Better Broken (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1791.jpgsave_picture_1791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1791.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nine Inch Nails - TRON: Ares (2025) Original Motion Picture Soundtrack [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1843.jpgsave_picture_1843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1843.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (No Narration) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1946.jpgsave_picture_1946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1946.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1950.jpgsave_picture_1950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1950.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1962.jpgsave_picture_1962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1962.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1963.jpgsave_picture_1963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1963.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Paradise Lost - Ascension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1982.jpgsave_picture_1982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1982.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1988.jpgsave_picture_1988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1988.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Novembers Doom - Studio Albums (12 releases) (1995-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1995.jpgsave_picture_1995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1995.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ I Prevail - Studio Albums (5 releases) (2014-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2007.jpgsave_picture_2007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2007.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Zaz - Sains et saufs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2017.jpgsave_picture_2017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2017.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Paradise Lost - Studio Albums (18 releases) (1990-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2110.jpgsave_picture_2110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2110.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Booze & Glory - Whiskey Tango Foxtrot (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2134.jpgsave_picture_2134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2134.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Rinrin - The Nut House (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2136.jpgsave_picture_2136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2136.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Sfinx - Feral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2139.jpgsave_picture_2139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2139.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Infektum - Schicksal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2140.jpgsave_picture_2140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2140.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2141.jpgsave_picture_2141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2141.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2144.jpgsave_picture_2144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2144.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Exelerate - Hell For The Helpless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2145.jpgsave_picture_2145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2145.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Parcels - Loved (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop, Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2290.jpgsave_picture_2290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2290.jpg" />
 </div>
 
 

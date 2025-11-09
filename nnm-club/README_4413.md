@@ -6,7 +6,7 @@ Wondershare Filmora 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137869.jpgsave_picture_137869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137869.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:69C3D08238DF9070B699E39CDA9DF6C1ED333257
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137870.jpgsave_picture_137870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137870.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:25A5572544876B2CB542A40BA8FE68C44FC54C18
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137871.jpgsave_picture_137871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137871.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Klaus Wunderlich - Wunderlich Pops 7 (1978) LP [MP3|320 Kbps] <Easy Listening, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137872.jpgsave_picture_137872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137872.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:2E748D98FFAE0D041F09AC647E9D25783B663D76
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137873.jpgsave_picture_137873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137873.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137875.jpgsave_picture_137875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137875.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137876.jpgsave_picture_137876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137876.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Paul Carrack - These Days (2018) Mike & The Mechanics [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137877.jpgsave_picture_137877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137877.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ magnet:?xt=urn:btih:8E72897333C6DEA7FF4FAEA4447ECDFC48EB5498
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137878.jpgsave_picture_137878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137878.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Multi Commander Full Edition 9.5 Build 2570 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137879.jpgsave_picture_137879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137879.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:31766E19C8825D1711BA9609041ABAA7F610B315
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137880.jpgsave_picture_137880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137880.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Roland Romanelli - Compilation (2019) [MP3|320 Kbps] <Instrumental,  Electronic>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137881.jpgsave_picture_137881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137881.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:66350EF4D5393A8D8802D1C567604C76245C755C
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137882.jpgsave_picture_137882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137882.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Classic Car Dance Hits 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137883.jpgsave_picture_137883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137883.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:9B06CB69CA40B32C035DF7FAFEE486B16E2D24E0
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137884.jpgsave_picture_137884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137884.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137886.jpgsave_picture_137886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137886.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Camel - Discography: 37 аlbums, 70 CD (1973-2019) [FLAC|Lossless|image + .cue |
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137887.jpgsave_picture_137887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137887.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:CBB97C5DB441BC98F419C1A138FF69DD2C068769
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137888.jpgsave_picture_137888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137888.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F70D09131026B3944AD8BC370711FF752C8DE7C2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137889.jpgsave_picture_137889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137889.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:85D6C601EEA5E5FE92F45B920FFAC435A53CC9FD
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137890.jpgsave_picture_137890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137890.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VA - Новогодний Топ 100 От Зайцев.Нет (2015) [MP3|191 - 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137891.jpgsave_picture_137891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137891.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Toro y Moi - Outer Peace (2019) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie Pop,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137892.jpgsave_picture_137892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137892.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:A9EC386872AB93F2C6AE705806E66CAD453AA143
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137894.jpgsave_picture_137894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137894.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Comedy Woman. Новогодний выпуск  (2015.12.31) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137895.jpgsave_picture_137895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137895.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:DB578E315A0D8F24B2381161BE6F263825ED72E9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137896.jpgsave_picture_137896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137896.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ magnet:?xt=urn:btih:ED189163A529269378D24503009069B8727ADFB7
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137897.jpgsave_picture_137897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137897.jpg" />
 </div>
 
 

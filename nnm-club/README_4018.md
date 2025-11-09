@@ -6,7 +6,7 @@ VA - Extend The 80s Electro (2018) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125027.jpgsave_picture_125027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125027.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:554ADC8E45ECEA4C668ABB1610893174E6DED552
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125028.jpgsave_picture_125028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125028.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:534EA5D09F19E836D41697E0D7CA69DBF3BDD982
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125029.jpgsave_picture_125029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125029.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Vladi Strecker - Compilation (2023) [MP3|320 Kbps] <Smooth Jazz, Chillout, Downt
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125030.jpgsave_picture_125030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125030.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:843AE5FA80DD37BF2949E548FC4612B0000EFDA3
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125031.jpgsave_picture_125031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125031.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:616727F3429EFEFDF3E493EE5A3883851FC4DE25
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125032.jpgsave_picture_125032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125032.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:564053DAB6C0A3BC001B94FC8F4502261B251A1F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125033.jpgsave_picture_125033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125033.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:24390805AE369D7DBB37B5272B6A215CF2290C83
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125034.jpgsave_picture_125034.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125034.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:5338727498491ED05E3102F5E1E70DEB5C75C828
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125035.jpgsave_picture_125035.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125035.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:4B2ACC0692CF223252C2AA2A53401651826B0990
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125036.jpgsave_picture_125036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125036.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:4DD2D8D25736241275AB64373B9088DE0A8CE24A
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125037.jpgsave_picture_125037.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125037.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ magnet:?xt=urn:btih:074D3FB93CB2D5BFF0946CB7058AEE261754B7C6
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125038.jpgsave_picture_125038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125038.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:697D1F18BB0A1B73117ED99204FE61C3ACCE9295
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125039.jpgsave_picture_125039.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125039.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Confetti's - Greatest Hits (2001) [OGG Vorbis|480 Kbps] <Electronic, New Beat, A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125040.jpgsave_picture_125040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125040.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:38103ED13A4C30F2E90E335C7C8F43CCFD181E34
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125041.jpgsave_picture_125041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125041.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:EFB3C85F303BB3C67CDAC64567112A698002E949
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125042.jpgsave_picture_125042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125042.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:A2E20098F9D97542AC7E2A7128773D6420C986F0
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125043.jpgsave_picture_125043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125043.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Ubuntu Junior cube r 1.4 (На основе Ubuntu 10.04) 1.4 [x86] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125044.jpgsave_picture_125044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125044.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125045.jpgsave_picture_125045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125045.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:CE3035BDF9F7357190C37FA16E67DD32509DC92E
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125046.jpgsave_picture_125046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125046.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:6D5D17CDCFACBFF79C8D1AB92A233BF824E19440
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125047.jpgsave_picture_125047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125047.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - 101 90s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125048.jpgsave_picture_125048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125048.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Eguana - Echo (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Lounge>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125049.jpgsave_picture_125049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125049.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Udemy, Jeremy Hazel | Affinity Designer - Design artistic text and Create Fonts 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125050.jpgsave_picture_125050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125050.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ magnet:?xt=urn:btih:54E752CD5FF5A7CA5460DA2F12EF94312451BAB7
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125051.jpgsave_picture_125051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125051.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ magnet:?xt=urn:btih:3E209097D8DE66FC5C84661F9C20C9FE8CC2A1B3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125052.jpgsave_picture_125052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125052.jpg" />
 </div>
 
 

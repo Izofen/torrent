@@ -6,7 +6,7 @@ Kruger - Aes Triplex (2023) 3xCD, Compilation, Deluxe Edition, Limited Edition [
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68848.jpgsave_picture_68848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68848.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:7187585C85C98158294AC3D3856F1002A2D404C5
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68884.jpgsave_picture_68884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68884.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:1499266CF78CFA0E594AA24E886C47AEEB41C4F4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69027.jpgsave_picture_69027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69027.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:DA638A35670E34B4C9BFB70DF755465FEC2E1ED4
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69161.jpgsave_picture_69161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69161.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:C5D8FB32B096BC8E1E9DB2392D750B4E70C3CE08
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69188.jpgsave_picture_69188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69188.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ magnet:?xt=urn:btih:2B7736D50DA6F86B356CA64F02738AE308590B4C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69189.jpgsave_picture_69189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69189.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:E06F17DFA3F2875CBA0879E4BFB1940CB0B54DD6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69445.jpgsave_picture_69445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69445.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Hamer - Бивни (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69501.jpgsave_picture_69501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69501.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:77559D4FC567901A49EC4CE76B22B1703FCE2A0F
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69869.jpgsave_picture_69869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69869.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ magnet:?xt=urn:btih:9BFEE97C5A7BA357C2045C1F32412E3644EB0408
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70386.jpgsave_picture_70386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70386.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Terrain! - Богемные лица (2025) [FLAC|Lossless|WEB-DL|tracks] <Rapco
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71108.jpgsave_picture_71108.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71108.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ The Parallels - Эдем (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71257.jpgsave_picture_71257.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71257.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Protester - Непокорённым (2025) [FLAC|Lossless|WEB-DL|tracks] <punk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71258.jpgsave_picture_71258.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71258.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:E4977E3B08144032F8082CB491442F23E75DE7DB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71312.jpgsave_picture_71312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71312.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:69680487F14CF52BD1D9DDDA8CCFAFF9611A1681
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71396.jpgsave_picture_71396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71396.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ magnet:?xt=urn:btih:07C4B31680F1719C7E68DCC9650C876F3D7905BF
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71674.jpgsave_picture_71674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71674.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Druknroll - My Dark Desires (2023) [FLAC|Lossless|image + .cue] <Groove Metal, M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71708.jpgsave_picture_71708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71708.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Wolf Rahm - Фольклорище (2014) [FLAC|Lossless|image + .cue] <Folk Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71877.jpgsave_picture_71877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71877.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Aillion - Война Миров (2015) [FLAC|Lossless|tracks] <Melodic Heavy Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71970.jpgsave_picture_71970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71970.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:7EC642B9C0AFF7D41551C52E5E1A918022769448
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73977.jpgsave_picture_73977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_73977.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:7EC642B9C0AFF7D41551C52E5E1A918022769448
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74456.jpgsave_picture_74456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_74456.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:7EC642B9C0AFF7D41551C52E5E1A918022769448
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75383.jpgsave_picture_75383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75383.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Discogs(   Читать дальше...   )CD 1:
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75459.jpgsave_picture_75459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75459.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Discogs(   Читать дальше...   )CD 1:
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76237.jpgsave_picture_76237.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76237.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Discogs(   Читать дальше...   )CD 1:
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76252.jpgsave_picture_76252.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_76252.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Discogs(   Читать дальше...   )CD 1:
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77317.jpgsave_picture_77317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_77317.jpg" />
 </div>
 
 

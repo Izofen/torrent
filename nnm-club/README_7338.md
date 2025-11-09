@@ -6,7 +6,7 @@ Photo Slideshow Creator 3.0 Portable by Boomer [Английский/Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250943.jpgsave_picture_250943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250943.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Photo Slideshow Creator - представляет собой удобный и�
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250944.jpgsave_picture_250944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250944.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:F1B74A04771DA1FD1FF005BF617F34F3085AAE2F
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250945.jpgsave_picture_250945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250945.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:87766EC910D009A29EDD488C6E90D01BB36BF271
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250947.jpgsave_picture_250947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250947.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:8D9EE12EED8CAA02CE4139475362221A9B319081
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250949.jpgsave_picture_250949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250949.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:77E51644920FDBB1D6A2B0F770A937608DD7F7CE
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250950.jpgsave_picture_250950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250950.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:70C3E52AB41A79A8A45D2032FC38AAD13E673347
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250951.jpgsave_picture_250951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250951.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:70C3E52AB41A79A8A45D2032FC38AAD13E673347
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250952.jpgsave_picture_250952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250952.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AM 1984 - Star Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250953.jpgsave_picture_250953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250953.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - No name compilation (2025) [MP3|320 Kbps] <Electronic, Easy listening, Inst
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250955.jpgsave_picture_250955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250955.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - EDC Orlando 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250957.jpgsave_picture_250957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250957.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Morgan Luna - Compilation (2025) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250959.jpgsave_picture_250959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250959.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ VA - Инструментальная музыка (2012) vol. № 34 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250960.jpgsave_picture_250960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250960.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ AM 1984 - Best Of Remixes & Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250962.jpgsave_picture_250962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250962.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:AEB914BCE4C25D993E2971615CCB914ABC1A05E7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250964.jpgsave_picture_250964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250964.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250966.jpgsave_picture_250966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250966.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ TrueDO, Александра Катайцева | Продвинутая быт�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250967.jpgsave_picture_250967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250967.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:7AD97C660EAE71A6C3635E915BB52B6521BA8C88
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250968.jpgsave_picture_250968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250968.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:DD1DFAC2057706C5D573ED3E50E51ADE5380A7A2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250970.jpgsave_picture_250970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250970.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250972.jpgsave_picture_250972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250972.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:3414CDB0D79E5DFC88426208B4A141C15EC9B121
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250973.jpgsave_picture_250973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250973.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:F637DF08E0C0F7B4949A0439D583641FF10CDE48
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250974.jpgsave_picture_250974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250974.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:58FC6061A8302D590C756A94EA64102794049DE8
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250975.jpgsave_picture_250975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250975.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ magnet:?xt=urn:btih:C7CF16BF67266ECD510E17866E0818DEF498275C
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250977.jpgsave_picture_250977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250977.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ TrueDO, Александра Катайцева | Основы бытовой р
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250978.jpgsave_picture_250978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250978.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:32F4BEE53871FF25558FBCA166B3F9CEA7092A76
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250979.jpgsave_picture_250979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_250979.jpg" />
 </div>
 
 

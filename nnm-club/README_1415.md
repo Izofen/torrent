@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37145.jpgsave_picture_37145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37145.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:13ED82BB4A1C5CFE834E9FDFAFEB91D8AC750B32
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37146.jpgsave_picture_37146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37146.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 11 24H2 (26100.2314) (x64) by Sergei Strelec [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37147.jpgsave_picture_37147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37147.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:327A5DD4EE7EDDF80FA68CC2EFD740E1CDF0F3CB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37148.jpgsave_picture_37148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37148.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ YTDisBystro (универсальная сборка на основе Zapret) 2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37149.jpgsave_picture_37149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37149.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37150.jpgsave_picture_37150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37150.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:490DF352D6BAA16CA906DA65A7423979C71CE47F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37151.jpgsave_picture_37151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37151.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Warcraft II (2): Remastered (2024) [Ru/Multi] (1.0.0.2157) Scene Razor1911
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37152.jpgsave_picture_37152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37152.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.4b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37153.jpgsave_picture_37153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37153.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:67CA663E4A059EF33BE310DB666BFA8BE8735FA5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37154.jpgsave_picture_37154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37154.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:ED4BEE0A48D402F775F68829EFFCF8C63ACA2D97
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37155.jpgsave_picture_37155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37155.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Hiddify 2.5.7 Pre-release + portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37156.jpgsave_picture_37156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37156.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:4610A5FD204F67013ACBBA78F2613CEDEFD21143
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37157.jpgsave_picture_37157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37157.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:EE217B341087D5A31A2CC4640FD5BE62876A6040
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37158.jpgsave_picture_37158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37158.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:6B344BA4EEF89E93274C018198F8749F70188736
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37159.jpgsave_picture_37159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37159.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:3005B0D5ECC21DE205E06053A7AE3572247D0146
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37160.jpgsave_picture_37160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37160.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:13B2885BD4E604D34FAAE2936C19D6EEEA236321
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37161.jpgsave_picture_37161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37161.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Gori: Cuddly Carnage (2024) [Multi] (1.0.187/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37162.jpgsave_picture_37162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37162.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:265CB5E2FDEE2A406F587D8B12652860E5BCD12B
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37163.jpgsave_picture_37163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37163.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VideoShow VIP v10.2.5.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37164.jpgsave_picture_37164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37164.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ PowerDirector – Video Editor v14.6.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37165.jpgsave_picture_37165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37165.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Jerry Cantrell (Alice in Chains) - 5 Albums (1998-2024) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37166.jpgsave_picture_37166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37166.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:3E8EE82F32872A9D2D406612D664B209EA900FC9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37167.jpgsave_picture_37167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37167.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:7F4197B8C268A2FAE4DF236240094B12F6B07EC4
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37168.jpgsave_picture_37168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37168.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйве�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37169.jpgsave_picture_37169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37169.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Black Hole Trance Music 11-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37170.jpgsave_picture_37170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37170.jpg" />
 </div>
 
 

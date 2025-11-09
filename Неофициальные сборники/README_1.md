@@ -6,7 +6,7 @@ VA - Anything and everything assorted (2025) [MP3|320 Kbps] <Electronic, Easy li
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2338.jpgsave_picture_2338.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2338.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - National Pop Dance Music Vol.120 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2485.jpgsave_picture_2485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2485.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2612.jpgsave_picture_2612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2612.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Compilation Part 192 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2613.jpgsave_picture_2613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2613.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Compilation Part 194 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2616.jpgsave_picture_2616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2616.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2618.jpgsave_picture_2618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2618.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Compilation Part 191 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2619.jpgsave_picture_2619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2619.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Compilation Part 190 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2620.jpgsave_picture_2620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2620.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Musical kaleidoscope part 53 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2622.jpgsave_picture_2622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2622.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Alex Christensen - Compilation (2025) [MP3|320 Kbps] <Instrumental, Vocal, Other
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2624.jpgsave_picture_2624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2624.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Compilation Part 193 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2625.jpgsave_picture_2625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2625.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2630.jpgsave_picture_2630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2630.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Elvis Presley - Compilation (1956-2003) [MP3|320 Kbps] <Rock & Roll, Rockabilly,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2635.jpgsave_picture_2635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2635.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2644.jpgsave_picture_2644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2644.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2646.jpgsave_picture_2646.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2646.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2647.jpgsave_picture_2647.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2647.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2666.jpgsave_picture_2666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2666.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Record Super Chart 13.09.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2785.jpgsave_picture_2785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2785.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Club Beats (2025) [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2992.jpgsave_picture_2992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_2992.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Xezzo - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3149.jpgsave_picture_3149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3149.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Anna Zueva - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3180.jpgsave_picture_3180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3180.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Night Rider 9 (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3199.jpgsave_picture_3199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3199.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3309.jpgsave_picture_3309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3309.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Summer Pop Show (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3337.jpgsave_picture_3337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3337.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Xezzo - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3347.jpgsave_picture_3347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3347.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Music News For Forum vol.134 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3471.jpgsave_picture_3471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3471.jpg" />
 </div>
 
 

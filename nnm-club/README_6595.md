@@ -6,7 +6,7 @@ Imminent Reign - The Legend of Prometheus (2023) [MP3|320 Kbps] <Epic Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211575.jpgsave_picture_211575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211575.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:CCFF1F6F75FC2E1EEEFD93B076F13263232CF2F9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211577.jpgsave_picture_211577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211577.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ CCleaner 6.13.10517 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211579.jpgsave_picture_211579.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211579.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:1C1468838C5042B7F752E34B62CFA4A4A0E4991D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211580.jpgsave_picture_211580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211580.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ HitPaw Video Enhancer for Mac 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211582.jpgsave_picture_211582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211582.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ HitPaw Photo Object Remover for Mac 1.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211585.jpgsave_picture_211585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211585.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Royal Romances 3: The Power of Chosen One (2023) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211588.jpgsave_picture_211588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211588.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Hellstorm - Into the Mouth of the Dead Reign (2012) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211591.jpgsave_picture_211591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211591.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ NetLimiter 5.2.6.0 (x64) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211593.jpgsave_picture_211593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211593.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ K-Lite Codec Pack Update 17.6.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211595.jpgsave_picture_211595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211595.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Q-Dir 11.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211597.jpgsave_picture_211597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211597.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:B7336B60B568E8D443F35388DB45AAB73975C547
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211600.jpgsave_picture_211600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211600.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ magnet:?xt=urn:btih:F8AED790AB949DCC115F5A20DB27D38969CDDDD4
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211603.jpgsave_picture_211603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211603.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:3C80379B84609F3B23ABD177278A05124576AFC1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211606.jpgsave_picture_211606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211606.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ KMPlayer 4.2.2.78 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211609.jpgsave_picture_211609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211609.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:8B08928040E26F71EC15D01D5C0C2729F186B42C
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211610.jpgsave_picture_211610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211610.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Электро Индустрия (Д​о​н​б​а​с​с) (2015-
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211612.jpgsave_picture_211612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211612.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:87F4EC3DB4D4F81DF0F54D896E5F2418E4614FD6
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211614.jpgsave_picture_211614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211614.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ New Baccara - Fun (1990) 2023 Reissue, Remastered [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211615.jpgsave_picture_211615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211615.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:FB562C1B38F464BA3A6EFFCE66962ACB8A61FD2D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211617.jpgsave_picture_211617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211617.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:DEC9CAE409C59889B51C443FE28BCCD7E9E73294
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211619.jpgsave_picture_211619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211619.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Discovery: Махинаторы / Wheeler Dealers (2023) WEBRip [H.264/1080p] (�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211622.jpgsave_picture_211622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211622.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ CCleaner 6.13.10517 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211624.jpgsave_picture_211624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211624.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Vector | Совершенный (Книга 2). Призрак (2022) [MP3, Па
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211626.jpgsave_picture_211626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211626.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:0F0E5D1789884D9E05F61CB745D27FDCC562CA67
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211627.jpgsave_picture_211627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211627.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Artefactoschool, Любовь Титова | Реалистичные котик
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211628.jpgsave_picture_211628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211628.jpg" />
 </div>
 
 

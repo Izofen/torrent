@@ -6,7 +6,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160165.jpgsave_picture_160165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160165.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.1.2 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160166.jpgsave_picture_160166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160166.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ Toby Lee - Icons, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160167.jpgsave_picture_160167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160167.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ FotoJet Designer 1.2.9 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160168.jpgsave_picture_160168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160168.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:802095DB30A008F544720419DCEC147BC74AAC13
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160169.jpgsave_picture_160169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160169.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Vintage Cafe, Romantic Sax Instrumentals, Smooth Jazz Sax Instrumentals - Sexy R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160170.jpgsave_picture_160170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160170.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Sula Bassana - Nostalgia (2022) [MP3|320 Kbps] <Heavy Psych, Space, Kraut>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160171.jpgsave_picture_160171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160171.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:6029114D9F645E7AFADF22C6A2EF2EF932CCC790
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160172.jpgsave_picture_160172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160172.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:8EB39A0265A4CC956B0093243C1A9735C6C39ECF
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160173.jpgsave_picture_160173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160173.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:7ADA5A66259AADA5FAAF4C40C6B0D5BA21624A5A
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160174.jpgsave_picture_160174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160174.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ DiskDigger 1.83.67.3467 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160175.jpgsave_picture_160175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160175.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ OnlySwitch 2.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160176.jpgsave_picture_160176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160176.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:9BD6E9B7166D78C22FF3DB17A8094675270BE5CC
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160177.jpgsave_picture_160177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160177.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ BLOF - 30 (We Doen Wat We Kunnen) (2022) 3xCD, Compilation [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160178.jpgsave_picture_160178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160178.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Gothic Sky - П​о​с​л​е​д​н​и​е С​л​о​в​а �
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160179.jpgsave_picture_160179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160179.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:344FC7B8756F835F4A789BB3508F66721E6ACC1A
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160180.jpgsave_picture_160180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160180.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VideoProc Converter 4K 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160181.jpgsave_picture_160181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160181.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ magnet:?xt=urn:btih:E8BA7B5A786FA9CD1F2008F4B432A424293098F7
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160182.jpgsave_picture_160182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160182.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ magnet:?xt=urn:btih:B424BC55B3EFA9814726B5E7AC4D33817BBC8FF6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160183.jpgsave_picture_160183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160183.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ OmniFocus Pro 3.14.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160184.jpgsave_picture_160184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160184.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ TunesKit Screen Recorder 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160185.jpgsave_picture_160185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160185.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Windows Update Viewer 0.5.25.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160186.jpgsave_picture_160186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160186.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ iStatistica 6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160187.jpgsave_picture_160187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160187.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Electronic compilation part 39 (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160188.jpgsave_picture_160188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160188.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160189.jpgsave_picture_160189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160189.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Topaz Video AI 4.0.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160190.jpgsave_picture_160190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160190.jpg" />
 </div>
 
 

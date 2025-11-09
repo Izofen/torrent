@@ -6,7 +6,7 @@ Various - Ronnie James Dio - This Is Your Life (2014) Japanese Edition, Compilat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69130.jpgsave_picture_69130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69130.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Stryper - Fallen (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69140.jpgsave_picture_69140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69140.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Parabellum - Behold a Pale Horse (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69145.jpgsave_picture_69145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69145.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tiktaalika - Gods of Pangaea (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69146.jpgsave_picture_69146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69146.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ An Evening With Knives - End of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69147.jpgsave_picture_69147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69147.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Balance Breach - Save Our Souls (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69148.jpgsave_picture_69148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69148.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ magnet:?xt=urn:btih:B8ADF9A2A9B06EBD7F3F3EBECEB511F148C39804
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69161.jpgsave_picture_69161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69161.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tokyo Blade - Time Is the Fire (2025) [FLAC|Lossless|image + .cue] <NWOBHM, Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69165.jpgsave_picture_69165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69165.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Imminence - The Return of The Black (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69168.jpgsave_picture_69168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69168.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Helloween - Unarmed - Best Of 25th Anniversary (2009) Japanese Edition, Limited 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69181.jpgsave_picture_69181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69181.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:FB3CE77286D2F616FE9C16D060548E224F1CA628
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69188.jpgsave_picture_69188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69188.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ magnet:?xt=urn:btih:2B7736D50DA6F86B356CA64F02738AE308590B4C
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69189.jpgsave_picture_69189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69189.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ AC/DC - The Fly Is Rockin' (2010) 2 x CD, Limited Edition, Numbered [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69192.jpgsave_picture_69192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69192.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Vermilia - Karsikko (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Pagan, Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69207.jpgsave_picture_69207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69207.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Malevolent Hand - Entropic Immolation (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69209.jpgsave_picture_69209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69209.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Katrina - Amor Vampírico (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69219.jpgsave_picture_69219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69219.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Erocis - The Sunken Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69222.jpgsave_picture_69222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69222.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Rioghan - Kept (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69223.jpgsave_picture_69223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69223.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Himmelkraft - Himmelkraft (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69228.jpgsave_picture_69228.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69228.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ben Lloyd - Leave No Stone Unturned (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69232.jpgsave_picture_69232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69232.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Riot - Archives Volume 4 : 1988-1989 (2019) Compilation [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69233.jpgsave_picture_69233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69233.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dorothy - THE WAY (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69241.jpgsave_picture_69241.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69241.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Opertus - Golden Shade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69249.jpgsave_picture_69249.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69249.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Esto si es rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69251.jpgsave_picture_69251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69251.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Dirkschneider - Balls to the Wall Reloaded (2025) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69261.jpgsave_picture_69261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69261.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Soulspell - Spirits of Ghosts (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69271.jpgsave_picture_69271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69271.jpg" />
 </div>
 
 

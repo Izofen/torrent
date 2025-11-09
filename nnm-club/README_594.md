@@ -6,7 +6,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15755.jpgsave_picture_15755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15755.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:5F5887FDF201D2B07BAD42BAC05A6A8570536EF6
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15756.jpgsave_picture_15756.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15756.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ TikTok Private Plus v40.3.5 Mod by TikTok + Plugin Update 2.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15757.jpgsave_picture_15757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15757.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:A16F2E6D4F0728E0503214327C333357F5F408EA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15758.jpgsave_picture_15758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15758.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:8686B807B2CE3AC87796D6F0C2FF4E9F8B9E541B
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15759.jpgsave_picture_15759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15759.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15760.jpgsave_picture_15760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15760.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ V.A. - Pop International Hits Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15761.jpgsave_picture_15761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15761.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:CEE290B5633A5C9580069780F074206E5D6CDBF6
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15762.jpgsave_picture_15762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15762.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:8B9A1273F2FE1A4F125A28811732D162F13C5BEB
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15763.jpgsave_picture_15763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15763.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:21AA0E50C8933D56CD62C0357E6FDFF8552E547D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15764.jpgsave_picture_15764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15764.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Translate AI - Camera & Voice v2.0.6 Mod by papasha55 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15765.jpgsave_picture_15765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15765.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ FurMark 2.8.2.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15766.jpgsave_picture_15766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15766.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:F07BB28CBDF722A80EFD06605DB1E4AFCBD9C245
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15767.jpgsave_picture_15767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15767.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ PotPlayer 250529 (1.7.22548) Beta (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15768.jpgsave_picture_15768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15768.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:2C3BF20295E64AE320C138ED103D7DE3A133DCD5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15769.jpgsave_picture_15769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15769.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ magnet:?xt=urn:btih:9EF99607A73047BDDEABBE088BBD4D0993A8A389
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15770.jpgsave_picture_15770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15770.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ magnet:?xt=urn:btih:5425641AC60D25EA45DD05E44020EF372E0F5DA3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15771.jpgsave_picture_15771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15771.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Udemy, Sam Parulekar | Learning AutoCAD 2026 (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15772.jpgsave_picture_15772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15772.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:95086721B58F30A7FBE29E4686BFB5A1E396BF43
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15773.jpgsave_picture_15773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15773.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Gekijouban Overlord: Sei Oukoku Hen | Overlord: The Sacred Kingdom | Повел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15774.jpgsave_picture_15774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15774.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:399E719892E8F98B784AA22412493E1E01D5976C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15775.jpgsave_picture_15775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15775.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:B9D465E1F627AB62F6EF2D2883F81C757993E4C1
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15776.jpgsave_picture_15776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15776.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ IObit Driver Booster Pro 12.5.0.597 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15777.jpgsave_picture_15777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15777.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:E7E6101CC41BB1B72B8B2D1083A0F56E5A577E0A
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15778.jpgsave_picture_15778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15778.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ TechSmith Camtasia 25.1.2 Build 9686 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15779.jpgsave_picture_15779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15779.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:774FE17FB929683155ACB75E60D2DD93DB78C2E0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15780.jpgsave_picture_15780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15780.jpg" />
 </div>
 
 

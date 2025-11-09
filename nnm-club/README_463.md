@@ -6,7 +6,7 @@
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12280.jpgsave_picture_12280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12280.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:311D49AD2D7DE0CF2C985E71DA36BB128F43F6BD
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12281.jpgsave_picture_12281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12281.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:1BCDAF420E9694C25DF057739AD590DAB13A392A
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12282.jpgsave_picture_12282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12282.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ V-Ray 7.00.40 for Blender 4.2-4.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12283.jpgsave_picture_12283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12283.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ MeeGo OS 1.2 [i386] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12284.jpgsave_picture_12284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12284.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:53EB002EB1EF5EA6B859BE583AA309F9CE425C27
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12285.jpgsave_picture_12285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12285.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:BD2F06185B79AEC91D8A7F0D8D7478CF180212F8
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12286.jpgsave_picture_12286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12286.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ BubbleGame v1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12287.jpgsave_picture_12287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12287.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:E0D61D6198927F6502D6C7AE4D6C21F46F16E01F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12288.jpgsave_picture_12288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12288.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:1560A7CA60D3FD3055D2B6AB19C51974650173EC
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12289.jpgsave_picture_12289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12289.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:6903DD14F57E89F41ADA5D63235DFFDD49BA86BB
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12290.jpgsave_picture_12290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12290.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.5.1.712/dlc) Repack West4it
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12291.jpgsave_picture_12291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12291.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Launcher for zapret 2.8 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12292.jpgsave_picture_12292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12292.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:71A609D05DD4293280AB576064B86EA59602B638
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12293.jpgsave_picture_12293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12293.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Blindside Blues Band/Mike Onesko Project - 23 Albums (1993 - 2025) [FLAC|Lossles
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12294.jpgsave_picture_12294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12294.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:1420E03D433404F70D5D8F2515E257811812F516
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12295.jpgsave_picture_12295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12295.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Railway Empire 2 (2023) [Ru/Multi] (64144 114/dlc) License GOG [Digital Deluxe E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12296.jpgsave_picture_12296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12296.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:F25D5BA8C1879BB0218FBB9EDBACF212FE0BC25A
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12297.jpgsave_picture_12297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12297.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:9872F20649D1B647EEA911AC477A29FD0131061D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12298.jpgsave_picture_12298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12298.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.6) Repack Let'sРlay [The Complete Col
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12299.jpgsave_picture_12299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12299.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Eternal Strands (2025) [Multi] (1.0.14.1638) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12300.jpgsave_picture_12300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12300.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:6BA2C261D364645F27F4CEA1F5BE06372C39D768
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12301.jpgsave_picture_12301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12301.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Grimstar: Crystals are the New Oil! (2025) [Ru/Multi] (1.6.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12302.jpgsave_picture_12302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12302.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:62251A5F32DC8A8C9F19264BFA61CB1162C086E8
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12303.jpgsave_picture_12303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12303.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ magnet:?xt=urn:btih:A7259D407FE1D7A71F7EF5975D27F4950F8B3D78
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12304.jpgsave_picture_12304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12304.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ magnet:?xt=urn:btih:F3CCD44EEAE4C526269553AE0FC4E356A7702AF6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12305.jpgsave_picture_12305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12305.jpg" />
 </div>
 
 

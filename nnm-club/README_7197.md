@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246078.jpgsave_picture_246078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246078.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F2D3369DB9E8E390FA9E66F49F84698F0782FC05
 >>Историческая проза, Мифы и Легенды
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246079.jpgsave_picture_246079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246079.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVD9 480p raw+
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246080.jpgsave_picture_246080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246080.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:2E3B60DB0CE4EC66785DF9D953750879FC7B3E34
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246081.jpgsave_picture_246081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246081.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Ori Uplift - Uplifting Only Episode 664 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246082.jpgsave_picture_246082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246082.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:34E9BA2BEC22CDE9FF353A338DA2DBC2EDE27119
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246083.jpgsave_picture_246083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246083.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:AF917106214EF5DD9A2FB9C01118E808C4B73E3D
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246084.jpgsave_picture_246084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246084.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E08B8364C718905EED2871B2D5B539A504DF5260
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246085.jpgsave_picture_246085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246085.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ magnet:?xt=urn:btih:7A9722C9CBF27207548AB1DADB7C7A1784574C5C
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246086.jpgsave_picture_246086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246086.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:751196465467981DCB4D58C4ED72604C093D962E
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246087.jpgsave_picture_246087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246087.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Chicago Blues Radio - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246088.jpgsave_picture_246088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246088.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Anna Zueva - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246089.jpgsave_picture_246089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246089.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Chicago Blues Radio - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246090.jpgsave_picture_246090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246090.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:DD629A376500A328E4C8C5DAC7D8B1B950321F35
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246091.jpgsave_picture_246091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246091.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Chicago Blues Radio - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246092.jpgsave_picture_246092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246092.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Ibiza Winter Session 2026 (The Tech House Rockets) (2025) [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246093.jpgsave_picture_246093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246093.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:789ED9118BEF4E15D8246F08975890AB9E19E076
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246094.jpgsave_picture_246094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246094.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:7D053BAE8B79C9B355C7B742CFF941E631B2FB07
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246095.jpgsave_picture_246095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246095.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F9312A9EC4DD2A8F8AF0C2A58D5FCA1A4CDF036F
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246096.jpgsave_picture_246096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246096.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:A1AE4D7767C029917677E8870F1FB4AF55974C80
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246097.jpgsave_picture_246097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246097.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Sybreed - 5 Albums, 3 EP (2004-2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246098.jpgsave_picture_246098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246098.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVDRemux 480p 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246099.jpgsave_picture_246099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246099.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ magnet:?xt=urn:btih:4B58541B2F3F62C7F4E5F37241BB8CE8BB7D9F21
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246100.jpgsave_picture_246100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246100.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ magnet:?xt=urn:btih:5094D5CB812F4C4083D6B3AA69C43D8818F2550A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246101.jpgsave_picture_246101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246101.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:2D50D1553FE2EFBC1D7D74C802EA954E86E6F1DA
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246102.jpgsave_picture_246102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246102.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Armin van Buuren - A State Of Trance 1249 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246103.jpgsave_picture_246103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246103.jpg" />
 </div>
 
 

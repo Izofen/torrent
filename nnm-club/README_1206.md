@@ -6,7 +6,7 @@ Project Tower (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31711.jpgsave_picture_31711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31711.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack FitGirl 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31712.jpgsave_picture_31712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31712.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:A9154E52E835B89043CD5FDFAAD3008D1987A44C
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31713.jpgsave_picture_31713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31713.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:5CA932612AE6F9BBDA2060A669A0B217BD97B688
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31714.jpgsave_picture_31714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31714.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:491CAA3E5BD97262DC6F950815CE0453646901A5
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31715.jpgsave_picture_31715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31715.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ VA - The Very Best Of Vocal Trance (2014) [MP3|320 кб/с]<Trance, Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31716.jpgsave_picture_31716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31716.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Fast Video Cutter Joiner 6.3.0.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31717.jpgsave_picture_31717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31717.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Bobina - Speed Breaker (2016) [MP3|320 кб/с] <Progressive Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31718.jpgsave_picture_31718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31718.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Priest Simulator: Vampire Show (2022) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31719.jpgsave_picture_31719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31719.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:90D6CC1EFFB2B4F902FC09C3EF666A91074371AD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31720.jpgsave_picture_31720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31720.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:42D189F92B2699819127E47CFF0021208B93EBDB
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31721.jpgsave_picture_31721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31721.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:67B19C65DCECCB82E5F72B178DE1A53E60C79669
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31722.jpgsave_picture_31722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31722.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Vocal Trance Hits 2015-02 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31723.jpgsave_picture_31723.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31723.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:B2810102C450DA58DB4107FF9A0838F43800C53F
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31724.jpgsave_picture_31724.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31724.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:7AC54E7423A35E4817A8D2737E5CD11722B06984
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31725.jpgsave_picture_31725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31725.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:0FEDF7E4C3291BA74F0F3C0523E625610E89E089
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31726.jpgsave_picture_31726.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31726.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:C285F2EA983DC42147620A14673FC98D7F1FA7A3
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31727.jpgsave_picture_31727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31727.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31728.jpgsave_picture_31728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31728.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31729.jpgsave_picture_31729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31729.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:4B0E010C3600810413CA15CE3EC825E92EF03674
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31730.jpgsave_picture_31730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31730.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31731.jpgsave_picture_31731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31731.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:C747864E995B719E623D8442F34D7BE9B21FE182
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31732.jpgsave_picture_31732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31732.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:37E320D615B07A371A4E6BA0EB71EDFF98234FFA
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31733.jpgsave_picture_31733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31733.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:C2406AFDA7F19A04BD0232B716F1C9E84EBC48DE
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31734.jpgsave_picture_31734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31734.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ magnet:?xt=urn:btih:6C3DA813A796542BB1C1DBC82EC250FC9430D7A6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31735.jpgsave_picture_31735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31735.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Didier Marouani & Space  - New Collection (2009) [MP3|320 кб/с]<Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31736.jpgsave_picture_31736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_31736.jpg" />
 </div>
 
 

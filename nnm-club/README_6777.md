@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233275.jpgsave_picture_233275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233275.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ The Flaming Lips - Zaireeka (1997) 4CD Deluxe, Warner Records Inc., 2023 [FLAC|2
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233276.jpgsave_picture_233276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233276.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Lounge Tribute, Vol. 5 (2010) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233277.jpgsave_picture_233277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233277.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:D22794621F4EC510339F90FFD4464E3DE98A1E8B
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233279.jpgsave_picture_233279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233279.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:BC67832BE1D7B91ADCD969A6ECCDB186E0FCDEB3
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233280.jpgsave_picture_233280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233280.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:46D0C8D22934A8CCA905A47FBACB25D1760CFD27
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233281.jpgsave_picture_233281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233281.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Edenbridge - 3 Albums (2019-2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocals
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233282.jpgsave_picture_233282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233282.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Sovrag - Perfect Form from Chaos Born (2023) [FLAC|Lossless|WEB-DL|tracks] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233283.jpgsave_picture_233283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233283.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Multitouch 1.26.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233284.jpgsave_picture_233284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233284.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ magnet:?xt=urn:btih:19CA3487AD38A9551ECB4604B419F63F4AD184B8
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233286.jpgsave_picture_233286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233286.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:640516CB2D7BB27CC8477EF209E0F7EEAD005027
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233287.jpgsave_picture_233287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233287.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ DEX v.6.0.0.0 (2015) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233288.jpgsave_picture_233288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233288.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:A695F6F24918821ABADCA887909F78468E77E80D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233289.jpgsave_picture_233289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233289.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Eassiy Android Data Recovery for Mac 5.1.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233290.jpgsave_picture_233290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233290.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Kenny Barron & Mulgrew Miller - The Art of Piano Duo: Live (2005, 2011) 3CD, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233291.jpgsave_picture_233291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233291.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:B17F184530307032C7501009C61D6D0E0250227D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233292.jpgsave_picture_233292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233292.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233293.jpgsave_picture_233293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233293.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:3DB80FDEEB56126548B3881A060A570B9A3E646D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233294.jpgsave_picture_233294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233294.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ magnet:?xt=urn:btih:44CB40CD518BE7B1D314ACA28A2FF75E3B0C9358
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233295.jpgsave_picture_233295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233295.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Udemy, Lindsay Marsh | Graphic Design Masterclass - Learn GREAT Design (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233297.jpgsave_picture_233297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233297.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Big Big Train - Ingenious Devices (2023) [MP3|320 Kbps] <Crossover Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233298.jpgsave_picture_233298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233298.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:322D07557D58B02774DA08F27B9D6C3ED744F97C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233299.jpgsave_picture_233299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233299.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:95BC16EDAA76E4769BF3D135D2D76CE431C6D30C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233300.jpgsave_picture_233300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233300.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:DBF654F0730AFE10AB7B0859A8423EBC8DD372D8
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233301.jpgsave_picture_233301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_233301.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Aura - Underwater (2022) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233302.jpgsave_picture_233302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_233302.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:7829F0A20646F88D7E72573F06BAB347E5778A6C
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233303.jpgsave_picture_233303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_233303.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117069.jpgsave_picture_117069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117069.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:512315E5FE5EAC22BF1F2C3CB772E0C7C905EB61
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117070.jpgsave_picture_117070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117070.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Subtronics - Tesseract (2024) [FLAC|Lossless|WEB-DL|tracks] <Dirty Dubstep, Trap
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117071.jpgsave_picture_117071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117071.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Rock Hits - women and men who know how to rock - 2024 (2024) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117072.jpgsave_picture_117072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117072.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:18D2E1BF34CD0E22819E206025701C9426144FF1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117073.jpgsave_picture_117073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117073.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:9F3F7E1678F96694D7F920F4A6E50A8336871119
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117074.jpgsave_picture_117074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117074.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ Blooming Discord - Memories From The Future (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117075.jpgsave_picture_117075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117075.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:E9FE4A61419A5046BF5D0BAAA359BFC57E798FDD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117076.jpgsave_picture_117076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117076.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117077.jpgsave_picture_117077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117077.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Boris Blank(Yello) - Resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, El
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117078.jpgsave_picture_117078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117078.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ DICE | Артбук по игре Battlefield V / The Art of Battlefield V (2018
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117079.jpgsave_picture_117079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117079.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:F36BAC9A18C0595543037BAD2DF349A302137AD1
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117080.jpgsave_picture_117080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117080.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:6C2FD9C9F46665D62DAFC1E363C14748C44B1655
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117081.jpgsave_picture_117081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117081.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ DICE | Артбук по игре Battlefield 3 / Battlefield 3 - Premium Concep
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117082.jpgsave_picture_117082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117082.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ magnet:?xt=urn:btih:F2A86FB8B8AEC87A712222E7441D379DB99C5665
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117083.jpgsave_picture_117083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117083.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Plus Messenger (Telegram+) v10.6.4.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117084.jpgsave_picture_117084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117084.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Sense Flip Clock & Weather v6.51.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117085.jpgsave_picture_117085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117085.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ magnet:?xt=urn:btih:B77AE030133E279C39BD1874EB934252506E3213
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117086.jpgsave_picture_117086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117086.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:A1E7316CCD0648A5089A67F54FCA6A1687A33C41
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117087.jpgsave_picture_117087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117087.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - 100% Rock - Rock Hits - From Classic Rock to Metal (2024) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117088.jpgsave_picture_117088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117088.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:B172B924AEED44AE189C02875A86B7C24B8465CB
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117089.jpgsave_picture_117089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117089.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ DesktopDigitalClock 5.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117090.jpgsave_picture_117090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117090.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:14DD6518C52C5C15DAECC92DF787B7FC7E3D9CB2
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117091.jpgsave_picture_117091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117091.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:3CCCB42DEF5CA9A90E772127282C48015EE28ABE
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117092.jpgsave_picture_117092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117092.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Devious Machines - Everything Bundle 02.2024 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117093.jpgsave_picture_117093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117093.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Astrological Charts / Астрологические Карты Pro v10.5.1 [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117094.jpgsave_picture_117094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117094.jpg" />
 </div>
 
 

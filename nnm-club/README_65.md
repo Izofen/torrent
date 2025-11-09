@@ -6,7 +6,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1727.jpgsave_picture_1727.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1727.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4DE93D47DC7623D5F6379B03771598CDBFC963E7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1728.jpgsave_picture_1728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1728.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ SCP: 5K / SCP: Pandemic (2022) [Multi] (0.17.0.154) Repack Pioneer [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1729.jpgsave_picture_1729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1729.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8BC0DB7410D0276DE8ACF792464575A7E6D65582
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1730.jpgsave_picture_1730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1730.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ RoadCraft (2025) [Ru/Multi] (4.0.526486 526543/dlc) Repack FitGirl [Rebuild Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1731.jpgsave_picture_1731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1731.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:AFA10C267CB4D1E5CB98EAD3E299C2E27DF06500
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1732.jpgsave_picture_1732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1732.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:DA8A2E240DDEA071A607C7A70D45405FE3698BDE
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1733.jpgsave_picture_1733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1733.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:DA8A2E240DDEA071A607C7A70D45405FE3698BDE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1734.jpgsave_picture_1734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1734.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:6D8ABD0E7F0A75ED2DD9985E9BD8BE486652B467
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1735.jpgsave_picture_1735.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1735.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1736.jpgsave_picture_1736.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1736.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ TerraTech Worlds (2024) [Ru/Multi] (0.6.6.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1737.jpgsave_picture_1737.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1737.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1738.jpgsave_picture_1738.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1738.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1739.jpgsave_picture_1739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1739.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:58DD2027D237D81A59D35A7B40A308803D2A62B4
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1740.jpgsave_picture_1740.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1740.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 (16.09.20
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1741.jpgsave_picture_1741.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1741.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:9483A9C03CB3F65BAFD829F6EB65024DC0627A05
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1742.jpgsave_picture_1742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1742.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Last Epoch (2024) [Ru/Multi] (1.3.3.1/dlc) Repack Other s [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1743.jpgsave_picture_1743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1743.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1744.jpgsave_picture_1744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1744.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tsuihousha Shokudou e Youkoso! | Welcome to the Outcast's Restaurant! | Добр
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1745.jpgsave_picture_1745.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1745.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:B0763686BED68F27D7B3DD5B04D9895FDEF4F8AD
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1746.jpgsave_picture_1746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1746.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Arknights OST (2019-2025) [MP3|320 kbps] <OST>
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1747.jpgsave_picture_1747.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1747.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Microsoft Office 2024 16.101 (25091314) [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1748.jpgsave_picture_1748.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1748.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:3F4D812AFB068826B9F3430F95D8696A917D8BD6
 >>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1749.jpgsave_picture_1749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1749.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:55EB1F1E6C7F6E7A38EF5FC2D7964194FF9B0A49
 >>18
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1750.jpgsave_picture_1750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1750.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Linux предлагает стабильность и кастомизацию,
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1751.jpgsave_picture_1751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1751.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ magnet:?xt=urn:btih:51592247FA64033C13F60EB02180C3DAA2980F65
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1752.jpgsave_picture_1752.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1752.jpg" />
 </div>
 
 

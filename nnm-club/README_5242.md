@@ -6,7 +6,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163066.jpgsave_picture_163066.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163066.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Erroll Garner - 1947-1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163067.jpgsave_picture_163067.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163067.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Wise Care 365 Pro 6.6.2.632 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163068.jpgsave_picture_163068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163068.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Adobe Animate 2021 v21.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163069.jpgsave_picture_163069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163069.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Artstudio Pro 3.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163070.jpgsave_picture_163070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163070.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ VA - В машине с музыкой Vol.323 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163071.jpgsave_picture_163071.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163071.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:14D45C04693F9B2E733500496516920AC354CA3D
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163072.jpgsave_picture_163072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163072.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:59F61AC2B155DF4B8CF213CA0F4CDBDD1635FC09
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163073.jpgsave_picture_163073.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163073.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Cisdem PDF Password Remover 4 v4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163074.jpgsave_picture_163074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163074.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Adobe XD 35.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163075.jpgsave_picture_163075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163075.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:AD3897988A40349AAC08A9541318DF6389AA8980
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163076.jpgsave_picture_163076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163076.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:1192DFD5E59BE70024DE7A14F871C98525D7E6FF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163077.jpgsave_picture_163077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163077.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Steinberg Cubase Pro for Mac 13 v.13.0.10 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163078.jpgsave_picture_163078.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163078.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:50EA9CD3C8C59AF2F79D2CEA2ECA42D54A1F8612
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163079.jpgsave_picture_163079.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163079.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ VA - Christmas by the Fire: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163080.jpgsave_picture_163080.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163080.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Ballance / Баланс (2004) [Ru] (1.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163081.jpgsave_picture_163081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163081.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:DF23F221699BD257D9E77826AE40434EB1753D52
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163082.jpgsave_picture_163082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163082.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ CurrPorts 2.76 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163083.jpgsave_picture_163083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163083.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:91A489B72AF083DBA1ED4CE281053E0F81AD4E64
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163084.jpgsave_picture_163084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163084.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ MInstAll Enter-Soft Free v14.0 09.12.2021 [Multi/Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163085.jpgsave_picture_163085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163085.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163086.jpgsave_picture_163086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163086.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:A53FC97489671F363C2C58351B73188EEA7ABDD0
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163087.jpgsave_picture_163087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163087.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ magnet:?xt=urn:btih:96290E30DAF6A3C84AAB4AD08C08B2A9AB8A5F8D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163088.jpgsave_picture_163088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163088.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:773680B995E3BBFF6BC93BB14E300A6772BE408E
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163089.jpgsave_picture_163089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163089.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:586725FFD387D6FA9F141B2D811BD34ED97A88D0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163090.jpgsave_picture_163090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163090.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - crazyДвиж number pyat (2020) [MP3|320 Kbps] <Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163091.jpgsave_picture_163091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163091.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - Ibiza Let' Chill, Vol. 1 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234778.jpgsave_picture_234778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234778.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Path Finder 2154 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234779.jpgsave_picture_234779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234779.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Duolingo Plus: изучение иностранных языков 5.57.0 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234780.jpgsave_picture_234780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234780.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Udemy, Alexander Batashov | Ruby on Rails 6 - 2020. Создание собст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234781.jpgsave_picture_234781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234781.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Dorian Gray - Burning (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234782.jpgsave_picture_234782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234782.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ Walt Weiskopf - Song For My Mother (1996) Criss Cross Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234783.jpgsave_picture_234783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234783.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ VA - The Seeds of Lounge, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234784.jpgsave_picture_234784.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234784.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:496EF94D5B102328E051DB8EF465706DADA2AD32
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234785.jpgsave_picture_234785.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234785.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:AC4D50CF3EA03E098AA520BA15DD4B6F3F84F946
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234786.jpgsave_picture_234786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234786.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Schandmaul - Kn​u​ppel aus dem Sack (2022) Deluxe Edition, 2023, Napalm Reco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234788.jpgsave_picture_234788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234788.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Microsoft Windows 10.0.19044.1706, Version 21H2 (Updated May 2022)  - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234789.jpgsave_picture_234789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234789.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Camelot 2: The Holy Grail / Камелот 2: Святой Грааль [Ru/En] 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234790.jpgsave_picture_234790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234790.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Dorian Gray - It's Your Day (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234791.jpgsave_picture_234791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234791.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Chillhop Guitar - Mellow Afternoon (2020) [AAC|~293 Kbps] <Chill Out, Smooth Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234792.jpgsave_picture_234792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234792.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:BB1C6CB7DD5FAA34E50104CC507EBC985F71FE4F
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234793.jpgsave_picture_234793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234793.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Sullivan King - Thrones of Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalstep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234794.jpgsave_picture_234794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234794.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:71963F5A796E6CF64E3597E6E29DC3EF8471A493
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234796.jpgsave_picture_234796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234796.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Stan Winston School, Dan LuVisi | Creature Design - Photoshop Character Renderin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234797.jpgsave_picture_234797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234797.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:209093D40767851F6E0483F7D8DDEE467F2BC6ED
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234798.jpgsave_picture_234798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234798.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:D65CF44DA96FEAAA531E6AB90D9D8B5442650C85
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234799.jpgsave_picture_234799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234799.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ VA - Chilling On Purple Clouds, Vol. 1 (2021) [AAC|~319 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234800.jpgsave_picture_234800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234800.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:78442ED5BD869E79662D8DBF9229EED89837E533
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234801.jpgsave_picture_234801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234801.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ George Kawaguchi - Best: 50 Years Anniversary (1995) King Record [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234802.jpgsave_picture_234802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234802.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:6334A00AD7BA7174619C85EA969C634E84799593
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234804.jpgsave_picture_234804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234804.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Viber 20.4.0.0 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234805.jpgsave_picture_234805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234805.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Buddhatronic - the Compilation, Vol. 1 (2015) [AAC|~318 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234806.jpgsave_picture_234806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234806.jpg" />
 </div>
 
 

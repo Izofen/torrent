@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75783.jpgsave_picture_75783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75783.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:A271B2A6BDD3C297F13B857EB30AE4911A14AF5A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75786.jpgsave_picture_75786.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75786.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chakra GNU/Linux 2012.02 [i686 + x86_64] (2xCD + 2xDVD)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75788.jpgsave_picture_75788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75788.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:FD92202BEBB8100DBCBDBD00E696D247F6865B7C
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75789.jpgsave_picture_75789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75789.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:B8D40AE2FA3C5B49FB4143807B54095223E74F41
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75790.jpgsave_picture_75790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75790.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ magnet:?xt=urn:btih:57081843869D2DD89FC1AAF3EF5C65297AA573EE
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75794.jpgsave_picture_75794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75794.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:F52736DED63EBA8F7C0171EF6AB636A67B33F2D4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75801.jpgsave_picture_75801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75801.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:0E16F82FB8CDD7C585AFFA41C7B827BC3993A599
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75808.jpgsave_picture_75808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75808.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:08F395AFF5443D448BA4800DC1DDF3993CE39165
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75810.jpgsave_picture_75810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75810.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ magnet:?xt=urn:btih:08F395AFF5443D448BA4800DC1DDF3993CE39165
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75817.jpgsave_picture_75817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75817.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Windows 7 Ultimate SP1 WPI x64 By StartSoft v 8.2.12 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75819.jpgsave_picture_75819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75819.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Erja Lyytinen - Songs From The Road (2012) [FLAC|Lossless]<Modern Electric Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75837.jpgsave_picture_75837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75837.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Van Halen - A Different Kind Of Truth (Deluxe Edition) (2012) [MP3|320 kbps]<Har
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75841.jpgsave_picture_75841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75841.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:8F285C3C873FBFD6CC7F85DA1DA1D2E37158C11C
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75843.jpgsave_picture_75843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75843.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ magnet:?xt=urn:btih:BB165BD5B378C4EB1A01DD53CC9F7614F4501CDC
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75850.jpgsave_picture_75850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75850.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:1EE57A453A866FB41CFABB869974E2A457F9B249
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75854.jpgsave_picture_75854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75854.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Anthony Miles - Music For Children (1995) [MP3|320 kbps]<Музыка для д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75867.jpgsave_picture_75867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75867.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75868.jpgsave_picture_75868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75868.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:BF8A00815EFC3C2FD952FB82F3E8D345049A03AD
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75870.jpgsave_picture_75870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75870.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ WinTools.net Ultimate v12.1.1  ML/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75896.jpgsave_picture_75896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75896.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ WinTools.net Ultimate - набор инструментов, предназна�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75899.jpgsave_picture_75899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75899.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Anthony Miles - Mother & Baby (2001) [MP3|320 kbps]<Музыка для дете
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75900.jpgsave_picture_75900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75900.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Electric Light Orchestra - The Essential Electric Light Orchestra (2011) 2CD [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75906.jpgsave_picture_75906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75906.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ The Essential Electric Light Orchestra был первоначально изд�
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75914.jpgsave_picture_75914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75914.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ magnet:?xt=urn:btih:58BCBA5401DEC84ACA5D94B2E40E1EFC2457ECC8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75915.jpgsave_picture_75915.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75915.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ magnet:?xt=urn:btih:58BCBA5401DEC84ACA5D94B2E40E1EFC2457ECC8
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75919.jpgsave_picture_75919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_75919.jpg" />
 </div>
 
 

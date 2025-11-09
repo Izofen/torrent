@@ -6,7 +6,7 @@ KAUAN - Sorni Nai Live (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmosphe
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166148.jpgsave_picture_166148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166148.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mono Inc. - The Book of Fire (2020) Platinum Edition, 2021, NoCut [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166158.jpgsave_picture_166158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166158.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ The Darkness - Motorheart (2021) Limited Edition [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166162.jpgsave_picture_166162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166162.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Neal Schon - Universe (2020) [MP3|320 Kbps] <Instrumental Guitar Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166163.jpgsave_picture_166163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166163.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Carmine Appice & Fernando Perdomo Project - Energy Overload (2021) [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166167.jpgsave_picture_166167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166167.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Which One's Pink? - Pink Floyd Tribute Just the basic facts (2010) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166171.jpgsave_picture_166171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166171.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|tracks + .cue] <South
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166172.jpgsave_picture_166172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166172.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Tokyo Motor Fist - Lions (2020) Japanese Еdition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166176.jpgsave_picture_166176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166176.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Timeless Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166180.jpgsave_picture_166180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166180.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Carl Sentance - Electric Eye (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166192.jpgsave_picture_166192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166192.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Neil Young - Chrome Dreams (2023) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166198.jpgsave_picture_166198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166198.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Rockin' & Rollin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166211.jpgsave_picture_166211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166211.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:440C2C16FE76CCA343CC37D7799828EE0934FDA5
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166213.jpgsave_picture_166213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166213.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:CCE3E3FE8891600CA160C17FB90A8BE64EBC9E28
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166216.jpgsave_picture_166216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166216.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Blacklite District - You're Welcome (2020) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166232.jpgsave_picture_166232.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166232.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Hatebreed - Weight Of The False Self (2020) [FLAC|Lossless|image + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166240.jpgsave_picture_166240.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166240.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Aurum - Время (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166244.jpgsave_picture_166244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166244.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Rock For The Ages (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166245.jpgsave_picture_166245.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166245.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Assassin - Bestia Immundis (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166248.jpgsave_picture_166248.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166248.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Zelbo - In My Dreams (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166251.jpgsave_picture_166251.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166251.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Smoking Martha - Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166261.jpgsave_picture_166261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166261.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Octohpera - Bons Amigos (2002) [FLAC|Lossless|tracks + .cue] <(GentleGiantish) E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166265.jpgsave_picture_166265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166265.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Doro - Maximum Celebration - Strong and Proud (2023) Promo EP [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166283.jpgsave_picture_166283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166283.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Vibrion - Bacterya (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166286.jpgsave_picture_166286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166286.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Mystery - Redemption (2023) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166309.jpgsave_picture_166309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166309.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Silver Linings - Pink Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166350.jpgsave_picture_166350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166350.jpg" />
 </div>
 
 

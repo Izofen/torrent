@@ -6,7 +6,7 @@ Mass Infection - For I Am Genocide (2014) [FLAC|Lossless|image + .cue] <Brutal D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107461.jpgsave_picture_107461.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107461.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mass Infection - The Age of Recreation (2009) [FLAC|Lossless|image + .cue] <Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107462.jpgsave_picture_107462.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107462.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Mass Infection - Atonement for Iniquity (2007) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107463.jpgsave_picture_107463.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107463.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - DJ Hits Vol. 105 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107464.jpgsave_picture_107464.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107464.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ magnet:?xt=urn:btih:0967008EDAFA319331CEABBC8B71B96F2805E32B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107465.jpgsave_picture_107465.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107465.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ magnet:?xt=urn:btih:D495782D8C5BEA9B59CEF7B835EEE2D7EDEE344C
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107466.jpgsave_picture_107466.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107466.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Mercury Riots - In Solstice (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107467.jpgsave_picture_107467.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107467.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107468.jpgsave_picture_107468.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107468.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ magnet:?xt=urn:btih:87C879AE85426435E987E46CF9E32F120D6CE2E8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107469.jpgsave_picture_107469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107469.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ magnet:?xt=urn:btih:29635C7A1652E73A73297246EF7C20A043B61A9D
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107470.jpgsave_picture_107470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107470.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Allan Wilson - Walking to Nowhere (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107471.jpgsave_picture_107471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107471.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ James Brown & The Soul G's - Chastain Park Atlanta 1985 Live (2024) [FLAC|Lossle
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107472.jpgsave_picture_107472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107472.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mike Campbell & The Dirty Knobs - Vagabonds, Virgins & Misfits (2024) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107473.jpgsave_picture_107473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107473.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Or Not - Violence & Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107474.jpgsave_picture_107474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107474.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Atlantic - Another World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107475.jpgsave_picture_107475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107475.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Riviera Paradise - Ready for More (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107476.jpgsave_picture_107476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107476.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Those Damn Crows - Inhale/Exhale (2023) Expanded Edition, 2024, Earache Records 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107477.jpgsave_picture_107477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107477.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Timi Yuro - You Are My Special Angel (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107478.jpgsave_picture_107478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107478.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Katarina Kochetova - Beyond Motion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107479.jpgsave_picture_107479.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107479.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Harry James - The Chronological Classics: 1942-1944 (2002) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107480.jpgsave_picture_107480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107480.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ WDR Big Band & John Goldsby - WDR Big Band — Small Group Sessions — Incentiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107481.jpgsave_picture_107481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107481.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Rifflord - 39 Serpent Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107482.jpgsave_picture_107482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107482.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VA - DJ Hits Vol. 100 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107483.jpgsave_picture_107483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107483.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Thomas Dolby - The Flat Earth (1984) 40th Anniversary Edition, 2024, Echo [FLAC|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107484.jpgsave_picture_107484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107484.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Babbba - Cabaret Conversation (Vol.4) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107485.jpgsave_picture_107485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107485.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Within Temptation - Worlds Collide Tour (Live in Amsterdam) (2024) [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107486.jpgsave_picture_107486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107486.jpg" />
 </div>
 
 

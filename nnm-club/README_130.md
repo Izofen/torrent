@@ -6,7 +6,7 @@ Suede - Antidepressants (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3430.jpgsave_picture_3430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3430.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:97B4A57A867BCFA4D5067B484CBFD58BA3C733F2
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3431.jpgsave_picture_3431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3431.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Julie London - Five Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3432.jpgsave_picture_3432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3432.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ magnet:?xt=urn:btih:FE74A30804117278120914EC560599A8B365AFA5
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3433.jpgsave_picture_3433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3433.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:67048D77EC6BF0491400A852755F8B606D8163F5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3434.jpgsave_picture_3434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3434.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:F76317B0560E686F142C17131AB1820481E9A634
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3435.jpgsave_picture_3435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3435.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0CE6124B89BF94FFEC24DF09840663BB0755F34F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3436.jpgsave_picture_3436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3436.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:4C7BCCC28F0912C04A4CAEFF078F4B0481AC657D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3437.jpgsave_picture_3437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3437.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ magnet:?xt=urn:btih:9756E63F15BE8DA3D346868B650EBBFBFB1F677D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3438.jpgsave_picture_3438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3438.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:987EE7AA5CB96FAAEEB1846634C1FD20B0392130
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3439.jpgsave_picture_3439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3439.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:907DE6219BC042AB0EE7B0123A4EFA14250A7D7D
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3440.jpgsave_picture_3440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3440.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ The Angels - Go For Broke (Live) (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3441.jpgsave_picture_3441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3441.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Aaron Mccoy - Next Level (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3442.jpgsave_picture_3442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3442.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Animalyze - Powerhouse (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Gl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3443.jpgsave_picture_3443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3443.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Havoc - The Grip (1986) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3444.jpgsave_picture_3444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3444.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Sigh - I Saw The Worlds End / Hangman's Hymn MMXXV (2025) Japanese Edition [FLAC
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3445.jpgsave_picture_3445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3445.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:8BDBE7C71A553B9FF2D24AAAB374B32974B1B10A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3446.jpgsave_picture_3446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3446.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:BFCB87CC618F84F15F1B7D2000FFD7A4663B093E
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3447.jpgsave_picture_3447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3447.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:99D5A18AAFBBB7FF8750AF7860BA82C45227781D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3448.jpgsave_picture_3448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3448.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:48A03A7320EA15FFB2DF46B007D4DEDB481ADDA7
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3449.jpgsave_picture_3449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3449.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:F9032703A51CCBF9EC87A649D9E6BDA5EC6E0FC8
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3450.jpgsave_picture_3450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3450.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:0FBF26772AEDA14110360BCC0846B5813BA186BE
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3451.jpgsave_picture_3451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3451.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:FF29AD2D09EAC7CA71B82F618EBAD5B8A33040F8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3452.jpgsave_picture_3452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3452.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:309FD1AF1BF15DC393FFD459D57CA71CD55CB585
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3453.jpgsave_picture_3453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3453.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:5579177EFB5C4331277A0503758F6B5CB8FE59B3
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3454.jpgsave_picture_3454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3454.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:8B5BBDB1734A4AED981262D54E8916F727DB3A38
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3455.jpgsave_picture_3455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_3455.jpg" />
 </div>
 
 

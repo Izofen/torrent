@@ -6,7 +6,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202932.jpgsave_picture_202932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202932.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Hard Disk Sentinel Pro 6.10 Build 12918 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202933.jpgsave_picture_202933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202933.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:645A6E8DA64BF6F898D9612B7A14FBF02C32F9D1
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202934.jpgsave_picture_202934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202934.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:981449143F70A05B637860F4E4DA029E7C233202
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202935.jpgsave_picture_202935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202935.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ AGCO Corporation | Электронный каталог запчастей FEND
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202936.jpgsave_picture_202936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202936.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:DD19ACFFD62B51E3B9CB82ECA1FAD8D36A25B212
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202937.jpgsave_picture_202937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202937.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ ASAP Utilities for Excel 8.1 Home and Student [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202938.jpgsave_picture_202938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202938.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ VA - Крутые пушки Зима 2023 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202939.jpgsave_picture_202939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202939.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ magnet:?xt=urn:btih:C8034685CC6CC4BF38AAE0848FE72E464272E35D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202940.jpgsave_picture_202940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202940.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:D74E3DF86B4CEFA8148E4B397DDE706AF8FB1015
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202941.jpgsave_picture_202941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202941.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Google Chrome 110.0.5481.78 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202942.jpgsave_picture_202942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202942.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ ElevenClock 4.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202943.jpgsave_picture_202943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202943.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ magnet:?xt=urn:btih:05D08CB2270D47460A923E3D0DE46A30B99EE492
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202944.jpgsave_picture_202944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202944.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:90018906A81B61821BA358D50BEA7C58C1C5B5F1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202945.jpgsave_picture_202945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202945.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ magnet:?xt=urn:btih:2471969850D8CA1826823B0EBAE8ECBAB51B1C47
 >>Турецкие сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202946.jpgsave_picture_202946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202946.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Auslogics Driver Updater 1.25.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202947.jpgsave_picture_202947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202947.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Jethro Tull - The Broadsword And The Beast (Monster Edition) (2023) Box Set, 5xC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202948.jpgsave_picture_202948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202948.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Hard Disk Sentinel Pro 6.10 Build 12918 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202949.jpgsave_picture_202949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202949.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:A340A4933F61459B123CE0EADC8F71A035F3F59C
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202950.jpgsave_picture_202950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202950.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ DAEMON Tools Lite 11.1.0.2041 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202951.jpgsave_picture_202951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202951.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ magnet:?xt=urn:btih:1558E7ABF5873EC6360C4E10E3DC71ABCEF6DD49
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202952.jpgsave_picture_202952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202952.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:562060B64C716AEF1D2F3C9B7522D76F2DE5E72D
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202953.jpgsave_picture_202953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202953.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:391EA1584C77831183576C6450148C24F6BF562A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202954.jpgsave_picture_202954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202954.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Topaz Video AI 3.4.3 (x64) Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202955.jpgsave_picture_202955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202955.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:984113B902C8B1DA3B43FF6A1D53332D6200D89E
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202956.jpgsave_picture_202956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202956.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Kaspersky Lab Products Remover 1.0.3029.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202957.jpgsave_picture_202957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202957.jpg" />
 </div>
 
 

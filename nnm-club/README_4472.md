@@ -6,7 +6,7 @@ Dizzy Gillespie - Concert of the Century: A Tribute to Charlie Parker (1980) 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139838.jpgsave_picture_139838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139838.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ OTUS, Алексей Воронец | Scala-разработчик (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139839.jpgsave_picture_139839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139839.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:AF4BBBBB3BE75E0A30CA9D9EBB635848E5F985DF
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139840.jpgsave_picture_139840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139840.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139841.jpgsave_picture_139841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139841.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:0CFC1CF888458F440C168EB2577F8C90C317E122
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139842.jpgsave_picture_139842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139842.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:989E1CD3028BAA5549412FB22F860D57092C50B0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139845.jpgsave_picture_139845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139845.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Blood Eye Remove 2.3 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139847.jpgsave_picture_139847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139847.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Blood Eye Remove — Программа для быстрого удаления
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139848.jpgsave_picture_139848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139848.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:0D3E0E37F96571D0B22DBFC8A02657CA12227355
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139850.jpgsave_picture_139850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139850.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:1FE3ACE38A9D480D19E3C453DF0B6CF3DB059E26
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139851.jpgsave_picture_139851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139851.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Slade - Merry Xmas Everybody (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139852.jpgsave_picture_139852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139852.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ RH Timer 2.4.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139853.jpgsave_picture_139853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139853.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:2CE21D55CF0C5D51C0CD33E0483D5D274EB2E006
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139854.jpgsave_picture_139854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139854.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:06104C37FF59ECCE26DBE8261998C5DCF9DE5292
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139856.jpgsave_picture_139856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139856.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Музыка для машины Vol.43 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139858.jpgsave_picture_139858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139858.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Extreme Picture Finder 3.46.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139860.jpgsave_picture_139860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139860.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:E14FAF886D9518DFA42EECA9BD217CCF909B5161
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139861.jpgsave_picture_139861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139861.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Harry Allen & Mike Renzi - Rhode Island Is Famous For You (2019) GAC Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139862.jpgsave_picture_139862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139862.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ magnet:?xt=urn:btih:220447764E7DA552297801446BF1E0C6E6832340
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139865.jpgsave_picture_139865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139865.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:FC7D1C9088EA4A4B42AB075DA031652F8B06EFC7
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139866.jpgsave_picture_139866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139866.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:E99012CB9A2B75AF12C9B2F7145E35839FAE8527
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139867.jpgsave_picture_139867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139867.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Mafia III / Мафия 3 (2016) [Ru/Multi] (1.050.0.1/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139868.jpgsave_picture_139868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139868.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:9988B35368B593EC1F8C991A6DD43AF64227E0EC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139869.jpgsave_picture_139869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139869.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:C35EE0C3A0B2CDCE59ECBB87B81C499ACC5B6FCE
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139871.jpgsave_picture_139871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139871.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ magnet:?xt=urn:btih:02D1F14F3696422964DA4E090A69B456684D0632
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139873.jpgsave_picture_139873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139873.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:F333551BE2B282DB0C83B462CBA40A55D1547D34
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139874.jpgsave_picture_139874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_139874.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97783.jpgsave_picture_97783.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97783.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ magnet:?xt=urn:btih:525540B6EC57A5FCFDA9F6EBD60C0E7030EFB8C9
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97790.jpgsave_picture_97790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97790.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ magnet:?xt=urn:btih:686EAE222951014E78E6215A61E02ECE23533B11
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97792.jpgsave_picture_97792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97792.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:FB70E9AA165F377C00FCC2BE97C30D687D599AAC
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97793.jpgsave_picture_97793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97793.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97795.jpgsave_picture_97795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97795.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ magnet:?xt=urn:btih:6785C069099DA21E9C529BEE66F557A30C8D6037
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97797.jpgsave_picture_97797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97797.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ magnet:?xt=urn:btih:F3DC2137E95D56F84E84C134D91EF3315B7A90C7
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97801.jpgsave_picture_97801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97801.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ magnet:?xt=urn:btih:26C2DA39425DF5086E207DA91734C957D994680D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97802.jpgsave_picture_97802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97802.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ magnet:?xt=urn:btih:204E026CC24DC600D06891BF5FAD2008A5398569
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97804.jpgsave_picture_97804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97804.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97805.jpgsave_picture_97805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97805.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Ladylike Lily - Get Your Soul Washed (2012) [MP3|~245 кб/с (V0)]<Folk, Indie,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97808.jpgsave_picture_97808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97808.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Dub Step vol.7 from AGR (2012) [MP3|256 kbps]<Dub Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97809.jpgsave_picture_97809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97809.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:3231220E6F4DB728207741F4B7849A6D930A17C1
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97810.jpgsave_picture_97810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97810.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:66A09D6E3B9938FB080CE9A8DDF8B0C62DA42AF2
 >>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97812.jpgsave_picture_97812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97812.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ magnet:?xt=urn:btih:86A6E7FB96A08B66A91071FA6247602FB6F0CC67
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97813.jpgsave_picture_97813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97813.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:59446CAA2CB4E631DFF3AE33915F0490B7480ABE
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97814.jpgsave_picture_97814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97814.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ magnet:?xt=urn:btih:234160187C021330F6ED48A34F9ECDFC21338B40
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97817.jpgsave_picture_97817.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97817.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vienna Boys Choir - Christmas With The Vienna Boys Choir (1993) [MP3|320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97821.jpgsave_picture_97821.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97821.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:CD3F12F9339F26EA6C24447D1EEA08C9ADD0B1CC
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97824.jpgsave_picture_97824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97824.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:A58874F1B35A2B0C19E4B5DBFD86EFE3268F7197
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97829.jpgsave_picture_97829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97829.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:6D99BE7BB4D25E44ABE6A707489F4629EDA34DD1
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97834.jpgsave_picture_97834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97834.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ magnet:?xt=urn:btih:67C3C8620DEF84EBA97242116B2A2CE0194C1000
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97837.jpgsave_picture_97837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97837.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:989B595821FA522B77CCD8C71CE57B9289D91FB2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97838.jpgsave_picture_97838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97838.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:7E794A9E745EDFD1D983B06A5B8D8C8C942984A7
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97839.jpgsave_picture_97839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97839.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Steve Turre - Woody's Delight (2012) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97846.jpgsave_picture_97846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97846.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ magnet:?xt=urn:btih:517DF82C6503A9EDC89C248A9F08E643F7D05980
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97848.jpgsave_picture_97848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97848.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy l
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251669.jpgsave_picture_251669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251669.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Live @ Amsterdam Music Festival, Johan Cruijff ArenA, ADE, Netherlands (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251670.jpgsave_picture_251670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251670.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:A2FE5B03451CDE68BA8FB31138E119388A607FAA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251671.jpgsave_picture_251671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251671.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Juno Skye - Favorites Collection (2025) [MP3|320 Kbps] <Vocal,  Easy listening, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251672.jpgsave_picture_251672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251672.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:67D5C7F09BED31587AF0717033AEF4BEB81E7C34
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251673.jpgsave_picture_251673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251673.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - L’Amour Fané Compilation (2025) [MP3|320 Kbps] <Vocal, Easy listening, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251674.jpgsave_picture_251674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251674.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:3508D047E0CCD0971FFCD5DA72356935F08C9107
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251675.jpgsave_picture_251675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251675.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:AA5F05FFF55834B15E369482E1AF5F04DABE4D12
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251676.jpgsave_picture_251676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251676.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ magnet:?xt=urn:btih:F30646092FD259DC788DBDA968A11967E740D8FB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251677.jpgsave_picture_251677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251677.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:BBF638A37D630074DE932C37A2C2FD76D44CAA03
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251678.jpgsave_picture_251678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251678.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ magnet:?xt=urn:btih:85383621ED0F404384C61F9FD38E9AEC9797C8B9
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251679.jpgsave_picture_251679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251679.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ magnet:?xt=urn:btih:F70899BDC22147CF8E2B1D920C561FBF2F15313A
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251680.jpgsave_picture_251680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251680.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ magnet:?xt=urn:btih:BA91F87C72E891E70447040CF6F7156D9708C5BC
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251681.jpgsave_picture_251681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251681.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:F99BFE4DEF15A30E33CDA9027BFB4068D604EB68
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251682.jpgsave_picture_251682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251682.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Living Legends 13: Haunting Melody (2025) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251683.jpgsave_picture_251683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251683.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:033E75EDFBE81296D9DB84E9B75050F61AF039FE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251684.jpgsave_picture_251684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251684.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Music News For Forum vol.145 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251685.jpgsave_picture_251685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251685.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Process Lasso Pro 16.1.0.46 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251686.jpgsave_picture_251686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251686.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:BB7428A2DEB4DA83F64798D64E512E973CE75C0C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251687.jpgsave_picture_251687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251687.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:12FA6C5A97C8BFC14E2FF48427555BC9D113BD53
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251688.jpgsave_picture_251688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251688.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:09C2944912BDEBB8E4385665E5F8A9F8323F1B8B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251689.jpgsave_picture_251689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251689.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Advanced Renamer 4.19 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251690.jpgsave_picture_251690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251690.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.10) License GOG [Part 1]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251691.jpgsave_picture_251691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251691.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ YT Downloader 9.18.0 [En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251692.jpgsave_picture_251692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251692.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Kings Of Leon - EP #2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Al
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251693.jpgsave_picture_251693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251693.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Jimi Hendrix (The Jimi Hendrix Experience) - Bold As Love Sessions (2025) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251694.jpgsave_picture_251694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251694.jpg" />
 </div>
 
 

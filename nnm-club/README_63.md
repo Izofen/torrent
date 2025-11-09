@@ -6,7 +6,7 @@
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1675.jpgsave_picture_1675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1675.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ MetaProducts Offline Explorer Enterprise 8.8.0.5004 RePack (& Portable) by elchu
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1676.jpgsave_picture_1676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1676.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Sense V2 Flip Clock & Weather v8.45.2 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1677.jpgsave_picture_1677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1677.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Display Driver Uninstaller 18.1.3.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1678.jpgsave_picture_1678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1678.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:CCB2C4677BA051BF90BD71D1A7460460499F29CD
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1679.jpgsave_picture_1679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1679.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ ArtStation, LaurentiuN | 3D Weapon Tutorial for Portfolio (2025) PCRec [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1680.jpgsave_picture_1680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1680.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:64E6DAE1808211A006C1BD7CEA230D12EE5F11FA
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1681.jpgsave_picture_1681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1681.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ jetAudio HD Music Player Plus v12.3.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1682.jpgsave_picture_1682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1682.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Any Video Downloader Pro 9.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1683.jpgsave_picture_1683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1683.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Plus Messenger (Telegram+)  v12.0.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1684.jpgsave_picture_1684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1684.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ R-Drive Image Technician 7.3 Build 7310 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1685.jpgsave_picture_1685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1685.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ MyLanViewer 6.5.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1686.jpgsave_picture_1686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1686.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1687.jpgsave_picture_1687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1687.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ magnet:?xt=urn:btih:9861B750DF33C696543F3022B5EB75C4E969F698
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1688.jpgsave_picture_1688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1688.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ magnet:?xt=urn:btih:6C561256D937873CF2011EB8C5D50F68F3D9A5A0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1689.jpgsave_picture_1689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1689.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1690.jpgsave_picture_1690.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1690.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ magnet:?xt=urn:btih:AFE764BD8A9FC5297BE529358DBC6EE993D5605C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1691.jpgsave_picture_1691.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1691.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 16.09.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1692.jpgsave_picture_1692.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1692.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:53D0F210B37257D350B0A57F4950066CBBE05A80
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1693.jpgsave_picture_1693.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1693.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The KMPlayer 4.2.3.25 repack by cuta (build 1) [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1694.jpgsave_picture_1694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1694.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by Dodakaedr (21.09.2025) [Multi/
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1695.jpgsave_picture_1695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1695.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ DISMTools 0.7.0.25082 + Portable [Multi]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1696.jpgsave_picture_1696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1696.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:5B8E557FBA2D9662A88535BB70F7C7CA238EB7D5
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1697.jpgsave_picture_1697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1697.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 RePack (&
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1698.jpgsave_picture_1698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1698.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ magnet:?xt=urn:btih:703FC367D2C5CE1CB0CD0A60C65C8072BD1875D4
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1699.jpgsave_picture_1699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1699.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Coolmuster Android Assistant 6.0.89 RePack (& Portable) by elchupacabra [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1700.jpgsave_picture_1700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_1700.jpg" />
 </div>
 
 

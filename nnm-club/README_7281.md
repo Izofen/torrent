@@ -6,7 +6,7 @@ Whispers - Unconscious Conspiracy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249343.jpgsave_picture_249343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249343.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:8A01007E18AC088FF637802DD03FC6ED85A45BC0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249344.jpgsave_picture_249344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249344.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Universal Media Creation Tool 20.03.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249345.jpgsave_picture_249345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249345.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Adobe XD 49.0.12.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249346.jpgsave_picture_249346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249346.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249347.jpgsave_picture_249347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249347.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ Internet Download Manager 6.40 Build 11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249348.jpgsave_picture_249348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249348.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ VA - The Rock Collection: Rock Groups (1991) 2CD Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249349.jpgsave_picture_249349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249349.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:5FEEEA9A6544F04955B7C62EEFA5E89FE75C2AAF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249350.jpgsave_picture_249350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249350.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Red Slim - Good to Go (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249351.jpgsave_picture_249351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249351.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:B29C41BCDE3A47D5D8AC344C5D0C5DED7DC422A1
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249352.jpgsave_picture_249352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249352.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ magnet:?xt=urn:btih:70519BF81F61BC43A77383A1BCF35486580AD7DC
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249353.jpgsave_picture_249353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249353.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Hard Disk Sentinel Pro 6.01 Build 12540 RePack (& Portable) by Dodakaedr [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249354.jpgsave_picture_249354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249354.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Let's begin from the start (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249355.jpgsave_picture_249355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249355.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:ECC487A93E1D9412878F528C3A001B82194240EC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249356.jpgsave_picture_249356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249356.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Fort Firewall 3.8.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249357.jpgsave_picture_249357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249357.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:8BE7D51F8017F3DAB324BE4DBAB06ECA1282740B
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249358.jpgsave_picture_249358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249358.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:E88324F1D0CAF77D262D493036A9AD3840FB4601
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249359.jpgsave_picture_249359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249359.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Scene voices38 [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249360.jpgsave_picture_249360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249360.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ MAGIX Vegas Pro 19.0 Build 550 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249361.jpgsave_picture_249361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249361.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ JRiver Media Center 30.0.82 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249362.jpgsave_picture_249362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249362.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Q-Dir 11.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249363.jpgsave_picture_249363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249363.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:62A2D855BB6C2B93569528596B417CDDC8EFD4ED
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249364.jpgsave_picture_249364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249364.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:2805F33BA216DE44E0CE798A931495A4F9924CE4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249365.jpgsave_picture_249365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249365.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Wayne Madder - Disconnect (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249366.jpgsave_picture_249366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249366.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:82BBF186EC86399F2D1F93C967C58289BC368C43
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249367.jpgsave_picture_249367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249367.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:B8F9BF46897BF3C1DA395994E73962CB2A5B09BC
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249368.jpgsave_picture_249368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249368.jpg" />
 </div>
 
 

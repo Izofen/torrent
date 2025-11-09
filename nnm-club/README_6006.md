@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188970.jpgsave_picture_188970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188970.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:81A82D218E82F0E5F41B82FFB55254F1A1CEE151
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188971.jpgsave_picture_188971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188971.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ SpeakMe 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188972.jpgsave_picture_188972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188972.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:055A046F5A47C4ACDE480DE811AB9E54843C6CA8
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188973.jpgsave_picture_188973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188973.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:3455674D9372C01E77B814CD0EC06460811052B6
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188974.jpgsave_picture_188974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188974.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Reg Organizer 9.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188975.jpgsave_picture_188975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188975.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ eMail Address Extractor 4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188976.jpgsave_picture_188976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188976.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:B491FCDE23AEB15E4ED0B0D2B1F22C32BC855C9D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188977.jpgsave_picture_188977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188977.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Helms Deep - Treacherous Ways (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188978.jpgsave_picture_188978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188978.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:7C1B124369E0D7C6DEE85E1EB3B8F22FCA0405F1
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188979.jpgsave_picture_188979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188979.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Default Folder X 6.0 b5 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188980.jpgsave_picture_188980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188980.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Epiphany WorkFlow II 8.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188981.jpgsave_picture_188981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188981.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Debit & Credit Premium 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188982.jpgsave_picture_188982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188982.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Squeezer 2.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188983.jpgsave_picture_188983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188983.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Screens 4 v.4.12.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188984.jpgsave_picture_188984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188984.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Louis Hayes - Serenade For Horace (2017) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188985.jpgsave_picture_188985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188985.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ EdgeView 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188986.jpgsave_picture_188986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188986.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ magnet:?xt=urn:btih:FCDF0CAF4D30BC045E5D08A5B9B922735FAA86C4
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188987.jpgsave_picture_188987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188987.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ magnet:?xt=urn:btih:DD7F2F7A6E0493CD3171D719AA8B66ACC1E17DE5
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188988.jpgsave_picture_188988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188988.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Dropshare 5 v.5.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188989.jpgsave_picture_188989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188989.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ NVIDIA GeForce Desktop Game Ready 526.86 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188990.jpgsave_picture_188990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188990.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Scrutiny 12.7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188991.jpgsave_picture_188991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188991.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Integrity Pro 12.7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188992.jpgsave_picture_188992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188992.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Display Driver Uninstaller 18.0.5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188994.jpgsave_picture_188994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188994.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ MEmu 8.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188995.jpgsave_picture_188995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188995.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ magnet:?xt=urn:btih:A601D5B8F1D00B22765598770AC7DF0EC2A6BE80
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188996.jpgsave_picture_188996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188996.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170197.jpgsave_picture_170197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170197.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D98FAC401A6B77699AD35A4ABBA29A64970E1E93
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170198.jpgsave_picture_170198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170198.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CCleaner 5.75.8238 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170199.jpgsave_picture_170199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170199.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:F9E791F3DD8ABB855FD178BA36878446904D776F
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170200.jpgsave_picture_170200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170200.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:C79813AEC45F3E63F0152304C58C230CA5F119CB
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170201.jpgsave_picture_170201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170201.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170202.jpgsave_picture_170202.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170202.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:5A083327A50D3EE4A124E83D9D8977C57965DFFE
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170203.jpgsave_picture_170203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170203.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ AnyViewer Professional 3.3.0 (Акция COMSS от 2022.12.09) [Multi]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170204.jpgsave_picture_170204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170204.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Party Night (2023) [MP3|320 Kbps] <ElectroPop, Future House, Groove, Progre
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170205.jpgsave_picture_170205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170205.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:2E1E18A41AD8D6F466F71DEE4875986F2115E113
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170206.jpgsave_picture_170206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170206.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ WidsMob AI Retoucher for Mac 3.17 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170207.jpgsave_picture_170207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170207.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:287569C08BC232C9FB0196D8FF704245666A5D8B
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170208.jpgsave_picture_170208.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170208.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ JUG Ru Group | Mobius 2021 Moscow. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170209.jpgsave_picture_170209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170209.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ magnet:?xt=urn:btih:6E6D7E61EBF8BF4BF0E19A566BD1C809B88B3C90
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170210.jpgsave_picture_170210.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170210.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Barbra Streisand - Evergreens - Celebrating Six Decades on Columbia Records (202
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170211.jpgsave_picture_170211.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170211.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ magnet:?xt=urn:btih:B1E86F8D3AFC1757A32295685EEA6F968BC86130
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170212.jpgsave_picture_170212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170212.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ The Long Dark (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.89.69528] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170213.jpgsave_picture_170213.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170213.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ IrfanView 4.62 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170214.jpgsave_picture_170214.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170214.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|image + .cue] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170215.jpgsave_picture_170215.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170215.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ magnet:?xt=urn:btih:E90FC4BFCB5401D63AA99685BE246DE4236B6CA7
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170216.jpgsave_picture_170216.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170216.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:B566AC27FD1BBE4196D3CE9A0AE3836EABCEC91C
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170217.jpgsave_picture_170217.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170217.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Luminar Neo 1.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170218.jpgsave_picture_170218.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170218.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:B6C90D98A7F212D84CD28B291BE28DF062967815
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170219.jpgsave_picture_170219.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170219.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:585D19AFF7B057A1D88B2AFC74016FC83BEA833C
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170221.jpgsave_picture_170221.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170221.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:AA0BAB42416BD0445EBC8E562D46547AA1E108F8
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170222.jpgsave_picture_170222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170222.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Udemy, Darrin Lile | Blender 2.8 UV Mapping (2019) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170223.jpgsave_picture_170223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170223.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Spy x Family | Семья шпиона [2022, TV, 24 из 25] WEBRip 1080p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163601.jpgsave_picture_163601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163601.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FabFilter Total Bundle v9.12.2021 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163602.jpgsave_picture_163602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163602.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:02FA58991300E969FDF81A20FA20E017B53FC866
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163603.jpgsave_picture_163603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163603.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:0938D12C7DF3B9037E2302518345B4CAEA66C07C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163604.jpgsave_picture_163604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163604.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 4: The Cover Session (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163606.jpgsave_picture_163606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163606.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Aeonian Sorrow - A Life Without (2020) EP [FLAC|Lossless|image + .cue] <Gothic, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163607.jpgsave_picture_163607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163607.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:8429A56B8394BF912DC7FE9D19FAEE87A52BB3E3
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163608.jpgsave_picture_163608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163608.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Tayasui Sketches Pro 6.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163609.jpgsave_picture_163609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163609.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:0A69AAA9CE50B356BB4DBD807F72D4C7AB9DC9AD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163610.jpgsave_picture_163610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163610.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ magnet:?xt=urn:btih:357629512CC58DF22712E597E88B0D5FBF7B2DCF
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163611.jpgsave_picture_163611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163611.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Opera 65.0.3467.78 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163612.jpgsave_picture_163612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163612.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ TreeSize Professional 8.0.3.1507 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163614.jpgsave_picture_163614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163614.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Donemax Data Recovery 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163615.jpgsave_picture_163615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163615.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:F10EC9AEBEDB64133F894B880692D98C99BA3066
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163616.jpgsave_picture_163616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163616.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:D811F95C432157F061FBC7F69B9C850C89D845E7
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163618.jpgsave_picture_163618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163618.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Sally Face: Complete Season 1.5.04 (2019) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163619.jpgsave_picture_163619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163619.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ FileMaker Pro 19 v19.4.2.204 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163620.jpgsave_picture_163620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163620.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ON1 Photo RAW 2020 14.0.1.8289 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163621.jpgsave_picture_163621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163621.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Windows 10.0.18362.1256 Version 1903 (Updated December 2020) - Ори�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163622.jpgsave_picture_163622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163622.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - Electro Swing Party by Bart&Baker, Vol. 2 (2019) [AAC|~330 Kbps] <Broken Be
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163623.jpgsave_picture_163623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163623.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ magnet:?xt=urn:btih:3FC9FCC6722E159BFF41B13F37B8ED32B120D53A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163624.jpgsave_picture_163624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163624.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:D5F03D91B5742CF0CE4F59E9CFCDEAD10D8622DD
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163625.jpgsave_picture_163625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163625.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:29C7DE1E82376531A9DDAFE43E8440F8CC08C99B
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163626.jpgsave_picture_163626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163626.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ magnet:?xt=urn:btih:034A187ADCFAEC59A2D1B57FB98B6302F8B8A443
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163627.jpgsave_picture_163627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163627.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:3174DA7EC3B6510D127CBDE42A49451E753A9DB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163628.jpgsave_picture_163628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163628.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Windows 10 Pro VL x64 22Н2 (build 19045.2364) by ivandubskoj 15.12.2022 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163629.jpgsave_picture_163629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163629.jpg" />
 </div>
 
 

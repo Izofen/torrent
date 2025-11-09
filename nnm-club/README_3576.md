@@ -6,7 +6,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113351.jpgsave_picture_113351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113351.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:E1F1EEA7EAD75F272EFAFCAC28FA6141FACE8065
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113352.jpgsave_picture_113352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113352.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:1DBB4640BACB5D4C29D0DAE0DF6E65BB66B67DF0
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113353.jpgsave_picture_113353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113353.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Bruce Springsteen - The Live Series: Songs Of Celebration (2024) Live (Compilati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113354.jpgsave_picture_113354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113354.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:61C8B60F459C9E88C21282BE1940A01999068BC9
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113355.jpgsave_picture_113355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113355.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Sandboxie plus 1.13.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113356.jpgsave_picture_113356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113356.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ magnet:?xt=urn:btih:70DFB962DC5887E58394290E600EF9EF2A7C50D3
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113357.jpgsave_picture_113357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113357.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ VA - That's Eurobeat Non-Stop Mix (1987) LP [MP3|320 Kbps] <Italo-Disco, Euro-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113358.jpgsave_picture_113358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113358.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - С Новым Годом! (1983) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113359.jpgsave_picture_113359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113359.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:2D71F315A617AB89E38525C3AD9C3DFA51656663
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113360.jpgsave_picture_113360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113360.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Argy - New World (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113361.jpgsave_picture_113361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113361.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Маскарад (1986) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113362.jpgsave_picture_113362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113362.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Kid Kapichi - There Goes The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113363.jpgsave_picture_113363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113363.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113364.jpgsave_picture_113364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113364.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:436A5A2AF1AB3BF7FBF5DB8E46955AEBB7B0507A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113365.jpgsave_picture_113365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113365.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AI Transcription 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113366.jpgsave_picture_113366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113366.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ VA - С Новым Годом! (1985) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113367.jpgsave_picture_113367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113367.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Emurasoft EmEditor Professional 24.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113368.jpgsave_picture_113368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113368.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Радуга (2 пластинка) (1979) [FLAC 24/192|Lossless|tracks] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113369.jpgsave_picture_113369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113369.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Papik & Laura Lanzillo - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113370.jpgsave_picture_113370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113370.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:DAB7CCB820FA7767FA4FCA1E796E8B5E9F1E576A
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113371.jpgsave_picture_113371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113371.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:13B860CBF9C41197D438B78C8ABB990E9C90ED7F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113372.jpgsave_picture_113372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113372.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Eternal - Cryptic Lust (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113373.jpgsave_picture_113373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113373.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Messiah - Christus Hypercubus (2024) [FLAC|Lossless|image + .cue] <Thrash, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113374.jpgsave_picture_113374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113374.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Ranee Lee & Oliver Jones - Just You, Just Me (2005) Justin Time [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113375.jpgsave_picture_113375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113375.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Dave McKenna - Solo Piano (1973) 1994, Chiaroscuro Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113376.jpgsave_picture_113376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113376.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234149.jpgsave_picture_234149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234149.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:CE599B0DE02FB8B8C72FA4396BBAB5A7B372F988
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234150.jpgsave_picture_234150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234150.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Lamentos - Entre a Vida e a Morte (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234151.jpgsave_picture_234151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234151.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Wynton Marsalis - Levee Low Moan: Soul Gestures in Southern Blue, Vol. 3 (1991) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234152.jpgsave_picture_234152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234152.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Point Mort - Pointless... (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, C
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234153.jpgsave_picture_234153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234153.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:FA348A1682AEDD3696931CDC6926CC82D8E67FF2
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234154.jpgsave_picture_234154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_234154.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:FA348A1682AEDD3696931CDC6926CC82D8E67FF2
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234155.jpgsave_picture_234155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234155.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ V.A. - Smooth Jazz Hits 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234156.jpgsave_picture_234156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234156.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Carlos Montoya - Flamenco Meets Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <World
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234157.jpgsave_picture_234157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234157.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Lounge Remixes, Vol. 2 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Deep Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234158.jpgsave_picture_234158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234158.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Cisdem Video Converter 7.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234159.jpgsave_picture_234159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234159.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ WyndRider - WyndRider (2023) [MP3|320 Kbps] <Psych Stoner Doom, Bluesy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234160.jpgsave_picture_234160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234160.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ doPDF 11.8.404 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234161.jpgsave_picture_234161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234161.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:FA193FBE9C1E617035101DDBED59626451FE38B6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234162.jpgsave_picture_234162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234162.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Yusuf / Cat Stevens - King Of A Land (2023) [FLAC|Lossless|tracks + .cue] <Folk 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234163.jpgsave_picture_234163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234163.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Pale Moon 32.2.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234164.jpgsave_picture_234164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234164.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:681CEDA8F00A1B8ED777E6B4369FDC978B812942
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234165.jpgsave_picture_234165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234165.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ AnyMP4 Data Recovery 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234166.jpgsave_picture_234166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234166.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Opera GX 98.0.4759.64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234167.jpgsave_picture_234167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234167.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ WinTools.net 23.5.1 Classic / Professional / Premium RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234168.jpgsave_picture_234168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234168.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:811C36DA863C9A7A49F56DEDD4B58C93B0D7EC67
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234169.jpgsave_picture_234169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234169.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Vangelis - Nocturne (The Piano Album) (2019) Decca [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234170.jpgsave_picture_234170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234170.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Typora for Mac 1.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234171.jpgsave_picture_234171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234171.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:E660C69CB6AA9E85251A2E1F454C878C33347CF3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234172.jpgsave_picture_234172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234172.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ FanControl V157 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234173.jpgsave_picture_234173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234173.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VA - Electronic Clouds, Vol. 3 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234174.jpgsave_picture_234174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234174.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kdenlive 24.08.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104757.jpgsave_picture_104757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104757.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:77BC9A5A4A153A494885B42150452E626061A63D
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104758.jpgsave_picture_104758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104758.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BE7F1DF97E7EF35022427CF5AE1452FEA0177417
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104759.jpgsave_picture_104759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104759.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Advanced Renamer 4.01 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104760.jpgsave_picture_104760.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104760.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:1D0474D69925C3D58C1D6DD08B25658AAF2EDB8D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104761.jpgsave_picture_104761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104761.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:4A04E3135C10896A35F3A48D1E5DDA1F7F8E407A
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104762.jpgsave_picture_104762.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104762.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:1EB70CB1205C9696B5EA23D813052887E1337FAF
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104763.jpgsave_picture_104763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104763.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Colin James - Chasing The Sun (2024) [FLAC|Lossless|image + .cue] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104764.jpgsave_picture_104764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104764.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:ABBBFEEA36958D5529AEE0A5E2BF39960955A785
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104765.jpgsave_picture_104765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104765.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Abyss Gazes - 3 Albums (2018-2024) [MP3|320 Kbps] <Symphonic, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104766.jpgsave_picture_104766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104766.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Amorphis - Rarities 1991 - 2001 (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104767.jpgsave_picture_104767.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104767.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Ploho - Почва (2024) [MP3|320 Kbps] <Post Punk, New Wave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104768.jpgsave_picture_104768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104768.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Foxx - Sittin' Pretty (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104769.jpgsave_picture_104769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104769.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ magnet:?xt=urn:btih:4266BC80D0CD4A2088CEAFE0325503372E9581C4
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104770.jpgsave_picture_104770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104770.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Saint - Immortalizer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104771.jpgsave_picture_104771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104771.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Photo Supreme 2024.2.2.6636 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104772.jpgsave_picture_104772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104772.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ YT Downloader 9.10.12 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104773.jpgsave_picture_104773.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104773.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:3F216B8D720CB93B51AD4289A4D3760F935C14BB
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104774.jpgsave_picture_104774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104774.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Music for Yoga & Meditation (Soft, Soothing Instrumentals) (2024) [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104775.jpgsave_picture_104775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104775.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:391DC54F19F4405835BF310AD7B6A311BFE85D31
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104776.jpgsave_picture_104776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104776.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ StartAllBack 3.8.7 build 5150 (DC-03-09-2024) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104777.jpgsave_picture_104777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104777.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ magnet:?xt=urn:btih:FB085122C9D0C9DC8D01D6A02E6DF0B422891A00
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104778.jpgsave_picture_104778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104778.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:25417790E9601D30CD52406D3B049D028B0B5421
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104779.jpgsave_picture_104779.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104779.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:AF365C34AF5A090FE9DCFEC87AE173929E20EDA3
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104780.jpgsave_picture_104780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104780.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ InnoExtractor Ultra 8.1.0.615 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104781.jpgsave_picture_104781.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104781.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:F056625CB9EBF25E6E4D36CA02FD250FA2B9CDD4
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104782.jpgsave_picture_104782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104782.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157180.jpgsave_picture_157180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157180.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:236695E43D0DAC87CAB290E5468F3DF6695ADB17
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157181.jpgsave_picture_157181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157181.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ magnet:?xt=urn:btih:41C369C4A526FB7FECC74D52E3CB44E27AA05062
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157182.jpgsave_picture_157182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157182.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Imagine 1.3.5 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157185.jpgsave_picture_157185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157185.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:A0FE45D4DD80B852F1760CD0A0591EEF7B520BA8
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157186.jpgsave_picture_157186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157186.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D73EBE1D5C3A63AD0354F160FD1302D32685362D
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157187.jpgsave_picture_157187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157187.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ IceCream Ebook Reader Pro 6.21 RePack by OctaneS [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157188.jpgsave_picture_157188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157188.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Call of Duty: Ghosts (2013) [Ru/En] (1.0.749678/upd21) Rip R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157189.jpgsave_picture_157189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157189.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:2C0757E7C567FA0E85F2D77399039398A118D837
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157190.jpgsave_picture_157190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157190.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:EC2E473E0D1F805BEFD1AC7993AD34F9D2AEF19E
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157192.jpgsave_picture_157192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157192.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:0044A10E275E0AD454374091AE27291EFB08E353
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157193.jpgsave_picture_157193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157193.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:6C5FDF64BF934ED91DA29E80583EC2358485266C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157194.jpgsave_picture_157194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157194.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:88E7564D8CD4D35AC09B123BF4F557F7E6841CE8
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157195.jpgsave_picture_157195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157195.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:51F8393C7E815BCEC1B21E361E53A03CDDF6DF32
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157196.jpgsave_picture_157196.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157196.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Stacey Kent feat. Art Hirahara - Songs From Other Places (2022) Special Edition 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157197.jpgsave_picture_157197.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157197.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ magnet:?xt=urn:btih:14BC7720CA8A8BA3813F89A006AFB7677BF06529
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157198.jpgsave_picture_157198.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157198.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ magnet:?xt=urn:btih:3FE689F14CE3DC1F59D5129E1772B0F11AA5FDFE
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157199.jpgsave_picture_157199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157199.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Within Temptation - Bleed Out (2023) [FLAC|Lossless|image + .cue] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157200.jpgsave_picture_157200.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157200.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ FL Studio Producer Edition 12.4.1 Build 4 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157201.jpgsave_picture_157201.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157201.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Warpig - Warpig (1970) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157203.jpgsave_picture_157203.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157203.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:03E12B7C367705832AEE4906A2C649ECEC0A8EEB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157204.jpgsave_picture_157204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157204.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:8368102317923DA21F51627250E22CEEF22196E4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157205.jpgsave_picture_157205.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157205.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:D8EA556A8AB78342EEC2E177F62D98D273A198CD
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157206.jpgsave_picture_157206.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157206.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ magnet:?xt=urn:btih:F0D03328607E27835A7AF2CD9262C08B82DEEEB3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157207.jpgsave_picture_157207.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157207.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Riot - Archives Volume 5 : 1992-2005 (2020) 2CD [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157209.jpgsave_picture_157209.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157209.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Opera 57.0.3098.106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157212.jpgsave_picture_157212.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157212.jpg" />
 </div>
 
 

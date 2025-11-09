@@ -6,7 +6,7 @@ Angel Of Suicide - Suicide Symphony (2022) [FLAC|Lossless|WEB-DL|tracks] <Depres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238736.jpgsave_picture_238736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238736.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Wondershare Recoverit 9.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238737.jpgsave_picture_238737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238737.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PowerPhotos 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238738.jpgsave_picture_238738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238738.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ magnet:?xt=urn:btih:D034D9C758A63A826ED2C5390EBDCB57E7416B6B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238740.jpgsave_picture_238740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238740.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:673B6C45B56C31C14231CE697AC07A83DFD30679
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238742.jpgsave_picture_238742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238742.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ Anzv - Gallas (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238743.jpgsave_picture_238743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238743.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ ToothFairy 2.7.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238745.jpgsave_picture_238745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238745.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ magnet:?xt=urn:btih:CE6F5048EC73129598D2D9EF4232BB71BA4831F0
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238746.jpgsave_picture_238746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238746.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Biodub - Discography 21 Releases (2008-2021) Ki Records, Tiefenrausch [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238747.jpgsave_picture_238747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238747.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:1864BFF353EBDD8F0CEF1FD65B580D42B5CAE577
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238748.jpgsave_picture_238748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238748.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Unbounded Terror - Echoes of Despair (2022) [Mp3|320 kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238750.jpgsave_picture_238750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238750.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ FBackup 9.8.770 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238751.jpgsave_picture_238751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238751.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:0AE0A7E6A1B9A3983DEAFBB8571BE91F32427118
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238752.jpgsave_picture_238752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238752.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ R-Studio Network 9.0 Build 190312 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238755.jpgsave_picture_238755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238755.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Blocs 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238756.jpgsave_picture_238756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238756.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ magnet:?xt=urn:btih:1BA2BBA2E70B9EC49B4A73A948F31B6861669882
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238757.jpgsave_picture_238757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238757.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Rival Sons - Darkfighter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238758.jpgsave_picture_238758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238758.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:E9F176C8B6620E85E3605AC3C355958124E96698
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238759.jpgsave_picture_238759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238759.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Theriomorph - Diabolical Bloodswords (2022) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238760.jpgsave_picture_238760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238760.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:67D3B5E23C3DDA754BD05C635D052E0C7752A1B3
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238763.jpgsave_picture_238763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238763.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:BE4C6BBA3AAF652F6F808F895B99D2C2F773E06D
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238765.jpgsave_picture_238765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238765.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Beach Vibes (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238766.jpgsave_picture_238766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238766.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Stahlkeller - Gefangen im Wahn (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238768.jpgsave_picture_238768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238768.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Jacky Terrasson - 53 (2019) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238769.jpgsave_picture_238769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238769.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Chill Vibes 2023 (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238770.jpgsave_picture_238770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238770.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ magnet:?xt=urn:btih:829EBDE29BBD2BE37C861CA05DD582B7F73FCB75
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238772.jpgsave_picture_238772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238772.jpg" />
 </div>
 
 

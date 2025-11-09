@@ -6,7 +6,7 @@ Fate/Zero | Судьба: Начало [2011, TV, 25 из 25] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161585.jpgsave_picture_161585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161585.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:001FB470292D27BF6C617908E5C6F270A922C456
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161586.jpgsave_picture_161586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161586.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:69A0F1506B5F7C881D6E4C255AD0EE67C95DE5E6
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161587.jpgsave_picture_161587.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161587.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:46DBF07EC01F8FAFCF2A718744C91F021112C6FD
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161588.jpgsave_picture_161588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161588.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VA - Drum Dance: Electro Bass Session (2021) [MP3|320 Kbps] <Electro Bass, D&B, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161589.jpgsave_picture_161589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161589.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161590.jpgsave_picture_161590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161590.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:2F5582007C6BCED5305FAD9F7B3ABFCF4C75CAB8
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161591.jpgsave_picture_161591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161591.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Foxit PhantomPDF Business 10.1.1.37576 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161592.jpgsave_picture_161592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161592.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:187C71C3DAD1241CA6960318F10F9CB16DD47BE1
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161593.jpgsave_picture_161593.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161593.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161594.jpgsave_picture_161594.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161594.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ magnet:?xt=urn:btih:38A92710FBFB520C659B17AF1AF29BF2C857C111
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161595.jpgsave_picture_161595.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161595.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:4DA5A06F812C56BE1F4767D8B80D6624F0EC2BE5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161596.jpgsave_picture_161596.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161596.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Fate/Stay Night | Судьба: Ночь схватки [2006, TV, 24 из 24] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161597.jpgsave_picture_161597.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161597.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:A286EC7AFE6A32D04F8BE470BC7746B6416A3D6F
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161598.jpgsave_picture_161598.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161598.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:A9025210ED630B5558AB8458BCA4AA8204826C18
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161599.jpgsave_picture_161599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161599.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ magnet:?xt=urn:btih:5252E73A3A3491AFE4A12A0C847DBCF9B3D31EC0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161600.jpgsave_picture_161600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161600.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:F1B15E0828C55474D552442901A50E1681D8B30B
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161601.jpgsave_picture_161601.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161601.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:EB14CD2C93955B2B02AEA5EA64C7B286C9AE4772
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161602.jpgsave_picture_161602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161602.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ableton - Live Suite 11.2.7 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161603.jpgsave_picture_161603.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161603.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:3F6E2E4654DFEFBCE5C17684E17D7FC7FAB6C9D4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161604.jpgsave_picture_161604.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161604.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:DD26BDD423F66C7FAA9A079337BD04A80B90B942
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161605.jpgsave_picture_161605.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161605.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:BA661ABE1053036C1A8D1FDD6D93B2BADCD76417
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161606.jpgsave_picture_161606.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161606.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:8A1D7CA8E9D924D459BC314AAE596A2D5D657ECC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161607.jpgsave_picture_161607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161607.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ magnet:?xt=urn:btih:3CD4218818E43B651A3369A9E20BEB07DC13A79A
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161608.jpgsave_picture_161608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161608.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:6E5AA721F451E5FB49482D8A69A23A5B663EE2CC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161609.jpgsave_picture_161609.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161609.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ IBM будет сотрудничать с Японией для произво�
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161610.jpgsave_picture_161610.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161610.jpg" />
 </div>
 
 

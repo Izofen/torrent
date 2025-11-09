@@ -6,7 +6,7 @@
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24129.jpgsave_picture_24129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24129.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AFD95D8F6D7DCF2FE0B3F83F8431996AD7ECF25D
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24130.jpgsave_picture_24130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24130.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Kyoto Douran | Бродяга Кэнс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24131.jpgsave_picture_24131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24131.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:27BB67EB9A4B172E1A058D0F4EBD67828D2B9029
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24132.jpgsave_picture_24132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24132.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ magnet:?xt=urn:btih:133AD57E578EEAB185C8C45AA244DF198699B79F
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24133.jpgsave_picture_24133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24133.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ magnet:?xt=urn:btih:42EDB8E921B032C3CB8C11ADE443B0556E55EA05
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24134.jpgsave_picture_24134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24134.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:9986D27CA24EE0C0D852D3AF3D543B8B6E20C3EC
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24135.jpgsave_picture_24135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24135.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:7BD7F62E4D3627FF542F42E60696A0DCF0FF125E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24136.jpgsave_picture_24136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_24136.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Microsoft Visual Studio 2022 Enterprise 17.13.4 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24137.jpgsave_picture_24137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24137.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Keep It Trance Vol. 27 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24138.jpgsave_picture_24138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24138.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ magnet:?xt=urn:btih:889D5BE4EF6D528D3BC514D9CE6E781ECCDB64E9
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24139.jpgsave_picture_24139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24139.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ TikTok Private Plus v39.2.3 Mod by TikTok + Plugin Update 1.73 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24140.jpgsave_picture_24140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24140.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ inShot / Фото и видеоредактор v2.113.1481 Mod by Mixroot [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24141.jpgsave_picture_24141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24141.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:4D34E08FED45CAC6FD588AA4668C365FDD9EB531
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24142.jpgsave_picture_24142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24142.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mixland - 280 PRE 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24143.jpgsave_picture_24143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24143.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jibaku Shounen Hanako-kun | Toilet-bound Hanako-kun | Туалетный мал�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24144.jpgsave_picture_24144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24144.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Firefox Browser 136.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24145.jpgsave_picture_24145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24145.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ magnet:?xt=urn:btih:9F759D3C0187D1533DE1C447C136A8CFED83BC9C
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24146.jpgsave_picture_24146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24146.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:9CD15345914844D1FF5A61E3026661DA2928B138
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24147.jpgsave_picture_24147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24147.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ u-he - TyrellN6 3.0.0 rev.16947 Beta VSTi, VSTi 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24148.jpgsave_picture_24148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24148.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Vivaldi 7.2.3621.67 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24149.jpgsave_picture_24149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24149.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Process Audio - Protility 1.1.0 VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24150.jpgsave_picture_24150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24150.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Buddha Bar XIV (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24151.jpgsave_picture_24151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24151.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:29D86FA2108BAF7EA76D85856342CCF1C6677B95
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24152.jpgsave_picture_24152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24152.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:937DEC7EFDEEB0E1FF67E5E6968865C978908946
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24153.jpgsave_picture_24153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24153.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:C33E8EFBCE9CC7200D853A816A4B79508AD1A0D1
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24154.jpgsave_picture_24154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_24154.jpg" />
 </div>
 
 

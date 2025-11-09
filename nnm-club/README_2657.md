@@ -6,7 +6,7 @@ Dommin - The Martyr (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69832.jpgsave_picture_69832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69832.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - SaberWave Best Of 4 Years (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69833.jpgsave_picture_69833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69833.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:4B3EB9FCC24336A56A0D4EAFDD4D179777B28754
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69834.jpgsave_picture_69834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69834.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VA - Chill Jazz Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69835.jpgsave_picture_69835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69835.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:E4F7CD13813800CF5BE75ACC91763D42583E561E
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69836.jpgsave_picture_69836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69836.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ VA - Mondo Groove (The New Italian Funky Scene) (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69837.jpgsave_picture_69837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69837.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ magnet:?xt=urn:btih:417AECF994CC3FAEC75E078218745B9DF2A44591
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69838.jpgsave_picture_69838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69838.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - A Taste Of Honey (Martin Bedford Tribute) (2025) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69839.jpgsave_picture_69839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69839.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:271863DD45682165BAAC499181C965F9C3255D03
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69840.jpgsave_picture_69840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69840.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Jazzy Chill Vibes (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69841.jpgsave_picture_69841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69841.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Antony Szmierek - Service Station At The End Of The Universe (2025) [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69842.jpgsave_picture_69842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69842.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Christian Mistress - Children of the Earth (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69843.jpgsave_picture_69843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69843.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Joey DeFrancesco - Finger Poppin' (2009) Doodlin' Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69844.jpgsave_picture_69844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69844.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The Very Tall Band - What's Up? (1998) 2007, Telarc Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69845.jpgsave_picture_69845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69845.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69846.jpgsave_picture_69846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69846.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Fatal Embrace (Sweden) - Studio Albums (3 releases) (1997-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69847.jpgsave_picture_69847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69847.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Asylum (Australia) - Studio Albums (2 releases) (2017-2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69848.jpgsave_picture_69848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69848.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ magnet:?xt=urn:btih:C3D626F2340CCD2A61EF8A4ED12B2CCA209BED8C
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69849.jpgsave_picture_69849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69849.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ John Graas & Art Pepper - Complete Small Group Sessions (1951 - 1958) 2CD, 2017,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69850.jpgsave_picture_69850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69850.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ John Doe Trio - JD III (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69851.jpgsave_picture_69851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69851.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Howard Mahan - Hope on Credit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69852.jpgsave_picture_69852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69852.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Paul Buskirk - Banjo, But Beautiful (1970) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69853.jpgsave_picture_69853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69853.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Joey DeFrancesco - All Of Me (1989) Columbia [FLAC|Lossless|tracks + .cue] <Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69854.jpgsave_picture_69854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69854.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Unto Others - Strength (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Post-P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69855.jpgsave_picture_69855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69855.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Joey DeFrancesco, Massimo Farao - Estate (2008) Zucca Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69856.jpgsave_picture_69856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69856.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69857.jpgsave_picture_69857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69857.jpg" />
 </div>
 
 

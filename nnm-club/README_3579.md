@@ -6,7 +6,7 @@ Paranoid London - Arseholes, Liars, and Electronic Pioneers (2024) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113429.jpgsave_picture_113429.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113429.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RSS Guard 4.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113430.jpgsave_picture_113430.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113430.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ magnet:?xt=urn:btih:06D80D5BB03777835824E68EC800574668FD501D
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113431.jpgsave_picture_113431.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113431.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Synthia - VI (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113432.jpgsave_picture_113432.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113432.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ VA - Black Hole Trance Music 03-24 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113433.jpgsave_picture_113433.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113433.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:B67564F65CF1824D60CD7D4100F64625D8EA7667
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113434.jpgsave_picture_113434.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113434.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ uDock 4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113435.jpgsave_picture_113435.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113435.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Caffeinated 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113436.jpgsave_picture_113436.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113436.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ XYplorer 25.70.0100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113437.jpgsave_picture_113437.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113437.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Speedtest от Ookla 5.3.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113438.jpgsave_picture_113438.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113438.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:1EF63AA46F18BF19743850DFD9AAC85342957BD0
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113439.jpgsave_picture_113439.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113439.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ PDF Shaper Premium / Ultimate 14.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113440.jpgsave_picture_113440.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113440.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Sumatra PDF 3.6.15987 Prerelease + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113441.jpgsave_picture_113441.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113441.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ magnet:?xt=urn:btih:CB01223230B2AE82201B8418EA4DD100F5BD12C3
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113442.jpgsave_picture_113442.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113442.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:6642486A790FA00AB87CD9FA52BC277496D024C8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113443.jpgsave_picture_113443.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113443.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Classical Music Piano Solo (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113444.jpgsave_picture_113444.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113444.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:E37EA9F53378DCCBCD14D14A6CCECBE03023FC8C
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113445.jpgsave_picture_113445.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113445.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ magnet:?xt=urn:btih:8AE2C5D2235B475EA08C2D441C66592809D3A280
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113446.jpgsave_picture_113446.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113446.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Relaxing Classical Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113447.jpgsave_picture_113447.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113447.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:84791F48CBC0EA5501E53B986CD99CF4B8C80CF6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113448.jpgsave_picture_113448.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113448.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:583560B21B32C73CC283443A4E1D601181CADA35
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113449.jpgsave_picture_113449.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113449.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ iNet Network Scanner 3.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113450.jpgsave_picture_113450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113450.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:473FE4CD214D5FBAD6B4022E33442F8943598DA0
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113451.jpgsave_picture_113451.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113451.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Opera One 108.0.5067.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113452.jpgsave_picture_113452.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113452.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113453.jpgsave_picture_113453.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113453.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Above & Beyond | OceanLab - OceanLab: The Anthology (2024) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113454.jpgsave_picture_113454.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113454.jpg" />
 </div>
 
 

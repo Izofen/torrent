@@ -6,7 +6,7 @@ Windows Manager 2.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35871.jpgsave_picture_35871.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35871.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ magnet:?xt=urn:btih:E1C468E61F2E17635997E796B274EEF84D8FBCC4
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35872.jpgsave_picture_35872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35872.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:4AD3A804B391FCB0C0F811A24694736529D908F1
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35873.jpgsave_picture_35873.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35873.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ VA - Motivation Mix 7 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35874.jpgsave_picture_35874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35874.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ magnet:?xt=urn:btih:D65BC757C4C53C183A62FE01DD66E68AB1CB5C94
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35875.jpgsave_picture_35875.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35875.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35876.jpgsave_picture_35876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35876.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:97FCA364F7ED091A8C7A343B7C80C85AF130E3F3
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35877.jpgsave_picture_35877.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35877.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:82F4BBF7D5EB8350808C6ED771AC77ABFAF675F6
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35878.jpgsave_picture_35878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35878.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Process Lasso Pro 15.0.3.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35879.jpgsave_picture_35879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35879.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Duplicate Cleaner Pro 5.24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35880.jpgsave_picture_35880.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35880.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:6554D1747BEE1D375CB6936C5A446AB8B4527235
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35881.jpgsave_picture_35881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35881.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack dixen18 [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35882.jpgsave_picture_35882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35882.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ magnet:?xt=urn:btih:C35115AF82BEF109EC0C3B636C3EDF31F0F20C68
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35883.jpgsave_picture_35883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35883.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:286DD05B8987C4630769DC2C322B4C1DC5CFDFFF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35884.jpgsave_picture_35884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35884.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:559B048546FA6503E5F89E78EB52CB26E27CC8F8
 >>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35885.jpgsave_picture_35885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35885.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ NekoRay / NekoBox 3.26 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35886.jpgsave_picture_35886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35886.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack Other s [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35887.jpgsave_picture_35887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35887.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:0CF3E406C6380E596CB8C02D0E44C301FE5F89E6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35888.jpgsave_picture_35888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35888.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ magnet:?xt=urn:btih:0CF3E406C6380E596CB8C02D0E44C301FE5F89E6
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35889.jpgsave_picture_35889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35889.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ magnet:?xt=urn:btih:C9696C6630E5F9633DEF1E54661651AABC9C3383
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35890.jpgsave_picture_35890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35890.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ ON1 NoNoise AI 2024 18.3.0.15302 [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35891.jpgsave_picture_35891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35891.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0.0.15) Repack Let'sР
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35892.jpgsave_picture_35892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35892.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ magnet:?xt=urn:btih:3289CFC6647CA006A86ECF260DA9A9CC3CEC67B9
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35893.jpgsave_picture_35893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35893.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:DDB129C67BEC6665EEDA08DAB31B8769BEAFF019
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35894.jpgsave_picture_35894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35894.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Pacific Drive (2024) [Ru/Multi] (1.8.2/dlc) Repack dixen18 [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35895.jpgsave_picture_35895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35895.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:0E3C23BEEAFA37B6973DB8F883A3BFF9FEC69D90
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35896.jpgsave_picture_35896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35896.jpg" />
 </div>
 
 

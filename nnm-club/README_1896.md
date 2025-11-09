@@ -6,7 +6,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49653.jpgsave_picture_49653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49653.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Deep Purple - =1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49654.jpgsave_picture_49654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49654.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:C0B2FAD747E951B7002C07E78985753DA1C43316
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49655.jpgsave_picture_49655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49655.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Fast Video Downloader 4.0.0.60 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49656.jpgsave_picture_49656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49656.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:F3CC2FE3A9261FC88885B24B0C09D6FA0CC26E3F
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49657.jpgsave_picture_49657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49657.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:2DA08F62557135AD0937EF4E2D62CC9135A3A0CD
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49658.jpgsave_picture_49658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49658.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:29D277216AFBBAA4D32504822B71C27E2B8E13DB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49659.jpgsave_picture_49659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49659.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:75F1C205A3EA07E3DD6AEAD76BE33262C14F1C72
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49660.jpgsave_picture_49660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49660.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Blackmagic Design DaVinci Resolve Studio 19.0B Build 51 Public Beta 5 (x64) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49661.jpgsave_picture_49661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49661.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ magnet:?xt=urn:btih:503D94E6127DA0FC4DE8C08B18B42A0D9C2946FA
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49662.jpgsave_picture_49662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49662.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ TerraScape (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49663.jpgsave_picture_49663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49663.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:4494209D9561D2F9DA915B54A09767146C23B078
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49664.jpgsave_picture_49664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49664.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Zero Division (2024) [Multi] (1.01f HotFix) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49665.jpgsave_picture_49665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49665.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:F45DCB626E7D42AA6720B4A79B259EBEFF98E7E4
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49666.jpgsave_picture_49666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49666.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:B40B9415CFF4C47734F0AA10E74C9FEAB0288DD9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49667.jpgsave_picture_49667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49667.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Butanooo! Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49668.jpgsave_picture_49668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49668.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Manhunt (2004) [Ru] (1.1) Repack R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49669.jpgsave_picture_49669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49669.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:110A93E9FA91B119CDF9A7AC42AF126586E97BB0
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49670.jpgsave_picture_49670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49670.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:341E1B6AB5EC86741BF7A0C968160B5A9C9897A0
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49671.jpgsave_picture_49671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49671.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:422C24C0907136F59A28C7AA383E438BA2A60C0A
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49672.jpgsave_picture_49672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49672.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:19ACE82FC03BF1A6F41AD4658027CDF6AC92B772
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49673.jpgsave_picture_49673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49673.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ CCleaner 6.26.11169 Free / Pro / Business / Technician Edition RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49674.jpgsave_picture_49674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49674.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:66E9CBD29BE9DACF088B6FB6D5069522E0EB5BDC
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49675.jpgsave_picture_49675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49675.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Deep Purple - =1 (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49676.jpgsave_picture_49676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49676.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Half Life Megapack+ (1998-2018) [Ru/En] (1.1.2.0/4312) Repack/Mod TigerHeart
 >>25
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49677.jpgsave_picture_49677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49677.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:C5E5160D59EC0E5CE0C9BC8C67F2A1F293CE45BD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49678.jpgsave_picture_49678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49678.jpg" />
 </div>
 
 

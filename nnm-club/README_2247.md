@@ -6,7 +6,7 @@ Word Learn Languages v5.8 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58789.jpgsave_picture_58789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58789.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ HopToDesk 1.41.9.0 Portable + Install [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58790.jpgsave_picture_58790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58790.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Windows 10 Manager 3.9.4 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58791.jpgsave_picture_58791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58791.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ EF Commander 24.05 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58792.jpgsave_picture_58792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58792.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:A9098E01279EEBE4998AD8239D2145B037CE125C
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58793.jpgsave_picture_58793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58793.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F91EC26B4ED99E272E4C969135B8AE45EDD8FFD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58794.jpgsave_picture_58794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58794.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Windows 10 Manager 3.9.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58795.jpgsave_picture_58795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58795.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58796.jpgsave_picture_58796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58796.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:676A6FC8BE288D3C60D167EE6FA26474A053D383
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58797.jpgsave_picture_58797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58797.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ magnet:?xt=urn:btih:BF063F241310B01BA22DF1167E11984D7F4ABC2C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58798.jpgsave_picture_58798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58798.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mark Knopfler - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Folk Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58799.jpgsave_picture_58799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58799.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Signal State (2021) [Ru/Multi] (1.33b) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58800.jpgsave_picture_58800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58800.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Office.Files.Images 2.46 Portable [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58801.jpgsave_picture_58801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58801.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WinToUSB Free / Pro / Enterprise / Technician 8.8 RePack (& Portable) by Dodakae
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58802.jpgsave_picture_58802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58802.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:B114FE7D953CC392CB1776441E6BD69DBDD6B55C
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58803.jpgsave_picture_58803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58803.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.2.1 RePack (& portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58804.jpgsave_picture_58804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58804.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Shinkansen 0 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58805.jpgsave_picture_58805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58805.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:B1006B08DE57CFE513C9E8D89C77766D4160B9F1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58806.jpgsave_picture_58806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58806.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ FLAKE The Legend of Snowblind (2024) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58807.jpgsave_picture_58807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58807.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Rosetta Stone: Изучение языков v8.24.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58808.jpgsave_picture_58808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58808.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Mylene Farmer - Remix XL (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58809.jpgsave_picture_58809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58809.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Internet Download Manager 6.42 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58810.jpgsave_picture_58810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58810.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:74051B07E940670EEF5D43E7F9EE3CE1B587DFC9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58811.jpgsave_picture_58811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58811.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:74051B07E940670EEF5D43E7F9EE3CE1B587DFC9
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58812.jpgsave_picture_58812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58812.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Duplicate Cleaner Pro 5.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58813.jpgsave_picture_58813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58813.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ BBC: Звуковые волны: симфония физики / Sound Waves: T
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58814.jpgsave_picture_58814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_58814.jpg" />
 </div>
 
 

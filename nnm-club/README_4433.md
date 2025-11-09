@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138532.jpgsave_picture_138532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138532.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ magnet:?xt=urn:btih:EBDF6022EEAFC744FC8517A55728B03A6C1536B5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138534.jpgsave_picture_138534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138534.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VSO ConvertXtoDVD 6.0.0.12 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138536.jpgsave_picture_138536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138536.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138537.jpgsave_picture_138537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138537.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Movavi Photo Editor 5.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138538.jpgsave_picture_138538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138538.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138539.jpgsave_picture_138539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138539.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:5B34C111400533B7AF81DE2F9A8C67553C9295ED
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138540.jpgsave_picture_138540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138540.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ EasyBCD 2.4.0.237 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138543.jpgsave_picture_138543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138543.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Advanced Renamer 3.87 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138544.jpgsave_picture_138544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138544.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Nail Within - Sound Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138545.jpgsave_picture_138545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138545.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ AnyToISO Pro 3.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138546.jpgsave_picture_138546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138546.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Driver Easy Pro 5.6.8.35406 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138547.jpgsave_picture_138547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138547.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Ummy Video Downloader 1.5.0.5 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138548.jpgsave_picture_138548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138548.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ NCH ClickCharts Diagram Pro 8.67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138551.jpgsave_picture_138551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138551.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:83FC5B10B4253A5DA852EFC33E2D22EA72CEA797
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138552.jpgsave_picture_138552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138552.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138553.jpgsave_picture_138553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138553.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:72F8624EEE116EDC0AE7F080DE8AADFDCFB08026
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138554.jpgsave_picture_138554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138554.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Display Driver Uninstaller 15.7.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138555.jpgsave_picture_138555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138555.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ magnet:?xt=urn:btih:DFF1002854EC942FA58A0E04599ECB15B15012A1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138556.jpgsave_picture_138556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138556.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ magnet:?xt=urn:btih:7A415BC2C525AAE9BB2BBC62DB0A5371F41F59C2
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138557.jpgsave_picture_138557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138557.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Apeaksoft iPhone Eraser for Mac 1.0.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138558.jpgsave_picture_138558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138558.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ magnet:?xt=urn:btih:1FA446AA7EFAA8D25A7E1B6E9727D3C17BAF2FC3
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138559.jpgsave_picture_138559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138559.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ WidsMob Portrait 1.4.0.128 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138560.jpgsave_picture_138560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138560.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Black Mesa (2015) [Ru] (0.9.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138561.jpgsave_picture_138561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138561.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:84A618DD319048D527189D3B25F6F7314285A29D
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138562.jpgsave_picture_138562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138562.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:BC26F6AF2EFCC34D3AFE1F73EA3CC3A33E4FCC51
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138563.jpgsave_picture_138563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138563.jpg" />
 </div>
 
 

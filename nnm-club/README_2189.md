@@ -6,7 +6,7 @@ IObit Uninstaller Pro 13.5.0.1 Portable by  FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57281.jpgsave_picture_57281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57281.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:75BE610F72CEF460644939E8AFC8F09110F29757
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57282.jpgsave_picture_57282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57282.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ USB Device Tree Viewer 4.2.4.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57283.jpgsave_picture_57283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57283.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:EFE81CCF89B9B46225F0A9E37A7B5E2B8A8794E9
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57284.jpgsave_picture_57284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57284.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:88B155D4420B901BAEF82570C2551F03602348C9
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57285.jpgsave_picture_57285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57285.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:F6D25872CF489693A3A5CA82200E0722C964F90F
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57286.jpgsave_picture_57286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57286.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Sash! - Adelante (Bobina Megadrive Remix) (2018) [FLAC|Lossless|tracks] <Progres
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57287.jpgsave_picture_57287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57287.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0507) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57288.jpgsave_picture_57288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57288.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:FC54DCA03CC8482A0DCE81C3E2B6539FB07DBFE5
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57289.jpgsave_picture_57289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57289.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Def Leppard - Pyromania (1983) 4 x CD, 40th Anniversary, Reissue, Remastered, Vi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57290.jpgsave_picture_57290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57290.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ magnet:?xt=urn:btih:7072916A0CDAD39FFE0ABE2A925F4A4EAD4342C4
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57291.jpgsave_picture_57291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57291.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:61A236C6692D62C526854AAE40859F71A54436B0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57292.jpgsave_picture_57292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57292.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:2EBC1D9A67462D03B6F0EC2EEBCAF7D597901670
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57293.jpgsave_picture_57293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57293.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Best Of EDM Party 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57294.jpgsave_picture_57294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57294.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ MediaHuman YouTube Downloader 3.9.9.92 (0507) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57295.jpgsave_picture_57295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57295.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Skype 8.119.0.201 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57296.jpgsave_picture_57296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57296.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ XYZ - Take What You Can... Live (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57297.jpgsave_picture_57297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57297.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Sky Van Dreamer - Laser Dance & Koto Covers (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57298.jpgsave_picture_57298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57298.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ magnet:?xt=urn:btih:84A23619755DBCDE72C46021B80F2FC3C2787921
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57299.jpgsave_picture_57299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57299.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Blood Stain Child - 2 Albums (2024) [MP3|320 Kbps] <Modern Melodic Death Metal, 
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57300.jpgsave_picture_57300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57300.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:526EB5AFDBEA9909F7CC958B199E709B90635E0C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57301.jpgsave_picture_57301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57301.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Cliff Richard - Rock 'N' Roll Juvenile (1979) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57302.jpgsave_picture_57302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57302.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Beach Sunset Mood: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57303.jpgsave_picture_57303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57303.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Ashampoo WinOptimizer 27.00.01 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57304.jpgsave_picture_57304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57304.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Wondershare UniConverter 15.5.8.70 RePack (& Portable) by elchupacabra (06.05.20
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57305.jpgsave_picture_57305.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57305.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ magnet:?xt=urn:btih:8E0045C85FABD8CF0C47B991E95588E1D440AEBF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57306.jpgsave_picture_57306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_57306.jpg" />
 </div>
 
 

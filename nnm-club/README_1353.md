@@ -6,7 +6,7 @@ Email Aqua Mail - Fast, Secure v1.54.0 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35533.jpgsave_picture_35533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35533.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@ VA - 50 лучших хитов, Часть 2 (2024) [FLAC|Lossless|WEB-DL|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35534.jpgsave_picture_35534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35534.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Word Learn Languages v5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35535.jpgsave_picture_35535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35535.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Shinigami Bocchan to Kuro Maid 2 | The Duke of Death and His Maid 2 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35536.jpgsave_picture_35536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35536.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Ocean Match / Рыбки: Три в ряд v2.6.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35537.jpgsave_picture_35537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35537.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ AR Ruler App: Линейка Рулетка v2.8.9 Mod by srajawwal09 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35538.jpgsave_picture_35538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35538.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35539.jpgsave_picture_35539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35539.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:8CCAB6DA0CA0DD05BCBAA3CED67A7E5BAE8E21CE
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35540.jpgsave_picture_35540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35540.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:7AA13D3235F83C3EA138CE531FBC132C04909E76
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35541.jpgsave_picture_35541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35541.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35542.jpgsave_picture_35542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35542.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:D89D01B41C8BD955FE1087F68128C06EB7F20EBA
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35543.jpgsave_picture_35543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35543.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ House Flipper (2018) [Ru/Multi] (1.24331/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35544.jpgsave_picture_35544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35544.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ TapScanner v3.0.48 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35545.jpgsave_picture_35545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35545.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:CE707DFB36A6A8AB5BB95E5DEAD59E1B4ABC8B72
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35546.jpgsave_picture_35546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35546.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Black Stone Cherry - Hits, Rareties And Live (2014) [FLAC|Lossless]<Rock, Acoust
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35547.jpgsave_picture_35547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35547.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ A-ha - Compilation (1985-2022) [MP3|320 Kbps] <Synth pop, New wave, Pop rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35548.jpgsave_picture_35548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35548.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:2785B519802CB1A4672D7C48BF3761ADE65FBAD9
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35549.jpgsave_picture_35549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35549.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ No To Co - So What (1970) [FLAC|Lossless]<Folk-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35550.jpgsave_picture_35550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35550.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ tinyCam Monitor PRO v17.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35551.jpgsave_picture_35551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35551.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35552.jpgsave_picture_35552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35552.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35553.jpgsave_picture_35553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35553.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:5BC754E5242F8A4D3451D4D234C14AABCDDC6F98
 >>Игра престолов / Game of Thrones
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35554.jpgsave_picture_35554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35554.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:77FA401368C97554148E715FD02D0797AF9AD34F
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35555.jpgsave_picture_35555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35555.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ YT Downloader 9.11.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35556.jpgsave_picture_35556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35556.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ magnet:?xt=urn:btih:572C08A2DF246EE583B26A646C945683F1336B25
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35557.jpgsave_picture_35557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35557.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Ashampoo Photo Optimizer 10.0.6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35558.jpgsave_picture_35558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_35558.jpg" />
 </div>
 
 

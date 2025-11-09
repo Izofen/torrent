@@ -6,7 +6,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137838.jpgsave_picture_137838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137838.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note ~ Tokubetsu Hen | Lor
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137839.jpgsave_picture_137839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137839.jpg" />
 </div>
 
 
@@ -56,7 +56,7 @@ VA - District of Trance (Compiled by sseless & Lazyra) (2013) [MP3|320 кб/с]<
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137840.jpgsave_picture_137840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137840.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ magnet:?xt=urn:btih:52A8B9261AB90B322C4B55699F77C4B320FB6008
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137841.jpgsave_picture_137841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137841.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ magnet:?xt=urn:btih:C956DDC18EEF00054C60D5B7EFE7108A22A6832E
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137843.jpgsave_picture_137843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137843.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:FBA5E5D7DDCC2609BF9400658964CFFD16CACE93
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137844.jpgsave_picture_137844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137844.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:24A38EB39692B13A2DD8693727F58B6A5DD1D1C8
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137845.jpgsave_picture_137845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137845.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Mozilla Thunderbird 45.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137848.jpgsave_picture_137848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137848.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:5DA323A1A59E8D60CB46EC2B5DF6270B0D5D91A2
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137849.jpgsave_picture_137849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137849.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ magnet:?xt=urn:btih:A8FAADBBD2BC9CC1E174D925AE1A64547AFCD3E4
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137850.jpgsave_picture_137850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137850.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Plus Messenger (Telegram+) v10.2.9.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137852.jpgsave_picture_137852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137852.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ magnet:?xt=urn:btih:0ED80EFF2E071ED18CFC8D9132074CA74C108421
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137853.jpgsave_picture_137853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137853.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ magnet:?xt=urn:btih:5498DC34D69584C8BF700DEB3D02E68C115C450F
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137854.jpgsave_picture_137854.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137854.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:367CDDC695F9426C364DA843C945CB481528BFA0
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137855.jpgsave_picture_137855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137855.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VideoHive - The Wedding Roses - 5580414 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137856.jpgsave_picture_137856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137856.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137857.jpgsave_picture_137857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137857.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:77513E96CC70B0D1D56C75D7C80D1F4D9541B0A8
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137858.jpgsave_picture_137858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137858.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Tammetõru (Tammetoru) - 2001​-​2009 (2018) [FLAC|Lossless|WEB-DL|tracks] <I
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137859.jpgsave_picture_137859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137859.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:CDE8AE34FC98F194BC9A4C2930F6244A0DDC1048
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137860.jpgsave_picture_137860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137860.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:97FD5C94AFF4A57909AAB4AC53EB14BB63F588EB
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137861.jpgsave_picture_137861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137861.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Reface v3.55.1 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137862.jpgsave_picture_137862.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137862.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:264E01732101D99E64275DAA095EB86A7AA691EE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137863.jpgsave_picture_137863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137863.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:7EE2F46B1177925C6827C7412C22823EF4C7B58E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137864.jpgsave_picture_137864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137864.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ NЮ - В сердце (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137866.jpgsave_picture_137866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137866.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:6D9C4A9985ABFD37FF19EAF048895805620ADE00
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137867.jpgsave_picture_137867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137867.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ magnet:?xt=urn:btih:900E7D81C4F9A8B79ADCA03B6CC3B4F39CA43AD9
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137868.jpgsave_picture_137868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137868.jpg" />
 </div>
 
 

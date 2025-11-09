@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107695.jpgsave_picture_107695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107695.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Relaxing Electronic Atmosphere (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107696.jpgsave_picture_107696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107696.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:263BA0FA64AAFEF86C6219832C241524458C9554
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107697.jpgsave_picture_107697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107697.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - 2022 EDM (2022) [FLAC|Lossless|tracks] <EDM, House, Future Rave, Dubstep>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107698.jpgsave_picture_107698.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107698.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:9171AA032B270F72F62A40B5E36FE1FD90E665ED
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107699.jpgsave_picture_107699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107699.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:8B4AAF2A8663CEC6605D415D4568F8595372AF07
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107700.jpgsave_picture_107700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107700.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RoughAnimator - animation app 3.25 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107701.jpgsave_picture_107701.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107701.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ FanControl V194 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107702.jpgsave_picture_107702.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107702.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Chromium 126.0.6478.115 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107703.jpgsave_picture_107703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107703.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2024-06-16) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107704.jpgsave_picture_107704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107704.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ IObit Uninstaller Free 13.6.0.2 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107705.jpgsave_picture_107705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107705.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ magnet:?xt=urn:btih:D5D79975459103806BD1DA32E28D3A3C69AB1467
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107706.jpgsave_picture_107706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107706.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ magnet:?xt=urn:btih:D3F478B52DCFB5509889323AAC9E63087FBE012C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107707.jpgsave_picture_107707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107707.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:FEC29770E5C07802F6925980EA2A9DE66820957C
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107708.jpgsave_picture_107708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107708.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:D9E1BB7A41B2A41C76B9DED6BBC1D655F2E869F3
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107709.jpgsave_picture_107709.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107709.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Ben Tankard - The Godfather Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107710.jpgsave_picture_107710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107710.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ magnet:?xt=urn:btih:86D937AA61CCC6028C8BD9ACBA43544CFC30B483
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107711.jpgsave_picture_107711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107711.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Criminal Archives 4: Blade of Deceit (2024) [Multi] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107712.jpgsave_picture_107712.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107712.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107713.jpgsave_picture_107713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107713.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Topaz Gigapixel AI 7.2.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107714.jpgsave_picture_107714.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107714.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ magnet:?xt=urn:btih:D5F16CE5FDE04CD6DE47E1768CAF29172223E6F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107715.jpgsave_picture_107715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107715.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ magnet:?xt=urn:btih:D5F16CE5FDE04CD6DE47E1768CAF29172223E6F9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107716.jpgsave_picture_107716.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107716.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ magnet:?xt=urn:btih:D5F16CE5FDE04CD6DE47E1768CAF29172223E6F9
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107717.jpgsave_picture_107717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107717.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Beyblade X | Бейблэйд Икс [2023, TV, 2 из 52] WebRip 1080p raw+rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107718.jpgsave_picture_107718.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107718.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Maurice Ravel - The Complete Works (2020) 21CD [MP3|320 Kbps] <Classics>
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107719.jpgsave_picture_107719.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107719.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ magnet:?xt=urn:btih:1F6474E999DEA4F72ECF8B8E23DBDA14D37E1ED3
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107720.jpgsave_picture_107720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107720.jpg" />
 </div>
 
 

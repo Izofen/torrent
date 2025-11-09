@@ -6,7 +6,7 @@ VA - Music News For Forum vol.143 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246156.jpgsave_picture_246156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246156.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ WinRAR 7.20 beta 1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246157.jpgsave_picture_246157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246157.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ WinDjView Extended 4.1.0 Portable [Ru/En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246158.jpgsave_picture_246158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246158.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Avatar - Don’t Go In The Forest (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246159.jpgsave_picture_246159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246159.jpg" />
 </div>
 
 
@@ -109,7 +109,7 @@ Excite Audio - Bloom Bundle 2025.10 STANTALONE, VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246160.jpgsave_picture_246160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246160.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:E7A3C59A25DA623E50A0D95180F3031AC44D062B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246161.jpgsave_picture_246161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246161.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:0733ACD61D93B5A4F961D174E5F30C2CAC9D18AB
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246162.jpgsave_picture_246162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246162.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:95172E935E5A96A8B0B9C284C5B34BFFB7AE9F7F
 >>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246163.jpgsave_picture_246163.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246163.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ DBF Converter 7.65 RePack (& Portable) by elchupacabra [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246164.jpgsave_picture_246164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246164.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Sofia Bellini - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246165.jpgsave_picture_246165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246165.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ magnet:?xt=urn:btih:F7FAF470BE483A3006F43006AA29E87BD42798BD
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246166.jpgsave_picture_246166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246166.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ SupRemo 4.11.6.2928 [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246167.jpgsave_picture_246167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246167.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:29CC8E02B84382659C4A0649CB8A227F4402DB75
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246168.jpgsave_picture_246168.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246168.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246169.jpgsave_picture_246169.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246169.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Galactic Empire - Cinemetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246170.jpgsave_picture_246170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246170.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:11C6A75DC4AAFC9C97EEACE8A616E0FA417C26AD
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246171.jpgsave_picture_246171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246171.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:6CE7578F859E7A616E36F74877C2E828EA9C39A0
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246172.jpgsave_picture_246172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246172.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:BDEC645D13F3754F372718CD27EEE242DE48F42C
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246173.jpgsave_picture_246173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246173.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Elettra Storm - Evertale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246174.jpgsave_picture_246174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246174.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ DBF Viewer 2000 8.87 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246175.jpgsave_picture_246175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246175.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:BCA890979206289FA89E2C00DC45A381E127C074
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246176.jpgsave_picture_246176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246176.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Mammoth - The End (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Modern Hard Rock>
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246177.jpgsave_picture_246177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246177.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ magnet:?xt=urn:btih:EA8739985EA7EC21163EF17C0EF35555DBEC1EF7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246178.jpgsave_picture_246178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246178.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ MAX Desktop 25.15.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246179.jpgsave_picture_246179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246179.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Biohazard - Divided We Fall (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246180.jpgsave_picture_246180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246180.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ashampoo WinOptimizer 28.00.20 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246181.jpgsave_picture_246181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_246181.jpg" />
 </div>
 
 

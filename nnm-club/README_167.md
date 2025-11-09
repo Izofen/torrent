@@ -6,7 +6,7 @@ Ami Taf Ra - The Prophet and The Madman (2025) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4393.jpgsave_picture_4393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4393.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Baba Blues - Glimmer of Gold II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4394.jpgsave_picture_4394.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4394.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ TesseracT (& Daniel Tompkins) - Studio Albums (7 releases) (2011-2023) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4395.jpgsave_picture_4395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4395.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tim Erickson - Waiting On The Light (Artist's Cut) (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4396.jpgsave_picture_4396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4396.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Bonnevilles - Age Of Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4397.jpgsave_picture_4397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4397.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bluebirds - You Take My Blues Away (The original live recordings) (2025) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4398.jpgsave_picture_4398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4398.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Sebastian Rider - Gonna Know My Name (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4399.jpgsave_picture_4399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4399.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Honeybear the Band - I Was Wrong (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4400.jpgsave_picture_4400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4400.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Rick White - Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4401.jpgsave_picture_4401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4401.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Pendulum - Inertia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4402.jpgsave_picture_4402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4402.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:11E7A826EB980E3DDA6BEBA57F0DDC28ABF925B2
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4403.jpgsave_picture_4403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4403.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4404.jpgsave_picture_4404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4404.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4405.jpgsave_picture_4405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4405.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Queen - Acoustic (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4406.jpgsave_picture_4406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4406.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ AI Talking - Mega Collection Vol. 2 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4407.jpgsave_picture_4407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4407.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ AI Talking - Mega Collection Vol. 3 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4408.jpgsave_picture_4408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4408.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ AI Talking - Mega Collection Vol. 5 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4409.jpgsave_picture_4409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4409.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4410.jpgsave_picture_4410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4410.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:5A2FC9CE77326309D6E21DBCB0ECB03FCBA0EA85
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4411.jpgsave_picture_4411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4411.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ AI Talking - Mega Collection Vol. 4 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4412.jpgsave_picture_4412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4412.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Halle Choir, BBC Philharmonic and John Storgards - Shostakovich: Symphonies Nos.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4413.jpgsave_picture_4413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4413.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4414.jpgsave_picture_4414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4414.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Dj Cult Music - Blues Rock Cult Songs (2025) [FLAC 24/192|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4415.jpgsave_picture_4415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4415.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Laufey - A Matter of Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4416.jpgsave_picture_4416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4416.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Joris Voorn - Serotonin (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4417.jpgsave_picture_4417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4417.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ magnet:?xt=urn:btih:01023069F4AC277F36895A0985F1B376279E9523
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4418.jpgsave_picture_4418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_4418.jpg" />
 </div>
 
 

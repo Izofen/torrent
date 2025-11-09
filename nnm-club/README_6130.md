@@ -6,7 +6,7 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192754.jpgsave_picture_192754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192754.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Humulus - Flowers of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192755.jpgsave_picture_192755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192755.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:E3CE8E4E258437751E4FB92A7E63C7A88E97B50F
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192756.jpgsave_picture_192756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192756.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Eve To Adam - Locked & Loaded (2013) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192757.jpgsave_picture_192757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192757.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Eclipse - Megalomanium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192758.jpgsave_picture_192758.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192758.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:6F7023BE389F5DC6BE6060294D5FD9D2F9F16DD8
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192760.jpgsave_picture_192760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192760.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Far Beyond - A Frozen Flame of Ice (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192761.jpgsave_picture_192761.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192761.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:6E2B2EA1010C414F43F969A36310559AEA719C8C
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192762.jpgsave_picture_192762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192762.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Vydro - V[Y]Idro (2023) [FLAC|Lossless|WEB-DL|tracks] <rapcore, nu metalcore, al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192763.jpgsave_picture_192763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192763.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:B0453C3700FDF2B1FE8C3E332FA12197F67248D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192764.jpgsave_picture_192764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192764.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Black Magic Six - Black Cloud Descending (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192765.jpgsave_picture_192765.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192765.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Raven Banner - Rise Up Clan (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192766.jpgsave_picture_192766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192766.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ PhotoWhoa, Sam Henderson | 12 Videos For Creating Stunning Fine Art Nude Photogr
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192768.jpgsave_picture_192768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192768.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ The Whiskey Dilemma - The Angels Crave a Devil's Heart (2023) [FLAC|Lossless|WEB
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192769.jpgsave_picture_192769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192769.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Wolfram Mathematica 13.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192770.jpgsave_picture_192770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192770.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Lo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192771.jpgsave_picture_192771.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192771.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Glacerate - Hyper (2023) [FLAC|Lossless|WEB-DL|tracks] <Hyper Metal, Hardcore Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192772.jpgsave_picture_192772.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192772.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:09118BE8BD6ED0002E601CB813D311BE8B71D51E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192773.jpgsave_picture_192773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192773.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Asidie - Inside a Restless Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192774.jpgsave_picture_192774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192774.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Bloodthorne - Cosmic Passengers (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192775.jpgsave_picture_192775.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192775.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Torrid Affair - Torrid Affair (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192776.jpgsave_picture_192776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192776.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Imperial Crystalline Entombment - Ancient Glacial Resurgence (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192777.jpgsave_picture_192777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192777.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Ledmotiv - An Astronaut's Diary (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192778.jpgsave_picture_192778.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192778.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ magnet:?xt=urn:btih:20CF883011BFDC462276B3EA159B86FA33B858A3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192779.jpgsave_picture_192779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192779.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ War Chile - War Chile (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192780.jpgsave_picture_192780.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192780.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ magnet:?xt=urn:btih:9EA74D3E7B1583F4EE1BC4F5D4FE592177620B80
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192781.jpgsave_picture_192781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192781.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Michael Bolton - Spark of Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208861.jpgsave_picture_208861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208861.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:AB13B0ED6B9BF2029B3DDDB8F9D5C7F42099C6CE
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208863.jpgsave_picture_208863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208863.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:83626F9054EC0FBCD2FF1A0D4CBD55C534848488
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208867.jpgsave_picture_208867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208867.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:FA7C00FD75A9124F37EBD0A35F9C82265D9B5104
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208868.jpgsave_picture_208868.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208868.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:257F33ED43F1116B5913CE05EA5CE9BB52692C6C
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208870.jpgsave_picture_208870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208870.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:EFB45F79CE67B5341182E781BDD202FF124C159E
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208872.jpgsave_picture_208872.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208872.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ W O L F C L U B (Wolfclub) - Desert Hearts (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208874.jpgsave_picture_208874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208874.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:6A4B96534D74FD97E77E9E81BB84AF08979A595A
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208876.jpgsave_picture_208876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208876.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Michael Bolton - Spark of Light (2023) [FLAC|Lossless|image + .cue] <Pop Rock, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208878.jpgsave_picture_208878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208878.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Topaz Photo AI 1.4.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208883.jpgsave_picture_208883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208883.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Music News vol.280 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208888.jpgsave_picture_208888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208888.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Strike Commander (1993) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208889.jpgsave_picture_208889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208889.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:DAF7D27201E7B442A5B0FE99FAC39968E3A2F39C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208891.jpgsave_picture_208891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208891.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:4C8B9CD374B6B20AC470E2DD9AF08B413FAEB5A7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208893.jpgsave_picture_208893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208893.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208895.jpgsave_picture_208895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208895.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Hetman Partition Recovery 4.8 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208899.jpgsave_picture_208899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208899.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:A7DE6EA9B7E561E341B3DE58E66DB09AC70AF7A2
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208900.jpgsave_picture_208900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208900.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:817587CA1222C6C9890DA2C1A15CCAE1004F9849
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208905.jpgsave_picture_208905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208905.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:6838CC41BBBF29930E97684C9C86DA2BABE2EEDB
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208906.jpgsave_picture_208906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208906.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Task Manager DeLuxe 4.8.0.0 Portable [En]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208908.jpgsave_picture_208908.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208908.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ magnet:?xt=urn:btih:5728D84D7CBBC27DF730F7B8704C61F955DA3B1A
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208909.jpgsave_picture_208909.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208909.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ magnet:?xt=urn:btih:63883E97CD7664EFA5339A0EA16B4779AF76600A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208911.jpgsave_picture_208911.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208911.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ magnet:?xt=urn:btih:5656B6E2A2348202F50FD61D54CD39A34EBEE7CC
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208912.jpgsave_picture_208912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208912.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:E6BEBA5C77449CFF96651834B08E63438D5684D7
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208916.jpgsave_picture_208916.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208916.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:2CF86D381BAF50FBC6BA0A278EA3D17AD91FAB2A
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208917.jpgsave_picture_208917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208917.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.1.9 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208920.jpgsave_picture_208920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_208920.jpg" />
 </div>
 
 

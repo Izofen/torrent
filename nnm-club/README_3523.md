@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111959.jpgsave_picture_111959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111959.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C52C8FA06F7BC8521C3D9A5ECAC080DE9DA4B891
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111960.jpgsave_picture_111960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111960.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ JetBrains RubyMine 2024.1 Repack by Sitego [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111961.jpgsave_picture_111961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111961.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:2A1A96AE4688521F2F2CFE2B32759EEBB094379B
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111962.jpgsave_picture_111962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111962.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:D613002700F37F38DA9554C0BB47B1C22C4D5B71
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111963.jpgsave_picture_111963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111963.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:D613002700F37F38DA9554C0BB47B1C22C4D5B71
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111964.jpgsave_picture_111964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111964.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:CB39ABC08725ADC4E9168D2D236ACF176DA4F813
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111965.jpgsave_picture_111965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111965.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Icecream Slideshow Maker PRO 5.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111966.jpgsave_picture_111966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111966.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ StressMyPC 5.33 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111967.jpgsave_picture_111967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111967.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:59DC6FE71F7C8D8D4EAA84A2BCF1225957F33707
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111968.jpgsave_picture_111968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111968.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ KStars 3.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111969.jpgsave_picture_111969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111969.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ YT Downloader 9.7.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111970.jpgsave_picture_111970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111970.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ magnet:?xt=urn:btih:85A568F3E94949AD16B165B24E3402B988480545
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111971.jpgsave_picture_111971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111971.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ magnet:?xt=urn:btih:19FFD9398D224F92DF5212D957D14129E6D6E926
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111972.jpgsave_picture_111972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111972.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ magnet:?xt=urn:btih:40DDC350E3D9A433DA608EE86E9B156726C1E86D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111973.jpgsave_picture_111973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111973.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111974.jpgsave_picture_111974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111974.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111975.jpgsave_picture_111975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111975.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ PhotoResizerOK 2.91 Portable [Multi/Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111976.jpgsave_picture_111976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111976.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - Music News vol.361 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111977.jpgsave_picture_111977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111977.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Italian Best Shorts 7: Быть женщиной / Femminile Singolare / Feminin
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111978.jpgsave_picture_111978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111978.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111979.jpgsave_picture_111979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111979.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ GPU-Z 2.58.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111980.jpgsave_picture_111980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111980.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ FurMark 2.2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111981.jpgsave_picture_111981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111981.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Crisix - Studio Albums (8 releases) (2011-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111982.jpgsave_picture_111982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111982.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:6158888609499D7474C497961D8C5A45CF0661D2
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111983.jpgsave_picture_111983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111983.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Icecream Screen Recorder PRO 7.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111984.jpgsave_picture_111984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111984.jpg" />
 </div>
 
 

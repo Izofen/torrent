@@ -6,7 +6,7 @@ Robin Trower - Come And Find Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67556.jpgsave_picture_67556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67556.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Party Pupils - Virtual Clarity (2025) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67565.jpgsave_picture_67565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67565.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Dhune - Agony Tool (2025) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Progressive Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67570.jpgsave_picture_67570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67570.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Brainstorm - Metus Mortis (2001) Reissue, 2023, Metal Blade Records [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67571.jpgsave_picture_67571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67571.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ George Grigoriu - Odata Cu Cintecul (1977) Melodii De George Grigoriu [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67576.jpgsave_picture_67576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67576.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Black Stone Cherry - This is Black Stone Cherry's RSD album. The band really lik
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67577.jpgsave_picture_67577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67577.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Niviane - Queen Of Phantoms (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67578.jpgsave_picture_67578.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67578.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Johnny Raducanu - Confessions (1979) Seria Jazz – Nr. 16 [FLAC 2.0|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67581.jpgsave_picture_67581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67581.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Davido - 5ive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R&B>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67583.jpgsave_picture_67583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67583.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dark Flood - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67584.jpgsave_picture_67584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67584.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Dies Irae (Mexico) - Studio Albums (3 releases) (1998-2011) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67585.jpgsave_picture_67585.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67585.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Melvins - Thunderball (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Grunge, Rock, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67586.jpgsave_picture_67586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67586.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Tunde Adebimpe - Thee Black Boltz (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67588.jpgsave_picture_67588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67588.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Soulfly - Soulfly (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67589.jpgsave_picture_67589.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67589.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Rwake - The Return Of Magik (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67590.jpgsave_picture_67590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67590.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Samael - Worship Him (1991) Reissue, 2016, Osmose Productions [FLAC|24/192|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67591.jpgsave_picture_67591.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67591.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Fear Factory - The Industrialist (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67592.jpgsave_picture_67592.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67592.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Visionatica - Studio Albums (3 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67600.jpgsave_picture_67600.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67600.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Laurenne / Louhimo - Falling Through Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67607.jpgsave_picture_67607.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67607.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Fontaines D.C. - Romance (2024) Deluxe Edition, 2025, XL Recordings [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67608.jpgsave_picture_67608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67608.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Joachim Witt - Ich (2015) Remastered, 2025, Ventil [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67612.jpgsave_picture_67612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67612.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Photosphere, Unusual Cosmic Process - Mental Detachment (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67615.jpgsave_picture_67615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67615.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67621.jpgsave_picture_67621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67621.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [DSD128|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67625.jpgsave_picture_67625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67625.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Confidence Man - 5AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67655.jpgsave_picture_67655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67655.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Beirut - A Study of Losses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67660.jpgsave_picture_67660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67660.jpg" />
 </div>
 
 

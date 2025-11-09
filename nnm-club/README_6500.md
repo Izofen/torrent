@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206121.jpgsave_picture_206121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206121.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ magnet:?xt=urn:btih:2A806F67E20788B4C4ED8FA28EF1007FE3925B95
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206122.jpgsave_picture_206122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206122.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Goran Bregović - The Belly Button Of The World (2023) [FLAC|Lossless|tracks + .
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206123.jpgsave_picture_206123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206123.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ magnet:?xt=urn:btih:F849F0491500A1DE49958CF40A71B701C534BFB3
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206126.jpgsave_picture_206126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206126.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ magnet:?xt=urn:btih:F023DB1F9723C5F3113BC06D9AB010DCF52D5BD9
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206127.jpgsave_picture_206127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206127.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ magnet:?xt=urn:btih:C0C09B1CB221D2A1E7452423AD08E3F5941828BF
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206131.jpgsave_picture_206131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206131.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:367BAECFAAAFA678020D9B41B00374C79198C3FD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206133.jpgsave_picture_206133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206133.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:5B796228592609CF0F71405393BD1EB55BB96C3A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206136.jpgsave_picture_206136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206136.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:949A4C5EB5F3842616E3F34095EFC5B7D37C5B46
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206137.jpgsave_picture_206137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206137.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Blank & Jones - The Best of Relax // 20 Years // 2003 - 2023 (2023) [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206138.jpgsave_picture_206138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206138.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Square Home Launcher 2.4.14 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206140.jpgsave_picture_206140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206140.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Files Inspector Pro 3.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206143.jpgsave_picture_206143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206143.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:E07F6F2BC53BEB9319FBABBB904F5122919B1E01
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206145.jpgsave_picture_206145.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206145.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ AccuBattery Pro 2.1.1 Mod by Dymonyxx [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206146.jpgsave_picture_206146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206146.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ magnet:?xt=urn:btih:8DB811CBFADD1A015A904787D6D3CE1C3EE54BF5
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206150.jpgsave_picture_206150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206150.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206152.jpgsave_picture_206152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206152.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:1A05767C349530BDA2263C0FAD7B9DF709B6F2FA
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206155.jpgsave_picture_206155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206155.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Luminous Black - Poweramp Skin 8.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206157.jpgsave_picture_206157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206157.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206158.jpgsave_picture_206158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206158.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ magnet:?xt=urn:btih:58B2560666A03EE3D05C566FE6C73C06543D0363
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206160.jpgsave_picture_206160.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206160.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ CCleaner Pro: ПО для очистки 23.16.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206164.jpgsave_picture_206164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206164.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:FF1231A08F62FD25945270B8761373904CDEDD45
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206167.jpgsave_picture_206167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206167.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ magnet:?xt=urn:btih:DE86C93BB2F06AD6168E4CC8F64B14D7869AABE3
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206170.jpgsave_picture_206170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206170.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ CrossOver 23.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206172.jpgsave_picture_206172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206172.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ CamScanner 6.46.0.2308010000 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206174.jpgsave_picture_206174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206174.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ magnet:?xt=urn:btih:E9270A67EC295F5C751AB1CBBDFBD1F6154211D6
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206176.jpgsave_picture_206176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_206176.jpg" />
 </div>
 
 

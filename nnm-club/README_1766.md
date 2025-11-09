@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46273.jpgsave_picture_46273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46273.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ VA - Ministry of House (2024) [MP3|320 Kbps] <Progressive House, Melodic House &
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46274.jpgsave_picture_46274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46274.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Top 20 Melodic Techno & Progressive House (2024) [MP3|320 Kbps] <Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46275.jpgsave_picture_46275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46275.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:73AFB759CD5F1B1960A1AE9966028E253D90732B
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46276.jpgsave_picture_46276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46276.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:8AE765B417C2E36AAE44BBE989767D0592A45B2C
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46277.jpgsave_picture_46277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46277.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Ten Years After - Woodstock 1969 (2024) [MP3|320 Kbps] <Rock, Hard Rock, Blues R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46278.jpgsave_picture_46278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46278.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Good Fortune - Stories Untold (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46279.jpgsave_picture_46279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46279.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Richard Clapton - Prussian Blue (1973) Remaster, 2024, WM Australia [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46280.jpgsave_picture_46280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46280.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|tracks + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46281.jpgsave_picture_46281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46281.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Meg Washington\\Melbourne Symphony Orchestra - Live At Hamer Hall (2024) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46282.jpgsave_picture_46282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46282.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Imperia - Dark Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46283.jpgsave_picture_46283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46283.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Brave Rival - Fight or Flight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Clas
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46284.jpgsave_picture_46284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46284.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Diamantide - Diamantide (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46285.jpgsave_picture_46285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46285.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Arielle - Reel To Real (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46286.jpgsave_picture_46286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46286.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Richard Clapton - Goodbye Tiger (1977) Remaster, 2024, WM Australia [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46287.jpgsave_picture_46287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46287.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Written By Wolves - THE LIGHTHOUSE (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46288.jpgsave_picture_46288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46288.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Fast Train Union - Analog Outliers (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46289.jpgsave_picture_46289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46289.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Act Of Creation - Moments To Remain (2024) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46290.jpgsave_picture_46290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46290.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ magnet:?xt=urn:btih:6D508C764B6AC0D1F2D8585F6246DF0FE13CAE01
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46291.jpgsave_picture_46291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46291.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Telegram Desktop 5.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46292.jpgsave_picture_46292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46292.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:54A6D0EC81A082565558290B58D2F27CB8BCEA22
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46293.jpgsave_picture_46293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46293.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:FED521E0A10BF91E3B108077B054F4208D2108F4
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46294.jpgsave_picture_46294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46294.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:C7B95059E02367BC8164B7EA5107106B142F828B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46295.jpgsave_picture_46295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46295.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ DVDFab StreamFab 6.1.9.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46296.jpgsave_picture_46296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46296.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:621A096ED423CEA8E61D5726DE35E2539E821217
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46297.jpgsave_picture_46297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46297.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ TweakPower 2.059 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46298.jpgsave_picture_46298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46298.jpg" />
 </div>
 
 

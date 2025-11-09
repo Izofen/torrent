@@ -6,7 +6,7 @@ Notebooks – Write and Organize 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160664.jpgsave_picture_160664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160664.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:34B93396C8649C01FB33998D3D9702FA94C25B3A
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160665.jpgsave_picture_160665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160665.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:9FE78998F1048A3DC3DCF39CB5236165E19D9775
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160666.jpgsave_picture_160666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160666.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Seventh Wonder - Mercy Falls (2008) Reissue, 2023, Frontiers Music SRL [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160667.jpgsave_picture_160667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160667.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:CE706A299898C6CF1A5FE5E8D9A0FEBEAA62CF7F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160668.jpgsave_picture_160668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160668.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:1FCA278C07623DF431435D785B30F9F676E7FB97
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160669.jpgsave_picture_160669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160669.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Privatus 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160670.jpgsave_picture_160670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160670.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Bethlehem - Lebe Dich Leer (2019) 2CD [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160671.jpgsave_picture_160671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160671.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:7AF72A738FAB7FBDAAACFBC1EF232F35D7EC4840
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160672.jpgsave_picture_160672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160672.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Evemaster - MMIV Lacrimae Mundi (2005) [FLAC|Lossless|image + .cue] <Melodic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160673.jpgsave_picture_160673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160673.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Alan Pasqua, Peter Erskine, Darek Oles - Live In Italy (2022) Fuzzy Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160674.jpgsave_picture_160674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160674.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Darkside of Innocence - Infernum Liberus Est (2010) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160675.jpgsave_picture_160675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160675.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Angel Dust - Of Human Bondage (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160676.jpgsave_picture_160676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160676.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160677.jpgsave_picture_160677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160677.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160678.jpgsave_picture_160678.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160678.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ MWeb Pro 4.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160679.jpgsave_picture_160679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160679.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Slidepad 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160680.jpgsave_picture_160680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160680.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ SILKYPIX Developer Studio Pro 11 v.11.0.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160681.jpgsave_picture_160681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160681.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160682.jpgsave_picture_160682.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160682.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160683.jpgsave_picture_160683.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160683.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160684.jpgsave_picture_160684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160684.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160685.jpgsave_picture_160685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160685.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Boxy SVG 4.15.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160686.jpgsave_picture_160686.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160686.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Wizard - Head Of The Deceiver (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160687.jpgsave_picture_160687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160687.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Prestige - Reveal the Ravage (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160688.jpgsave_picture_160688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160688.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Saboter - Mankind Is Damned (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160689.jpgsave_picture_160689.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_160689.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Electro Swing - New York City of Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202480.jpgsave_picture_202480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202480.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Spindle (2025) [Multi] (1.0.3) License GOG
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202481.jpgsave_picture_202481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202481.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:937EE4B099141ADCC0284E0679436B3D2B0700DC
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202482.jpgsave_picture_202482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202482.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2026FB09EBD0A9AF61DD38E43297AECB47A0E562
 >>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202483.jpgsave_picture_202483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202483.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202484.jpgsave_picture_202484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202484.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ magnet:?xt=urn:btih:9DD4390CABAFF1E25727B824F3BED26D4369C0C7
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202485.jpgsave_picture_202485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202485.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ VA - CarMusic 3 for lady (2025) [MP3|320 Kbps] <Pop, House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202486.jpgsave_picture_202486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202486.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Into the Breach v.1.2.88 (2020) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202487.jpgsave_picture_202487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202487.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:4BD77450C7BCBD85ECF0758F30291AB1B0952786
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202488.jpgsave_picture_202488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202488.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.1547 (Updated February 2023) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202489.jpgsave_picture_202489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202489.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:EB3276551E5A7FB7A12C349A44F442ED7117FF5A
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202490.jpgsave_picture_202490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202490.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:FDDD967327A5CDD8162B719CDAFA359961F2F342
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202491.jpgsave_picture_202491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202491.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:64353A599200A5A5F55BDCD88F257B145DFF0303
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202492.jpgsave_picture_202492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202492.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ magnet:?xt=urn:btih:02A7501E6E003F351453C9B0177A35250B28F9C9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202493.jpgsave_picture_202493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202493.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mundfish | Артбук по игре Atomic Heart / The World of Atomic Heart (
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202494.jpgsave_picture_202494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202494.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202495.jpgsave_picture_202495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202495.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ magnet:?xt=urn:btih:D2D4BC44A8DD3866388DDE86124FD0FBA172E947
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202496.jpgsave_picture_202496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202496.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NewBlue FX plugins 2.0.0.34 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202497.jpgsave_picture_202497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202497.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:4A664ADF98AFBCD8E16E22C6BC8FD293F0216F1B
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202498.jpgsave_picture_202498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202498.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Google Chrome 110.0.5481.178 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202499.jpgsave_picture_202499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202499.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Rock Hits 150 v2 (2023) [MP3|320 Kbps] <Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202500.jpgsave_picture_202500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202500.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ ABBYY FineReader PDF for Mac 15.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202501.jpgsave_picture_202501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202501.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Windows Firewall Control 6.9.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202502.jpgsave_picture_202502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202502.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ magnet:?xt=urn:btih:64AF8720E28ACC32D9B253368D948CD3D3D48F2E
 >>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202503.jpgsave_picture_202503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202503.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Ableton - Live Suite 11.2.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202504.jpgsave_picture_202504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202504.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:524E6E0A90FBA3A59D43CE7163EA4344765D7BE7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202505.jpgsave_picture_202505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202505.jpg" />
 </div>
 
 

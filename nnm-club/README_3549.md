@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112649.jpgsave_picture_112649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112649.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Stars In Toledo - Ascendance (2024) [MP3|320 Kbps] <Modern Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112650.jpgsave_picture_112650.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112650.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:F3977C6728CBA3CD7270B3EE2DC208BD5AD1AADC
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112651.jpgsave_picture_112651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112651.jpg" />
 </div>
 
 
@@ -82,7 +82,7 @@ Jettison 1.8.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112652.jpgsave_picture_112652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112652.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka Two Colors (1989) [
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112653.jpgsave_picture_112653.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112653.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Monkey's Audio 10.60 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112654.jpgsave_picture_112654.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112654.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ ViWizard Audio Capture for Mac 2.1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112655.jpgsave_picture_112655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112655.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:58DF4007A887A001A2723ABB44A4036F9CD8C13D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112656.jpgsave_picture_112656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112656.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Father's Day: Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112657.jpgsave_picture_112657.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112657.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ magnet:?xt=urn:btih:2E221C97A43E0384EA400D4AFDA1F98D7094CA0D
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112658.jpgsave_picture_112658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112658.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Happy Father's Day - Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112659.jpgsave_picture_112659.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112659.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ magnet:?xt=urn:btih:EF3AD333D1692BD6D99DD0CE0A8306B1EA20584B
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112660.jpgsave_picture_112660.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112660.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ magnet:?xt=urn:btih:7A89123877AB20D2FD2B051A76214EBA8FD4905F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112661.jpgsave_picture_112661.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112661.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ magnet:?xt=urn:btih:1CB2C7AE4CAF621C346A2BBCB34589173C49A58B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112662.jpgsave_picture_112662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112662.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:B8BA9135586B9DE5C709E1608D59F656E60E8515
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112663.jpgsave_picture_112663.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112663.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ The Cure - Paris (Live At Le Zenith 1992 - 30th Anniversary Expanded Edition) (2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112664.jpgsave_picture_112664.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112664.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Redux Selection Vol. 4 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112665.jpgsave_picture_112665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112665.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Modern Heroes - Magic-The 1st Album (2024) [MP3|320 Kbps] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112666.jpgsave_picture_112666.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112666.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:BE89A2BF932140218662AA7AC7C3EDF98D7E4A3A
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112667.jpgsave_picture_112667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112667.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ magnet:?xt=urn:btih:14B700C50581627AE6AFD0C1C9C73B3DBEC33942
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112668.jpgsave_picture_112668.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112668.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ HWiNFO 8.00 Build 5400 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112669.jpgsave_picture_112669.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112669.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ MediaMate for Mac 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112670.jpgsave_picture_112670.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112670.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Google Chrome 123.0.6312.86 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112671.jpgsave_picture_112671.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112671.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112672.jpgsave_picture_112672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112672.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Progressive Downloader 6.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112673.jpgsave_picture_112673.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112673.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ magnet:?xt=urn:btih:4BACA3FBFF26E0CC10C9140EFBC14663D12CE3DA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112674.jpgsave_picture_112674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112674.jpg" />
 </div>
 
 

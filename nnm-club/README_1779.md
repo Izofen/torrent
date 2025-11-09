@@ -6,7 +6,7 @@
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46611.jpgsave_picture_46611.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46611.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ StartAllBack 3.8.4 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46612.jpgsave_picture_46612.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46612.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:0DD069E5FC7318AD7226F7FE6B04DF0C3510E9D1
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46613.jpgsave_picture_46613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46613.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Diari (2024) [En] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46614.jpgsave_picture_46614.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46614.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ StartAllBack 3.8.4 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46615.jpgsave_picture_46615.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46615.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:56EF3258BB0740CC79BBED57214B0BCD537C46AB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46616.jpgsave_picture_46616.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46616.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Glary Utilities Pro 6.13.0.17 [Multi/Ru] (Акция Comss)
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46617.jpgsave_picture_46617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46617.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Unit Converter 16.08.2024 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46618.jpgsave_picture_46618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46618.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ magnet:?xt=urn:btih:D610B1269A52174C6EB70BCC6420BCD4358B393D
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46619.jpgsave_picture_46619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46619.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ magnet:?xt=urn:btih:CEF0F4CD4961C85F34E7D196817041F632F61FA5
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46620.jpgsave_picture_46620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46620.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ magnet:?xt=urn:btih:93819BAD30210247F9ABCA43E091063254F61AD1
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46621.jpgsave_picture_46621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46621.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ magnet:?xt=urn:btih:9189817BD7A09C87F94BDC66350AD6851B53D6DB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46622.jpgsave_picture_46622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46622.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:F99D4E2BC3C2B86F997FFB3C471A42D4829224A4
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46623.jpgsave_picture_46623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46623.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:9DD7BADA50F63F4CB4FB191DD484F15836F78BCE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46624.jpgsave_picture_46624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46624.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:879AC31AB367CBDDA506BF5640009DE051714038
 >>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46625.jpgsave_picture_46625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46625.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46626.jpgsave_picture_46626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46626.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:3BBE7EA00BC2E751E654839AD93538C000A6AFA9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46627.jpgsave_picture_46627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46627.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ magnet:?xt=urn:btih:AC6EB80D8470B80F6CA609CFF4CDBD8F091E0475
 >>Новости
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46628.jpgsave_picture_46628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46628.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:AC6EB80D8470B80F6CA609CFF4CDBD8F091E0475
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46629.jpgsave_picture_46629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46629.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:AF206F24512AC7AF2BFB75D07D20B72B1AA84815
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46630.jpgsave_picture_46630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46630.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Binary Domain (2012) [Ru] (1.0.0.1upd2/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46631.jpgsave_picture_46631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46631.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:3DD6D45915D531094B43451CE2626E9E0CEF6E3C
 >>Во все тяжкие / Breaking Bad; Лучше звоните Солу / Better Call Saul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46632.jpgsave_picture_46632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46632.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Punto Switcher 4.5.0 Build 583 [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46633.jpgsave_picture_46633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46633.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:C77E6DBBF5380C9CAF0A12BA588AD0AED5198134
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46634.jpgsave_picture_46634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46634.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ LIVING LOUD - Live Sydney Fox Studios (2004) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46635.jpgsave_picture_46635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46635.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:98986C43749DD427221F86925ECA0E4E3FCF8489
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46636.jpgsave_picture_46636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46636.jpg" />
 </div>
 
 

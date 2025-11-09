@@ -6,7 +6,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10363.jpgsave_picture_10363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10363.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sade - Love Deluxe (1992) 1st Austrian Press [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10364.jpgsave_picture_10364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10364.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9E0FF61244B539F5DE91C5618F6753577604C7EB
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10365.jpgsave_picture_10365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10365.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - Compilation Part 176 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10366.jpgsave_picture_10366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10366.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Photo Supreme 2025.3.0.7956 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10367.jpgsave_picture_10367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10367.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:05F3557F60715F186E1E83E9B6B066CF5E82E560
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10368.jpgsave_picture_10368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10368.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:50AC9270C39CB21C3D4D9FA09840A687F2EDC522
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10369.jpgsave_picture_10369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10369.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ magnet:?xt=urn:btih:59B9DC8C08ED20BAEC34588BF7BCB31DA8B3A612
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10370.jpgsave_picture_10370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10370.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ magnet:?xt=urn:btih:203D3483E8DE42FDFBA5B66E0E0D42442B3F7A7D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10371.jpgsave_picture_10371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10371.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:89AEEF9A663E3B4DEECB6259032A3DFDB58893BD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10372.jpgsave_picture_10372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10372.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Telegram Desktop 5.16.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10373.jpgsave_picture_10373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10373.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ magnet:?xt=urn:btih:ED05628BDF7F4CD3E55C0F0BD45EDB2B73654F9C
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10374.jpgsave_picture_10374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10374.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ magnet:?xt=urn:btih:F774ABD8969216BC627854E28F03C8D6F36027C9
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10375.jpgsave_picture_10375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10375.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10376.jpgsave_picture_10376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10376.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ magnet:?xt=urn:btih:8945A79AE77E97B0ED87A7299553805EC1FA3402
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10377.jpgsave_picture_10377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10377.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MassTube Ultra 20.1.6.140 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10378.jpgsave_picture_10378.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10378.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Mini Cozy Room: Lo-Fi (2025) [Ru/Multi] (1.02.04/dlc) Repack FitGirl [All in One
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10379.jpgsave_picture_10379.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10379.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:8570D57ED9D562C6F3A04814F2B32681213C7BD3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10380.jpgsave_picture_10380.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10380.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ magnet:?xt=urn:btih:196F4BBA5AA4093A3747A5DF150BFB3488498C69
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10381.jpgsave_picture_10381.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10381.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ magnet:?xt=urn:btih:0B4992C2519EFC14DB7A8C12389A6BB5FDA3D60A
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10382.jpgsave_picture_10382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10382.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Apple - Logic Pro 11.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10383.jpgsave_picture_10383.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10383.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:7D0DD352378E5E51AB9359A1CEF1E54FF1B83728
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10384.jpgsave_picture_10384.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10384.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ PrintMyFonts 24.8.31 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10385.jpgsave_picture_10385.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10385.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ IObit Driver Booster Pro 12.6.0.620 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10386.jpgsave_picture_10386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10386.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Madonna - Veronica Electronica (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10387.jpgsave_picture_10387.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10387.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:79EDA56A15ACC6A787C2016059667C7CCEF764C6
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10388.jpgsave_picture_10388.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10388.jpg" />
 </div>
 
 

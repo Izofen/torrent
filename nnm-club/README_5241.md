@@ -6,7 +6,7 @@ WonderPen 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163040.jpgsave_picture_163040.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163040.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:873A60B099948B6C9F027714CD1C14EF3C6D37A0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163041.jpgsave_picture_163041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163041.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163042.jpgsave_picture_163042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163042.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Omni Toolbox 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163043.jpgsave_picture_163043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163043.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Balabolka 2.15.0.765 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163044.jpgsave_picture_163044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163044.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ CUETools 2.2.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163045.jpgsave_picture_163045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163045.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:92B60CDB883E2908F76D28DEF570C7E2374C3B8C
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163046.jpgsave_picture_163046.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163046.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Hookshot 1.23.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163047.jpgsave_picture_163047.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163047.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Microsoft Edge 87.0.664.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163048.jpgsave_picture_163048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163048.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - The Seeds of Lounge, Vol. 4 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163049.jpgsave_picture_163049.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163049.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:779932802EABC3D7E46774C41ECB2DF49B64CA3C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163050.jpgsave_picture_163050.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163050.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:B040CD88108CFA8CFED72148FA43109E46C30365
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163051.jpgsave_picture_163051.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163051.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 2 (2021) [AAC|~324 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163052.jpgsave_picture_163052.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163052.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ LibreCAD 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163053.jpgsave_picture_163053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163053.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:C38598A144AE7C1539D616D497380F56542FC2AD
 >>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163054.jpgsave_picture_163054.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163054.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Beamy - Sunrise (2021) [AAC|~351 Kbps] <Lo-Fi, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163055.jpgsave_picture_163055.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163055.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ magnet:?xt=urn:btih:13969461DBB667656723D25034DA19E03A30A747
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163056.jpgsave_picture_163056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163056.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Count Basie - In A Mellotone (1959) 2011, Candid [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163057.jpgsave_picture_163057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163057.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:8A0F8CD89FF9F3055C688C1DCB945205FAD50477
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163058.jpgsave_picture_163058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163058.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Bring Me the Horizon - Live at the Royal Albert Hall (2020) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163059.jpgsave_picture_163059.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163059.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ magnet:?xt=urn:btih:0B4BB1A41C4A246DA3F0E5B17AB433AD9899C5F7
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163060.jpgsave_picture_163060.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163060.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Omni Recover 3 v3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163061.jpgsave_picture_163061.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163061.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:9DF4069B4C153ABF01450E3DD35AA4F745B7ADDA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163062.jpgsave_picture_163062.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163062.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Debian Edu - Skolelinux 11.6.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163063.jpgsave_picture_163063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163063.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, n
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163064.jpgsave_picture_163064.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163064.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Hex Editor Neo Ultimate 7.21.00.8382 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163065.jpgsave_picture_163065.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163065.jpg" />
 </div>
 
 

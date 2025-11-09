@@ -6,7 +6,7 @@ autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107825.jpgsave_picture_107825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107825.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Nothing But... Pure Dance, Vol. 23 (2024) [MP3|320 Kbps] <Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107826.jpgsave_picture_107826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107826.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vesperian Sorrow - Awaken the Greylight (2024) [MP3|320 Kbps] <Symphonic Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107827.jpgsave_picture_107827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107827.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Merging Cluster - Peak of Ephemeral Light (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107828.jpgsave_picture_107828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107828.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ The Human Element - River (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107829.jpgsave_picture_107829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107829.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Questing Beast - Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107830.jpgsave_picture_107830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107830.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Birdstone - The Great Anticipation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107831.jpgsave_picture_107831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107831.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ John Pena - Life, Legacy & Music, Pt. 2 (2024) [FLAC 24/192|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107832.jpgsave_picture_107832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107832.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sacrum - SACRUM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107833.jpgsave_picture_107833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107833.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Jose (José) Privat - Clin d'Œil (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107834.jpgsave_picture_107834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107834.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Stanton Moore - Groove Alchemy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107835.jpgsave_picture_107835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107835.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Iiro Rantala - Tough Stuff (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107836.jpgsave_picture_107836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107836.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Loch Vostok - Destruction Time Again (2006) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107837.jpgsave_picture_107837.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107837.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Norman Granz' Jam Session #4 (1953) 2004, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107838.jpgsave_picture_107838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107838.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Nation Beat - Archaic Humans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107839.jpgsave_picture_107839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107839.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Onlap - Waves (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107840.jpgsave_picture_107840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107840.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:A555E8498AFD9730CE276884AE7672E061138CDA
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107841.jpgsave_picture_107841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107841.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Lamb of God - Wrath (2009) Deluxe Edition, 2024, Nuclear Blast [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107842.jpgsave_picture_107842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107842.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Raveena - Where the Butterflies Go in the Rain (2024) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107843.jpgsave_picture_107843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107843.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Speedtest от Ookla 5.4.2 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107844.jpgsave_picture_107844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107844.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ GoGo Morrow - Ready Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107845.jpgsave_picture_107845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107845.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Jet Engine Dragons - Ronin (2024) [MP3|320 Kbps] <Progressive Death, Groove Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107846.jpgsave_picture_107846.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107846.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ magnet:?xt=urn:btih:6C14AEFD92192B8673E684D7B974E7716FADFAF3
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107847.jpgsave_picture_107847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107847.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Fred P - As We Journey On (2024) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Fut
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107848.jpgsave_picture_107848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107848.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:F55555D78DD731C310BEAABD2947B401AF313693
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107849.jpgsave_picture_107849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107849.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Toxikk Deception - License To Murder (2022) [MP3|320 Kbps] <EBM, Dark Electro, I
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107850.jpgsave_picture_107850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107850.jpg" />
 </div>
 
 

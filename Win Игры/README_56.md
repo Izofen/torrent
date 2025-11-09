@@ -6,7 +6,7 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16697.jpgsave_picture_16697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16697.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16700.jpgsave_picture_16700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16700.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ The Axis Unseen (2024) [Ru/Multi] (1.11a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16774.jpgsave_picture_16774.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16774.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0C) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16791.jpgsave_picture_16791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16791.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16795.jpgsave_picture_16795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16795.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16802.jpgsave_picture_16802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16802.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Scene Rune [Delux
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16819.jpgsave_picture_16819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16819.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.80) Scene Razor 1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16887.jpgsave_picture_16887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16887.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16891.jpgsave_picture_16891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16891.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Siege and the Sandfox (2025) [Ru/Multi] (51162 patch 1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16906.jpgsave_picture_16906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16906.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Terraforming Mars (2018) [Ru/Multi] (2.9.1.2284/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16912.jpgsave_picture_16912.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16912.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.257/dlc) Repack FitGirl [D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16914.jpgsave_picture_16914.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16914.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16917.jpgsave_picture_16917.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16917.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Zoria: Age of Shattering (2024) [Multi] (1.1.8/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16926.jpgsave_picture_16926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16926.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Fabled Lands (2022) [En] (2.1.4/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16928.jpgsave_picture_16928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16928.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Peglin (2022) [Ru/Multi] (1.1.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16930.jpgsave_picture_16930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16930.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16932.jpgsave_picture_16932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16932.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) License G
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16933.jpgsave_picture_16933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16933.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Synergy (2024) [Ru/Multi] (1.0.2505130427) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16995.jpgsave_picture_16995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_16995.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Deliver At All Costs (2025) [Multi] (250331-132937) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17001.jpgsave_picture_17001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17001.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.14/dlc) Repack Let'sРlay [Advance
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17011.jpgsave_picture_17011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17011.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Dragon Quest III (3) HD-2D Remake (2024) [Multi] (1.2.0.0 Build 18186891/dlc) Sc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17020.jpgsave_picture_17020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17020.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ The Last Hero of Nostalgaia (2022) [Ru/Multi] (3.3.6.7/dlc) Repack Let'sРlay [D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17025.jpgsave_picture_17025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17025.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17041.jpgsave_picture_17041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17041.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ DRAGON BALL XENOVERSE 2 (2016) [Ru/Multi] (1.24.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17042.jpgsave_picture_17042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17042.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Deliver At All Costs (2025) [Multi] (250331-143608) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17043.jpgsave_picture_17043.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17043.jpg" />
 </div>
 
 

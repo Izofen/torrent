@@ -6,7 +6,7 @@ Challenger Deep - III.The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126395.jpgsave_picture_126395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126395.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:B0049C1E72BCA1D7DF7E63E1D079EFA2B839FFD1
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126396.jpgsave_picture_126396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126396.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Graeme Emmott - No Loitering (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126397.jpgsave_picture_126397.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126397.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:831925967C3D19F9BC9C12134B1E7F94270CB50E
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126398.jpgsave_picture_126398.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126398.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ magnet:?xt=urn:btih:CD8F88C51694DBB152FB06B885EC7EE64CC4BEC0
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126399.jpgsave_picture_126399.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126399.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Critical Heartbeat - Revolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126400.jpgsave_picture_126400.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126400.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Dusk - Dissolve Into Ash (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom, Dea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126401.jpgsave_picture_126401.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126401.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Vintas - Solar, Lunar (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126402.jpgsave_picture_126402.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126402.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Ingvay - One Magic Mile (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126403.jpgsave_picture_126403.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126403.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Jeremy Bruger Trio - Jubilation (2013) Black & Blue [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126404.jpgsave_picture_126404.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126404.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Pyramid - Rage (2022) 2CD [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126405.jpgsave_picture_126405.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126405.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Banisher - Oniric Delusions (2016) [FLAC|Lossless|image + .cue] <Technical, Expe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126406.jpgsave_picture_126406.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126406.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Marco Machera - Dormiveglia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126407.jpgsave_picture_126407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126407.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ National Youth Jazz Orchestra - These Are The Jokes (1992) Ronnie Scott's Jazz H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126408.jpgsave_picture_126408.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126408.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Slytherin - Tales of Hogsmeade Village (2022) [FLAC|Lossless|image + .cue] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126409.jpgsave_picture_126409.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126409.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Banisher - Degrees of Isolation (2020) [FLAC|Lossless|WEB-DL|tracks] <Technical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126410.jpgsave_picture_126410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126410.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Dusk - Dissolve Into Ash (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126411.jpgsave_picture_126411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126411.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Go Ahead And Die - Unhealthy Mechanisms (2023) [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126412.jpgsave_picture_126412.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126412.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Christian Sands - Facing Dragons (2018) Mack Avenue Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126413.jpgsave_picture_126413.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126413.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Methadol - Welcome to My World (2016) Reissue, Remastered, 2023, Methadol[FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126414.jpgsave_picture_126414.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126414.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ magnet:?xt=urn:btih:D1D814E80903FB370F239DD88EBF766C235186FD
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126415.jpgsave_picture_126415.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126415.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:3885A881E064158555ACECAD90062A35E2C7023D
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126416.jpgsave_picture_126416.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126416.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:7751D4D17816415EB8B9AA7DE8AEC5B830EFC464
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126417.jpgsave_picture_126417.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126417.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Frankie Moreno - RED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126418.jpgsave_picture_126418.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126418.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ magnet:?xt=urn:btih:D62B5EDB64AEF39C8ED0CB62B6C55594DD781639
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126419.jpgsave_picture_126419.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126419.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Tragik - Realm Angelic (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126420.jpgsave_picture_126420.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126420.jpg" />
 </div>
 
 

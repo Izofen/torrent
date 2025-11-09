@@ -6,7 +6,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28352.jpgsave_picture_28352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28352.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:C913024301FE091E6B87E680EC64DA6710F00AAD
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28353.jpgsave_picture_28353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28353.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ CherryTree 1.3.0.0 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28354.jpgsave_picture_28354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28354.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Calibre 7.25.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28355.jpgsave_picture_28355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28355.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:3B805273478959465B2809F02BF94B304140D48F
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28356.jpgsave_picture_28356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28356.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:F2F49BD318D1AE4357D6B4CFFF77EC552FF01FEC
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28357.jpgsave_picture_28357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28357.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ VA - Gold Italia 2024 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Italian 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28358.jpgsave_picture_28358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28358.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:511D4127A0C9ABCB57614ACCB4F546741D157BC8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28359.jpgsave_picture_28359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28359.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:8D52E84EC9461DDBDE01D04452FF65660F69FCEB
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28360.jpgsave_picture_28360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28360.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The Ferrymen - Iron Will (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28361.jpgsave_picture_28361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28361.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ jetAudio HD Music Player Plus v12.3.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28362.jpgsave_picture_28362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28362.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:6EF96317F6B72904BD242696FCB4D9296C659CC9
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28363.jpgsave_picture_28363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28363.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Antivirus Removal Tool 2025.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28364.jpgsave_picture_28364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28364.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:B5F4E09531CC1ACA8102AD2AADF0135B6D5F162C
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28365.jpgsave_picture_28365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28365.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:617DBBAB11CD984993965803E6523BE35ED10639
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28366.jpgsave_picture_28366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28366.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Atlantis Word Processor 4.4.4.0 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28367.jpgsave_picture_28367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28367.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:A896B3C61FFC37792FB323DF2359B8F8FD5515CE
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28368.jpgsave_picture_28368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28368.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:2AE8782CE5B661DD89466312C26F925F0860B125
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28369.jpgsave_picture_28369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28369.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:788A0F41733191E81B126E117AEB256FAF8CB1F0
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28370.jpgsave_picture_28370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28370.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ magnet:?xt=urn:btih:EE6AF36FBDF7140855EA73B072EBE0C154D2ECC2
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28371.jpgsave_picture_28371.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28371.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ magnet:?xt=urn:btih:EA04FF757AAEDA3D1A9A115077A05F572BE210CA
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28372.jpgsave_picture_28372.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28372.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ magnet:?xt=urn:btih:34181E3BF1FA531052631E0BE1242FA2C6728C44
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28373.jpgsave_picture_28373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28373.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:9545815655119746788B395D4052F9FC42897039
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28374.jpgsave_picture_28374.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28374.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ The Offspring - Anti-Valentine’s Day with The Offspring (2025) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28375.jpgsave_picture_28375.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28375.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Falco - Ultimate Hits - A New Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28376.jpgsave_picture_28376.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28376.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VRadio - Online Radio App v2.7.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28377.jpgsave_picture_28377.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_28377.jpg" />
 </div>
 
 

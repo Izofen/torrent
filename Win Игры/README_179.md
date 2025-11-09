@@ -6,7 +6,7 @@ Thriving City: Song (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53527.jpgsave_picture_53527.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53527.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sinderfury (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53530.jpgsave_picture_53530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53530.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53534.jpgsave_picture_53534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53534.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Whispers in the Moss (2024) [En] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53545.jpgsave_picture_53545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53545.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53548.jpgsave_picture_53548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53548.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Autopsy Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53553.jpgsave_picture_53553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53553.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ An English Haunting (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53559.jpgsave_picture_53559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53559.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tour de France 2024 (2024) [Multi] (01.04.03.846/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53561.jpgsave_picture_53561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53561.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53565.jpgsave_picture_53565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53565.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Corpse Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53566.jpgsave_picture_53566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53566.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Cuisineer (2023) [Multi] (1.1.3909) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53567.jpgsave_picture_53567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53567.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53576.jpgsave_picture_53576.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53576.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (14397396) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53581.jpgsave_picture_53581.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53581.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ I Am Alive (2012) [Ru/Multi] (1.0) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53583.jpgsave_picture_53583.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53583.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ The Wild at Heart (2021) [Multi] (1.1.9.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53599.jpgsave_picture_53599.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53599.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Three Goblin Wobblin' (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53651.jpgsave_picture_53651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53651.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Paranormal Files 11: Sacrifice to Shadows / Паранормальные явл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53665.jpgsave_picture_53665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53665.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ NUKITASHI Дилогия (2023-2024) [Multi] (1.0.1/1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53676.jpgsave_picture_53676.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53676.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ENDLOOP (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53677.jpgsave_picture_53677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53677.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ SKALD: Against the Black Priory (2024) [En] (1.0.3d/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53681.jpgsave_picture_53681.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53681.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Baladins (2024) [Multi] (1.0.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53684.jpgsave_picture_53684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53684.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Braid (2024) [Multi] (20240603) Scene Tenoke [Anniversary Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53699.jpgsave_picture_53699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53699.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Long Way (2024) [Ru/Multi] (0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53700.jpgsave_picture_53700.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53700.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53755.jpgsave_picture_53755.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53755.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Slavania (2024) [Ru/En] (1.0.1-6160) Repack Wagner
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53759.jpgsave_picture_53759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53759.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (0.40570.441/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53763.jpgsave_picture_53763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53763.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125270.jpgsave_picture_125270.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125270.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:058362206EBDAF971346CFA99D591F181D9F7C22
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125271.jpgsave_picture_125271.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125271.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:760AFFF63411DAA823260A0121CA2FC0689A2D91
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125272.jpgsave_picture_125272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125272.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:E3B10D839C825B9D6F676A6B4597F454B89B1830
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125273.jpgsave_picture_125273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125273.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:D573A4C2C6338D135EE2B6C882C2215C453D9FAC
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125274.jpgsave_picture_125274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125274.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:60DE3C43B57EE6E004BE1C43B86A3DC6C7EBD010
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125275.jpgsave_picture_125275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125275.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:FC1737566B5446E4B78CB9AE2B8FF9F0FCA46F9C
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125276.jpgsave_picture_125276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125276.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2023) WEB-DL [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125277.jpgsave_picture_125277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125277.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:1E9D9D15030350027D44DC1E85FBFF4B7A66E901
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125278.jpgsave_picture_125278.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125278.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:5CB0E7E44D6357629758F50CC6BE4DF1F9D605F1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125279.jpgsave_picture_125279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125279.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ The Professor Underfunk - Just Build It (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125280.jpgsave_picture_125280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125280.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ The Paul Cook Blues Band, Katie Bradley - I Spy (2023) [FLAC|Lossless|WEB-DL|tra
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125281.jpgsave_picture_125281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125281.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Dominum - Hey Living People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125282.jpgsave_picture_125282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125282.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ magnet:?xt=urn:btih:35FF7F04AFB4BA4C36D7F17631378D6D869FDE6A
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125283.jpgsave_picture_125283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125283.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ magnet:?xt=urn:btih:624F046A8FA6C9AF67A5B05EE1508F208EECA4B1
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125284.jpgsave_picture_125284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125284.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ The Lazy Tones - Laundry Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125285.jpgsave_picture_125285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125285.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Exper
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125286.jpgsave_picture_125286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125286.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Dominum - Hey Living People (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125287.jpgsave_picture_125287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125287.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ StormHammer - Never Surrender: 30 Years Of Power (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125288.jpgsave_picture_125288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125288.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125289.jpgsave_picture_125289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125289.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ The Mike Eldred Trio - First Recordi (2023) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125290.jpgsave_picture_125290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125290.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:1623CBFED844A1D1108056634E2841DB135900CF
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125291.jpgsave_picture_125291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125291.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ The Kenny Clarke-Francy Boland Big Band - Latin Kaleidoscope, Cuban Fever (1968)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125292.jpgsave_picture_125292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125292.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Gerry Mulligan - Four Classic Albums (1956 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125293.jpgsave_picture_125293.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125293.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Boney James - Soulful Holiday Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125294.jpgsave_picture_125294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125294.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Laurent de Wilde Trio - Life Is A Movie (2023) Gazebo [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125295.jpgsave_picture_125295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125295.jpg" />
 </div>
 
 

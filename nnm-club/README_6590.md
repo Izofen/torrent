@@ -6,7 +6,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211286.jpgsave_picture_211286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211286.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211288.jpgsave_picture_211288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211288.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:9D2E467F0E96FE0838DE609C75E4C80801A91D19
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211289.jpgsave_picture_211289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211289.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:83A6D7D2C02E531CA5946089537022E523B31BB8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211291.jpgsave_picture_211291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211291.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ magnet:?xt=urn:btih:C8F86C6123305AC8DE7095C607DF370C29B7CA82
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211292.jpgsave_picture_211292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211292.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Kari Fry, Ryan Novak | Артбук по игре Hollow Knight / Hollow Knight 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211295.jpgsave_picture_211295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211295.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Skype 8.98.0.407 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211296.jpgsave_picture_211296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211296.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Capcom | Артбук по играм Marvel vs. Capcom / Marvel VS Capcom: Offi
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211300.jpgsave_picture_211300.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211300.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Church Of Misery - Born Under a Mad Sign (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211301.jpgsave_picture_211301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211301.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Armik - Guitar Seduction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211303.jpgsave_picture_211303.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211303.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Whoopie Cat - Weight In Gold (2023) [MP3|320 Kbps] <Classic Rock, Hard Rock, Blu
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211306.jpgsave_picture_211306.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211306.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ magnet:?xt=urn:btih:BC2D07BD2CF5E6566FCB514062D2EEA2096F0750
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211308.jpgsave_picture_211308.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211308.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:CEDAD4C199E33B38CDE00F5888EADF95CB444E76
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211309.jpgsave_picture_211309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211309.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:0E98AED19EE4C16210832F0AB63595C67841C85B
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211311.jpgsave_picture_211311.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211311.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Stanley Turrentine - The Best of Stanley Turrentine: The Blue Note Years (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211312.jpgsave_picture_211312.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211312.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ magnet:?xt=urn:btih:EA00F796D33803A0F47E499CCB95F0871E1976BB
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211316.jpgsave_picture_211316.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211316.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ magnet:?xt=urn:btih:8B2D290B3C172CC88F93C94A6F3D24C4198E650A
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211317.jpgsave_picture_211317.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211317.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Paradise Ibiza Summer 2023: Best of Deep & Tropical House (2023) [MP3|320 K
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211320.jpgsave_picture_211320.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211320.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ magnet:?xt=urn:btih:B65D276B29A9147D3789125005D68F8399845AC1
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211325.jpgsave_picture_211325.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211325.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:47ACA87A7C85DAF2215ACB7F822F4EBC1417A475
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211326.jpgsave_picture_211326.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211326.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Creeping Death - Boundless Domain (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211327.jpgsave_picture_211327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211327.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Stanley Turrentine - New Time Shuffle (1967) 2012, Toshiba-EMI [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211331.jpgsave_picture_211331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211331.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Paul Gilber - The Dio Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211333.jpgsave_picture_211333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211333.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Stanley Turrentine - La Place (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211335.jpgsave_picture_211335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211335.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Black Hole House Music 06-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211337.jpgsave_picture_211337.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211337.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ PDF Reader Pro Edition 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211339.jpgsave_picture_211339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211339.jpg" />
 </div>
 
 

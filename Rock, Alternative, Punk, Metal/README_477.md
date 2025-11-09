@@ -6,7 +6,7 @@ Persian Risk - Who Am I? - Once A King (2012-2014) 2xCD, Reissue, 2019, Escape M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245414.jpgsave_picture_245414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245414.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Thirteen of everything - Time and Other Delusions (2023) [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245417.jpgsave_picture_245417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245417.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:25EE6768A18A0C872842A5435E35642B6A91A3D9
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245419.jpgsave_picture_245419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245419.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Withering Worlds - The Long Goodbye (2021) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245423.jpgsave_picture_245423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245423.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Killus - Grotesk (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245425.jpgsave_picture_245425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245425.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245432.jpgsave_picture_245432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245432.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Roxxcalibur - Gems Of The NWOBHM (2015) [FLAC|Lossless|image + .cue] <NWoBHM>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245435.jpgsave_picture_245435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245435.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Fallen Prophets - No End In Sight (2021) Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245442.jpgsave_picture_245442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245442.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ilya Hype - Только крылья берегите (2023) [MP3|320 Kbps] <In
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245444.jpgsave_picture_245444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245444.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kayser - IV: Веуоnd Тhе Rееf Оf Sаnitу (2016) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245445.jpgsave_picture_245445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245445.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:8DAE4AD00893F166BA1A4D209BACA9C78D326548
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245449.jpgsave_picture_245449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245449.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Den Saakaldte - Kapittel II: Faen I Helvete (2014) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245464.jpgsave_picture_245464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245464.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Roxanne - Radio Silence (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245472.jpgsave_picture_245472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245472.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Carnivored - Revival (2012) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245474.jpgsave_picture_245474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245474.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ magnet:?xt=urn:btih:472B5EFCE038141BA1841ABE88059A8CC657DFA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245477.jpgsave_picture_245477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245477.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Diablation - Par Le Feu (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245494.jpgsave_picture_245494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245494.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:DEE8166810D8EE8E39A63359C3FBF5B4DBD2D4C2
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245508.jpgsave_picture_245508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245508.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Los Quarks - Time Shifting (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245520.jpgsave_picture_245520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245520.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Nagart - Вы это слышали? (2021) EP [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245523.jpgsave_picture_245523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245523.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Devil's Whiskey - Historias De Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245527.jpgsave_picture_245527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245527.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Marco Garau's Magic Opera - Battle of Ice (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245541.jpgsave_picture_245541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245541.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Giant Sleep - Grounded to the Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245549.jpgsave_picture_245549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245549.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Within Temptation - And We Run (2014) Japanese Edition, EP [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245551.jpgsave_picture_245551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245551.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Forces United - Hits From Metal Musicals vol.3 (2023) [FLAC|Lossless|image + .cu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245558.jpgsave_picture_245558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245558.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Ola Englund - Starzinger (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245562.jpgsave_picture_245562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245562.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Kenziner - Phoenix (2020) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245568.jpgsave_picture_245568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245568.jpg" />
 </div>
 
 

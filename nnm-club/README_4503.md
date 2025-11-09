@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140840.jpgsave_picture_140840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140840.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:D8C8D2C01D99BF43917454C303010829D5291E37
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140841.jpgsave_picture_140841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140841.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:3B17DBFFE51A65A03F1177A63350EBF430EB69C0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140842.jpgsave_picture_140842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140842.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Orestes - Equivocal Paragraph (2011) [MP3|320 кб/с]<Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140843.jpgsave_picture_140843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140843.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Jimi Hendrix - Blues (1994) Remaster 2010 [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140844.jpgsave_picture_140844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140844.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ASuite 1.5.2 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140845.jpgsave_picture_140845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140845.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Billboard Top 25 Hot Rock Songs (03-01-2015) [MP3|320 кб/с]<Rock, Pop, D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140847.jpgsave_picture_140847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140847.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VA - Hed Kandi The Mix (2005) HEDK054 [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140848.jpgsave_picture_140848.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140848.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ magnet:?xt=urn:btih:59526877A2B76B550DF01AB3898B418FD5A60038
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140849.jpgsave_picture_140849.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140849.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ magnet:?xt=urn:btih:7C9AA5E189663E46C70BE7CB0C3BC01B613EF8FB
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140850.jpgsave_picture_140850.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140850.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Duplicate Finder and Cleaner for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140851.jpgsave_picture_140851.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140851.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ magnet:?xt=urn:btih:A3CCC0FD901D55541B34BDD189FAB11AE8A26F80
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140852.jpgsave_picture_140852.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140852.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ magnet:?xt=urn:btih:C15C7511599B1731436153183C4CDC0905E5CA2D
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140853.jpgsave_picture_140853.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140853.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ magnet:?xt=urn:btih:8306DEDBA7FFF830A10C85BF3A9C5F0D7E8D987A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140855.jpgsave_picture_140855.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140855.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ magnet:?xt=urn:btih:E9EA50E0CC96A427DC0418CB2D36D2B6CE060971
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140856.jpgsave_picture_140856.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140856.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ NeoOffice 2017.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140857.jpgsave_picture_140857.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140857.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Udemy | Поиск и устранение неисправностей Exchange
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140858.jpgsave_picture_140858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140858.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:D0D2DF3E961AD0BA38B48A3E07F52B700DA00C55
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140859.jpgsave_picture_140859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140859.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:F29E48A5BB920045307576078474E1FC375C9840
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140860.jpgsave_picture_140860.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140860.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:3D403D082D6FEE3C24596D7428937EF05AF587E6
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140861.jpgsave_picture_140861.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140861.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:3D403D082D6FEE3C24596D7428937EF05AF587E6
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140863.jpgsave_picture_140863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140863.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:7F13A4F58790D8F3B02AB106971266FE52CB1B7D
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140865.jpgsave_picture_140865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140865.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ magnet:?xt=urn:btih:45BA0FE9E7690633DEA9D2BB610AEF8E52130405
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140866.jpgsave_picture_140866.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140866.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Above & Beyond - 10 Years of Group Therapy (2021) [AAC|~322 Kbps] <Progressive H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140867.jpgsave_picture_140867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140867.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:AFB2B9D41625AE36154FBBAE96D167CDCFB45360
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140869.jpgsave_picture_140869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140869.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ PIDKey 2.0.9 build 1006 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140870.jpgsave_picture_140870.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140870.jpg" />
 </div>
 
 

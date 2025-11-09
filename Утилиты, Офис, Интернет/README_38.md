@@ -6,7 +6,7 @@ RAM Saver Professional 24.7 Portable by FC Portables [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107155.jpgsave_picture_107155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107155.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ BurnAware Free 17.9 [Multi/Ru]
 >>Запись, создание, редактирование, эмуляция дисков и образов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107255.jpgsave_picture_107255.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107255.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ PortableApps.com Platform 29.5.3 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107354.jpgsave_picture_107354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107354.jpg" />
 </div>
 
 
@@ -80,7 +80,7 @@ IObit Uninstaller Free 13.6.0.2 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107705.jpgsave_picture_107705.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107705.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ VueScan Pro 9.8.33 Portable by 7997 [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109499.jpgsave_picture_109499.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109499.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ DesktopSnowOK 6.26 Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109828.jpgsave_picture_109828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109828.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Registry Finder 2.59.0 + Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110536.jpgsave_picture_110536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110536.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ WinPaletter 1.0.9.3 Standalone [En]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110679.jpgsave_picture_110679.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110679.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Total Uninstall Pro 7.6.1.677 x64 Portable by 7997 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110814.jpgsave_picture_110814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110814.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DirPrintOK 6.96 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110858.jpgsave_picture_110858.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110858.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Total Uninstall Pro 7.6.1.677 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110893.jpgsave_picture_110893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110893.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Macrorit Data Wiper 7.1.1 Pro / Unlimited / Technician Edition RePack (& Portabl
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110957.jpgsave_picture_110957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110957.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ StressMyPC 5.33 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111967.jpgsave_picture_111967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111967.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ SoftPerfect Cache Relocator 1.7 Portable [Ru/En]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111990.jpgsave_picture_111990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111990.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Lacey Free Music & Video Downloader 2.96 Portable [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111992.jpgsave_picture_111992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111992.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Glary Disk Explorer 6.0.1.4 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112053.jpgsave_picture_112053.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112053.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Vivaldi 7.6.3797.63 Portable by IDE`a [Multi/Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112373.jpgsave_picture_112373.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112373.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Wise Memory Optimizer 4.2.1.124 [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112694.jpgsave_picture_112694.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112694.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Hasleo Backup Suite 4.2 Portable by Игорь2011 [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114058.jpgsave_picture_114058.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114058.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ ReffPassGen 1.0 + Portable [Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114070.jpgsave_picture_114070.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114070.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ ExamDiff Pro Master Edition 14.0.1.25 + Portable [En]
 >>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114166.jpgsave_picture_114166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114166.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ WizTree 4.19 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114199.jpgsave_picture_114199.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114199.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ MeinPlatz 8.25 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114395.jpgsave_picture_114395.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114395.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Smart Driver Manager Pro 7.1.1205 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114396.jpgsave_picture_114396.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114396.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Stardock Start 2.0.6.4 RePack by xetrin [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114455.jpgsave_picture_114455.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114455.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ DesktopClock3D 1.93 + Portable [Multi/Ru]
 >>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114878.jpgsave_picture_114878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114878.jpg" />
 </div>
 
 

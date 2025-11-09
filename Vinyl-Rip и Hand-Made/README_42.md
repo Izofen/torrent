@@ -6,7 +6,7 @@ Teramaze - Her Halo (2015) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Metal, Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123292.jpgsave_picture_123292.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123292.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dark Lunacy - Studio Albums (7 releases) (1998-2016) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124859.jpgsave_picture_124859.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124859.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125045.jpgsave_picture_125045.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125045.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Exper
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125286.jpgsave_picture_125286.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125286.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125459.jpgsave_picture_125459.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125459.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125707.jpgsave_picture_125707.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125707.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Loredana Groza - Buna Seara, Iubito! (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125889.jpgsave_picture_125889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125889.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126074.jpgsave_picture_126074.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126074.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126075.jpgsave_picture_126075.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126075.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Countless Skies - Studio Albums (3 releases) (2014-2020) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126076.jpgsave_picture_126076.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126076.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Unanimated - Studio Albums (5 releases) (1993-2021) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126077.jpgsave_picture_126077.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126077.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126734.jpgsave_picture_126734.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126734.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBH
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126751.jpgsave_picture_126751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126751.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126770.jpgsave_picture_126770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126770.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126863.jpgsave_picture_126863.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126863.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126869.jpgsave_picture_126869.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126869.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127351.jpgsave_picture_127351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127351.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127764.jpgsave_picture_127764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127764.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127793.jpgsave_picture_127793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127793.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127797.jpgsave_picture_127797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127797.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127816.jpgsave_picture_127816.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127816.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127946.jpgsave_picture_127946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127946.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127947.jpgsave_picture_127947.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127947.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127952.jpgsave_picture_127952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127952.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127971.jpgsave_picture_127971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127971.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127986.jpgsave_picture_127986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127986.jpg" />
 </div>
 
 

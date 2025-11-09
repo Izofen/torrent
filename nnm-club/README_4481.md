@@ -6,7 +6,7 @@ Telegram Desktop 1.2.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140133.jpgsave_picture_140133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140133.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Barbara Cook & Michael Feinstein - Cheek To Cheek (2011) DuckHole Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140134.jpgsave_picture_140134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140134.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140135.jpgsave_picture_140135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140135.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Mojosoft BusinessCards MX v.4.75 Update [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140136.jpgsave_picture_140136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140136.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Mojosoft BusinessCards MX v.4.75 Update [Multi/Rus]
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140137.jpgsave_picture_140137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140137.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:F5B00F86C2F4BBCCD3A9ED92ABEEF511BF4A03B0
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140138.jpgsave_picture_140138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140138.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:C9006E7046E4CDB139F4C4494A65D2DA0B2C2E9E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140139.jpgsave_picture_140139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140139.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ magnet:?xt=urn:btih:5A20DDF2C6AB7D87AE188900945740D69DA47A3C
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140140.jpgsave_picture_140140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140140.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Michael Feinstein - An Intimate Holiday with Michael Feinstein (2001) 2СD, Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140143.jpgsave_picture_140143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140143.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Taimadou Gakuen 35 Shiken Shoutai / 35-й учебный взвод Антима
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140144.jpgsave_picture_140144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140144.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ OpenMandriva Lx 3.01 PLASMA [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140146.jpgsave_picture_140146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140146.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.6.0 Build 6767 Stable + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140147.jpgsave_picture_140147.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140147.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ magnet:?xt=urn:btih:38D7184F54937B6DE472AB3EDFBE11BB61AB4886
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140148.jpgsave_picture_140148.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140148.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ magnet:?xt=urn:btih:8BFAABD3093F01A65A2C8C76836E4877AD183524
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140149.jpgsave_picture_140149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140149.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ magnet:?xt=urn:btih:CDD70CB20A60816B88AA99EE4F94790BFB5CD252
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140150.jpgsave_picture_140150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140150.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:BB144040FC550DCC98F31968A9DAE2D64FA40B3B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140151.jpgsave_picture_140151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140151.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ magnet:?xt=urn:btih:B39603E8125EC1C5ECB6C552B75CD7095C4E6A53
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140153.jpgsave_picture_140153.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140153.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ magnet:?xt=urn:btih:2602E6F457B2754AB1EB761F1F95286D135FAEBE
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140156.jpgsave_picture_140156.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140156.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ magnet:?xt=urn:btih:DEFFDB444D9C88E24B7079D0F1FAE94F62A0DD83
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140157.jpgsave_picture_140157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140157.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ magnet:?xt=urn:btih:147F3B3B58CE768347AE36289F7DCD6B3C3CA596
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140158.jpgsave_picture_140158.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140158.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ magnet:?xt=urn:btih:A90FBD68ED5BE68F6D31AE3063A95BC53DFE0E46
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140159.jpgsave_picture_140159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140159.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:85CD4A0578B17CC2600DE599116F3E738EE611B9
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140161.jpgsave_picture_140161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140161.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ magnet:?xt=urn:btih:85B49CB3FDC563C6F825A5380A860A4899A79033
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140162.jpgsave_picture_140162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140162.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Adobe SpeedGrade CC 2015 (v9.1.0) RUS/ENG Update 2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140165.jpgsave_picture_140165.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140165.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Scorpions - Gentle Power (Best Of The Ballads) (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140166.jpgsave_picture_140166.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140166.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Maou-jou de Oyasumi | Sleepy Princess in the Demon Castle | Сон в замке
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140167.jpgsave_picture_140167.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_140167.jpg" />
 </div>
 
 

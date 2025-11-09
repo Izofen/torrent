@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32881.jpgsave_picture_32881.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32881.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:447061B9C0CDD9B997391E3B99424B77122E079A
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32882.jpgsave_picture_32882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32882.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:B463E1D2D429369ADCA16B6A84D0B833702BF1CD
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32883.jpgsave_picture_32883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32883.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0DC29F71FF1ABA80715AD1BDD8063F9C16256F17
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32884.jpgsave_picture_32884.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32884.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:953A401D593B9DB77C62A77784697DA0E6331F41
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32885.jpgsave_picture_32885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32885.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Yeosin Gangnim | True Beauty | Истинная красота [2024, Web, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32886.jpgsave_picture_32886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32886.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ magnet:?xt=urn:btih:AB3BACB07E31D2B7007CC51A484BC2E41D426CB9
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32887.jpgsave_picture_32887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32887.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Kitchen Timer / Кухонный мульти-таймер v4.9.11 GP Mod by Ale
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32888.jpgsave_picture_32888.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32888.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:91392D53FCF80AE81A015711059DC43F371EFC55
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32889.jpgsave_picture_32889.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32889.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.7b.fix/dlc) Repack Wanterlude [Impe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32890.jpgsave_picture_32890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32890.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ magnet:?xt=urn:btih:172C545A50C55BBA2010CA90B210507E431D636F
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32891.jpgsave_picture_32891.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32891.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) License GOG [Collector's Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32892.jpgsave_picture_32892.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32892.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ magnet:?xt=urn:btih:8DEC6260B44E924C06DDD14878377231CC9A3E4B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32893.jpgsave_picture_32893.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32893.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:62607EF927385BB59BED196EEA2848AF044803E0
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32894.jpgsave_picture_32894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32894.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:48A00CB75324B7A695374EF5EAEED6611E5891D6
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32895.jpgsave_picture_32895.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32895.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ magnet:?xt=urn:btih:0E29A03CBCB9B1333246FC3089DD5D88C8C7E556
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32896.jpgsave_picture_32896.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32896.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:6171DF2688DFE223EEFD71387FBF0397D9F61A56
 >>Образование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32897.jpgsave_picture_32897.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32897.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32898.jpgsave_picture_32898.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32898.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:201027F79185EEF241A3952DEC225D03CBCF173B
 >>На досуге
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32899.jpgsave_picture_32899.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32899.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ magnet:?xt=urn:btih:DA3018B985853061BC1A2E9AA87BFAA9BF9B09C2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32900.jpgsave_picture_32900.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32900.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:C272CC37103334E4CE3B7D9A7A8806B2297E48C9
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32901.jpgsave_picture_32901.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32901.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ magnet:?xt=urn:btih:F1A1401A4DE536BE70604D612CB2723FB3C5FABB
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32902.jpgsave_picture_32902.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32902.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ magnet:?xt=urn:btih:0ECC5AB03F67C79BD76EFE0D9DDD5F70E3D574F7
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32903.jpgsave_picture_32903.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32903.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ magnet:?xt=urn:btih:0ECC5AB03F67C79BD76EFE0D9DDD5F70E3D574F7
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32904.jpgsave_picture_32904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32904.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.2.12.54620) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32905.jpgsave_picture_32905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32905.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ magnet:?xt=urn:btih:AB2EEAEF41656BA9F9C98BF8D2802775910F972C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32906.jpgsave_picture_32906.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_32906.jpg" />
 </div>
 
 

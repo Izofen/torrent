@@ -6,7 +6,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190540.jpgsave_picture_190540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190540.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F4895CC7435AD59C1267AC96BCA6C059C074013A
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpgsave_picture_190542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:6DBD999358700E1725F694511EC277B025F207F7
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190544.jpgsave_picture_190544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190544.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ VA - BPR Compilation Vol 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190545.jpgsave_picture_190545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190545.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Pearl Jam - Soldier Field, Chicago 1995 (2023) [MP3|320 Kbps] <Modern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190548.jpgsave_picture_190548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190548.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:86B590533BE9DC943CC9006441D8AF1784C4D930
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190550.jpgsave_picture_190550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190550.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:E6E5FAE80C1335C9498FC111E4701228436F34D7
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190551.jpgsave_picture_190551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190551.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Breakb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190553.jpgsave_picture_190553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190553.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Myrath - Karma (2023) [MP3|320 Kbps] <Oriental Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190556.jpgsave_picture_190556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190556.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gary Del Vecchio - Buzzin (2023) [MP3|320 Kbps] <Proto Hard, Psych, Prog, Garage
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190558.jpgsave_picture_190558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190558.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brandy Kills - Невечное лето на многолюдном пляже 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190560.jpgsave_picture_190560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190560.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ magnet:?xt=urn:btih:1A6DA956669B72DEEBB09468C261C95676345CB2
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190562.jpgsave_picture_190562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190562.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Laibach - The Engine of Survival (2023) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190563.jpgsave_picture_190563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190563.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:5C1300BF9CAFA13AA0E316D407A6B426F845B1C0
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190565.jpgsave_picture_190565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190565.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ magnet:?xt=urn:btih:9A35DB241724F838F095870E3A6BA480BD67B70D
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190568.jpgsave_picture_190568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190568.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ magnet:?xt=urn:btih:B9E83B8CE3BF85D937F3D30860209924477E23CE
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190569.jpgsave_picture_190569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190569.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ MotoGP. Этап 12. Гран-при Сан-Марино. Гонка (10.09.2023
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190570.jpgsave_picture_190570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190570.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ magnet:?xt=urn:btih:5A44F8FCA2AF4AC1CEFA04B2313E177A39FC2958
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190571.jpgsave_picture_190571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190571.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ QOwnNotes 23.9.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190574.jpgsave_picture_190574.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190574.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ magnet:?xt=urn:btih:53D2DC030397CBA51D2D3F39D186F63EB61AB661
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190575.jpgsave_picture_190575.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190575.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ TG Pro (Temperature Gauge Pro) 2.83 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190577.jpgsave_picture_190577.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190577.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Saliva - Revelation (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190580.jpgsave_picture_190580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190580.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Spirit Adrift - Ghost at the Gallows (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190582.jpgsave_picture_190582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190582.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ magnet:?xt=urn:btih:3274BC8AB597695C618273AF1579C43EEE56F393
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190584.jpgsave_picture_190584.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190584.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:02037CBFFBCE44AE700DFC59DD035DF7633A1C37
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190586.jpgsave_picture_190586.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190586.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Frederic Slama's AOR - Bewitched In L.A. (2023) [FLAC|Lossless|image + .cue] <Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190588.jpgsave_picture_190588.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190588.jpg" />
 </div>
 
 

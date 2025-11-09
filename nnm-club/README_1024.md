@@ -6,7 +6,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26974.jpgsave_picture_26974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26974.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:BF32DA679921CE7925A8746078A700FDACBB10CE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26975.jpgsave_picture_26975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26975.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:412C0E9E7E8BBCC651C53EA92D6C5518FB772555
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26976.jpgsave_picture_26976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26976.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ FontViewOK 8.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26977.jpgsave_picture_26977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26977.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ W.A. Production - Obsidian 1.0.2 VST, VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26978.jpgsave_picture_26978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26978.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:94EE426A025E14933D62AC1A5EAA14372BAC761C
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26979.jpgsave_picture_26979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26979.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:1CDFD0EA8AB1AE2D12C6C6001842BFA3C7E4ED13
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26980.jpgsave_picture_26980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26980.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ The Smurfs 2 (2013) [PS3] [USA] 4.41 [License] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26981.jpgsave_picture_26981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26981.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Vivaldi 7.1.3570.54 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26982.jpgsave_picture_26982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26982.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ United Plugins & JMG Sound - Cyberdrive Core 1.0 VST, VST 3, AAX (x64) RePack by
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26983.jpgsave_picture_26983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26983.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Mozarteumorchester Salzburg - Next Generation Mozart Soloists Vol.11 (2025) [FLA
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26984.jpgsave_picture_26984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26984.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ a-ha - Greatest Hits - Japanese Singles Collection (2020) [OGG Vorbis|480 Kbps] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26985.jpgsave_picture_26985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26985.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Deep House Hits For Summer 2025 - 2026 (2025) [MP3|320 Kbps] <House, Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26986.jpgsave_picture_26986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26986.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:6669753C3216B7748B429AD903E30717964C40EE
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26987.jpgsave_picture_26987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26987.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ magnet:?xt=urn:btih:EE91CC3EEEAA482282368C4421F42D880FC17D40
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26988.jpgsave_picture_26988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26988.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:D314833637D1E18D43D5F4C0B13C47D96CE02344
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26989.jpgsave_picture_26989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26989.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:2900FAFD379CFF389DCE19B949A90F8507EEABEA
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26990.jpgsave_picture_26990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26990.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Dionigi - Space Disco (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26991.jpgsave_picture_26991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26991.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ magnet:?xt=urn:btih:38E8EF4F9A012BF23FE1997BD58C6B097AC3E438
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26992.jpgsave_picture_26992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26992.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - BC2 Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26993.jpgsave_picture_26993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26993.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ David Rose - Perfect Harmony Sings (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26994.jpgsave_picture_26994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26994.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ magnet:?xt=urn:btih:B7900220CF3C61B3DB2BC2193A4E8328780089C5
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26995.jpgsave_picture_26995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26995.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Cruel Addiction - Confess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26996.jpgsave_picture_26996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26996.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:C5073F3CB8F50D2E6492A826EA14860A91F7430D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26997.jpgsave_picture_26997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26997.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ WinSCP 6.3.7 Build 15131  + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26998.jpgsave_picture_26998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26998.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Johann Sebastian Bach - Die kompletten Werke von (Edition Bachakademie) (2011) 1
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26999.jpgsave_picture_26999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_26999.jpg" />
 </div>
 
 

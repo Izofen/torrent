@@ -6,7 +6,7 @@ Elimination - Destroyed by Creation (2010) [FLAC|Lossless|image + .cue] <Power, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217283.jpgsave_picture_217283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217283.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C19C091EBBE20E551B72EB4E22396A3A7B6FF24C
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217624.jpgsave_picture_217624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217624.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Peter Gabriel - The Late Show - New York Broadcast 1978 (2021) Reissue, 2023, Go
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217658.jpgsave_picture_217658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217658.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:CA40D068E4A675E7FD25A7F449FE7F08B04621C8
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217770.jpgsave_picture_217770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217770.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sarayasign - The Lion's Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217969.jpgsave_picture_217969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217969.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Jay Tausig - Amorphous Architecture (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217977.jpgsave_picture_217977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217977.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ White Canyon & The 5th Dimension - Gardeners of the Earth (2023) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218031.jpgsave_picture_218031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218031.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Rascal Reporters - The Strainge Case Of Steve (2023) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218069.jpgsave_picture_218069.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218069.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Strident - Paranoia of the Tyrant (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218110.jpgsave_picture_218110.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218110.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sorrow - Death of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218138.jpgsave_picture_218138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218138.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:E7BBF6B7049991920632AC7147BF236D3B55F2E1
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218590.jpgsave_picture_218590.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218590.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ I Am The Manic Whale - Bumper Book of Mystery Stories (2023) [MP3|320 Kbps] <pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218617.jpgsave_picture_218617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218617.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Neal Morse - The Dreamer - Joseph: Part One (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218695.jpgsave_picture_218695.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218695.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Liam Gallagher - Knebworth 22 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218728.jpgsave_picture_218728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218728.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Megaherz - In Teufels Namen (2023) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218743.jpgsave_picture_218743.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218743.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Neil Young - Chrome Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Coun
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218749.jpgsave_picture_218749.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218749.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Status Quo - Official Archive Series Vol. 1 (2023) Live in Amsterdam 2010 [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218770.jpgsave_picture_218770.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218770.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Ageless Summoning - Corrupting The Entempled Plane (2023) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218864.jpgsave_picture_218864.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218864.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Antropofagus - Origin (2022) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218886.jpgsave_picture_218886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218886.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Lancer - Tempest (2023) [FLAC|Lossless|WEB-DL|tracks] <Power-Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218907.jpgsave_picture_218907.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218907.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Kataklysm - Goliath (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218950.jpgsave_picture_218950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218950.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Hell in the Club - F.U.B.A.R. (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218992.jpgsave_picture_218992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_218992.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lucifungus - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219048.jpgsave_picture_219048.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219048.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Cryptal Darkness - Endless Tears... (1996) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219072.jpgsave_picture_219072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219072.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Decimator - Alienist (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219083.jpgsave_picture_219083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219083.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Darkness Everywhere - The Seventh Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219091.jpgsave_picture_219091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_219091.jpg" />
 </div>
 
 

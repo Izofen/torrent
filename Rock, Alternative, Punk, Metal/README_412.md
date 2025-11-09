@@ -6,7 +6,7 @@ Hellstompers - Let's Go Stomp (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychobilly,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234715.jpgsave_picture_234715.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234715.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Raven - Metal City (2020) [FLAC|Lossless|tracks] <NWOBHM, Heavy Metal, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234720.jpgsave_picture_234720.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234720.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Project 86 - OMNI, Pt. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Christi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234722.jpgsave_picture_234722.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234722.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ World Of Damage - Invoke Determination (2021) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234725.jpgsave_picture_234725.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234725.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Sarcator - Sarcator (2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234728.jpgsave_picture_234728.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234728.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Adversvm - Aion Sitra Ahra (2018) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234729.jpgsave_picture_234729.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234729.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Trick Or Treat - Creepy Symphonies (2022) [FLAC|Lossless|WEB-DL|tracks] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234730.jpgsave_picture_234730.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234730.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Immortal - War Against All (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234732.jpgsave_picture_234732.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234732.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Trash - Watch Out (1982) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234733.jpgsave_picture_234733.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234733.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Inmundus - The God Machine (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234739.jpgsave_picture_234739.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234739.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Ferdy Doernberg - ...'till I run out of road (2006) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234742.jpgsave_picture_234742.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234742.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Adversvm - Vama Marga (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234744.jpgsave_picture_234744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234744.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Trash - Burnin' Rock (1985) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234750.jpgsave_picture_234750.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234750.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dan Cummins - The New World (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234757.jpgsave_picture_234757.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234757.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Adversvm - Dysangelion (2019) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234759.jpgsave_picture_234759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234759.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Striking Tunes Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234766.jpgsave_picture_234766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234766.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ magnet:?xt=urn:btih:51C35DC2D1288C667E643D5357674AB768A3C8DC
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234768.jpgsave_picture_234768.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234768.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Dorian Gray - Journey Of Mind (1998) [FLAC|Lossless|image + .cue] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234769.jpgsave_picture_234769.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234769.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Tunguska - 3 Albums (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Post-Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234776.jpgsave_picture_234776.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234776.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dorian Gray - Burning (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234782.jpgsave_picture_234782.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234782.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Schandmaul - Kn​u​ppel aus dem Sack (2022) Deluxe Edition, 2023, Napalm Reco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234788.jpgsave_picture_234788.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234788.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Dorian Gray - It's Your Day (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234791.jpgsave_picture_234791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234791.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sullivan King - Thrones of Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalstep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234794.jpgsave_picture_234794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234794.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Dorian Gray - Free Spirit (2004) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234807.jpgsave_picture_234807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234807.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Wet Wet Wet - Popped In Souled Out (1987-2017) Reissue, 2017, Virgin EMI Records
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234809.jpgsave_picture_234809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234809.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Distance of Thought - Edge of Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234810.jpgsave_picture_234810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_234810.jpg" />
 </div>
 
 

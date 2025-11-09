@@ -6,7 +6,7 @@ Sunken Lands - Sunken Lands (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244476.jpgsave_picture_244476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244476.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:731A3480FE6D010581E016F31A3DC305DFB96EDC
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244477.jpgsave_picture_244477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244477.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ The John Colianni Trio - Blues-O-Matic (1989) Concord Jazz[APE|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244478.jpgsave_picture_244478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244478.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:147BDEF2F49CC46CA9F43C6A4F776796AEEDC0EF
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244479.jpgsave_picture_244479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244479.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - 1 Year Arroma Records (2022) [AAC|~304 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244480.jpgsave_picture_244480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244480.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ VA - Музыка для машины Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244481.jpgsave_picture_244481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244481.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:537270C1CC12DEC17DB0D4BCEEEEDF8A89F443F3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244483.jpgsave_picture_244483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244483.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ CudaText 1.183.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244484.jpgsave_picture_244484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244484.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ magnet:?xt=urn:btih:8F3DB4BF0206DE84C1B64D6A4D7661DBD0A51930
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244486.jpgsave_picture_244486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244486.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - That 70’s Summer (2023) [MP3|320 Kbps] <Pop, Soft Rock, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244487.jpgsave_picture_244487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244487.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Godsleep - Lies to Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244488.jpgsave_picture_244488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244488.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:A54A2689D5B4174FF18CA5C1CB6485B4D6D3E284
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244489.jpgsave_picture_244489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244489.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Victor Smolski - 3 Albums (2006-2023) [MP3|320 Kbps] <Neo-Classical, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244490.jpgsave_picture_244490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244490.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ magnet:?xt=urn:btih:5FCC26930D21F9FFFEB85E6FBB75463FFA8DBD3F
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244491.jpgsave_picture_244491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244491.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:0D8DCFBF467E35CDFAC1DDD959F6DAD9C520E0DF
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244492.jpgsave_picture_244492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244492.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Dozer - Drifting in the Endless Void (2023) [MP3|320 Kbps] <Stoner Rock, Heavy R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244493.jpgsave_picture_244493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244493.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Cross Extended Funky House Mix (2016) [MP3|255-320 Kbps] <Club, Funky, Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244494.jpgsave_picture_244494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244494.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ WinTools.net Premium / Professional / Classic 23.4.1 RePack (& Portable) by Doda
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244495.jpgsave_picture_244495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244495.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Udemy, David Long | Conway's Game of Life with SDL2 and C++ (2022) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244496.jpgsave_picture_244496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244496.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Text Edit Plus 12.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244497.jpgsave_picture_244497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244497.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ magnet:?xt=urn:btih:81509DD06D91292A15C4E8C3557BA538FF0D7600
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244498.jpgsave_picture_244498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244498.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:91C5708595662436F92F36F876F1B2DEB5A37FDE
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244499.jpgsave_picture_244499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244499.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Cannonball Adderley - Nippon Soul (1963) 1990, Original Jazz Classics[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244500.jpgsave_picture_244500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244500.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ magnet:?xt=urn:btih:D8F5A156E09C1913C5EF31EDD531659569B68242
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244501.jpgsave_picture_244501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244501.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Marvel's Guardians of the Galaxy / Стражи Галактики Marvel (2021)
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244502.jpgsave_picture_244502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244502.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Peter Lawson - 10 of Swords (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244503.jpgsave_picture_244503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244503.jpg" />
 </div>
 
 

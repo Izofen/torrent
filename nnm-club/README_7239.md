@@ -6,7 +6,7 @@ WinRAR 6.22 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247466.jpgsave_picture_247466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247466.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:AE5D4E33A0310111515DF56083EDFFAF1146E571
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247468.jpgsave_picture_247468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247468.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:BC8D1763225CDE2DB7794D38F755CF0A48EECDB6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247470.jpgsave_picture_247470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247470.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:D6E5EFA473018EDBEF4DA05C6DCBA3F1349763AA
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247471.jpgsave_picture_247471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247471.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247472.jpgsave_picture_247472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247472.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:17EFF178B176F3C8FC7BC9F008032B845ECA17B2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247473.jpgsave_picture_247473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247473.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Beatles: Желтая подводная лодка / Yellow Submarine (1968
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247474.jpgsave_picture_247474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247474.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Kuma Kuma Kuma Bear Punch! | Ми-ми-ми-мишка [TV-2] [2023, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247475.jpgsave_picture_247475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247475.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ magnet:?xt=urn:btih:AF8F1C02F5F75ADBDDC12EC39DBF957F1117BCAF
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247476.jpgsave_picture_247476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247476.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:4309A2B5E12443DD1933BE16E7B4AC0135D070CF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247477.jpgsave_picture_247477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247477.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:F204C15E360E1AC05F5F8EBE8175996684CCAC32
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247478.jpgsave_picture_247478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247478.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:DDBE85C1967B729B0370D60859038C965AEDD0D6
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247479.jpgsave_picture_247479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247479.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:3212974580929C07A7EC8A9B9A9A411685A31DF8
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247480.jpgsave_picture_247480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247480.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ magnet:?xt=urn:btih:C9B3EF4F564DCC19217C89CA8F95D43E972CA7D5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247481.jpgsave_picture_247481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247481.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:A9C72D45CABF5A4FF2E509AB217C308A346D71DA
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247482.jpgsave_picture_247482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247482.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:906C83314A519A1DA66FBAAB956FA6DC6EA8562B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247483.jpgsave_picture_247483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247483.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:13336982E4ED528B8DDCFEFDFD78AE7A4396C888
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247484.jpgsave_picture_247484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247484.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:A3FB1B943F09D648E882D4C99F881969AFA329EC
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247485.jpgsave_picture_247485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247485.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Vinland Saga Season 2 / Сага о Винланде 2 [2023, TV, 24] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247486.jpgsave_picture_247486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247486.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:795173E2662B852EBFDF00AAC26C143D4022B68A
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247487.jpgsave_picture_247487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247487.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ magnet:?xt=urn:btih:50A8ED935AFE4C3A527B7E45E0E0689FA53911B0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247488.jpgsave_picture_247488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247488.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ magnet:?xt=urn:btih:281434F7DA2BD17884EC63E450C44E91EC41F303
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247490.jpgsave_picture_247490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247490.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ magnet:?xt=urn:btih:73065935E955C1DD382F36C2D5045ACED0E4D601
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247491.jpgsave_picture_247491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247491.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ magnet:?xt=urn:btih:A2A3DE8C079A51EF35E4626295656C1F50D31E7F
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247492.jpgsave_picture_247492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247492.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247493.jpgsave_picture_247493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247493.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247494.jpgsave_picture_247494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247494.jpg" />
 </div>
 
 

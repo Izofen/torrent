@@ -6,7 +6,7 @@ Anita O'Day - Complete Signature & London Recordings (1942 - 1950) 2CD, 2001, Th
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130327.jpgsave_picture_130327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130327.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ TunesKit AceMovi Video Editor 4.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130328.jpgsave_picture_130328.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130328.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130329.jpgsave_picture_130329.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130329.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Wondershare PDFelement Pro 8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130331.jpgsave_picture_130331.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130331.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ VA - Best Restaurant Background Music 2022 (2022) [AAC|~303 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130333.jpgsave_picture_130333.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130333.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Sound Grinder Pro 3.2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130334.jpgsave_picture_130334.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130334.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Movavi Video Suite 10.3 SE [Русский / Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130335.jpgsave_picture_130335.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130335.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ My PaintBrush Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130336.jpgsave_picture_130336.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130336.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Default Folder X 5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130339.jpgsave_picture_130339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130339.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ DoMi Sakurazawa - Friendship (2022) [AAC|~366 Kbps] <Jazz, Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130340.jpgsave_picture_130340.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130340.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ magnet:?xt=urn:btih:2517B25271E011B4C93F9663FF70AD994F9085B1
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130341.jpgsave_picture_130341.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130341.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Dato 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130342.jpgsave_picture_130342.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130342.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - In The Mood For Love (2022) [AAC|~308 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130344.jpgsave_picture_130344.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130344.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ magnet:?xt=urn:btih:0F26C4A60220FA4812DE4C45C2EAD9BE62C3CBB9
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130345.jpgsave_picture_130345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130345.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ PullTube 1.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130347.jpgsave_picture_130347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130347.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - White Sands (Chill Out And Electronic Collection), Vol. 1 (2022) [AAC|~323 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130348.jpgsave_picture_130348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130348.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Final Fantasy X International [En/Jap] (RePack/Emul) 2002 | MarkusEVO
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130349.jpgsave_picture_130349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130349.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ EverWeb (Standalone) 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130351.jpgsave_picture_130351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130351.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Shanti People - Krishna Is Love (2013) [AAC|~287 Kbps] <Folk, EDM>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130352.jpgsave_picture_130352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130352.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ magnet:?xt=urn:btih:6102A58C4E37F1BABF06D7F6AAEE2F5B342DFF40
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130353.jpgsave_picture_130353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130353.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:A8984BD1EC9495325B538E5039C751C203B1635E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130354.jpgsave_picture_130354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130354.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:A8984BD1EC9495325B538E5039C751C203B1635E
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130355.jpgsave_picture_130355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130355.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:A8984BD1EC9495325B538E5039C751C203B1635E
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130357.jpgsave_picture_130357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130357.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Windows 7 x86 Ultimate UralSOFT v.5.1.12 [2012/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130359.jpgsave_picture_130359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130359.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Windows 7 x86 Ultimate UralSOFT v.5.1.12 [2012/Rus]
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130360.jpgsave_picture_130360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130360.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Silent Hill: Homecoming [Ru] (RePack) 2009 | Naitro
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130361.jpgsave_picture_130361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_130361.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125530.jpgsave_picture_125530.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125530.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:FE2D75ECCAB1DEC9E48915F17C501AAEA4A56AFB
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125531.jpgsave_picture_125531.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125531.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:51892075181254C0C1AE38CFEBD5FC445D2A3E0B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125532.jpgsave_picture_125532.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125532.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:0110C44A10BCF71C3EDEA6444B59CC48FB1E954A
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125533.jpgsave_picture_125533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125533.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:74B01344B262987A92AB2D0042C56B867F46100D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125534.jpgsave_picture_125534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125534.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Tearmoon Teikoku Monogatari | Tearmoon Empire | Хроники империи Т
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125535.jpgsave_picture_125535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125535.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ AIMP 5.30 Build 2533 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125536.jpgsave_picture_125536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125536.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ magnet:?xt=urn:btih:8A8FB927BB3DB1BB1D7E6B637907DDA1386B1EE0
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125537.jpgsave_picture_125537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125537.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ magnet:?xt=urn:btih:7A7D03781FCB65C7C168E18762EA4900232FB87D
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125538.jpgsave_picture_125538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125538.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ FastStone Capture 10.4 (26.12.2023) Final RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125539.jpgsave_picture_125539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125539.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ magnet:?xt=urn:btih:63497E1599D0202A165BD70A69A7D4395A1A3D22
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125540.jpgsave_picture_125540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125540.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ magnet:?xt=urn:btih:14190EDDE27ADB7B9850B5E33B643453BEE6B2D5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125541.jpgsave_picture_125541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125541.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:D41EA95B3CE6DF7D4A2D5A539649937170BFE7DF
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125542.jpgsave_picture_125542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125542.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125543.jpgsave_picture_125543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125543.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:E0EF508844ED30521FCEB167AE8F33022801A802
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125544.jpgsave_picture_125544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125544.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Windows 11 PRO 23H2 22631.2861 Update 4 by Ghost Spectre x64 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125545.jpgsave_picture_125545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125545.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ magnet:?xt=urn:btih:0A157A5D71A33BDB282FCB476594B8AC9113F01E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125546.jpgsave_picture_125546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125546.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125547.jpgsave_picture_125547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125547.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ The Elder Scrolls IV: Oblivion - Oblivion Association: Era of Change HD (2006) [
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125548.jpgsave_picture_125548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125548.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Windows 10 PRO AIO 20H1 / 20H2 / 21H1 / 21H2 /22H2 by Ghost Spectre 1904X.3803 x
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125549.jpgsave_picture_125549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125549.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Rival Sons - 9 Albums (2009 - 2023) 10 CD [FLAC|Lossless|tracks + .cue|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125550.jpgsave_picture_125550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125550.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ magnet:?xt=urn:btih:4689718047EC81CB52AE7D5FE58D393487DC961D
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125551.jpgsave_picture_125551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125551.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ magnet:?xt=urn:btih:DE2D5F788D6310C0C7B1CF90EFE95C4AFF536AF0
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125552.jpgsave_picture_125552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125552.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ magnet:?xt=urn:btih:92C6A7348F74C8C0170A5EC3CF8A346EF8946CAA
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125553.jpgsave_picture_125553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125553.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125554.jpgsave_picture_125554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125554.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125555.jpgsave_picture_125555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125555.jpg" />
 </div>
 
 

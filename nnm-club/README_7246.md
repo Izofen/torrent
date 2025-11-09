@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247663.jpgsave_picture_247663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247663.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:F9693A8E4D18061A407A7B99F1D41282D6243008
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247664.jpgsave_picture_247664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247664.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:9E57D8120E060112828504E636D2B18306D67F58
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247665.jpgsave_picture_247665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247665.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:CF8227D79799452698EE38D4B3B525B235F566B8
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247666.jpgsave_picture_247666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247666.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Windows Update Blocker 1.8 Portable [Multi/Ru]
 >>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247667.jpgsave_picture_247667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247667.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ magnet:?xt=urn:btih:1EE1BCC33CCB8DEB3075D7C36AF616ED305D5C00
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247668.jpgsave_picture_247668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247668.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:559EB9995A9C1F6B6DCF61D4B14580201CA56AB6
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247669.jpgsave_picture_247669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247669.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247671.jpgsave_picture_247671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247671.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ IObit Driver Booster Pro 10.5.0.139 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247672.jpgsave_picture_247672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247672.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:266BF8C8E799AC1BBAA81AD2A4601A9782306EA6
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247673.jpgsave_picture_247673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247673.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.7.3 C) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247674.jpgsave_picture_247674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247674.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:C1B7B784AA1AE296A3A2AC5F43F11080A4A7CFCE
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247675.jpgsave_picture_247675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247675.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:831558A55A3AD678C7E67AB399D4B3CAA9091D45
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247676.jpgsave_picture_247676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247676.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ OUTRIDERS (2021) [Ru/Multi] (1.24/dlc) Repack West4it
 >>27
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247677.jpgsave_picture_247677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247677.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Showgunners (2023) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247678.jpgsave_picture_247678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247678.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Udemy, Neville Adams | The Unreal Arsenal: Learn C++ and Unreal Engine (2023) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247679.jpgsave_picture_247679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247679.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ magnet:?xt=urn:btih:9F1BD84828631BA6DC4952D410774618D3278DD5
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247680.jpgsave_picture_247680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247680.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ magnet:?xt=urn:btih:86756FBA8133B1BD9168A4D7875D054E0BF5D818
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247681.jpgsave_picture_247681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247681.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ magnet:?xt=urn:btih:0D2DA6A451E26759086522DA847EE06CB97A9FAF
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247682.jpgsave_picture_247682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247682.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ magnet:?xt=urn:btih:63ABB423B8DDE5DA797B78279D7C270348728CE8
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247683.jpgsave_picture_247683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247683.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ magnet:?xt=urn:btih:AA5CB5B1F07473199AFF5217305180F789FCA0CB
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247684.jpgsave_picture_247684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247684.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ magnet:?xt=urn:btih:72758B6B477A5082DB18419A34F3C6988B4218D8
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247685.jpgsave_picture_247685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247685.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ magnet:?xt=urn:btih:5316A3D1466C2BF5149E636E7D9A5984E4AFBE55
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247686.jpgsave_picture_247686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247686.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Joe Cocker - Greatest Hits (2008) 2CD  [FLAC|Lossless]<Blues, rock, blues-rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247687.jpgsave_picture_247687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247687.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:8F52B210BA91FC93E1E1CE416AEC74E0F8B448ED
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247689.jpgsave_picture_247689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247689.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:F616208323E7862BE303E68BE7971DBD812B9954
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247690.jpgsave_picture_247690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_247690.jpg" />
 </div>
 
 

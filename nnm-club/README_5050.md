@@ -6,7 +6,7 @@ Ummy Video Downloader 1.5.0.4 RePack (& Portable) by Killer000 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157918.jpgsave_picture_157918.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157918.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:3CCCE0B6B9270BDB2EAAA40B13DB998149E42277
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157919.jpgsave_picture_157919.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157919.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ VA - Turn On The Dark (Mixed By Oberon) (2017) [MP3|320 Kbps] <Trance,Psy-Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157920.jpgsave_picture_157920.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157920.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2879CB199B51C1BC6092A8FAA1E761EEE3FFBED0
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157922.jpgsave_picture_157922.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157922.jpg" />
 </div>
 
 
@@ -107,7 +107,7 @@ Enrico Pieranunzi Quintet - Don't Forget The Poet (2006) CHallenge Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157923.jpgsave_picture_157923.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157923.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ magnet:?xt=urn:btih:AD2ABE1EA5D2156326C3BC53737EF43E12938B08
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157924.jpgsave_picture_157924.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157924.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. DShock
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157926.jpgsave_picture_157926.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157926.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Movavi Video Editor Plus 2021 v21.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157927.jpgsave_picture_157927.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157927.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:7D834A0E73992E147A39AE0750F2D87AC8BF72D1
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157928.jpgsave_picture_157928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157928.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:802263A92F081A79C70046FAE15D6E728AD2596D
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157930.jpgsave_picture_157930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157930.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ NVIDIA GeForce Desktop 361.43 WHQL + For Notebooks [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157932.jpgsave_picture_157932.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157932.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Wondershare Filmora 10.0.10.20 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157934.jpgsave_picture_157934.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157934.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ IObit Driver Booster Pro 3.1.1.457 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157935.jpgsave_picture_157935.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157935.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:50F6ABA21902F128453DF69ED6C6ED41D06F36CA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157938.jpgsave_picture_157938.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157938.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ RusTV Player 3.1 Final Portable by DoMiNo [Ru]
 >>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157940.jpgsave_picture_157940.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157940.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ magnet:?xt=urn:btih:4A46619909636D969C4017DA4F700F4729652934
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157943.jpgsave_picture_157943.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157943.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ magnet:?xt=urn:btih:5CA44034F4A445262AA1B5EC35737C0FC40D37B4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157945.jpgsave_picture_157945.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157945.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Dark Tomorrow Amsterdam 2018 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157948.jpgsave_picture_157948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157948.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ magnet:?xt=urn:btih:B300D9A43C484366AA392B2D9C35BE20D6128B34
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157950.jpgsave_picture_157950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157950.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ magnet:?xt=urn:btih:F2077E6F7706BFA29EEB03F8C7E1E97957F2843A
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157951.jpgsave_picture_157951.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157951.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Sunstate Trance (2017) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157952.jpgsave_picture_157952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157952.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:00C9CEEF736B0F7A69745F25EE6DBE180F2C75A0
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157953.jpgsave_picture_157953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157953.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ The Beatles - Легенды Зарубежного Рока (1999) Unofficial R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157954.jpgsave_picture_157954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157954.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157956.jpgsave_picture_157956.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157956.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ magnet:?xt=urn:btih:3C0330C849DE4339209F43A2C97B176C3ABC373C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157957.jpgsave_picture_157957.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157957.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ magnet:?xt=urn:btih:985E316DEC7CF09AB84E0839FE1CD15390ACA37F
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157958.jpgsave_picture_157958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157958.jpg" />
 </div>
 
 

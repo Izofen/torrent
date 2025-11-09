@@ -6,7 +6,7 @@ VA - Early Modulations - Vintage Volts (2000) Caipirinha Productions [FLAC|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244345.jpgsave_picture_244345.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244345.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - House Nation Clubbing - Miami (2023) [MP3|320 Kbps] <House, Funky House, So
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244346.jpgsave_picture_244346.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244346.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:73CE84130ED2A0615BBB0BE31C74B523DD76CF40
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244347.jpgsave_picture_244347.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244347.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Djevel - Naa skrider natten sort (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244348.jpgsave_picture_244348.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244348.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Airtool 2 v2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244349.jpgsave_picture_244349.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244349.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VA - Notes from the Depth, Vol. 11 (2020) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244350.jpgsave_picture_244350.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244350.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Bayonne - Drastic Measures (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Ind
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244351.jpgsave_picture_244351.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244351.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ magnet:?xt=urn:btih:3F6C8A931379F97846242DB02572C83669BFB423
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244352.jpgsave_picture_244352.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244352.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ magnet:?xt=urn:btih:595416D139CD8C7F953A9D3DA6D2EB155A626057
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244353.jpgsave_picture_244353.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244353.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Get 2gether Deep House Vol.3 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244354.jpgsave_picture_244354.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244354.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MemTest86 10.3 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244355.jpgsave_picture_244355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244355.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ magnet:?xt=urn:btih:116072D0BEA6C0C7A85D8AEBECF0508EDAE8582F
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244356.jpgsave_picture_244356.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244356.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Sweetlee - К​р​у​г р​а​з​у​м​а (2023) EP [FLAC|Lossles
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244357.jpgsave_picture_244357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244357.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Metasequoia 4 v4.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244358.jpgsave_picture_244358.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244358.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ I/O - Calm (2001) Room40 [FLAC|Lossless|tracks+.cue] <Ambient, Minimal, Experime
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244359.jpgsave_picture_244359.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244359.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ magnet:?xt=urn:btih:D813D73F20D7691A07559DD3353A8645EB37BB21
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244360.jpgsave_picture_244360.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244360.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Peter Fernandes - The New Me (2011) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244361.jpgsave_picture_244361.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244361.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ A Lake Of Ayes - Ouro Sobre Azul (2021) [FLAC|Lossless|tracks + .cue] <Post Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244362.jpgsave_picture_244362.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244362.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Urantia - Innerverse (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244363.jpgsave_picture_244363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244363.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ magnet:?xt=urn:btih:4CA3A28651104262724C83DCC2C49B476A93CD30
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244364.jpgsave_picture_244364.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244364.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Topaz Gigapixel AI 6.2.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244365.jpgsave_picture_244365.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244365.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ magnet:?xt=urn:btih:6030776DD861A42F6D8E6BF8F59D3F8E9B9A0B3D
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244366.jpgsave_picture_244366.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244366.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Aura - Roku Ronin (2023) EP [MP3|320 Kbps] <Nu-Metal, Rapcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244367.jpgsave_picture_244367.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244367.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Flaminia - Illusion In Fire (2018) Metempsychosis Records [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244368.jpgsave_picture_244368.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244368.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Uartsy, Tomas Wittelsbach | Jewelry Design In ZBrush (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244369.jpgsave_picture_244369.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244369.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Lesson In Violence - The Thrashfall Of Mankind (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244370.jpgsave_picture_244370.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_244370.jpg" />
 </div>
 
 

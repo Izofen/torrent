@@ -6,7 +6,7 @@ Light Image Resizer 6.1.8 (DC 18.09.2023) RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176010.jpgsave_picture_176010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176010.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:A954760C3D626AF9099BE1C4B45AD4D443C65F66
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176012.jpgsave_picture_176012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176012.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:7531DEB5D3D80C10E25BE72419840075D4980789
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176013.jpgsave_picture_176013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176013.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Disturbed - Believe (2002) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176014.jpgsave_picture_176014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176014.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ VA - Solo Divas Volumen 1 (2023) [MP3|320 Kbps] <Pop, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176016.jpgsave_picture_176016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176016.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:CD8D4DD9B254526BDA4E9064CE7667E346BF632B
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176017.jpgsave_picture_176017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176017.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ Outland - Where Do We Go From Here? (2022) [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176018.jpgsave_picture_176018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176018.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ magnet:?xt=urn:btih:8FD214DB120EAD6821841CD48215D5356C3903AD
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176020.jpgsave_picture_176020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176020.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ magnet:?xt=urn:btih:16516C15A2E6BEC60D5D74FBD987C0519FEF051D
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176021.jpgsave_picture_176021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176021.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Disturbed - The Sickness (2000) [FLAC|Lossless|tracks + .cue] <Nu Metal, Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176022.jpgsave_picture_176022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176022.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ magnet:?xt=urn:btih:6AACD8DC8533A51772804B36C287B8754F03796D
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176024.jpgsave_picture_176024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176024.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Rian Treanor - File Under UK Metaplasm (2020) Planet Mu [FLAC|Lossless|tracks + 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176025.jpgsave_picture_176025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176025.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ magnet:?xt=urn:btih:E2770F566B7275F33172227F5E16180EF989F5D6
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176026.jpgsave_picture_176026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176026.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176028.jpgsave_picture_176028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176028.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ magnet:?xt=urn:btih:B6A87B5A531ADB34BAB5693E18067ED57BB1A4CF
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176029.jpgsave_picture_176029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176029.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ magnet:?xt=urn:btih:684B0A7D75A29A004CD440104C0525989B967C2A
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176030.jpgsave_picture_176030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176030.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ magnet:?xt=urn:btih:D0734FF268173D82D7386EDB15CEDBA3A3869303
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176032.jpgsave_picture_176032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176032.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ana Popovic - Compilation (2022) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176033.jpgsave_picture_176033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176033.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Monodraw 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176034.jpgsave_picture_176034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176034.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:5D9CEB4C12D4259B5087E53831811EDAC0F1D726
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176036.jpgsave_picture_176036.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176036.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Sync Folders Pro 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176037.jpgsave_picture_176037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176037.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Revo Uninstaller Pro 5.2.0 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176038.jpgsave_picture_176038.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176038.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Blocs 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176040.jpgsave_picture_176040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_176040.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:C1C5AE37FA36B2B42B0961ADE430D25C224035B9
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176041.jpgsave_picture_176041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_176041.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176042.jpgsave_picture_176042.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176042.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ magnet:?xt=urn:btih:60BC13BAD60394CF97C74DB61C0E45A6083DCB12
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176044.jpgsave_picture_176044.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176044.jpg" />
 </div>
 
 

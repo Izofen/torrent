@@ -6,7 +6,7 @@ Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203865.jpgsave_picture_203865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203865.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203866.jpgsave_picture_203866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203866.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:624C99E98A95B6F8A8BE49C9175B46693C53378B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203867.jpgsave_picture_203867.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203867.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:FE27E9AA2252670388538991ABED530A804264A0
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203868.jpgsave_picture_203868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203868.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:C27F678F9B1D19D4DD739662B04F1CBA04B336BE
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203869.jpgsave_picture_203869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203869.jpg" />
 </div>
 
 
@@ -127,7 +127,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203870.jpgsave_picture_203870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203870.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ magnet:?xt=urn:btih:6A5D9566455F36575FBB8031585AE052987130F9
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203871.jpgsave_picture_203871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203871.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Antivine (2022) [Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203872.jpgsave_picture_203872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203872.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:0EC07CDCF50ADF93D566BD096A44040A148C9712
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203873.jpgsave_picture_203873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203873.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Racionais MC’s: с улиц Сан-Паулу / Racionais MC's: From the Stree
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203874.jpgsave_picture_203874.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203874.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Adobe Photoshop 2023 24.1.0.166 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203875.jpgsave_picture_203875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203875.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Spotify 1.2.18.999 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203876.jpgsave_picture_203876.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203876.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203877.jpgsave_picture_203877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203877.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ magnet:?xt=urn:btih:C264D7F7F844F62181BFF0E2BD25709CA907DD45
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203878.jpgsave_picture_203878.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203878.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:BBEAFAB66CDB0D2E13E7DF1801D1AF2AC7FDF5D9
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203879.jpgsave_picture_203879.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203879.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:2FDB9992487CB40C756AAEC92BE1B23729542E20
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203880.jpgsave_picture_203880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203880.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Microsoft Windows 10.0.19045.2486, Version 22H2 (Updated January 2023) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203881.jpgsave_picture_203881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203881.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Fort Firewall 3.9.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203882.jpgsave_picture_203882.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203882.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ magnet:?xt=urn:btih:6AB61FD533F98B8ED12373FE23E751BBADB15AF5
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203883.jpgsave_picture_203883.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203883.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ CCleaner 6.08.10255 Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203884.jpgsave_picture_203884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203884.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ WinCatalog 2024.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203885.jpgsave_picture_203885.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203885.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ magnet:?xt=urn:btih:361AD06E01BC82F5A2B665108D181E10AA810828
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203886.jpgsave_picture_203886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203886.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ magnet:?xt=urn:btih:200C55376860F7AA7C35FE4844D010B2E89C65FC
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203887.jpgsave_picture_203887.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203887.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Brave Browser 1.47.171 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203888.jpgsave_picture_203888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203888.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ magnet:?xt=urn:btih:92262B5A1A604ED7EFB620385A27953AD1AEECA8
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203889.jpgsave_picture_203889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203889.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ magnet:?xt=urn:btih:4901C2D551E152B64FEA5F319724CAF51F49580E
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203890.jpgsave_picture_203890.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203890.jpg" />
 </div>
 
 

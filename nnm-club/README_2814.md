@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81122.jpgsave_picture_81122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81122.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:B44E34C2ECA794F8CF22779D109E85689E3C3A91
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81125.jpgsave_picture_81125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81125.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:B44E34C2ECA794F8CF22779D109E85689E3C3A91
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81126.jpgsave_picture_81126.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81126.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:B44E34C2ECA794F8CF22779D109E85689E3C3A91
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81128.jpgsave_picture_81128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81128.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Microsoft SQL Server 2012 11.0.2100.60 [ENG]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81132.jpgsave_picture_81132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81132.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ SQL Server 2012, известный ранее под кодовым имене�
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81134.jpgsave_picture_81134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81134.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Half Life 2: Collection [Mac OS X] [Native] [Eng]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81138.jpgsave_picture_81138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81138.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ magnet:?xt=urn:btih:AD80E41D3511814C005A848E92F595252893F5D4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81139.jpgsave_picture_81139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81139.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:AD80E41D3511814C005A848E92F595252893F5D4
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81140.jpgsave_picture_81140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81140.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Cделан он на основе русского интерфейса Windows
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81143.jpgsave_picture_81143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81143.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ WPI Filth Edition 2012 v2.2 (07.03.2012) [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81144.jpgsave_picture_81144.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81144.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ WPI Filth Edition 2012 v2.2 (07.03.2012) [Русский]
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81146.jpgsave_picture_81146.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81146.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ WPI Filth Edition 2012 v2.2 (07.03.2012) [Русский]
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81150.jpgsave_picture_81150.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81150.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ magnet:?xt=urn:btih:7153BAA8214F7076FE90C84A64EAC65F909668CB
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81151.jpgsave_picture_81151.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81151.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:759317B693893146C19339BFBF9CE2D55A56AA91
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81152.jpgsave_picture_81152.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81152.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Alice Cooper - Halloween Night Of Fear (2011) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81154.jpgsave_picture_81154.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81154.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:4473A4D1124946D675BAF740CF84F0656B2A6946
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81155.jpgsave_picture_81155.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81155.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:3853BE3077AEA62EF1072266A927D1037500D761
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81157.jpgsave_picture_81157.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81157.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:97BDE0770ECBBF9E57D957F7F35A774235D0495F
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81159.jpgsave_picture_81159.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81159.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:DF64CB55639C24E607730F8C624DCC898CDD2605
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81161.jpgsave_picture_81161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81161.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81162.jpgsave_picture_81162.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81162.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heav
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81164.jpgsave_picture_81164.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81164.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:91F8294A48C40D4015B98ACA61017BB6B81BC32B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81174.jpgsave_picture_81174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81174.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ magnet:?xt=urn:btih:91F8294A48C40D4015B98ACA61017BB6B81BC32B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81175.jpgsave_picture_81175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81175.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ magnet:?xt=urn:btih:4DE7E1F0A0F577A13A554093DF2939CEF5EDD4D8
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81177.jpgsave_picture_81177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81177.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:C35590CD1EC9EBECE2683CA460BE8E91E0552DCA
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81178.jpgsave_picture_81178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_81178.jpg" />
 </div>
 
 

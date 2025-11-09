@@ -6,7 +6,7 @@ Unpacking (2021) [Ru/Multi] (1.41) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162244.jpgsave_picture_162244.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162244.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162247.jpgsave_picture_162247.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162247.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Rusty Rabbit (2025) [Ru/Multi] (Build 18177047) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162407.jpgsave_picture_162407.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162407.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ Unyielder (2025) [Multi] (1.0.1) Scene Tenoke
 >>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162411.jpgsave_picture_162411.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162411.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Slay the Spire (2019) [Ru/Multi] (2.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162489.jpgsave_picture_162489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162489.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Counter-Strike 1.6 Warface (2020) [Ru] (1.1.2.7/pv48/b4554) Repack Ganniball
 >>Online Action (MMO)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162501.jpgsave_picture_162501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162501.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ WWE 2K20 (2019) [Multi] (1.08/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162558.jpgsave_picture_162558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162558.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162644.jpgsave_picture_162644.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162644.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162672.jpgsave_picture_162672.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162672.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.1hf/dlc) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162675.jpgsave_picture_162675.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162675.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162793.jpgsave_picture_162793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162793.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162904.jpgsave_picture_162904.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162904.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163117.jpgsave_picture_163117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163117.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Teardown (2020) [En] (0.9.0) Unofficial [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163141.jpgsave_picture_163141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163141.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163204.jpgsave_picture_163204.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163204.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.1) Repack Bu
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163309.jpgsave_picture_163309.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163309.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163382.jpgsave_picture_163382.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163382.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ BioShock Infinite (2013) [Ru] (1.0) Unofficial [Русификатор]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163393.jpgsave_picture_163393.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163393.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163501.jpgsave_picture_163501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163501.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163507.jpgsave_picture_163507.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163507.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Saint Kotar (2021) [Ru/Multi] (1.53/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163566.jpgsave_picture_163566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163566.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Oxygen (2023) [Ru/Multi] (1.027) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163645.jpgsave_picture_163645.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163645.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Offroad Mechanic Simulator (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163655.jpgsave_picture_163655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163655.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163665.jpgsave_picture_163665.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163665.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163746.jpgsave_picture_163746.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163746.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Jusant (2023) [Ru/Multi] (1.02.1431188) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163764.jpgsave_picture_163764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_163764.jpg" />
 </div>
 
 

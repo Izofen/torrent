@@ -6,7 +6,7 @@ VivaVideo v9.12.6 b6.6912062 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127617.jpgsave_picture_127617.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127617.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Therion - Leviathan III (2023) [MP3|320 Kbps] <Symphonic Rock, Operatic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127618.jpgsave_picture_127618.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127618.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ VA - Christmas Party 2023-2024 (Best of Dance, EDM, House & Electro) (2023) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127619.jpgsave_picture_127619.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127619.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:5194605E7B8E7363CA8BA0206843F224C6111C12
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127620.jpgsave_picture_127620.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127620.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FBackup 9.9.846 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127621.jpgsave_picture_127621.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127621.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:8ECAC409B662CF02D2D1F5285674C7A602404B64
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127622.jpgsave_picture_127622.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127622.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ magnet:?xt=urn:btih:9974AE91EA4D170E2A55EC94538B398A69D95ACF
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127623.jpgsave_picture_127623.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127623.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ magnet:?xt=urn:btih:F8C0AED88841B71DCF2348D3CDC02AE347E047BB
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127624.jpgsave_picture_127624.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127624.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ magnet:?xt=urn:btih:BDE8FFE1857FF2C9837A65170303DE2BEDCBB446
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127625.jpgsave_picture_127625.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127625.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ magnet:?xt=urn:btih:CD3F1EB8A75DE9380801C10B6DAE32E31BA216AA
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127626.jpgsave_picture_127626.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127626.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Sense V2 Flip Clock & Weather v6.45.5 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127627.jpgsave_picture_127627.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127627.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:26646ABFEEB937A971DEFD9385C8106E2556FDA7
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127628.jpgsave_picture_127628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127628.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ magnet:?xt=urn:btih:B8C0CE0DD603E304B8DD94A90E72B305831D17FD
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127629.jpgsave_picture_127629.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127629.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:3203B4BE96FBC08F1B6B96A1DD708A9F7B5F985C
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127630.jpgsave_picture_127630.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127630.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:1F49D441BCCA0454D32B46E54496FAF9E83CB1CE
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127631.jpgsave_picture_127631.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127631.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ magnet:?xt=urn:btih:ED72A3A8E32C85344206B9F7FEF8657553C619DA
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127632.jpgsave_picture_127632.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127632.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ magnet:?xt=urn:btih:E57A9B24213A1E29818010F78F4E0A9B0812DD28
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127633.jpgsave_picture_127633.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127633.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ magnet:?xt=urn:btih:BE504530B0601A15279A94B4021FBA69A570B17E
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127634.jpgsave_picture_127634.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127634.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Brave Browser 1.61.104 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127635.jpgsave_picture_127635.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127635.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ magnet:?xt=urn:btih:149597791474C2395A74A60BF182E1B461480FBE
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127636.jpgsave_picture_127636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127636.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:8D232A0F27DE29372946E472559EE782DBB0FC64
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127637.jpgsave_picture_127637.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127637.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:AEA9446E4ECF088199F5AB320FC3C35715C8D859
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127638.jpgsave_picture_127638.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127638.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ magnet:?xt=urn:btih:F199862E3F5479308C8C598AA0185151AF57FBD1
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127639.jpgsave_picture_127639.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127639.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ VA - M6 Hits 2024 (2023) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127640.jpgsave_picture_127640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127640.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127641.jpgsave_picture_127641.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127641.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Sexy Chillout Music Specialists - Lustful Bubble Bath (2023) [FLAC|Lossless|WEB-
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127642.jpgsave_picture_127642.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127642.jpg" />
 </div>
 
 

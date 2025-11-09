@@ -6,7 +6,7 @@ VA - Housepital's Secret Club Weapons Vol.1 (2012) [MP3|320 кб/с]<Funky, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133764.jpgsave_picture_133764.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133764.jpg" />
 </div>
 
 
@@ -39,7 +39,7 @@ Hiholl - Illusion Of Life.Lost Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133839.jpgsave_picture_133839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133839.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Infected Mushroom - Part of the Dream (2023) [MP3|320 Kbps] <Psy-Trance, Electro
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134181.jpgsave_picture_134181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134181.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Skysurfer - Chill to the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134266.jpgsave_picture_134266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134266.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134281.jpgsave_picture_134281.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134281.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ VA - Ministry of Sound - The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134501.jpgsave_picture_134501.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134501.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Tears For Fears - Songs From The Big Chair (1985) Super Deluxe, 2014, UMC (Unive
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134865.jpgsave_picture_134865.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134865.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Dance Hits Winter Selection (2023) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134886.jpgsave_picture_134886.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134886.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [MP3|320 Kbps] <Ne
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134905.jpgsave_picture_134905.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134905.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134921.jpgsave_picture_134921.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134921.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Keep It Trance Vol. 16 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134928.jpgsave_picture_134928.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134928.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Infrasonic: The Best Of 2023 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134930.jpgsave_picture_134930.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134930.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ VA - Keep It Trance Vol. 17 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134933.jpgsave_picture_134933.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134933.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134955.jpgsave_picture_134955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134955.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Uplifting Only Top 15: November 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134961.jpgsave_picture_134961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134961.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134963.jpgsave_picture_134963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134963.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Pan-Pot - Forte (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronica, Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135225.jpgsave_picture_135225.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135225.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135386.jpgsave_picture_135386.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135386.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Guitar Con Guitarra Vol.1 (Acoustics Chill Out & Sunset Pearls) (2012) [MP3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135667.jpgsave_picture_135667.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135667.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135677.jpgsave_picture_135677.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135677.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135684.jpgsave_picture_135684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135684.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Bed Time Christmas Stories (Sensualism compiled by DJ MNX) (2012) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135696.jpgsave_picture_135696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135696.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ DJ Muggs (Cypress Hill) - Sound Boy Killa (2012) EP [MP3|320 kbps] <Dubstep, Hip
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136193.jpgsave_picture_136193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136193.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Albedo 067 - Al & Bi (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136261.jpgsave_picture_136261.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136261.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Terminator-Rex - Holograms - Ghosts (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136711.jpgsave_picture_136711.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136711.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ VA - Dark Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136793.jpgsave_picture_136793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136793.jpg" />
 </div>
 
 

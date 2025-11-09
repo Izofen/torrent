@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123469.jpgsave_picture_123469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123469.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Total Commander 11.02 Final - Titan v33 Portable by pcDenPro [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123470.jpgsave_picture_123470.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123470.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ Total Commander Ultima Prime 8.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123471.jpgsave_picture_123471.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123471.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ magnet:?xt=urn:btih:D1E4C56E0EDBDEA3D0FEA469EB71B02A50FAD5D8
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123472.jpgsave_picture_123472.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123472.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123473.jpgsave_picture_123473.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123473.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:D8E348050C19857A9768D8DB47EAA711D1556B3F
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123474.jpgsave_picture_123474.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123474.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ magnet:?xt=urn:btih:B4A753AD5FE6506CCEBEE9DDC53E4FBA2505207E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123475.jpgsave_picture_123475.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123475.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ magnet:?xt=urn:btih:9329D3CFEE23FDDBFD0270D5992C354BC62A500B
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123476.jpgsave_picture_123476.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123476.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Vagrus The Riven Realms (2021) [En] (1.1.50.1219V/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123477.jpgsave_picture_123477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123477.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Total Uninstall 7.6.0 Professional RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123478.jpgsave_picture_123478.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123478.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ MediaHuman YouTube Downloader 3.9.9.88 (0110) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123480.jpgsave_picture_123480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123480.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ magnet:?xt=urn:btih:12932BF0BBB6383F38FA0EFF3BB1E8D923D81B94
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123481.jpgsave_picture_123481.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123481.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:DD485AAD1DD54297025BD2DC853128ECCE4E4C4E
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123482.jpgsave_picture_123482.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123482.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Starfield (2023) [Ru/Multi] (1.8.88.0/dlc) Repack Other s [Premium Edition]
 >>12
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123484.jpgsave_picture_123484.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123484.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ magnet:?xt=urn:btih:31EB60D6060F4DC1B8D2BCE435A11F5E4F68E782
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123485.jpgsave_picture_123485.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123485.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Wondershare Filmora 13.0.60.5095 x64 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123486.jpgsave_picture_123486.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123486.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:DD6053E533AB36848226B44EBCE276345E318594
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123487.jpgsave_picture_123487.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123487.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:E260BAF59F07B0A234DE79AE210015ECF38A1798
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123488.jpgsave_picture_123488.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123488.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:4558D68993EED45DA2FE0E4851B05BE0DD1B94EA
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123489.jpgsave_picture_123489.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123489.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:4AADAC7B587303FB782B7E21CDBEF0B6E2DE3E0D
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123490.jpgsave_picture_123490.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123490.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ magnet:?xt=urn:btih:F033D626BC1AD3DE23F1C65F9CA240C26B869435
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123491.jpgsave_picture_123491.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123491.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ magnet:?xt=urn:btih:1A5946CD1092090089DBC911B0025CD10DEF6F20
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123492.jpgsave_picture_123492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123492.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ magnet:?xt=urn:btih:E32538DA3E5B78A1B7976BCE219A688E92B479CD
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123493.jpgsave_picture_123493.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123493.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Bootlegger's Mafia Racing Story (2024) [En] (1.0) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123494.jpgsave_picture_123494.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123494.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ QNAP QTS 5.1.5.2679 [x32_x64] 2xDVD ESXi IMG
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123495.jpgsave_picture_123495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123495.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ KMS Tools Portable by Ratiborus Lite 11.01.2024
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123496.jpgsave_picture_123496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123496.jpg" />
 </div>
 
 

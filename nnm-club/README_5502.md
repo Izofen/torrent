@@ -6,7 +6,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170007.jpgsave_picture_170007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170007.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Nirvana - In Utero (1993) 30th Anniversary Super Deluxe, 2023, Geffen [MP3|320 K
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170008.jpgsave_picture_170008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170008.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ magnet:?xt=urn:btih:4FFCE6E139D8EE949905ABA452AC6C0F7C033125
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170009.jpgsave_picture_170009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170009.jpg" />
 </div>
 
 
@@ -83,7 +83,7 @@ magnet:?xt=urn:btih:C6A375D989884E8A7E6BEAD8B3168F17B82AE96C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170010.jpgsave_picture_170010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170010.jpg" />
 </div>
 
 
@@ -108,7 +108,7 @@ Deeds of Flesh - Nucleus (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Technical-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170011.jpgsave_picture_170011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170011.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ SILKYPIX JPEG Photography 11.2.11.0 Portable by Spirit Summer [Ru]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170012.jpgsave_picture_170012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170012.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:E83B891E29E7C8B9AB1F2051067ACCD1EC23D974
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170013.jpgsave_picture_170013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170013.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ magnet:?xt=urn:btih:A493217EFEEE7D81CFCF7574693D78696C90A8A5
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170014.jpgsave_picture_170014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170014.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ EZ CD Audio Converter 11.3.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170015.jpgsave_picture_170015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170015.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ magnet:?xt=urn:btih:FD6064549C120381BBD049A835ECDF8E1AEA190E
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170016.jpgsave_picture_170016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170016.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Third Party - Deep Set at Lymm Water Tower (2020-12-06) [MP3|320 Kbps] <Tech Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170017.jpgsave_picture_170017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170017.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ magnet:?xt=urn:btih:31DE87FFDB2A47E010C2530D3800FF149C34C297
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170018.jpgsave_picture_170018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170018.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Topaz Video AI 4.0.1 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170019.jpgsave_picture_170019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170019.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ magnet:?xt=urn:btih:C2C09E34E58D814926A520323DC84BDF929EB7C3
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170020.jpgsave_picture_170020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170020.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ magnet:?xt=urn:btih:CF099CB36F87E6CF4D0748A6AAFB1E9A54549E43
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170021.jpgsave_picture_170021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170021.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ BBC. Великие географические открытия / Voyages of D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170022.jpgsave_picture_170022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170022.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ magnet:?xt=urn:btih:278B199AF8A4ED17616B4FA72A14961BDCD6DE74
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170023.jpgsave_picture_170023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170023.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ magnet:?xt=urn:btih:B2A2DCE8DA18CAF82BF3C6D9F98302E2A5FDAA82
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170024.jpgsave_picture_170024.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170024.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ribspreader - The Van Murderers - Part 2 (2018) [APE|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170025.jpgsave_picture_170025.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170025.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Total Commander 11.02 RC4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170026.jpgsave_picture_170026.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170026.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ magnet:?xt=urn:btih:C805A2CE8E55F66D4AD04E2CBAE5B58C1A735B40
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170027.jpgsave_picture_170027.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170027.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ magnet:?xt=urn:btih:F806DB8C7EF56177A2BDE6613AAF2408DA84EE71
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170028.jpgsave_picture_170028.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170028.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Topaz Photo AI 2.0.7 (x64) RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170029.jpgsave_picture_170029.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170029.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ PDF Expert 2.5.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170030.jpgsave_picture_170030.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170030.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ magnet:?xt=urn:btih:BDEB713D1BFAD315734C62DEFD4C0DC8DB12DB82
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170031.jpgsave_picture_170031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170031.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Avira Phantom VPN Pro 2.29.2.24183 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170032.jpgsave_picture_170032.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170032.jpg" />
 </div>
 
 

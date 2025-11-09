@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87944.jpgsave_picture_87944.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87944.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Sensorica - The Realm Of Fancy (2007) [FLAC|Lossless]<Downtempo, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87946.jpgsave_picture_87946.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87946.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ XYplorer 10.90.0302 Beta Portable [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87948.jpgsave_picture_87948.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87948.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ Daum PotPlayer 1.5.32007 [x86-x64] [Rus] [сборка 7sh3 от 10.04.2012]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87949.jpgsave_picture_87949.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87949.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87950.jpgsave_picture_87950.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87950.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87952.jpgsave_picture_87952.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87952.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87953.jpgsave_picture_87953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87953.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ magnet:?xt=urn:btih:0BB2B35C13F15C448979D1E09A0E8FAAC23C3D88
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87954.jpgsave_picture_87954.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87954.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:5EA7EC6F249C7DC66D2CD2AF3867E10904F42D2C
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87955.jpgsave_picture_87955.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87955.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:08FA7D04DFD7B32CB59B13FF53D844C6A7166355
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87962.jpgsave_picture_87962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87962.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:151F4873C61A1EBE0B35476A1BA4B15FD1272850
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87966.jpgsave_picture_87966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87966.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Simply Erotica (2011) [FLAC|tracks+.cue]<Lounge, Chillout, Relax>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87968.jpgsave_picture_87968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87968.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ VA - Дискотека 90-Х Часть 2 (Mixed by Alex Mega) (2012) [MP3|320 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87969.jpgsave_picture_87969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87969.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:7087145DF548FC629C489654FFBBC24576806BB5
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87971.jpgsave_picture_87971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87971.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:E12F1BE4FEB6B7E4196A1B29F9E2C58609D2C6FD
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87973.jpgsave_picture_87973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87973.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:E12F1BE4FEB6B7E4196A1B29F9E2C58609D2C6FD
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87974.jpgsave_picture_87974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87974.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87975.jpgsave_picture_87975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87975.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87976.jpgsave_picture_87976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87976.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87978.jpgsave_picture_87978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87978.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87979.jpgsave_picture_87979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87979.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ magnet:?xt=urn:btih:50F9B5A5A325AA4D3CB590BBD024F3E66FE2C6A6
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87981.jpgsave_picture_87981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87981.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:BED508452CE2412BE35E6B8AC8E9BBA3668F7663
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87982.jpgsave_picture_87982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87982.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:5F76AFBB536EA523036B6834F076B73932A2E588
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87986.jpgsave_picture_87986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87986.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Elsiane - Mechanics of Emotion (2012) [MP3|320 кб/с]<Trip-Hop, Dream-Pop, Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87989.jpgsave_picture_87989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87989.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:F667F556FC7B31CFA2555854F8B23F1F56BB497C
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87993.jpgsave_picture_87993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87993.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Captain Morgane and the Golden Turtle [Multi3/-] (L) 2012 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87995.jpgsave_picture_87995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_87995.jpg" />
 </div>
 
 

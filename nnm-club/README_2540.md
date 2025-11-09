@@ -6,7 +6,7 @@
 >>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66790.jpgsave_picture_66790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66790.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Tarja Turunen - Circus Life (2025) Live in Bucharest [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66791.jpgsave_picture_66791.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66791.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Mondaiji-tachi ga Isekai kara Kuru Sou desu yo? | Проблемные дети 
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66792.jpgsave_picture_66792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66792.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:121C6C37F2E10B555349ADE491B3846936525843
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66793.jpgsave_picture_66793.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66793.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [ha
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66794.jpgsave_picture_66794.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66794.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ magnet:?xt=urn:btih:31ED7369CBA8BDA1B07D11545F251E0E21075A9B
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66795.jpgsave_picture_66795.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66795.jpg" />
 </div>
 
 
@@ -156,7 +156,7 @@ magnet:?xt=urn:btih:AB632835FDDA605B8C0C4F8FDE588C0CAFC8EA62
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66796.jpgsave_picture_66796.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66796.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Carlita - fabric presents Carlita (2025) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66797.jpgsave_picture_66797.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66797.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Armin van Buuren - A State Of Trance 1225 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66798.jpgsave_picture_66798.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66798.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ magnet:?xt=urn:btih:D6EA74CDA0B990289094B2F36CF9CB738F5AE1BF
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66799.jpgsave_picture_66799.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66799.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ VA - Ori Uplift - Uplifting Only Episode 640 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66800.jpgsave_picture_66800.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66800.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Brother Jack McDuff - Gin And Orange (1969) 2008, Dusty [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66801.jpgsave_picture_66801.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66801.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:E03F50DD5D7F0C83718F580A1015679B108CD26C
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66802.jpgsave_picture_66802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66802.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Bury Tomorrow - Will You Haunt Me, With That Same Patience (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66803.jpgsave_picture_66803.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66803.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ magnet:?xt=urn:btih:310900EBA330E9AF969375A859C5A816EB077042
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66804.jpgsave_picture_66804.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66804.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ NiziU - Need U (2021) WEBRip [H.265/2160p] [60fps, Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66805.jpgsave_picture_66805.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66805.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66806.jpgsave_picture_66806.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66806.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66807.jpgsave_picture_66807.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66807.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ magnet:?xt=urn:btih:5D860EDEED786DA58EF2519FE6FDC125EEE6EDB3
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66808.jpgsave_picture_66808.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66808.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ magnet:?xt=urn:btih:1EF26F1A8378F422B0F53743D33FEDDDDA5E5441
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66809.jpgsave_picture_66809.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66809.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ magnet:?xt=urn:btih:6D793E8762FB92F1D40BF4976C1E61944634977E
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66810.jpgsave_picture_66810.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66810.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Deep Sun - Storyteller (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66811.jpgsave_picture_66811.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66811.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ magnet:?xt=urn:btih:3A9363EAFE112C24550B82410DCC460A8C3DDE5F
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66812.jpgsave_picture_66812.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66812.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Soul Seller - Fight Against Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66813.jpgsave_picture_66813.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66813.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ magnet:?xt=urn:btih:0A94FA2C40EFD03A08100AD9A65A62A53A859C75
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66814.jpgsave_picture_66814.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66814.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ magnet:?xt=urn:btih:D85B848894F3095E25A5615902C5C7B2982E0D0F
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66815.jpgsave_picture_66815.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66815.jpg" />
 </div>
 
 

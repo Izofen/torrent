@@ -6,7 +6,7 @@ VA - Music for Speed (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148223.jpgsave_picture_148223.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148223.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Anjunabeats The Yearbook 2020 (Mixed) (2020) [MP3|320 Kbps] <Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148283.jpgsave_picture_148283.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148283.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Shazam Хит-парад Russia Top 100 Итоговый 2018 [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148294.jpgsave_picture_148294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148294.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Новогодняя Дискотека Руки Вверх 2019! (2018) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148339.jpgsave_picture_148339.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148339.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Начинаем отмечать! №1 (2016) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148363.jpgsave_picture_148363.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148363.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - SVS Collection vol. 8 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148410.jpgsave_picture_148410.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148410.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Big Love 20 от Love Radio (18.12.2016)  [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148450.jpgsave_picture_148450.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148450.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Rock in Auto Vol 4. (2017) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148469.jpgsave_picture_148469.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148469.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Times Disco Fever Actions (2016) [MP3|317-320 Kbps] <Synth-pop, New Wave, I
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148480.jpgsave_picture_148480.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148480.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - The Vanilla Jazz: Instrumental Collection (2021) [MP3|320 Kbps] <Jazz, Inst
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148492.jpgsave_picture_148492.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148492.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Aesthetic Blues: Modern & Old Style (2021) [MP3|320 Kbps] <Blues, Folk Blue
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148496.jpgsave_picture_148496.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148496.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Music News vol.157 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148551.jpgsave_picture_148551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148551.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Urban Dance Party: Clubbing Electro House (2021) [MP3|320 Kbps] <Club, Danc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148580.jpgsave_picture_148580.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148580.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Deep House: Soft Session (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148628.jpgsave_picture_148628.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148628.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Billboard Year End Hot 100 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148636.jpgsave_picture_148636.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148636.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Friday Night: EDM Dance Party (2021) [MP3|320 Kbps] <Dance, Electro, Club, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148640.jpgsave_picture_148640.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148640.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - EDM Friday Party (2021) [MP3|320 Kbps] <EDM, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148651.jpgsave_picture_148651.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148651.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, M
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148656.jpgsave_picture_148656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148656.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148674.jpgsave_picture_148674.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148674.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148680.jpgsave_picture_148680.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148680.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148684.jpgsave_picture_148684.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148684.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Di
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148688.jpgsave_picture_148688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148688.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Electronic Cosmic Party (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synth
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148708.jpgsave_picture_148708.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148708.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Speed is not for everyone (2019) [MP3|320 Kbps] <Hard Rock, Rock, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148731.jpgsave_picture_148731.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148731.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148744.jpgsave_picture_148744.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148744.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148759.jpgsave_picture_148759.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_148759.jpg" />
 </div>
 
 

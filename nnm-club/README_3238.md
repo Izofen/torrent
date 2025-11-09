@@ -6,7 +6,7 @@ VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104548.jpgsave_picture_104548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104548.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ruby Braff & Scott Hamilton - A Sailboat In The Moonlight (1986) Concord Jazz [A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104549.jpgsave_picture_104549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104549.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Carmeria - Tragedie D'amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104550.jpgsave_picture_104550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104550.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lenny Kravitz - Human (Remixes Edits) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104551.jpgsave_picture_104551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104551.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Lenny Kravitz - Human (Paul Woolford Remix) (2024) EP [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104552.jpgsave_picture_104552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104552.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Aircoach - Prism (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104553.jpgsave_picture_104553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104553.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Obscene - Agony & Wounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104554.jpgsave_picture_104554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104554.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ magnet:?xt=urn:btih:708CE23097DDCE8DA84C542D626289415C7757E9
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104555.jpgsave_picture_104555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104555.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ magnet:?xt=urn:btih:907FA999DB3B7952F55EE86F41E14BCAC3B2D75B
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104556.jpgsave_picture_104556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104556.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Aphelion - Humanoid World (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104557.jpgsave_picture_104557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104557.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ u-he - Bazille 1.1.3 VSTi, VSTi 3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104558.jpgsave_picture_104558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104558.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ magnet:?xt=urn:btih:67EF609048E8F3C9C4DD3849A774445B980812C6
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104559.jpgsave_picture_104559.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104559.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Sandboxie 5.69.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104560.jpgsave_picture_104560.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104560.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ magnet:?xt=urn:btih:4EEE7CA6BC0F0A11B7F04979A5E734E87FBD448C
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104561.jpgsave_picture_104561.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104561.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Ellende - Todbringerin (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104562.jpgsave_picture_104562.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104562.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Many Eyes - The Light Age (2024) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104563.jpgsave_picture_104563.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104563.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Ablazing Autumn Sessions 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104564.jpgsave_picture_104564.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104564.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Transcendent - Awaken (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104565.jpgsave_picture_104565.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104565.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Ablazing Summer Sessions 2024 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104566.jpgsave_picture_104566.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104566.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104567.jpgsave_picture_104567.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104567.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA - ADE Inside (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104568.jpgsave_picture_104568.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104568.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Ellende - Todbringerin (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104569.jpgsave_picture_104569.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104569.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ruby Braff And Scott Hamilton - A First (1985) Concord Jazz [APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104570.jpgsave_picture_104570.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104570.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ magnet:?xt=urn:btih:B91990268FD1F9F6397E214E003F551675DAB564
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104571.jpgsave_picture_104571.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104571.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Cool & Groovy (Blues, Jazz, Funk) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104572.jpgsave_picture_104572.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104572.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Leprous - Studio Albums (10 releases) (2004-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104573.jpgsave_picture_104573.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104573.jpg" />
 </div>
 
 

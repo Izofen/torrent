@@ -6,7 +6,7 @@ Kevin Moan & The Howling - Big Milk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66998.jpgsave_picture_66998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66998.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ephors - A Mad Shade of Yellow (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66999.jpgsave_picture_66999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66999.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aetherwind - The Bonding Element (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67000.jpgsave_picture_67000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67000.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:AC5814385AC6FEC5C5247AFA36C416CEDEE0CBF2
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67001.jpgsave_picture_67001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67001.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Gaia Metal - Pentandra (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67002.jpgsave_picture_67002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67002.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Area - Crac! (1975) Japanese Edition, Reissue, 2007, Strange Days Records [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67003.jpgsave_picture_67003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67003.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Roy Eldridge And Dizzy Gillespie - Roy And Diz (1954) 1994, Verve Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67004.jpgsave_picture_67004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67004.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Jonas Wall - Umbaji (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67005.jpgsave_picture_67005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67005.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Christian Madden & The Enemy Chorus - Shinbone's Revenge (2025) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67006.jpgsave_picture_67006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67006.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Lily of the Sea - Slow Violence (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67007.jpgsave_picture_67007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67007.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Big Mike Hart - Modern Classic (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smoot
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67008.jpgsave_picture_67008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67008.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Haken - Liveforms: An Evening With Haken (Live in London 2024) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67009.jpgsave_picture_67009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67009.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Eric Elias Trio - HOME MADE (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fus
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67010.jpgsave_picture_67010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67010.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Bowers Foreman - The Boy Who Learned To Fly (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67011.jpgsave_picture_67011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67011.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Coleman Hawkins With Billy Byers And His Orchestra - The Hawk In Hi-Fi (1956) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67012.jpgsave_picture_67012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67012.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Epic Death - The Seer (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67013.jpgsave_picture_67013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67013.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ magnet:?xt=urn:btih:DC0D712617653E1E6370B80AA976D225D4ACC2FE
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67014.jpgsave_picture_67014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67014.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Morcolac - Sanguinaria (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67015.jpgsave_picture_67015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67015.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Ella Fitzgerald - Like Someone In Love (1957) 1991, Verve Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67016.jpgsave_picture_67016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67016.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Inherited - No Regret (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67017.jpgsave_picture_67017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67017.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67018.jpgsave_picture_67018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67018.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67019.jpgsave_picture_67019.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67019.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Slizard - Wicked Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67020.jpgsave_picture_67020.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67020.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:A58E66C211AFB224445B6FAC11F7F155B78FB471
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67021.jpgsave_picture_67021.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67021.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ magnet:?xt=urn:btih:B60963C5110715B35B70AD62DAD1B7D04A0E209F
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67022.jpgsave_picture_67022.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67022.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67023.jpgsave_picture_67023.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67023.jpg" />
 </div>
 
 

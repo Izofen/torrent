@@ -6,7 +6,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46533.jpgsave_picture_46533.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46533.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:9423590C4EA5468554378FDC7D8DA0BACD9FB586
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46534.jpgsave_picture_46534.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46534.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:732FC2A61D2587FA38539CCFD59A8051533F9AA6
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46535.jpgsave_picture_46535.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46535.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46536.jpgsave_picture_46536.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46536.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ magnet:?xt=urn:btih:101AF4A3F61AD8A36543F6BAD0EF35250F2B712A
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46537.jpgsave_picture_46537.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46537.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ magnet:?xt=urn:btih:92D81388D53FEC34DB3BBF9B35518D8E00842236
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46538.jpgsave_picture_46538.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46538.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ magnet:?xt=urn:btih:245D3B4210E2A364DFAEE3DFC56501F9874CB578
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46539.jpgsave_picture_46539.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46539.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ magnet:?xt=urn:btih:BE7C8A4E21CF6F099EE3EEA435956F8B6BE4C280
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46540.jpgsave_picture_46540.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46540.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Foxit PDF Editor Pro 13.1.3.22478 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46541.jpgsave_picture_46541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46541.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:11CA5F4854FD8E796AB23DC9A59CEE02CAB45C23
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46542.jpgsave_picture_46542.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46542.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Windows 7 SP1 x64 Rus by OneSmiLe [17.08.2024]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46543.jpgsave_picture_46543.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46543.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:EDF7498A98CAF5AB3A72B55D7B2F0CE75890BDA7
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46544.jpgsave_picture_46544.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46544.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Design Wonderland, Алиса Яковлева | Профессия дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46545.jpgsave_picture_46545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46545.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ magnet:?xt=urn:btih:883B5C5DDEAC506BE40CBB136F9CD7E873E394BF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46546.jpgsave_picture_46546.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46546.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ magnet:?xt=urn:btih:8B56BA1004050A22A6D6D4F373FD808D460F51DF
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46547.jpgsave_picture_46547.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46547.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VA - Live At Knebworth (2002) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46548.jpgsave_picture_46548.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46548.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ The Last Case of Benedict Fox (2023) [Multi] (1.40.2.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46549.jpgsave_picture_46549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46549.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ magnet:?xt=urn:btih:C988146E3B3509F8C7EA804234AD2DF0FBCD9064
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46550.jpgsave_picture_46550.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46550.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Rainbow - Live In Munich (1977) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46551.jpgsave_picture_46551.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46551.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ magnet:?xt=urn:btih:9AA55FD84CBEFC4B5B975B0F0D8228262123EE5F
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46552.jpgsave_picture_46552.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46552.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ magnet:?xt=urn:btih:A01A766FE9F09CD1601CFB1AED7E4D8EB62EECA7
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46553.jpgsave_picture_46553.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46553.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:25CEE4ADBBEBE3A1D289E9B5C8DC377C44D57AC8
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46554.jpgsave_picture_46554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46554.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Yuval Noah Harari | Nexus. Краткая история информацион�
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46555.jpgsave_picture_46555.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46555.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Summer Dance Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46556.jpgsave_picture_46556.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46556.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ The Lullaby of Life (2024) [Ru/Multi] (1.0.7.0) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46557.jpgsave_picture_46557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46557.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46558.jpgsave_picture_46558.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46558.jpg" />
 </div>
 
 

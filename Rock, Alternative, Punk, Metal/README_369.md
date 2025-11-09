@@ -6,7 +6,7 @@ Raven - All Hell's Breaking Loose (2023) [FLAC|Lossless|image + .cue] <NWOBHM, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216291.jpgsave_picture_216291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216291.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Heaven's Edge - Get It Right (2023) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216304.jpgsave_picture_216304.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216304.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Vypera - Race Of Time (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216313.jpgsave_picture_216313.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216313.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ GNP - Safety Zone (1989) Reissue, Remastered, 2023, MelodicRock Classics [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216322.jpgsave_picture_216322.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216322.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Later Sons - Rise Up (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216327.jpgsave_picture_216327.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216327.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Urne - A Feast On Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216355.jpgsave_picture_216355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216355.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Hanoi Rocks - Up Around the Bend: The Definitive Collection (2004) 2CD, Compilat
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216713.jpgsave_picture_216713.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216713.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Tarja Turunen - Rocking Heels (Live at Metal Church) (2023) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216763.jpgsave_picture_216763.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216763.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Summer Rock - The Greatest Hits for Your Festival Adventures (2023) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216818.jpgsave_picture_216818.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216818.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Megaherz - In Teufels Namen (2023) [FLAC|24/44.1|tracks|WEB-DL] <Neue Deutsche H
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216830.jpgsave_picture_216830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216830.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Ekseption - Ekseption (2023) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216953.jpgsave_picture_216953.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216953.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ King Kobra - We Are Warriors (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216982.jpgsave_picture_216982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_216982.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Blindstone - Scars To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217001.jpgsave_picture_217001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217001.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ George Lynch & Jeff Pilson - Heavy Hitters II (2023) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217057.jpgsave_picture_217057.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217057.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ David Byrne & Fatboy Slim - Here Lies Love (2010) 2CD, Remaster, 2023, Nonesuch 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217063.jpgsave_picture_217063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217063.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Caskets - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore / Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217114.jpgsave_picture_217114.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217114.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Refuser - Refuser (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217136.jpgsave_picture_217136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217136.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Malkasian - The Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217161.jpgsave_picture_217161.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217161.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ To Kill Achilles - Recovery (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217171.jpgsave_picture_217171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217171.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Kind - Close Encounters (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217179.jpgsave_picture_217179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217179.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Hemina - Romancing The Ether (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217222.jpgsave_picture_217222.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217222.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Streetlight - Ignition (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217233.jpgsave_picture_217233.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217233.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Divisiv - Burn It Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217243.jpgsave_picture_217243.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217243.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Elimination - Echoes of the Abyss (2021) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217254.jpgsave_picture_217254.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217254.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Eternal Ascent - Reclamation (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217265.jpgsave_picture_217265.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217265.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Sludge Keeper - Slough Of Despair (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217274.jpgsave_picture_217274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_217274.jpg" />
 </div>
 
 

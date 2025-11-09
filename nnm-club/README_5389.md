@@ -6,7 +6,7 @@ AweEraser 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166993.jpgsave_picture_166993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166993.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ UltraCompare 22.00.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166994.jpgsave_picture_166994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166994.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:45E68DDBE4C1A2D702C511BD793E92B67064DA64
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166995.jpgsave_picture_166995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166995.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Ink2Go 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166996.jpgsave_picture_166996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166996.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Land Of Gypsies - Land Of Gypsies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166997.jpgsave_picture_166997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166997.jpg" />
 </div>
 
 
@@ -131,7 +131,7 @@ Imagine 1.3.4 + Portable + Plugins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166998.jpgsave_picture_166998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166998.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ magnet:?xt=urn:btih:6B9DE365DF51A7CF73EE7F7F930F967B50B4300D
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166999.jpgsave_picture_166999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_166999.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Jettison 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167000.jpgsave_picture_167000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167000.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ SnippetsLab 1.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167001.jpgsave_picture_167001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167001.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ magnet:?xt=urn:btih:AA0AAFD11161388C0080E9683EB9A93C02145CF8
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167002.jpgsave_picture_167002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167002.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ magnet:?xt=urn:btih:8A0B5C70E4024A4500408D6EEB5276163990051B
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167003.jpgsave_picture_167003.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167003.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Armada Music 2022 (2021) [AAC|~322 Kbps] <House, Deep House, Dance, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167004.jpgsave_picture_167004.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167004.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Deliver 2.6.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167005.jpgsave_picture_167005.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167005.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ magnet:?xt=urn:btih:820D11C4A26AD00D47EE6DE69E69C4E36A489FFF
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167006.jpgsave_picture_167006.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167006.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Martha Is Dead (2022) [Ru/Multi] (1.1116.00) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167007.jpgsave_picture_167007.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167007.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167008.jpgsave_picture_167008.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167008.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Q-Dir 11.44 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167009.jpgsave_picture_167009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167009.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ SQLPro for SQLite 2021.110 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167010.jpgsave_picture_167010.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167010.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ magnet:?xt=urn:btih:F29F82C1F96D8C235E2798C53DE669C61A740D63
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167011.jpgsave_picture_167011.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167011.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ magnet:?xt=urn:btih:11956DDCAA1AE28EA45F95C755080C8BE36501CA
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167012.jpgsave_picture_167012.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167012.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ PageEdit 2.0.2 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167013.jpgsave_picture_167013.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167013.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ magnet:?xt=urn:btih:5305A0A916F383AF9BD77FB19279001D811F6630
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167014.jpgsave_picture_167014.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167014.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ magnet:?xt=urn:btih:44E834B3B9DCA3B103FDD3688B6C215065041BC8
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167015.jpgsave_picture_167015.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167015.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ magnet:?xt=urn:btih:7120CAEF29492B710F54C826DDA01EECF7E1935F
 >>История
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167016.jpgsave_picture_167016.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167016.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ magnet:?xt=urn:btih:9B5B91BE22F39B328EA6FA49C52C46C724D32B17
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167017.jpgsave_picture_167017.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167017.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ magnet:?xt=urn:btih:72B0B6EDD5184A1BA30004EC531489C52D5159A4
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167018.jpgsave_picture_167018.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167018.jpg" />
 </div>
 
 

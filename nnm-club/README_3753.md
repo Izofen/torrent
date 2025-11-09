@@ -6,7 +6,7 @@ James Brown - 100% James Brown (2024) [MP3|320 Kbps] <Pop, Soul, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117958.jpgsave_picture_117958.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117958.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mike Mareen - LP Dance Control (1985) Reissue, Remastered, 2022, Klaus Steiner S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117959.jpgsave_picture_117959.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117959.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Black Sabbath - Live In Boston 1992 (2020) 2 x CD, Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117960.jpgsave_picture_117960.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117960.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ magnet:?xt=urn:btih:0942B126BF8C892ED9CDD386FE7D4ED33FEA4B70
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117961.jpgsave_picture_117961.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117961.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:365FB952C290F95897CEE3B5D0E798F5201E73AA
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117962.jpgsave_picture_117962.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117962.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ magnet:?xt=urn:btih:8B703A3BD0E24DD21FC13DFBEF39DF3712797452
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117963.jpgsave_picture_117963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117963.jpg" />
 </div>
 
 
@@ -159,7 +159,7 @@ magnet:?xt=urn:btih:05E838D048D4DF792FF104DA4852BB8F7915854D
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117964.jpgsave_picture_117964.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117964.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ August Burns Red - Twenty Year Tour Live (2024) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117965.jpgsave_picture_117965.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117965.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - Flashdance (Original Soundtrack From The Motion Picture) (1983) [OGG Vorbis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117966.jpgsave_picture_117966.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117966.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sandboxie plus 1.13.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117967.jpgsave_picture_117967.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117967.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Kevin Costner & Modern West - Turn It On (2010) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117968.jpgsave_picture_117968.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117968.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Wirecast 16.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117969.jpgsave_picture_117969.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117969.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ magnet:?xt=urn:btih:EC949F319036F91C465DE3DA61C12871B78641EA
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117970.jpgsave_picture_117970.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117970.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Barcode 2.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117971.jpgsave_picture_117971.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117971.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Kevin Costner & Modern West - Untold Truths (2008) [FLAC|Lossless|WEB-DL|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117972.jpgsave_picture_117972.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117972.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Nothing But... Trancetopia Vol. 12 (2024) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117973.jpgsave_picture_117973.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117973.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Strava: бег, велоезда, хайкинг v346.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117974.jpgsave_picture_117974.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117974.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ magnet:?xt=urn:btih:2CCBC240B5EA7E76628F87BBDB3D80ABC116EBBE
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117975.jpgsave_picture_117975.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117975.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117976.jpgsave_picture_117976.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117976.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Erotic Trap -  Bondage, BDSM, Role Play, Fetish, Domination, Rough Sex (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117977.jpgsave_picture_117977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117977.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ magnet:?xt=urn:btih:5A4C4EDE77402AA120831B770C2BE3C17DA57B4D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117978.jpgsave_picture_117978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117978.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ magnet:?xt=urn:btih:71910C10CE8752C7E880B8C543F86A5D0FFB81A2
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117979.jpgsave_picture_117979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117979.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Malwarebytes Windows Firewall Control 6.9.9.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117980.jpgsave_picture_117980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117980.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ magnet:?xt=urn:btih:3112BDAB2F544C67E2B7EC4BC9A03876F0E5EED5
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117981.jpgsave_picture_117981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117981.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Low Road Blues Rock Country (2024) [MP3|320 Kbps] <Blues, Country, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117982.jpgsave_picture_117982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117982.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ magnet:?xt=urn:btih:093F9708336F3C2F3085492F3A25808681988EBF
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117983.jpgsave_picture_117983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117983.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Internet Download Manager 6.42 Build 16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49081.jpgsave_picture_49081.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49081.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ FotoJet Designer 1.3.5 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49082.jpgsave_picture_49082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49082.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ FotoJet Photo Editor 1.2.3 Portable by 7997 [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49083.jpgsave_picture_49083.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49083.jpg" />
 </div>
 
 
@@ -79,7 +79,7 @@ Audacity 3.6.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49084.jpgsave_picture_49084.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49084.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ VA - La Bola De Discoteca (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49085.jpgsave_picture_49085.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49085.jpg" />
 </div>
 
 
@@ -130,7 +130,7 @@ n-Track Studio Suite 10.1.0.8710 Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49086.jpgsave_picture_49086.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49086.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ FotoJet Photo Editor 1.2.3 RePack (& Portable) by elchupacabra [En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49087.jpgsave_picture_49087.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49087.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 4 (2024) [MP3|224-320 Kbps] <De
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49088.jpgsave_picture_49088.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49088.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ magnet:?xt=urn:btih:EEEFD94417D7C1232C14868D2ECC667DE0E151C6
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49089.jpgsave_picture_49089.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49089.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Winxvideo AI 3.1 (x64) RePack (& Portable) by elchupacabra (DC 18.07.2024) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49090.jpgsave_picture_49090.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49090.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ R-Studio Network / Technician 9.4 Build 191346 RePack (& Portable) by Dodakaedr 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49091.jpgsave_picture_49091.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49091.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ OBS Studio 30.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49092.jpgsave_picture_49092.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49092.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49093.jpgsave_picture_49093.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49093.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ The Dawning Clocks of Time: Remake (2024) [En] (1.0.0.0701.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49094.jpgsave_picture_49094.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49094.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ magnet:?xt=urn:btih:8B7F8933BAFB78C378B10CA6A1BD3AE29918E07C
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49095.jpgsave_picture_49095.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49095.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ magnet:?xt=urn:btih:4FA06821EA6806792DBF4CF491B4BDE4A84C17BB
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49096.jpgsave_picture_49096.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49096.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ magnet:?xt=urn:btih:09CA7B249FB1BDC047A506DB555E5029107B2315
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49097.jpgsave_picture_49097.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49097.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ magnet:?xt=urn:btih:16B526910499FFBCCCFD486F6EC19FDEC991C4A1
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49098.jpgsave_picture_49098.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49098.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ IObit Driver Booster Pro 11.6.0.128 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49099.jpgsave_picture_49099.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49099.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Freemake Video Converter 4.1.13.180 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49100.jpgsave_picture_49100.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49100.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:6691AE649E3B3FB60EEE44295A764EBAADE8B562
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49101.jpgsave_picture_49101.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49101.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Gif Me! Camera Pro v1.88 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49102.jpgsave_picture_49102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49102.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Iggy Pop - Live At The Avenue B / Iggy Pop - Live At The Avenue B (2005) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49103.jpgsave_picture_49103.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49103.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ magnet:?xt=urn:btih:5341E0E800E9AB11AF88C476C4B5347C8C4DA4FB
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49104.jpgsave_picture_49104.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49104.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Fortress Challenge: Fort Boyard (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49105.jpgsave_picture_49105.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49105.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ R-Studio Network 9.4 Build 191346 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49106.jpgsave_picture_49106.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49106.jpg" />
 </div>
 
 

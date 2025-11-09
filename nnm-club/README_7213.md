@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246773.jpgsave_picture_246773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246773.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:4F7D3D8095210BC83DD32FD58CD746A507463C31
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246774.jpgsave_picture_246774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246774.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:68978481471E1516CB05217D39B31C42FE5EF5A4
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246775.jpgsave_picture_246775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246775.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:468CA470337829EF110CC278519402036599F70C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246776.jpgsave_picture_246776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246776.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ Warface (2012) [Ru] (1.2.8.590) License (обновляемая)
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246777.jpgsave_picture_246777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246777.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ magnet:?xt=urn:btih:817D2D17B2E7322B1C18E1B5A33E910ACE2839D6
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246778.jpgsave_picture_246778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246778.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:E820D062FF320906339AB5861BC83C92E6CA26CE
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246779.jpgsave_picture_246779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246779.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Remnant II (2023) [Ru/Multi] (382 788/dlc) Repack Other s [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246780.jpgsave_picture_246780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246780.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ magnet:?xt=urn:btih:EF79F0067896C1AB478F2F1641AAE24D99813BC4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246781.jpgsave_picture_246781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246781.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ magnet:?xt=urn:btih:160C7A2FF4153A0825EEECC6B37C0D7444A27B44
 >>Зарубежные Фильмы (UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246782.jpgsave_picture_246782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246782.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ magnet:?xt=urn:btih:C5361DE3514D34EC272FBEB6CE69CCB7500CED35
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246783.jpgsave_picture_246783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246783.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ magnet:?xt=urn:btih:359559C52E2784B68CAB52501DE3BADA85D84EE6
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246784.jpgsave_picture_246784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246784.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:B43A539B188F2326EC1014426999170F3B4CC546
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246785.jpgsave_picture_246785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246785.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246786.jpgsave_picture_246786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246786.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ magnet:?xt=urn:btih:AB6E12AE29E1122ADB0CBFFEAFEB402B0166FBEC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246787.jpgsave_picture_246787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246787.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ magnet:?xt=urn:btih:993D3B9BA58D2EF90DE99CBEA02B1B70A6D87EC2
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246788.jpgsave_picture_246788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246788.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ magnet:?xt=urn:btih:CD5821EDB93DED2162CE5374DB826C2FA33805F0
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246789.jpgsave_picture_246789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246789.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ magnet:?xt=urn:btih:BECA9D23B427672040EE22BD84E4B22CD7539CB4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246790.jpgsave_picture_246790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246790.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ magnet:?xt=urn:btih:68A8CDF27ED1FBD978D8F9E3E60D653C93CA7B65
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246791.jpgsave_picture_246791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246791.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ magnet:?xt=urn:btih:569E2BDEF00668BED7B865457097819A1AFA317C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246792.jpgsave_picture_246792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246792.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ magnet:?xt=urn:btih:A3511F34531F2DC9294F5772770C654412D620EC
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246793.jpgsave_picture_246793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246793.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ magnet:?xt=urn:btih:923DAD55F5D1503C1772346BEC0318FF2343BDB5
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246794.jpgsave_picture_246794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246794.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ magnet:?xt=urn:btih:009275D05BD43688DFDC4E84101C7DA72B50C19B
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246795.jpgsave_picture_246795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246795.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ magnet:?xt=urn:btih:6F20AE315D97A96EF2D841C243DF8FDFD6AA8FF4
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246796.jpgsave_picture_246796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246796.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ magnet:?xt=urn:btih:4EC0A2326E2C70C2D496D6DA8718678BAA0BAA66
 >>59
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246797.jpgsave_picture_246797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246797.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ magnet:?xt=urn:btih:6F827D32308D20F20FAE3CA642D112272F41292C
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246798.jpgsave_picture_246798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246798.jpg" />
 </div>
 
 

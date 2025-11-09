@@ -6,7 +6,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187170.jpgsave_picture_187170.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187170.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Filter - The Algorithm (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187171.jpgsave_picture_187171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187171.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ magnet:?xt=urn:btih:89C9D29E3A43A54527F0C37556551AAAD5A95280
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187172.jpgsave_picture_187172.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187172.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ magnet:?xt=urn:btih:84437F9C1329BADCBCC27951C269827E538DBBA6
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187173.jpgsave_picture_187173.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187173.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:1C3453FEF3F231D65A05AD4D2A7C78646757B629
 >>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187174.jpgsave_picture_187174.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187174.jpg" />
 </div>
 
 
@@ -135,7 +135,7 @@ The Pulse Theory - Coming Back Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187175.jpgsave_picture_187175.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187175.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ magnet:?xt=urn:btih:F7B9D8CB08286ED1CCAE001DDB7FEA2699E9B024
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187176.jpgsave_picture_187176.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187176.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ magnet:?xt=urn:btih:FCB6928B4CF6A4D30C701D330165C0EE464169FA
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187177.jpgsave_picture_187177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187177.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Cockos REAPER 6.70 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187178.jpgsave_picture_187178.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187178.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187179.jpgsave_picture_187179.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187179.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ The Blues Project - Evolution (2023) [FLAC|Lossless|image + .cue] <Modern Electr
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187180.jpgsave_picture_187180.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187180.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Auslogics Registry Cleaner Pro 10.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187181.jpgsave_picture_187181.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187181.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Laura Marano - i may be an actress, but i can’t fake how i feel (2023) [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187182.jpgsave_picture_187182.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187182.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ magnet:?xt=urn:btih:04D96F78AF02BB8D1B328F7BD7A012C6B747001B
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187183.jpgsave_picture_187183.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187183.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ magnet:?xt=urn:btih:771E8DC61908586E9406BAF34585EF3213191F04
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187184.jpgsave_picture_187184.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187184.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ magnet:?xt=urn:btih:251CE79EC4DFE31E2DF587E796D8E7151D0FECBE
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187185.jpgsave_picture_187185.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187185.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ magnet:?xt=urn:btih:D99CBAA2DD2469E187B3C68354A3665B788DC4D5
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187186.jpgsave_picture_187186.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187186.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ magnet:?xt=urn:btih:E93C205A92AAD02157BEFFFAF787741969401F42
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187187.jpgsave_picture_187187.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187187.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:2AE05E4FAE12988AC8F96B45CDBBF4A07618FAC2
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187188.jpgsave_picture_187188.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187188.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Way Out Ware - Odyssey 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R2R [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187189.jpgsave_picture_187189.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187189.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Baroness - Stone (2023) 2 x CD [FLAC|Lossless|tracks + .cue] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187190.jpgsave_picture_187190.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187190.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Alpha Romeo - Blue By Design (2022) [Mp3|320 kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187191.jpgsave_picture_187191.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187191.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ magnet:?xt=urn:btih:22C07259C835B8E66A0196FBF594CACF090ED80F
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187192.jpgsave_picture_187192.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187192.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Heavenly - Studio Albums (5 releases) (2000-2009) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpgsave_picture_187193.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187193.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Club Charts 2023 (2022) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187194.jpgsave_picture_187194.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187194.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Lords of Sorcery - Nemesis (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187195.jpgsave_picture_187195.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187195.jpg" />
 </div>
 
 

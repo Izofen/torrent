@@ -6,7 +6,7 @@ Retouch - Technocracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dreamwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109483.jpgsave_picture_109483.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109483.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - We Love Synthpop (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109549.jpgsave_picture_109549.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109549.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Two Lone Swordsmen - Still My World (2024) [FLAC|Lossless|WEB-DL|tracks] <nar ne
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109582.jpgsave_picture_109582.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109582.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Radio Vampire - Transmissions From Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <EB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109602.jpgsave_picture_109602.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109602.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Extra Terra - Accelerate or Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109613.jpgsave_picture_109613.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109613.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Peaceful Resort Experice: Urban Chillout Music (2024) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109656.jpgsave_picture_109656.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109656.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Juicy M - Live @ LOA, Luxembourg (2024-05-03) [MP3|320 Kbps] <Tech House, Techno
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109687.jpgsave_picture_109687.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109687.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Deep House Summer Charts 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109703.jpgsave_picture_109703.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109703.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - Deep House Essentials (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109704.jpgsave_picture_109704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109704.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Soundcheck Nightclub Washington 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109710.jpgsave_picture_109710.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109710.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - Best Of Zara Taylor (2024) [MP3|320 Kbps] <Trance, Vocal Trance, Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109766.jpgsave_picture_109766.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109766.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Armin van Buuren - A State Of Trance 1172 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109777.jpgsave_picture_109777.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109777.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Robotic attacks - Robot is here (2014) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109787.jpgsave_picture_109787.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109787.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Intru.Der - The First Journey (2013) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109789.jpgsave_picture_109789.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109789.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [FLAC|Lossless|tracks] <Tranc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109790.jpgsave_picture_109790.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109790.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - In Bloom 2024 (Vocal Dance Mix) [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109802.jpgsave_picture_109802.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109802.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bobina - Catchy! (20th Anniversary Edition) (2024) [MP3|320 Kbps] <Trance, Progr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109894.jpgsave_picture_109894.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109894.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Maddix Feat. Feles - My Gasoline (2023) [FLAC|Lossless|tracks] <Tech Trance, Pea
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109963.jpgsave_picture_109963.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109963.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Dug Masters - Teleport (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109991.jpgsave_picture_109991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109991.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Climax Chill Out Session, Pt. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Loung
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110031.jpgsave_picture_110031.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110031.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ VA - Seaside Lounge, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110033.jpgsave_picture_110033.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110033.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Redux Selection Vol. 5 (2024) (2024) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110041.jpgsave_picture_110041.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110041.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Autumn Flight, Vol. 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110063.jpgsave_picture_110063.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110063.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ VA - Autumn Flight (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110068.jpgsave_picture_110068.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110068.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ VA - Autumn Flight, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110072.jpgsave_picture_110072.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110072.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110082.jpgsave_picture_110082.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110082.jpg" />
 </div>
 
 

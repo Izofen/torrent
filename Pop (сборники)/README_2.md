@@ -6,7 +6,7 @@ Euromartina - Compilation (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40697.jpgsave_picture_40697.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40697.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Red System Records presents ... CD 1 (2024) [MP3|320 Kbps] <Eurodisco, Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40699.jpgsave_picture_40699.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40699.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - The Dark Side Of Italo Disco (2023) [MP3|320 Kbps] <Italo-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41456.jpgsave_picture_41456.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41456.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - German Top100 DJ Charts 27.09.2024 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41717.jpgsave_picture_41717.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41717.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ VA - Summer Pop Coctail Party Vol. 02 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41721.jpgsave_picture_41721.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41721.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Billboard Global 200 Singles Chart (28.09.2024) (2024) [MP3|320 Kbps] <Pop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41792.jpgsave_picture_41792.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_41792.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Dance-Charts Top 100 (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42009.jpgsave_picture_42009.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42009.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Music Without Borders (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42520.jpgsave_picture_42520.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42520.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ VA - American Spirit (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43658.jpgsave_picture_43658.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43658.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ VA - Summer Green Dancefloor (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43685.jpgsave_picture_43685.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43685.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44102.jpgsave_picture_44102.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44102.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 16 (2024) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44136.jpgsave_picture_44136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_44136.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - German Top 100 Single Charts 30.08.2024 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45056.jpgsave_picture_45056.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45056.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Compilation  part 115 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45477.jpgsave_picture_45477.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45477.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Compilation  part 114 New Eurodisco (2024) [MP3|320 Kbps] <New Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45751.jpgsave_picture_45751.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_45751.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Arabian Miriage (2024) [MP3|320 Kbps] <Instrumental Pop, World>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48177.jpgsave_picture_48177.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48177.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Pop-Rock Dreamers (2024) [MP3|320 Kbps] <Indie, Alternative, Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48495.jpgsave_picture_48495.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48495.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Pop Summer Seasons (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48545.jpgsave_picture_48545.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48545.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Disco Friday (2024) [MP3|320 Kbps] <Disco, Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48554.jpgsave_picture_48554.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48554.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - 00s Stars (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48557.jpgsave_picture_48557.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48557.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ VA - 80's-90's Beach Party (2024) 2CD [MP3|320 Kbps] <Pop, Rock, Electro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48831.jpgsave_picture_48831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48831.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Zazi - Compilation (2024) [MP3|320 Kbps] <Pop, Chanson, Pop Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49498.jpgsave_picture_49498.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49498.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Compilation part 98 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49525.jpgsave_picture_49525.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49525.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ ZAZ - Compilation (2024) [MP3|320 Kbps] <Pop, Chanson>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49541.jpgsave_picture_49541.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49541.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Happy Birthday to Me! (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50149.jpgsave_picture_50149.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50149.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - compilation part 93 Eurodisco (2024) [MP3|320 Kbps] <Dance, Eurodisco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51171.jpgsave_picture_51171.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_51171.jpg" />
 </div>
 
 

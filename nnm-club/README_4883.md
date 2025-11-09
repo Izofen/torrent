@@ -6,7 +6,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152819.jpgsave_picture_152819.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152819.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2018) SATRe
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152820.jpgsave_picture_152820.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152820.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ ASCOMP Image Former Pro 2.004 RePack (& Portable) by elchupacabra [Ru/En]
 >>Графические редакторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152822.jpgsave_picture_152822.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152822.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ magnet:?xt=urn:btih:8FFE1C143C7200DE6B0F2BF01E3996FB94F82517
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152823.jpgsave_picture_152823.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152823.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ magnet:?xt=urn:btih:FE756003FC8DB29EFC2F7F8539B5055EEE17E650
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152824.jpgsave_picture_152824.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152824.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Wondershare PDFelement Pro 8.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152825.jpgsave_picture_152825.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152825.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ magnet:?xt=urn:btih:8460C78C3EE459CA83CAB61B7B7068DD3B01316E
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152826.jpgsave_picture_152826.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152826.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ magnet:?xt=urn:btih:18BA47D69E733DC9ADED561BA7E308F56EC6B15D
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152827.jpgsave_picture_152827.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152827.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ magnet:?xt=urn:btih:7B76BC29136DA3FEB219EA0762654E312A7BD981
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152828.jpgsave_picture_152828.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152828.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Topaz Video Enhance AI 1.8.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152829.jpgsave_picture_152829.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152829.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ magnet:?xt=urn:btih:45D7137684581AF63104043F7117606BA8A990C1
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152830.jpgsave_picture_152830.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152830.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ PrivaZer 4.0.36 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152831.jpgsave_picture_152831.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152831.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ magnet:?xt=urn:btih:8C7CD476488D394AC0123426150C4AC0D658A56A
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152832.jpgsave_picture_152832.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152832.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ magnet:?xt=urn:btih:3180EE00ED7240221788E44D23D54AC1D53897D9
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152833.jpgsave_picture_152833.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152833.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ magnet:?xt=urn:btih:7F6EC354C604DB8DF01F37964C24650E64896D5F
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152834.jpgsave_picture_152834.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152834.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152835.jpgsave_picture_152835.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152835.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 18.12.15 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152836.jpgsave_picture_152836.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152836.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ magnet:?xt=urn:btih:1C5EBB1F37EF0CE5434C287B9FB40EF68A44C1CA
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152838.jpgsave_picture_152838.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152838.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ FileMenu Tools 7.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152839.jpgsave_picture_152839.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152839.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ magnet:?xt=urn:btih:48F33A5EA648787431487F156C1ABA9541CAD553
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152840.jpgsave_picture_152840.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152840.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Deliver Express 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152841.jpgsave_picture_152841.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152841.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Absolute Dance Autumn (2013) 2CD [FLAC|Lossless]<Pop, Dance, Club>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152842.jpgsave_picture_152842.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152842.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ magnet:?xt=urn:btih:C7F483275503240F2B5ED2E50E0B0DA37AA51149
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152843.jpgsave_picture_152843.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152843.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ XaKeR_CD USB Edition Full 13.0/Lite 3.0 (19.12.2018)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152844.jpgsave_picture_152844.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152844.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Delicate Lounge (feat. , Jana Tarasenko) (2012) [MP3|320 кб/с]<Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152845.jpgsave_picture_152845.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152845.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ magnet:?xt=urn:btih:9C3281395B07A4BFDD32040AEA03BFFE648A9A65
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152847.jpgsave_picture_152847.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152847.jpg" />
 </div>
 
 

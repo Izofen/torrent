@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84262.jpgsave_picture_84262.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84262.jpg" />
 </div>
 
 
@@ -31,7 +31,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84263.jpgsave_picture_84263.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84263.jpg" />
 </div>
 
 
@@ -55,7 +55,7 @@ magnet:?xt=urn:btih:EB1B0A9F97334ACB1CD627F3019BE5A1859C9A1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84264.jpgsave_picture_84264.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84264.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:EB1B0A9F97334ACB1CD627F3019BE5A1859C9A1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84266.jpgsave_picture_84266.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84266.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ magnet:?xt=urn:btih:EB1B0A9F97334ACB1CD627F3019BE5A1859C9A1B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84267.jpgsave_picture_84267.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84267.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84272.jpgsave_picture_84272.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84272.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84275.jpgsave_picture_84275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84275.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84276.jpgsave_picture_84276.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84276.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84277.jpgsave_picture_84277.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84277.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ magnet:?xt=urn:btih:C2E5693FFA379E2E8EFCC3C2C8E36B8C26AFAF2F
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84279.jpgsave_picture_84279.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84279.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ magnet:?xt=urn:btih:5253296094BC424649CF7D689730A96460A4E1C3
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84280.jpgsave_picture_84280.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84280.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Elvis Presley - ELVIS 30 #1 HITS (2003) [MP3|320 кб/с]<Rock'n Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84282.jpgsave_picture_84282.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84282.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ magnet:?xt=urn:btih:D05BAFCE6D25064DE180DC175B0996212FA9FBA4
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84284.jpgsave_picture_84284.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84284.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ magnet:?xt=urn:btih:D05BAFCE6D25064DE180DC175B0996212FA9FBA4
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84285.jpgsave_picture_84285.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84285.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ magnet:?xt=urn:btih:D05BAFCE6D25064DE180DC175B0996212FA9FBA4
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84287.jpgsave_picture_84287.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84287.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ magnet:?xt=urn:btih:55C99BCB8454F9F0BA0325D76DC986E81C2EBDEC
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84288.jpgsave_picture_84288.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84288.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ magnet:?xt=urn:btih:B8CE91F1230738E0C4F8641C06E08C9F23D17FF2
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84289.jpgsave_picture_84289.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84289.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ magnet:?xt=urn:btih:B18780FEBACDE0EA6C08B4061E5D86AE772E6D37
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84290.jpgsave_picture_84290.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84290.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ magnet:?xt=urn:btih:B18780FEBACDE0EA6C08B4061E5D86AE772E6D37
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84291.jpgsave_picture_84291.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84291.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ magnet:?xt=urn:btih:156D9B8AF85C71A2356DFA9968C87FE4490C12B8
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84294.jpgsave_picture_84294.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84294.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Angel Voices. Libera in Concert(2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84295.jpgsave_picture_84295.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84295.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАкте
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84297.jpgsave_picture_84297.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84297.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ magnet:?xt=urn:btih:CA31660D95CD01E856C83CD84F83591A0418A3AF
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84298.jpgsave_picture_84298.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84298.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ magnet:?xt=urn:btih:EDC55FE402FFD02F45F1EF45C00C9A0AA8FDA49C
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84299.jpgsave_picture_84299.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84299.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ magnet:?xt=urn:btih:EDC55FE402FFD02F45F1EF45C00C9A0AA8FDA49C
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84301.jpgsave_picture_84301.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84301.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ magnet:?xt=urn:btih:D4E4796F4E9CC105584CF21CFB7A1E5EEE8EBA68
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84302.jpgsave_picture_84302.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84302.jpg" />
 </div>
 
 

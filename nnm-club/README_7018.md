@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240631.jpgsave_picture_240631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240631.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ Witches Tears - Living With Fear (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240632.jpgsave_picture_240632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240632.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Elena Volkova And Alex K. Strangel - Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240633.jpgsave_picture_240633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240633.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dunkelheit - Inner Awakening (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240634.jpgsave_picture_240634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240634.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ magnet:?xt=urn:btih:FDD42F3AA479B5EA0C72F515425371EEFD17DD02
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240635.jpgsave_picture_240635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240635.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Iain Ashley Hersey - Nomad (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240636.jpgsave_picture_240636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240636.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ magnet:?xt=urn:btih:C301DB0C82D015A15F002BA6EA15F42C23329C5F
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240637.jpgsave_picture_240637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240637.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ New Mexican Doom Cult - Necropolis (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240638.jpgsave_picture_240638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240638.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ magnet:?xt=urn:btih:AED1A68BDAF959E00F1C8876BAA440B668F0620F
 >>
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240639.jpgsave_picture_240639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240639.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ magnet:?xt=urn:btih:43969533EA70E6747653FDA7598D3BA69FF38463
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240640.jpgsave_picture_240640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240640.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Glary Utilities Pro 5.206.0.235 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240641.jpgsave_picture_240641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240641.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Legends Never Die - Goodbye to a Perfect World (A Cryptic Ending) (2020) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240642.jpgsave_picture_240642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240642.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Dial!List 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240643.jpgsave_picture_240643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240643.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ magnet:?xt=urn:btih:C74E58BD7162D70923D90FB11B7059C4C3600921
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240644.jpgsave_picture_240644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240644.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ magnet:?xt=urn:btih:DDD279AF3C97E43EE07FF566F80B5E7DD78EDECD
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240645.jpgsave_picture_240645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240645.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ magnet:?xt=urn:btih:B658555A2719977B076280853C533CEF55536BF3
 >>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240646.jpgsave_picture_240646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240646.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ magnet:?xt=urn:btih:4C1087C4D052D91E074B5672841048DF4778939D
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240647.jpgsave_picture_240647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240647.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Desolate Realm - Legions (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240648.jpgsave_picture_240648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240648.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Yiihuu, Mrousix | Product Animation. Design 3D Product (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240649.jpgsave_picture_240649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240649.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Thad Jones - The Complete Blue Note, UA, Roulette Recordings Of Thad Jones (1956
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240650.jpgsave_picture_240650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240650.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Smouldering Embers of Aggression - Ghosted (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240651.jpgsave_picture_240651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240651.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ MediaHuman YouTube Downloader 3.9.9.82 (3005) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240652.jpgsave_picture_240652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240652.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Kearnage Virtual Night, United Kingdom (2020-08-29) [MP3|320 Kbps] <Trance,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240653.jpgsave_picture_240653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240653.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Wattagio 1.12.7 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240654.jpgsave_picture_240654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240654.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ magnet:?xt=urn:btih:95FA81F4F788795FCC5958394B1398A2F1C87C84
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240655.jpgsave_picture_240655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240655.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ magnet:?xt=urn:btih:96CB72B215F172EF6214CF4AE18C65A3A3186F76
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240656.jpgsave_picture_240656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240656.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Z-art school, Татьяна Зубова | Горная река (2020) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187117.jpgsave_picture_187117.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187117.jpg" />
 </div>
 
 
@@ -30,7 +30,7 @@ magnet:?xt=urn:btih:12FDEACB98F7EBB6A7D2A57E9F242C4527D3106D
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187118.jpgsave_picture_187118.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187118.jpg" />
 </div>
 
 
@@ -54,7 +54,7 @@ magnet:?xt=urn:btih:42E81A5698C9E879EB1805A3064928246CB6E044
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187119.jpgsave_picture_187119.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187119.jpg" />
 </div>
 
 
@@ -78,7 +78,7 @@ kiloHearts Subscription 2.0.11 VST/VSTi, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187120.jpgsave_picture_187120.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187120.jpg" />
 </div>
 
 
@@ -102,7 +102,7 @@ HWiNFO 7.63 Build 5215 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187121.jpgsave_picture_187121.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187121.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ SiSoftware Sandra Lite 20/21 R18 (версия 31.112) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187122.jpgsave_picture_187122.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187122.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ ExamDiff Pro Master Edition 14.0.1.13 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187123.jpgsave_picture_187123.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187123.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Freternia - The Final Stand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187124.jpgsave_picture_187124.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187124.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ magnet:?xt=urn:btih:B550274E91C991271146F9B5E204E1FA9BBF1115
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187125.jpgsave_picture_187125.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187125.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ magnet:?xt=urn:btih:D110BA72A1D5BCC63C6FB33BF62CC92D4663E11F
 >>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187127.jpgsave_picture_187127.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187127.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpgsave_picture_187128.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187128.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187129.jpgsave_picture_187129.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187129.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Mp3tag 3.22a + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187130.jpgsave_picture_187130.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187130.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ GPU-Z 2.51.0 + ASUS_ROG Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187131.jpgsave_picture_187131.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187131.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Sumatra PDF 3.5.15578 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187132.jpgsave_picture_187132.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187132.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ magnet:?xt=urn:btih:5131A0A2FE9DFA738BB451BDFBFB613D5CDB233C
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187133.jpgsave_picture_187133.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187133.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Cannibal Corpse - Chaos Horrific (2023) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187134.jpgsave_picture_187134.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187134.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ doPDF 11.7.357 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187135.jpgsave_picture_187135.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187135.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ PowerDirector – Video Editor v12.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187136.jpgsave_picture_187136.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187136.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Soffía Björg - Soffía Björg (2017) [MP3|320 Kbps] <Alternative Rock, America
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187137.jpgsave_picture_187137.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187137.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ magnet:?xt=urn:btih:1711D77D570DC8E47C39734B4036C6F9DE09EE3E
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187138.jpgsave_picture_187138.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187138.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ magnet:?xt=urn:btih:3CF3B660564740AEEDE7EB2AF526CFF8ADEAF22B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187139.jpgsave_picture_187139.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187139.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ magnet:?xt=urn:btih:1823F2FAEB1B2B3CB3A2460C347D0A933454823D
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187140.jpgsave_picture_187140.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187140.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ magnet:?xt=urn:btih:F2E7CBD6C4F967C4C01C12A62DCE2621FB8310E4
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187141.jpgsave_picture_187141.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187141.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ magnet:?xt=urn:btih:1C8C0B6792B42FD4F8F51ECD17DFCEE9F829C109
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187142.jpgsave_picture_187142.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187142.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ AIR Music Technology - Hype 1.1.0 Standalone, VSTi, VSTi3, AAX (x64) RePack by R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187143.jpgsave_picture_187143.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187143.jpg" />
 </div>
 
 

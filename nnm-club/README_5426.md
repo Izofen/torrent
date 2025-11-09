@@ -6,7 +6,7 @@ VA - Caravan 1 (2018) [AAC|~316 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167977.jpgsave_picture_167977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167977.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ magnet:?xt=urn:btih:C2E4F0AAD6F76C398C3E9E7F052CAB5ABC0AD544
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167978.jpgsave_picture_167978.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167978.jpg" />
 </div>
 
 
@@ -57,7 +57,7 @@ Display Driver Uninstaller 18.0.5.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167979.jpgsave_picture_167979.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167979.jpg" />
 </div>
 
 
@@ -81,7 +81,7 @@ magnet:?xt=urn:btih:2C3506D36398D0E2537D26D68231EDF178862329
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167980.jpgsave_picture_167980.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167980.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ AirFoil+Airfoil Satellite 5.10.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167981.jpgsave_picture_167981.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167981.jpg" />
 </div>
 
 
@@ -129,7 +129,7 @@ magnet:?xt=urn:btih:9A66F447F8B463CDD9EBA73F91BB37757F8C9764
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167982.jpgsave_picture_167982.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167982.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Piezo 1.7.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167983.jpgsave_picture_167983.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167983.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ magnet:?xt=urn:btih:7990B77BA7336F62EE797A56C7C68C7BD20819C9
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167984.jpgsave_picture_167984.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167984.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167985.jpgsave_picture_167985.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167985.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167986.jpgsave_picture_167986.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167986.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ magnet:?xt=urn:btih:EA93483AD6BD4EF17012EC3120865F377A03FCE3
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167987.jpgsave_picture_167987.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167987.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Tixati 3.14 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167988.jpgsave_picture_167988.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167988.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ magnet:?xt=urn:btih:89DC09AE940CC59794B495675C25D0A7DCFBBD60
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167989.jpgsave_picture_167989.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167989.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Magic Battery 7.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167990.jpgsave_picture_167990.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167990.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ magnet:?xt=urn:btih:D4178A841498561C4C5E5026C955E362EA28F528
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167991.jpgsave_picture_167991.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167991.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Camel - Mirage (1974) 3CD Remastered & Expanded Edition, 2023, [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167992.jpgsave_picture_167992.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167992.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ RAW Power 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167993.jpgsave_picture_167993.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167993.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ IP Neva - Symbiosis Of Contradictions (2008) Impulsive Art [FLAC|Lossless|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167994.jpgsave_picture_167994.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167994.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Graphic Inspector 2 v2.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167995.jpgsave_picture_167995.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167995.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ XtraTools Professional 23.0.1 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167996.jpgsave_picture_167996.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167996.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ PullTube 1.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167997.jpgsave_picture_167997.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167997.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ magnet:?xt=urn:btih:3F034801EB595DF12FA0B02992F202180DAA6F93
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167998.jpgsave_picture_167998.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167998.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Librarian Pro 6 v6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167999.jpgsave_picture_167999.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_167999.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Node Video - Pro Video Editor 6.8.4 Mod by Alien (ToonXTech) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168000.jpgsave_picture_168000.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168000.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MiniNote Pro 5.91 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168001.jpgsave_picture_168001.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168001.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Vocal Trance 2020 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168002.jpgsave_picture_168002.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_168002.jpg" />
 </div>
 
 
